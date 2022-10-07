@@ -1,0 +1,40 @@
++++
+author = "Melissa Benoist"
+title = "Melissa Benoist Quotes"
+quotes_len = "34"
+description = "the best 34 Melissa Benoist Quotes"
++++
+- Jealousy is a human emotion, regardless of whether you're a Branch Davidian or you're whomever, outside in society.
+- I love female singer-songwriters!
+- I was Obi-Wan multiple years in a row. Alec Guinness' Obi-Wan. I was a Dalmatian once because I loved '101 Dalmatians,' and I think I was a Care Bear once and maybe a Spartan cheerleader from the 'SNL' skit. I'm terrible with Halloween, because I come up with these elaborate costumes and never follow through.
+- I always try to have my mother's voice in my head, because I am very proud of the morals that she tried to instill in us.
+- I fell in love with 19th-century Russian plays.
+- Essentially, what I do on 'Supergirl' is I'm acting out comic vignettes. That is its own muscle to flex, and it is its own skill.
+- I've been looking for a Broadway opportunity ever since I stopped doing theater.
+- I've essentially done theater for more of my life than I've done television or film, and it's really something I feel I know better.
+- At school, when it came to being social, I had no idea how to do it.
+- I was such a wallflower in high school. I did a lot of extracurricular theatre shows, but at school, I spent a lot of time by myself. I ate lunch by myself, and I was always okay with it. But I was definitely made fun of, and I always felt like an outsider.
+- Of course, every actor wants to play as many roles on the Richter scale as they can, and Rachel Koresh certainly is very different from Supergirl, but she shares a lot of the strength that Supergirl has.
+- Every day, I just thank the universe that I am as lucky as I am. Because, I went through periods of time when I didn't have a single bit of work. Months and months where I was auditioning all the time. I mean, all the time, and nothing was happening.
+- I learned the process of this kind of acting, how things run, how chaotic it can be, and what kind of different muscles you have to flex.
+- My life day in and day out is accessing my emotions and bringing them to the forefront.
+- Life doesn't have to be as hard as we make it for ourselves a lot of the time.
+- I always considered myself really non-confrontational and shy and introverted.
+- Living out a story eight times a week is difficult and draining emotionally but very fulfilling.
+- It's so easy to flourish a moment with a cape.
+- A part of my job, when I'm playing a character and approaching a role, is to rationalize and to not judge whatsoever.
+- I don't think a solo album is me. I don't consider my voice to be that kind of a voice. Not that I don't love singing, but Broadway was my original dream. That's what I've always wanted to do.
+- It's lucky that my life outside of work is so mellow; I'm really a homebody and a hermit, so I don't have to worry about blowing my voice out.
+- I'm obsessed with Michael Fassbender. He's unbelievable. I think he's a modern day Brando. Every movie that he's done in the past couple years, I just died for him. He's extremely fascinating.
+- Supergirl is this unattainable, idealistic optimist of an alien, and all of us can escape into her world, and she always saves the day.
+- If I had any advice for my 16-year-old self, it would just be to stay strong, because acting is not an easy lifestyle, especially when you are starting out. That being said, it definitely makes it all worth it when it does happen.
+- I don't take karaoke seriously at all. I'm not the type of person who will go and belt out Whitney Houston.
+- Every role affects you.
+- There are younger people watching CBS, but their audience isn't 13 to 25. The CW specializes in that.
+- Reading about myself on 'Perez Hilton' was kind of the weirdest thing ever.
+- TV sort of picked up for me before my theater career did.
+- I just loved the feeling of performing, of using my imagination to take me somewhere else.
+- I'm definitely interested in doing movies. I've always focused more on acting than singing because that's where my true passion lies.
+- I have a very optimistic view of my future right now. I'm very excited to see where it goes, but I try not to make plans just because I know how unpredictable life can be. Especially the life of an actor, and especially the life of an actor on 'Glee.' I just want to be happy and healthy and surrounded by people I love, as cheesy as it sounds.
+- 'Tapestry' was the first album my mom ever bought with her own money when she was 14. So, needless to say, it was a staple in the household, at least when my mom was choosing the music.
+- I was initially just fascinated by the Branch Davidians. This doesn't really apply to Rachel Koresh because she was born into the church, and that was all she had ever known, but I was fascinated by the psychology of how people get to that place - a place like Mount Carmel and an FBI stand-off for 51 days.

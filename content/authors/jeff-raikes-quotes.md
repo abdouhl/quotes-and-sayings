@@ -1,0 +1,18 @@
++++
+author = "Jeff Raikes"
+title = "Jeff Raikes Quotes"
+quotes_len = "12"
+description = "the best 12 Jeff Raikes Quotes"
++++
+- In order to succeed... you have to put a stake in the ground.
+- Lawyers don't run sales forces.
+- In business, the market gives you feedback in real time. Your sales figures tell you what's working, what isn't, and how you need to change. If you don't listen to the feedback, you go belly up. In philanthropy, there is no market.
+- There's a lot of good that's done for society in building businesses, but it's also great to be involved in those things where you can be connected to the community, to the world, and think about how you can use what you're creating, both in terms of your personal skills as well as your products or services to do good things for others.
+- When families save, they can get through emergencies like a bad harvest or a medical emergency. But it's more than that. They can also plan for the future, gradually saving up for a small business or for their children's school tuition.
+- At Microsoft, the magic of software is used to take on very interesting challenges.
+- One of my great values that my father intuited, and indirectly taught me, is that you should always have a plan but be open to opportunity.
+- You know, being an entrepreneur is super hard work, and if you're not passionate about what you're doing, you're probably not going to succeed.
+- In business, there's a constant focus on developing strategies, reviewing executive performance against those strategies each year, engaging with opposing or different points of view, and having intellectual dialogue.
+- Even bad results teach you something, and you can learn your lessons and get better.
+- I'm a person who enjoys the hands-on experience of anything I do. Get your hands dirty - that's the thing that drives and motivates me.
+- Enterprise search is becoming an indispensable tool to businesses of all sizes, helping people to find, use and share critical business information quickly.

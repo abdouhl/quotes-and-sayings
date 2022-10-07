@@ -1,0 +1,20 @@
++++
+author = "James H. Clark"
+title = "James H. Clark Quotes"
+quotes_len = "14"
+description = "the best 14 James H. Clark Quotes"
++++
+- No matter how much Bill Gates may claim otherwise, he missed the Internet, like a barreling freight train that he didn't hear or see coming.
+- I believe that the Internet is the information highway. I'm religious about this. I don't think it's cable television.
+- I have a policy that I get to spend as much on myself as I give away.
+- My wife's an Australian and a very competitive lady, and she wants to sail in Sydney-Hobart. I say, 'We have the boat, do as you wish.' I'll let her run the show.
+- I'd say there was a fair amount of skepticism at the time about whether the Internet held any promise. And of course I felt that it did.
+- Social media companies are a gold rush today, and time will tell if they survive. I have no use for them and can't see why people waste time on them. I much prefer physical meeting with true friends, so have never used the service.
+- The Internet is not just one thing, it's a collection of things - of numerous communications networks that all speak the same digital language.
+- Stanford did a lot for me, and I've always felt indebted. It was a lenient and productive environment.
+- It's very hard to explain to people who don't program, but the object-oriented programming system made programming the Mac and iPhone so easy.
+- People spend money on sports, and I just don't do golf, I hate it. But I love sailing and the technology aspect.
+- Ibotta represents the future of how mobile technology will be used to drive both in-store and online sales. Not only does Ibotta allow retailers to drive sales directly in store, but it also allows them to see what type of media engagement has the largest effect on resulting customer purchases.
+- After 28 years of owning boats, I'm over it.
+- Entrepreneurship is the key to emerging technologies.
+- The Beatles were great, but Beethoven and Mozart were phenomenal. Both will be remembered for centuries, but it will always be clear which were most in touch with the soul of humanity.

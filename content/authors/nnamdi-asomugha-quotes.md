@@ -1,0 +1,106 @@
++++
+author = "Nnamdi Asomugha"
+title = "Nnamdi Asomugha Quotes"
+quotes_len = "100"
+description = "the best 100 Nnamdi Asomugha Quotes"
++++
+- It can be a bit sententious in the Nigerian household, to the point where you feel like with any wrong step you've set yourself back so far. It's like everything has to be done right.
+- I grew up in L.A. in the '80s, and the Lakers were the biggest thing to ever hit the world at that time.
+- In high school, you can just go out there and play. In the NFL it was so much more mental.
+- I get friends that ask that all the time, and I remember my mother asking me a couple of times, because there was no action during a game, 'did you play?' It's so weird. Everybody's like, 'Great game, great game.' And because I demand so much of myself, I'm like, 'Well, I didn't do that great, because I didn't have any stats.'
+- As a player, you're not really in control of your destiny and the way you make a living.
+- My freshman year, I started working with a group called Touchdown for Kids.
+- I was really close with Rob Ryan, so I know that Rex, being his twin, would be very similar to him.
+- Anytime you leave something you've done and where you've been for nearly a decade, it's going to be different.
+- I'm a class clown.
+- Luckily enough for me I reached a level in the game where no one questioned my work ethic or my ability and then I was like, I don't care. Every off-season I might do a scene in a TV show or something just to keep that going.
+- Obviously, teams are passing a lot more, and there are rules that... allow the offense to be more explosive, so you want to have as many defensive players and defensive playmakers and defensive backs that you can.
+- Oh man, you miss it so much when you finish playing, especially when you play for most of your life. You miss just being a part of a team and being a part of the guys. So I definitely think producing brought that back for me. A bunch of people working together for a common goal.
+- As far as acting, I just went in and just started training. It was the first thing I did right when I retired. I just went in and found class, and found people, found the right coaches that could sort of just train me along.
+- Just to have the opportunity to play in the NFL, I think it's the biggest dream come true for me.
+- I always grade myself hard.
+- When I was a kid, I thought good acting was fascinating, and I could tell the difference. I could see that at like 9 years old.
+- In great Al Davis fashion, he took a reach that he believed in and instilled confidence in me like nobody else could. I was able to become all that he expected of me.
+- Doing interviews after a game, you can't give your true emotions. You can't tap into them. So when you do that for so long, you go into acting and it can be difficult to suddenly just be open and vulnerable.
+- Months after I retired, the Kings won the Stanley Cup and I was there for that game... I happened to be there with a buddy of mine and I was like, 'Oh, I miss this.'
+- My position in football was cornerback, and what your job is as a cornerback is to read the person that's in front of you - read their body language and anticipate what's going to happen next.
+- Even when we were little, we were always helping, going to feed the homeless, community drives, that type of stuff.
+- When football is your job, a lot of what you feel about yourself and about life can become attached to the outcome of those games. That's probably true about a lot of jobs, but we suffer our losses pretty publicly. When you're not getting the results you want, it becomes easy to get depressed.
+- It doesn't matter how well you play individually if the team isn't winning.
+- There are a handful of guys that are really good at what they're doing from the receiver position, which is the easiest position in the NFL. There are a handful of guys that are good at it. There's not one particular guy that would concern me when I'm going into a game, but there are guys that you have to take notice of in the league.
+- I give my all for the sport, and I just don't like it when, if things don't work out, people say, 'Oh, he doesn't care enough about football.' That was the thing that hurt me the most.
+- You're seen a certain way in the acting world. To them, you're still a football player and not taken as seriously. They think you're just doing it to be a celebrity, to keep your name out there. They don't think you'll prepare.
+- You know in acting you have those moments in a movie where a character yells or breaks down crying and you're like, wow, that's acting?
+- As far as producing, I was thrown into it on a film called Beasts of No Nation when we were in Ghana three months after I retired.
+- If we're in a scene together, I want to give you something that allows your performance to be truthful. In football, if you're opposite me, I want to destroy you, take your head off. I'm still reading body language, still reacting, still trusting my instincts - same as football - but it's different now.
+- I'm one of the guys that thinks you have to spend a lot of time at whatever your craft is in order to sustain it, and in order to get better at it.
+- I've been blessed. I've had a fortunate, successful career in the NFL. It's been longer than I initially expected when I came into the NFL.
+- The beauty of football is you have to perform through ups and downs in a public form with a team and the discipline and the pushing through it and the preparation that it takes to be great - all of those things have served me well.
+- When I hear about a player losing his money, I'll rarely, if ever, point a finger at the player because I know how difficult it is. It's not always, 'Look at this idiot who got paid all these millions of dollars and lost it all.' It may be more like, 'This naive kid with a million things going on in his life put his faith in the wrong people.'
+- I'm really bad at self-promotion.
+- I don't talk smack because I feel like it's a waste of energy.
+- In film, there's always this looking for the 'If you lay down and burst into tears, you did a good job.'
+- I'm always willing to help out when people have stories and they bring them to me. I also like the completely fun films like 'Patti Cake$.' My taste is, if it feels like it's something I'd like to see, then I'll get behind it.
+- Everything in life is about confidence. The more you have, the further you'll go usually.
+- It takes time to change a system and to change a mindset.
+- I always go back to the fact that one man can make a difference. No matter what the issue, we always have the power to change it.
+- There's a drive, there's a hunger inside of me that says, 'I know what I can do and I'm going to get it done.'
+- My favorite piece of clothing as a boy was a purple Magic Johnson jersey from the Los Angeles Lakers.
+- I didn't have the luxury of going to the four year school for acting.
+- Ultimately, the Niners just felt at the end of the day like the right place to be. I was really impressed with the way they run their organization, impressed with the winning, impressed with coaches and players. Everything felt like it was in line.
+- I became stiff as a safety, and so I had to learn to move like a corner and think like a corner.
+- I know that a lot of times when a guy is making a lot of money and he's not playing up to that caliber, it's like he's just getting his paycheck. That's never been me. That's never, ever been me.
+- I don't learn as well, I think, in like a structured way. I kind of have to be thrown into it.
+- I tell people all the time that football taught me about life in every single aspect.
+- I think any time you get a boost of confidence, it fuels you to do more, and that kept happening for me.
+- I think everybody has talents that haven't been tapped into. They can go unnoticed your entire life.
+- I learned early in my career that I had to be prepared for life after football because you never knew when it would end.
+- You walk into a room and there's already judgment. You know, like football players can't act or you're going to come in and be stiff.
+- In high school, my dream was to go to the NBA. But when recruiting came around, the letters for football compared to basketball were like 25 to one, and my one wasn't from Duke.
+- I remember players talking to Willie Brown in my presence. Receivers asking, 'Is this who you drafted? I can't believe this is who you drafted.' I was hearing it from my defensive backs: 'Man, you got a long way to go.'
+- It's a difficult thing in this league to match up, to line up and play one-on-one football.
+- I know so many people who've been through situations where they've gone from one career to another and have had such a tough time because they didn't have any support doing it.
+- After 11 seasons, I retired from football. Four months later I was in Ghana shooting 'Beasts of No Nation' as an executive producer.
+- For all of the achievements and awards, to be able to retire as a Raider ranks highest among all of those.
+- Football came in at an interesting time. My dad passed, and my brother was one year older than me. And so he was basically the man of the house - at like age 12. So I really just started doing whatever he did, and football was his thing, so I got into football.
+- When guys get to a certain age or certain level in their career maybe they don't do as much or work as hard so they start to lose some of that stuff. It's inevitable that at some point your going to lose most of what you've had.
+- I hate the term black sheep, but I just felt like I wasn't keeping up. It was a subtle pressure I put on myself.
+- I'm very grateful for my time in Philadelphia and I want to thank the Eagles organization for the opportunity to play here.
+- For athletes, it's extremely tough to trust people with your finances. It's so easy to be victimized.
+- There's a way to speak your mind. You don't just go off and say whatever you feel is right. You have to say what you feel is right and say it if it's something that works for the team.
+- I'll be relentless in my efforts to be great, but I'm realistic. I know I can't be perfect because I've seen it. But at the same time, nobody wants to fail, nobody wants to fail.
+- When you go into free agency and have options, any team is up for you to be on - and the Raiders, obviously with me having been there for so long, have a great shot at it.
+- I talked to a lot of people that switched careers. Not necessarily to acting, but switched jobs. The 'becoming a student again' is the thing that always kept coming up.
+- I get a different pronunciation at least every week. I think the worst one, or the funniest one I got, somebody called me, 'Oh-gooz-man.'
+- I was maybe halfway through my career, and I was shooting a Nike commercial, and the director came to the trailer and said, 'Hey man, you're really gifted at this. I get a lot of athletes that come in, but you were prepared, and you made everything seem very natural. I really think you should look into this.'
+- I've never gone into a season thinking I didn't have something to prove.
+- I've always felt that I'm successful for a reason - so I can help, whether that's one individual or a group of people. That's why I keep going with football. I love the game and I'll keep playing as long as I can, but ultimately there's a different purpose.
+- Something clicked, and I was like, 'I gotta be prepared. This could end at any time.' That was my second year in the league. From that point on I started doing broadcasting and things like that in an attempt to find my passion - something I could do after football.
+- I've always worked my butt off physically and mentally.
+- People told me all of the time, 'You could be such a big star if you just talked about yourself more,' but I'm not good at that. It's always been about team.
+- You kind of have to be secretive about what you're doing post-football because if you're really outward and everyone knows about it while you're playing football then the rap on you is, 'Oh, you don't care about the game.'
+- Seven straight years of losing isn't fun for anyone.
+- I've had a chip on my shoulder every year that I've played.
+- My parents were among the first families from their area to leave Nigeria and come to America, the land of the free.
+- It's really refreshing to get these types of moments when people can say, 'Yeah, you're one of the best.'
+- I'm highly critical of myself. There's not something someone else might say that makes me feel I need to be motivated in a different way. I'm a self-motivated guy.
+- I was never a big spender.
+- When I speak, the things that I'll say will mean something. And if it's not going to mean anything, I won't say it.
+- When a team wants you, you can feel it.
+- My mind-set is to come in and compete and be the best I can possibly be.
+- You always want that as a player, to have that guy on the other side of you that's equally as talented and can make plays. It fuels you a little bit.
+- I was always the person who would make the mistake. I was the one who would get suspended from school.
+- Anybody can be beaten by one pass once. Are you getting beat by that same pass multiple times in the same game? That answer is no.
+- From what I came from, all the negative criticism - that keeps me from embracing that title of being the best. Because I always feel like there is another level I have to get to.
+- I enjoy stories that can spark a conversation.
+- You become a family when you're on a football team. It's the ultimate team sport, so you have no choice but to feel like family, and that never leaves you.
+- I help receivers on my team every now and then, but I'm slow to do even that because they could end up my opponent the following year.
+- I'm grateful for all the teams that I've played for, the fans, the organizations, the front offices, the list goes on and on.
+- I don't think you can ever get bored or lose focus as a competitor.
+- I come from a performing family. My parents are Nigerian, and their parents and their parents - and it's all about performance in their culture, you know. The music. The dancing... you're told to stand out at family gatherings and perform in some sort of way. You're just kind of born into it.
+- When it's football time, that's where I am - the studying, the working, the practicing, everything.
+- To look back where I started from, you can't help but be amazed.
+- When I was a kid, my aunt snuck us into see 'Boyz n the Hood.'
+- When you're playing to get into the playoffs, your contract is the last thing on your mind.
+- The leadership qualities that you have to have to be a producer on a film is something I learned being a captain on the team.
+- I think any time you're able to humanize the plight of the wrongfully incarcerated, then you're doing your job.

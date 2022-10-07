@@ -1,0 +1,30 @@
++++
+author = "Nathan Phillips"
+title = "Nathan Phillips Quotes"
+quotes_len = "24"
+description = "the best 24 Nathan Phillips Quotes"
++++
+- Life's harsh. You can't escape what you are and what you project.
+- If you are in a beautiful place where you can enjoy sunrise and sunset, then you are living like a lord.
+- It's wonderful to be part of a film that really reaches an audience's mind and an audience's heart.
+- I think Australia is pretty much living the last day on Earth in a lot of ways.
+- It makes me sick to my stomach what Australia Day has become.
+- There's a stigma attached to being an actor. People from 'Big Brother' call themselves actors. There's so much crap. It's not about appreciating that we're here to service the public, that we're storytellers. It doesn't sit comfortably with me.
+- It's quite frustrating taking a back seat in films.
+- I have always spent my time more preciously than my money.
+- I'm a child of the Earth, postcode unknown.
+- I'm still very much plugging away. But if I can build my career, I'll do it like Eric Bana. He has a family; he has his roots. He still loves Melbourne. He's a great role model to have.
+- For my first Hollywood film, I really didn't want to be doing a film where I'm looking like a stooge with fake snakes that look like socks.
+- Very happily, I am very fortunate to be able to be where the wind takes me, where the work takes me, and where I want to be.
+- It's really interesting to play someone you wouldn't want to ever spend more than a couple of drinks with - but who has redeemable characteristics.
+- I just happen to love film-making.
+- I live on the beach, and I always will.
+- It's very important to lead your own story: to not be acting as much as you are living.
+- You don't really need much. I try to live my life with that sort of minimalist mentality.
+- Not all of us are born with the same role models and grasp things the same way.
+- If I had to come back in life, I'd come back as a dolphin... they're always smiling; they're always playing.
+- I need to have the soul bank full as well as pay the credit cards and have a roof over my head.
+- 'Australian Rules' was such a beautiful film - it was art for me.
+- 'Australian Rules' was my moment of truth.
+- Storytelling is essentially what we do.
+- Love is a strong, strong thing.

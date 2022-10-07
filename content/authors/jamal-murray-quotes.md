@@ -1,0 +1,106 @@
++++
+author = "Jamal Murray"
+title = "Jamal Murray Quotes"
+quotes_len = "100"
+description = "the best 100 Jamal Murray Quotes"
++++
+- I play instruments and stuff, but I can't rap or anything like that.
+- As a child, I was competitive in whatever it was - first one to eat your wings, first one to run to the door. In everything we were competitive. I always wanted to have the edge.
+- Favorite rap album? Damn. Lil Wayne's mixtapes... He got a lot of good mixtapes like 'Da Drought 3.'
+- I really wanted to step up my defense night in, night out. So that's my mindset, just playing defense and trying to be consistent with that.
+- Meditation helps me see things clearer. When things are going fast, it helps me slow them down.
+- I've had broken fingers and still played for Team Canada.
+- I'm like a carnivore.
+- I always bounce back.
+- I grew up very disciplined and doing what I had to do.
+- The color of my skin should not determine whether I live or die.
+- I'm a big guard, whether a 1 or 2.
+- I always wanted to get better, I always wanted to be the best, and I knew from a young age, so I kept putting in the hard work and kept training around the outside courts outside my house and it paid off.
+- I have the mind of a 1 in a 2-guard's body.
+- When me and Joker are on, I don't think there's anyone who can stop us.
+- It's kind of like, I'm just a guard.
+- Everything is good when you're winning. But true colors come out when you lose.
+- We make mistakes, but we learn from them.
+- I know how to come off a handoff and a pin down.
+- I myself have seen the same racism happen to me and my Dad... I think about all the stories I have growing up with my Dad how obvious it is.
+- I love the game, play with passion.
+- I just play basketball. That's me: all I know is basketball.
+- We all have to get better as human beings and that's something you can't really get away from.
+- When I'm talking to my teammates, being the vocal leader, going up and down, pushing everyone, they tend to follow.
+- You don't want to be the selfish point guard. You want to be the guy that gets everybody open, that makes plays, and see the ball move before it goes in.
+- I was growing up in Kitchener, practising every day on my playground - and it's all about how bad you want it.
+- I want everyone to know: You can play basketball in Canada and you can still get to where you need to go.
+- The main thing is being consistent, being efficient and getting good looks, moving the ball when you can and knocking down my free throws.
+- My dad is the person who taught me how important the mental side of the game is. He studied kung fu growing up and he taught me how to meditate when I was a kid.
+- I just go out there and play basketball. I'm not worried about missing. I just got to be thinking about the next shot.
+- I just play the game. I'm used to trash talking.
+- I played the two guard in college, and playing point guard is what I've done all my life.
+- Well, my dad did a lot of Kung Fu when I was growing up, so he taught me a lot about mental toughness. Ways to slow your heart rate down, slow your breathing down to take control of your body so you can push yourself to the next limit.
+- I believe I can score on anybody.
+- It's hard to say a favorite rapper. If I had to pick two, I'm going to go with Busta Rhymes and Jay-Z.
+- The fourth quarter is where players are made.
+- I remember playing hockey as a kid - I was goalie in gym class and I was pretty good at it. But basketball was my passion. As a kid I went to class, came back from school, did my homework and went straight across the street to practice.
+- I play with a lot of heart, play with a lot of passion. And when you're fighting for something, it means a whole lot more.
+- Coach Cal really makes you look good.
+- In life, you find things that hold value to you. You find things to fight for.
+- The margin between winning and losing is slim.
+- For it not to be safe for kids in school, it's tragic.
+- Well, being at a big school, I had to perform every night. I had to deal with a lot of fans, media stuff, interactions, relationships, you know, just to build myself and show how much I care about Kentucky.
+- I have excellent balance. That's a learned behavior.
+- When Joker hits his three, it opens up the game for everybody.
+- When you're successful, a professional athlete, you can help a lot of others.
+- Meditation is about breathing, it's about clarity, taking your time and not rushing through your thinking.
+- When we go out and play the teams that we need to beat that aren't near our level, then we've got to go out there and blow them out.
+- I have to try to help lead my team to win by any means.
+- I'm just trying to be aggressive. Be aggressive with my shot. Be aggressive going to the rim.
+- If you actually understand and listen to what he's saying, there's no one that can compete with Eminem. That's why no one goes at Eminem because everybody knows Eminem is just, he's too good in a rap battle.
+- I just like competing.
+- Learning to meditate is one of my earliest memories. I started when I was maybe three or four. I mean, I didn't know I was meditating. I just thought it was a weird game my dad had invented.
+- My defence, that is something I can better at individually.
+- Coming from Canada, I've always had people doubt me or doubt my ability. We're just going to keep letting our game talk.
+- It's cool to turn some heads.
+- You want to make every shot, but it's not going to happen like that.
+- My dad knows me better than anybody else. He probably knows me better than me.
+- I'm not just here to get a paycheck and leave. I'm here to be one of the greatest basketball players to ever play.
+- Whether it is my shooting or going to bed on time. There are so many things you can do to be consistent.
+- I can't control what the other team's gonna feel. I'm just gonna go out there and hoop, and whoever takes it to heart and takes their losses salty, I can't do anything about that.
+- The first martial arts movie I ever watched was this old Chinese film called 'Five Deadly Venoms.' I was seven years old. My dad and I were sitting in front of the TV on the floor in our living room.
+- I just want to go to the right team. The team that wants me. The team that believes in my potential.
+- Confidence is always there. If I miss one I'm shooting the next one.
+- Toronto is one of the biggest spots for music; Caribana and OVO Fest and all that stuff, it's a lot of fun.
+- You can't go into a game lax and acting like somebody isn't trying to beat you.
+- Having the coach trust in me, that means a lot.
+- At Kentucky, that was my job - coming off screens, catch and shoot, spacing the floor - no hesitations. Just go right into my shot - don't focus on the defender.
+- It doesn't matter who you're playing against. It's what you can do with your ability and what you believe in.
+- Just wanting to play, I think that's my biggest attribute, just wanting to play through whatever I have to in order to go out and compete.
+- My whole life I played the point, so naturally I think as a point. Two guard, I get to score more... During the game, I like to mix it up.
+- I love to challenge people.
+- Jay-Z just got that longevity. He can put out anything at any time and everybody will love it. He'll never get old.
+- The calls aren't always going to go your way, and you can't complain about it. I tried to learn that as a young player, and you just got to play through it.
+- You see who the real people are when they're challenged.
+- I always try to demand greatness from myself.
+- Not every cop is bad, not every white person is bad or racist.
+- The point guard thing was I had to figure out how to score when I'm hot, and how to distribute and make sure everybody is happy. Because I can be happy scoring the ball. But when everybody isn't touching the ball, and we're not making the defense move, it's kind of pointless. So, I've got to find a way to keep everybody in the loop.
+- My dad taught me a lot of meditative techniques. I used that to my advantage.
+- I really pride myself on playing for Canada and representing the country in any way I can.
+- In college, I got better at playing the 2, kind of got a feel for it coming off screens, found my rhythm. Before that I was a natural point guard.
+- Everybody knows when I get in the zone... I just kind of go crazy. I have a lot of fun.
+- I don't want to be hitting one day then not hitting my shots the next day.
+- When I was six years old, I was always playing with the 10-year-olds. When I was 10, I was always playing with the 14-year-olds.
+- Life is a weird thing because it puts roadblocks in front of you, sometimes you gotta go through it, sometimes you gotta go around it, sometimes you gotta take a pause and look back at what you're gonna do, have a plan.
+- The stuff that the cops do and the stuff that happens, what bothers us, the black community, is it's so blatant... It's so out in the open that if you can't see it, then you are part of the problem because it is very obvious.
+- I have ultimate confidence in myself and my abilities.
+- I had surgery on my core muscles. They were ripping apart.
+- It was a lot of fun to grow up in Canada.
+- We can't get down on one loss or one bad defensive play. We gotta play through it.
+- I grew up in a kung fu house. It wasn't until I got older that I discovered that most families didn't talk about the Shaolin Temple or Jackie Chan at the dinner table.
+- Hockey and soccer weren't my thing.
+- Fatigue is one thing. Injuries are another. But if you are just tired because you just practiced - well, I'm not having that.
+- I don't let other people get under my skin.
+- When you go to like the Nike Hoops Summit, or the All-Canadian Game, all those really matter in your development and how people perceive you as far as how good of a player you are.
+- I was very disciplined growing up. If I didn't want to run hills, I ran hills; if I didn't want to jog around the block, I jogged around the block.
+- Bruce Lee took his craft very seriously, just as my dad took his stuff very seriously. I just loved Lee's attitude.
+- The best part of watching kung fu movies with my dad was the conversations they sparked. We never watched them just for fun. 'Do you see how good his balance is?' My dad would always zero in on really specific stuff like that. Everything had a potential lesson.
+- When guys get competitive and get under each other's skin, it brings you out more. Some people fold.
+- It's not just passing, I gotta play defense, I gotta rebound, I gotta talk, I could have 40 and not talk and not bring energy. But it's just trying to have an all-around game, just trying to be the leader I can be, get the pace up.
+- It's cool to be a pioneer in something, especially in basketball in Canada, it's pretty good.

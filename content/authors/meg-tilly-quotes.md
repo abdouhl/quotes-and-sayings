@@ -1,0 +1,23 @@
++++
+author = "Meg Tilly"
+title = "Meg Tilly Quotes"
+quotes_len = "17"
+description = "the best 17 Meg Tilly Quotes"
++++
+- It helps when 1 can send the children off to their fathers so I can support my new book with a national publicity tour. I started writing the book when my daughter was 5. It took me almost four years.
+- I still have a problem with nuns. I follow them around like a kitten with a ball of yarn. After a while, all my characters become very close friends.
+- Horror movies can be very interesting because they can deal with intangible subjects that are full of emotion.
+- I know that in order to be considered successful, you're supposed to do two or three movies a year. I only work once every year-and-a-half, sometimes two years. I have children to raise.
+- If you meet people who have been successful in Hollywood, or look a their photographs, you see a haunted look in their eyes, you sense a trapped feeling.
+- That is why it's so fun to make movies... you get to do lots of things you would never do in your normal life.
+- I wanted to write something from a child's viewpoint... Five of the characters I have played in movies have either been abused or became abusers, themselves, and I just kind of felt like there was a need.
+- There we times when everybody in the house has the flu. You're cleaning up vomit and it's 2 in the morning, and you're wishing there was somebody else there to help you.
+- I really enjoy acting. At home I can't even finish a sentence, and here I am reading these wonderful lines. I think it must be every housewife's dream, to be an actress part-time.
+- Look, I know he's been married three times before. I accept it, but I don't want it driving up the driveway.
+- Acting's not my whole life. My children definitely come first.
+- I'm not that fashion-conscious. A lot of times, when women are appearing to be so perfect, it's because they're a mess underneath.
+- I think it is important to say that though, of course, it is wonderful to have children, it is a disservice to others not to also say how hard it is to do it alone.
+- I didn't plan to act, but I'm glad I'm doing it - and I just want to keep getting better.
+- If they have covered your face with latex, you have to control yourself mentally so you won't think. If you start thinking, you will succumb to panic. I had a bit of a cold, and frankly I didn't have a good time.
+- I wasn't really interested in doing television. I don't have that much ambition. My agent, Eileen Feldman, has all the ambition for me.
+- I limited myself to introduce a change in my way of thinking and the way I see things. When I look at my child, I do it in a different way then when I'm contemplating a chair. They are different... the child is a living being, and the chair is an object.

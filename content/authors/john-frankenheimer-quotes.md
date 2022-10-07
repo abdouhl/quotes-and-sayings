@@ -1,0 +1,39 @@
++++
+author = "John Frankenheimer"
+title = "John Frankenheimer Quotes"
+quotes_len = "33"
+description = "the best 33 John Frankenheimer Quotes"
++++
+- Casting is 65 percent of directing.
+- First, speaking for myself, I don't want to ever be in a position where I'm telling other directors how to make movies, because I don't think it's any of my business.
+- If you don't cast well, you can be in real trouble.
+- So I've had really great assistant directors for my last seven movies.
+- The accolades usually come when you're dead or too old to get a job.
+- The first thing I can really tell you is I really love the work.
+- One of the other things I think that I've been able to do in my life, is to listen well.
+- To do that I try and keep myself in pretty good shape physically and I try to lead my life in such a way that I'll be able to be as strong at the end of the movie as I am in the beginning.
+- I look at actors very closely. It's not an accident when the actors excel.
+- And in Hollywood, you know, everyone is an expert. Most of them are expert editors. They can't direct, they can't write, they can't act, but, by God, they all think they can edit.
+- I think that you can't make a movie without a script. But you also can't make movies without actors. You also can't make movies without technicians. And there has to be just one person in charge of everybody, and to me that one person is the director.
+- The first thing is that we're being attacked by both the Writers Guild and the Producers Guild. Both of these groups are trying to diminish the importance and strength of the director. They're trying to do it through both frontal and side attacks.
+- The importance of the assistant director cannot be overemphasized.
+- I have gotten to a point in my life where I don't want to have dinner with someone I don't like.
+- A disk unbeknownst to the director can go to the producer in another city or in another office and that producer can edit behind the director's back much easier than in the old days. Since these dailies are now put on videotape, more kinds of people have access to dailies.
+- I think all great actors - and I don't classify myself as one of them, incidentally - but I think all great actors listen well and I've learned that from a lot of the very good actors with whom I've worked - to really listen to what people say.
+- I've found that the more experts you have on a movie, the less control the director has.
+- I feel that my job is to create an atmosphere where creative people can do their best work.
+- It's very eclectic, the way one chooses subjects in the movie business, especially in the commercial movie business. You need to develop material yourself or material is presented to you as an assignment to direct.
+- Then I usually leave the choice of the second assistant director and any other assistant directors to the first assistant director, who will choose because he or she is responsible for the conduct and the efficiency of the second assistant directors.
+- I sought Ben Affleck because I needed an everyman for this role. Ben appeals to men and women. He gives you a sense of intelligence, the notion of a guy who can think on his feet.
+- There are so many effects and so many things that are done digitally now that it's so hard for the director to really control the process, because there are more and more experts that come in.
+- The first assistant director is just so important that the choice of that person is critical to the movie.
+- I really, really love directing films.
+- But I really am very active in the choice of the line producer with the producer of record and the distributing company, because I've had some terrible, terrible experiences with some line producers, particularly in cable.
+- Historically the director has been the key creative element in a film and we must maintain that. We must protect that, in spite of the fact that there is new technology that's continually trying to erode that.
+- I think I've made some pretty decent films in the '80s and '90s.
+- And I kind of feel that I have a responsibility to the people that invest their time and money with me to show up on the set every day and do the best of which I am capable.
+- I mean, this whole digital revolution is really eroding the director's importance on a movie because, number one, just from a practical standpoint, with floppy disks and the ability to put all of the film onto a disk, more people have access to the movie.
+- If you cast the picture correctly, you have a whole lot of leeway. You can make mistakes in other aspects but pull it off with the right actors.
+- One of the first lessons you learn as an actor is to listen.
+- You have to really work with someone who you think is going to be a collaborator, who you think understands what you want to do with this movie and how you want to do it.
+- There are two things I will never do in my life. I will never climb Mount Everest, and I will never work with Val Kilmer again. There isn't enough money in the world.

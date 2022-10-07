@@ -1,0 +1,55 @@
++++
+author = "Karl Iagnemma"
+title = "Karl Iagnemma Quotes"
+quotes_len = "49"
+description = "the best 49 Karl Iagnemma Quotes"
++++
+- The fundamental problem here is that humans and automation approach the driving task differently.
+- My stories often begin with a situation or character rather than an insight about the human condition. It's always been difficult for me to write from an abstract idea, no matter how interesting or compelling I feel the idea might be.
+- Even if trolley problems were a realistic concern for AVs, it is not clear what, if anything, regulators or companies developing AVs should do about them. The trolley problem is an intensely debated thought experiment precisely because there isn't a consensus on what should be done.
+- It's important for automated cars to be able to drive in a human-like fashion - and that does mean adapting to the driving patterns around you.
+- When you contribute to an open-source or a shared solution, and there's a liability issue that arises from the use of that solution, how will this be tracked back to individual contributors?
+- Building cars is highly specialized, it's hard, and it's capital intensive.
+- If you develop a technology that only works in a single city, where it's kind of optimized for a specific city, that's not really that exciting.
+- You have to force yourself to give up and to move onto something else. That's the way you grow as a writer, by trying new things and tackling new subjects. But it's difficult. There's part of you that doesn't want to give up because you realize that, in some way, you're surrendering.
+- Conflating thought experiments with reality could slow the deployment of AVs that are reliably safer than human drivers.
+- We hope to get to the place where there are thousands of Peugeot cars on the road running nuTonomy software.
+- I love driving through Western Massachusetts, out through the Berkshires, when the road is empty and it's a nice day. I don't like driving home on Memorial Drive at 5:45 or 6:45 at night when it's crowded and stressful. I think that's true of most people, and the goal of automated driving is to take the stressful part of driving out of the task.
+- There's so much rich interaction with drivers that we take for granted. It seems like a mundane thing, but it turns out to be a really big deal.
+- It's challenging to drive in a way that's human-like.
+- Cities like New Delhi for example, where traffic is dense and it's a more fluid driving environment, that's hard for self-driving technology to deal with.
+- It's maybe an unrecognized fact of academia that what you spend a lot of your time doing is convincing people of your vision and raising funds to support your research activity. So in that sense, transitioning to a startup wasn't that big of a transition.
+- It's funny how life works. You end up sometimes back where you started.
+- Writing, for me at least, takes a lot of concentrated work and effort. It takes dedication and the willingness to do the work even when that feeling of inspiration isn't there at all.
+- From a technology and economic perspective, it's vastly more likely that autonomy will be used for mobility services.
+- There's a lot of knowledge in civil engineering about how soils will react when subjected to heavy loads. When you take lightweight vehicles and granular soils of varying composition, it's a very complex modeling process.
+- You put a car on the road which may be driving by the letter of the law, but compared to the surrounding road users, it's acting very conservatively. This can lead to situations where the autonomous car is a bit of a fish out of water.
+- In Singapore, drivers generally obey the rules, but the attitude around pedestrians is actually quite different. It's culturally different. People drive safely, but it's not the same deference shown to pedestrians.
+- For self-driving cars in particular, there are lots of dimensions of this technology beyond just impact on labour. There is a massive potential improvement in public health.
+- We want to develop a technology that's globally applicable, that's not customized for a specific city or a specific country. The only way to do that is to be able to test every day in a diversity of environments.
+- We are all vulnerable to the tendency to overestimate the likelihood of vivid, cognitively available risks rather than statistically likelier, but less salient, risks.
+- For better or worse, we have to bridge this divide between developing cars that drive by the book and cars that drive how you and I drive.
+- Partnerships remain critical to nuTonomy's success, and our aim is to work with groups with whom we share strategic aims and core values. These are partners that are transparent, innovative, and are focused on putting autonomous fleets on the road.
+- If you're a large organization, you may welcome a bit of regulation to keep the small guys out.
+- All the technology going into self-driving cars is robotic technology. It's not automotive. That explains why some of the traditional automotive players didn't develop this technology.
+- Even if we wanted to imbue an autonomous vehicle with an ethical engine, we don't have the technical capability today to do so.
+- To the extent that trolley problem scenarios exist in the real world, AVs will make them rarer, not more frequent.
+- In the automotive domain, generally speaking, when you look at consortium models, the groups that have leading technology are less incentivized to contribute to the consortia.
+- I'm really not interested in writing about science at all. I mean, I try to get the information right, the details right. But fiction isn't good at conveying information: It's good at telling stories about people in interesting situations.
+- When a driverless car looks out on the world, it's not able to distinguish the age of a pedestrian or the number of occupants in a car.
+- Uniformity is the friend of scalability.
+- The AV ecosystem is constantly evolving, and no single winner will be crowned.
+- When I first started writing, I didn't write about scientists at all. I think I wanted a break from that part of my world.
+- Everybody likes driving through scenic, winding roads. It's hard to find people who like sitting in traffic in cities.
+- My parents encouraged me to be creative by being creative and interesting people themselves, and by making it clear how highly they valued creativity in others.
+- Our first iteration of driverless cars kind of drove like trolleys on a track. This uncanny notion threw people off.
+- Singapore's not a very big country. They speak with one voice, and they have a clear idea of what their regulatory environment should look like.
+- Humans violate the rules in a safe and principled way, and the reality is that autonomous vehicles in the future may have to do the same thing if they don't want to be the source of bottlenecks.
+- I usually have a general idea of where the story is going, but I try to avoid planning in too much detail. The best endings are those that emerge only after I've thought long and hard about the various ways the story might end. Then I choose the ending that seems surprising yet somehow inevitable.
+- The thing about stories is that they almost always find their way onto the page, even if it takes a while.
+- I grew up in Michigan, in the Detroit area, so cars are sort of in my DNA.
+- Surveys show that while many people are open to the idea of an autonomous vehicle driving them to work, far fewer are willing to let one drive their child to soccer practice.
+- Singapore is likely to be the world's first market for self-driving cars. Commercial services around self-driving vehicles will likely be in Singapore before they are anywhere else in the world.
+- From a societal aspect, when you are impatient behind a driverless car and there's no one to listen to your beeping horn, what are people going to do? How are they going to take out their aggression?
+- Everything that's transported over ground, whether it's people or parcels, will be impacted by autonomous vehicle technology.
+- It's a cultural question. Will people want to share cars?

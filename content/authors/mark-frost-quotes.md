@@ -1,0 +1,65 @@
++++
+author = "Mark Frost"
+title = "Mark Frost Quotes"
+quotes_len = "59"
+description = "the best 59 Mark Frost Quotes"
++++
+- Censors, the whole idea of it, is so childish. You feel like you're talking to hall monitors in school again.
+- My fridge is full of super foods to keep my brain operating at maximum efficiency!
+- The architecture for 'Paladin' - given that it's at least three books, with the possibility of more - turned out to be bigger than anything I've ever created, with multiple levels of reality, interlocking mysteries and a terabyte of time frame.
+- Americans are notoriously ill-equipped for self-reflection. We're usually a very boisterous, outward-moving bunch of people, but we don't understand that much about ourselves or how other people perceive us.
+- I don't like getting stuck into someone's definition of what you can or can't do with a story.
+- I don't think I consciously decided to write for the young adult audience; my subconscious decided for me.
+- I see my responsibility as to give people something they want to keep turning the pages of and giving people something to chew on, looking at some aspect of human nature that hadn't occurred to them recently.
+- The superhero genre speaks to a vast swath of humanity these days, and studios are in the business of constantly renewing their money-printing licenses. I sense we're nearing a saturation point with some of these icons, where it becomes more about the action figures and Happy Meals than it does the mythological heartbeat of the core ideas.
+- I have traveled down this path before - 'List of Seven' and 'Twin Peaks' both have thematic similarities - but 'Paladin' took me much deeper into the intuitive underground. Always bearing in mind Joseph Campbell's Rule No. 1: When entering a labyrinth, don't forget your ball of twine.
+- I've always said that 'Twin Peaks,' to me, was like a novel we filmed every page of.
+- Anybody that has had a brush with what feels like undiluted evil often ends up asking themselves the same questions - whether it's something that was a consequence of their own actions or actions that were taken against them or actions that they were caught up in.
+- 'Hill St.' was very good, but it was very impersonal work for me. I wrote about that place as if I was a visitor. It wasn't what my life was like. It was a great place to learn the craft of how to shape a scene, but I wanted a chance to write about more personal themes and obsessions.
+- There's such a thing as being a little too perfect - a little too shiny. I know I prefer things that have room to breathe and give you a story, a world, in which you have the room to move around.
+- I don't want to get stale. I'm always interested in new things.
+- In a business that's driven purely by economics, the fact that one or two unique shows happen to get on and reach a public for a brief time doesn't constitute a trend.
+- There's a part of 'Twin Peaks' that is sort of a hinged doorway to another, stranger place, if you can imagine such a thing.
+- I got to know Coach Wooden at the end of his life.
+- One of the things that's unique about Louisiana politics is that people here have a much more realistic attitude about who their politicians are. They know they are human and not saints or Mormons or Eagle Scouts.
+- My grandfather was Scottish and just loved the game. My grandmother was a great golfer and a club champion. Whenever I was visiting them, I got a double barrel of golf lore. I guess it was always in my blood.
+- At the heart of life lies a mystery that everybody has to wrestle with. What the heck are we doing here? How does this world work, and how do I fit?
+- There's so much information and journalism on television. We have too much to absorb.
+- The sport was right in the center of these changing social dynamics. It was a game invented by blue-collar people in Scotland but adopted by the elite in England and America. All of those conflicts were coming into the open. I was amazed to find out how much was played out in golf as well.
+- I can remember being fascinated by what people really thought about each other and what they were really doing to each other behind people's backs.
+- People forget that in the early '70s, Saturday was the most-watched night of television of the week. It was where you found 'The Mary Tyler Moore Show' and 'All in the Family.'
+- As you get older, you come to a place in life where you can't just live in the present.
+- I like to take my time with things.
+- I've always had an idealistic streak about storytelling in that I believe we owe more to audiences than repeatedly bludgeoning them over the head while stealing their lunch money. We owe them inspiration. That's why I'm more interested now in creating new heroes than hooking up jumper cables to old ones.
+- It is interesting the way you create something and send it out into the culture, and then the culture kind of goes berserk.
+- When I think of myself interacting with material that I like, that's the material that inherently appeals to me, that gives me room to have my own reaction.
+- My point of view has always been a bit more offbeat.
+- I want something that's going to linger and stay with me and give me something to think about and chew over. That's the real objective here; it creates something that doesn't feel disposable.
+- As a boy, I found myself drawn to Arthurian legends, and then to Celtic mythology, and then further east into the mysticism of Asian religions.
+- I went to high school in Minnesota.
+- When you're writing about one community, in a way, you're writing about all communities.
+- I'm a realist about how the networks work.
+- There is still a wildness inside people that we've spent millennia trying to tame.
+- The fact that people still talk and obsess about 'Twin Peaks', more than twenty years after the fact, is a great validation for what we thought we had going at the time.
+- True violence, not the kind you usually see in television or movies, touches something very deep and primal in people.
+- We've learned never to say never. Anything is a possibility.
+- Criminality is a basic part of human nature.
+- I don't normally associate bingeing of any kind with healthy results in life. And I'm not a binge-watcher by nature myself.
+- I think you can safely say that the mystery in 'Twin Peaks' as we started to explore more is very large, there are many aspects to it and the hope is that people will find things that they are interested in in all sorts of things related to the larger mystery.
+- If you come in with all of the answers, you might create something that's very beautiful and powerful, but I think it will also seem sterile if you don't leave room for people to have their own reactions to it.
+- The whole mythological side of 'Twin Peaks' was really down to me, and I've always known about the Theosophical writers and that whole group around the Order of the Golden Dawn in the late nineteenth, early twentieth century - W. B. Yeats, Madame Blavatsky, and a woman called Alice Bailey, a very interesting writer.
+- There is a design behind the world that we are living in, which is veiled to most of us most of the time, but every once in a while, you catch a glimpse of it.
+- Dear Internet: You are very good at spreading rumors. Truth is more valuable and much harder to come by.
+- A lot of people always look back at 'Twin Peaks' and say that was the start of this explosion we've had in good television drama, but we did it in a time when there were still only three networks.
+- To David Lynch, any film or television show should be life casting a shadow.
+- The challenge for us is to try and come back and raise the bar above what we did the last time. We're coming back with season three of 'Twin Peaks' after a 25-year absence.
+- I don't know if I'll have a better friend than Bill Paxton.
+- It's best to know a little about where you're coming from and why you've arrived where you are.
+- Wooden was the coach for the UCLA Bruins, arguably the greatest sports coach we ever had.
+- Since I've worked in film and television for so long, I've acquired the ability to let the version of the characters that lives in my mind make way for the living, breathing humans who are going to play them on screen. If you cast it right - and casting is about 80% of directing - they will eventually replace or exceed the imaginary image.
+- I've always been interested in what passes for what we call religion, what other cultures call their spiritual life.
+- I don't think you can catch lightning in a bottle twice.
+- I wasn't overwhelmed by dogma, and that sort of freed me up to look at things differently.
+- Easy answers are never really useful ones, so hopefully we're not trying to peddle easy answers.
+- 'Twin Peaks' is a continuing story; that comes from David Lynch and myself.
+- In the fun house of today's metastisizing sports-entertainment megaplex, when every day brings another story revealing how these 'heroes' we create are fashioned from base clay, a pause might be in order to reflect on athletes who actually embodied the qualities we think we admire in the too-easily deified.

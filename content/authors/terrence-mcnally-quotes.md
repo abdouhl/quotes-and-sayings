@@ -1,0 +1,15 @@
++++
+author = "Terrence Mcnally"
+title = "Terrence Mcnally Quotes"
+quotes_len = "9"
+description = "the best 9 Terrence Mcnally Quotes"
++++
+- I may think I have inalienable rights to be alive and happy, but I don't - life is a blessing.
+- I've had wonderful collaborators. They're very different, just as actors are. Working on a show with Nathan Lane is different from working on a show with Chita Rivera. It keeps you on your toes because it's different every time.
+- I like to surprise myself. I've always been attracted to projects where I don't know how they're going to turn out.
+- Cheating is not the American way. It is small, while we are large. It is cheap, while we are richly endowed. It is destructive, while we are creative. It is doomed to fail, while our gifts and responsibilities call us to achieve. It sabotages trust and weakens the bonds of spirit and humanity, without which we perish.
+- If you're trying to write something that you don't understand and embrace at the very core of you, it's not going to turn out with quite the authenticity and passion it should have.
+- Young people have got to start their own theaters, really. All good theater is a kind of mom-and-pop operation. Start your own theater.
+- 'American Playhouse' is very supportive of writers. That's really why writers like to write for 'American Playhouse' for very little money. They care about making your play, your script, not some network production. We're treated like playwrights, not like fodder for some machine.
+- With me, writing is 60% imagination, 30% people you know and 10% you don't know where it comes from.
+- I'm of the school 'Write what you know.' You can educate yourself, but the best writing usually comes from the heart.

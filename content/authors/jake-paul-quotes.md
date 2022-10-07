@@ -1,0 +1,84 @@
++++
+author = "Jake Paul"
+title = "Jake Paul Quotes"
+quotes_len = "78"
+description = "the best 78 Jake Paul Quotes"
++++
+- I work harder than every single person I know, and the only person that is on the same level as me is my brother. If you look at the top social media stars, it's me and him. I think that's our advantage. We're not the prettiest; we're not even the funniest, we're not the wittiest, whatever it is.
+- Social media is kind of the same across the board, so you just have to know how to engage your audience, and you will be popular on any platform that comes up.
+- Nobody's life is perfect, and each individual will have their own struggles and stipulations.
+- I love acting. I'm definitely working on all things acting.
+- I'm really big into lyrics in my own songs, so I look up to Drake in that aspect.
+- The Jake Paulers are the strongest army out there. Dab.
+- I know how to sell a brand and create excitement around something, and so when you combine those two together -entertaining and marketing - it's like things start to go crazy.
+- 'It's Everyday Bro' started with me talking about the things I do on a day-to-day basis. From there, the creativity was unleashed, and the song was the result.
+- I started on Vine because it was such an engaging platform that was the most popular at the time. It came natural to me, and I understood the type of content I needed to make on it so that people could enjoy it. I knew it was a great start, but I had to spread my wings and create something that would last forever - a career.
+- I'd like to be a superhero or a supervillain in a huge action movie. I want to play, like, the Joker or something like that.
+- Disney was, like, such an amazing experience always for me, such a huge part of my life.
+- I want to take my success and replicate it with other artists.
+- I want people talking about me when I'm gone.
+- I made a Vine with 50 Cent where I smashed two quarters together, and he popped up.
+- I had heard about Vine through Twitter, and my first video was of me freaking out on my couch. Back then I had 5 followers.
+- You're only one video away from going viral and changing your life.
+- A lot of the celebrities' kids are Jake Paulers, and so they'll run up and say, 'My dad is this person,' 'My dad is that person.' I'm, like, 'Yo, what's up bro? How are you?'
+- People naturally want to retweet and engage on super funny videos and memes.
+- I want to make music and songs about things that real musicians and artist aren't able to make songs about - you wouldn't hear Justin Bieber making a song about homework, or, like, you wouldn't see someone make a song with their parents on the track.
+- As I was growing my social media following and doing things in Los Angeles, kids in my school would start to hate on me, tweet me stuff... you name it, they said it to me.
+- I am so lucky to have really good parents. They didn't hesitate to let us go to L.A. They didn't hesitate, because they knew that they raised their kids the right way: to be able to live by themselves and not get caught up by L.A.
+- I knew I always wanted to be 50 percent social media and 50 percent traditional media. Because I believe the stars of the future will need both.
+- Every day, I'm trying to push the boundaries creatively, and sometimes it does push the boundary too far, and that's what I had to learn.
+- Social media stars are only relevant because they make content, so they can never stop doing that.
+- The neighbors hate me.
+- When I stopped caring about every other content creator, I became the best one.
+- Growing up, I played football and was always one of the best on the team.
+- Off camera, I'm, like, chill and very laid-back. I don't know if the word is 'shy,' but 'reserved.' I'm always thinking.
+- I moved to L.A. at 17, and for the fist time, I had to realize that if I run out of money, I'm moving back to Ohio - and I didn't want to do that at all.
+- I actually was a good student, but I never applied myself 'cause I was always like, 'I don't love doing this.' I wasn't passionate about school. I always got a B just to pass. But what's crazy is I got a 29 on my ACT test without even studying. So I was always, like, just smart - but never really cared.
+- I have made multiple videos telling fans not to come to our house. I feel like a zoo animal.
+- My school was actually really diverse.
+- People are lazy, and nobody wants to turn their phone to the side. I know I have my phone locked, so if I have to turn something to the side, I have to turn that lock off.
+- I think it's about being really smart about hitting the right consumer product spaces at the right time.
+- Drake has always been a huge inspiration of mine, and same with Lil Wayne.
+- I had to overcome bullies and other people who didn't like me and tormented me. I overcame those things with positive affirmations and setting goals. When I would set goals, I wouldn't let anything get in the way of me breaking them. As I found success, a lot of those things subsided and became less important.
+- Moving forward, the most successful people in the entertainment industry will be 50 percent social and 50 percent traditional, so working with Disney and being super traditional, it brought a whole different audience to me.
+- YouTube is, at the end of the day, a search engine... that's why Google bought it.
+- The way I saw it was, if I had the built-in following and the audience, but I also had the skill set of acting, that would shoot me to the top. Because there's so many good actors. There's so many good-looking people. But the X factor now is social media.
+- I overcame a lot of things, growing up, as everyone does.
+- The videos that I post every day are averaging 7 million views per day. And I post one of those a day. I spend an average of $200 a day to make that. The Disney show that I'm on, they spend $2 million over the course of five days to create one episode that gets 1.7 million views.
+- I want to be one of the biggest social media stars ever to become an actor.
+- I literally have Mickey Mouse tattooed on me.
+- Like, yes, we had a furniture fire get out of control in our backyard one time. But that didn't harm a single person.
+- My goal there on the business side of things is to become the Dr. Dre of social media. He was mentoring younger artists and helping them launch their careers, like Eminem.
+- I'm the first social media star cast as a regular on a Disney Channel series, and I think I'm the first one under 25 from social media to become a series regular.
+- I was, like, 17 years old, making more money than my parents.
+- I'm gonna forget all the negative press and focus on being the best version of myself.
+- I've seen so many people on Instagram lose all of their followers because they were doing constant collaborations. They were only getting paid $100 dollars per post. That doesn't make any sense.
+- I love music, my followers love music, and I know LiveXLive is the ultimate home for the live music experience. We're going to bring great comedy and great music together like no one else is doing, and we'll have incredible access and resources to do it.
+- I always say fitness is the first step to greatness. And I try to encourage my fans to be on the same page as that. Because fitness is the first step to setting a habit that you necessarily don't want to do but are still committed to doing every single day. And so I think that's why I always, always try to get a workout in.
+- I want to become an entertainment, tech, and business mogul just in general.
+- I got into a competition with my brother over who could make better Vine videos.
+- You can become whoever you want to be. You can do what you want to do.
+- I got invited to the White House, and I tried to sleep there overnight without permission. The Secret Service came to my house, and I had to talk to them. They legally couldn't do anything because I didn't do anything wrong, but they yelled at me like a principal.
+- My dad gave my brother and I a camera to film our football games when we were 10 years old so we could see how we could get better. Then one day, we decided to pick up the camera and film whatever we were doing.
+- Don't believe the fake media.
+- I love Bane. I love the Joker. I love Batman.
+- I like to push my body to the limits.
+- I'm in the lane where I can make music but also have it be funny and still good at the same time.
+- I know it's a cliche. But, like, literally, I want to create an empire of dozens of talent under me to take my power and multiply it so that I become bigger than myself.
+- The early days, when Vine was so special and innovative - I would wake up and immediately want to make videos. I loved it.
+- I finished my junior year of high school and flew out to Los Angeles. I didn't know the difference between a manager and an agent. But I got here and just started hustling and meeting anyone I could.
+- What I love about YouTube is that you don't need brands to pay you, because you get paid off the views. When I put effort into YouTube, I directly see money back.
+- Music is something I've always been interested in and incorporated into my videos.
+- We started recording videos around our house, like, doing dumb stuff. Going four-wheeling or whatever. Then we found out about YouTube and fell in love with it and started uploading our videos.
+- I come from a small town in Ohio and was always into sports.
+- I get to do what I want. And I get paid millions of dollars to do it.
+- Even Disney - off the record, but on the record - knows that I have the power. They love me because of that. I don't act like it. I'm not walking around all cocky, but the tables have turned.
+- I'm not here to hurt anyone or harm anyone.
+- YouTube is the vlogs and my life, then Instagram is comedy skits and pictures that I take. Twitter's text, and Instagram Stories is even more behind-the-scenes vlog stuff. I'm always posting.
+- The Internet won't skip a beat, and neither will I. Technology is constantly changing and evolving.
+- I think a lot of social media creators have always been, like, content and haven't pushed the limits because no one else had pushed the limits before. I say to myself, 'How can I create my own TV show online every day and actually make it a real production and put effort into it?'
+- Reverse-engineer Hollywood is how I think of it. All the social-media stars are going in the back door, and everyone's trying to get in the front - there's a line outside. And then everyone's trying to sneak around back, but then there's security, you know? That's an analogy, I guess.
+- There are lots of ways to monetize. But if you have millions of fans, and you can convert even five percent of them to pay for something of yours, you are in the seven-figure range.
+- I studied everyone in the business of entertainment: Dr. Dre, Diddy, everyone. Rob Dyrdek was big for me. He would get 2 million views a week on 'Rob and Big,' and from that sprung everything: DC shoes, Monster Energy, 'Fantasy Factory,' everything.
+- I feel like traditional artists feel like everything that they do has to be perfect and touched up, and it has to be about something that would be able to be played on the radio.
+- My personal goal is to be a billionaire.

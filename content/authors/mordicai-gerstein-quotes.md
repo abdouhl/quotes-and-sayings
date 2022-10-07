@@ -1,0 +1,12 @@
++++
+author = "Mordicai Gerstein"
+title = "Mordicai Gerstein Quotes"
+quotes_len = "6"
+description = "the best 6 Mordicai Gerstein Quotes"
++++
+- Each one seems to be, in some way, essentially different from the others, and each is a surprise to me. I think that making books, or any kind of art, might also be like mining. The artist digs into his or her life and imagination and never knows what they'll find. That's the adventure.
+- I looked at Rembrandt and Superman, Matisse and Bugs Bunny, and began to make my own pictures.
+- Well, 9/11 made me think about the towers, and the fact that I lived in New York for a long time, while they were being built. In fact, I had a studio that was ripped out, along with the whole neighborhood, to put the towers in. I saw them go up. I lived with them, running past them in the morning. And they were like part of my furniture.
+- Writing for children is my... that's my medium, you know, and the medium is the picture book, which is a very particular kind of book. I try to give children what I would give anybody, you know. I become interested in something. I find something fascinating. It has to fascinate me, and then I want to give it to them.
+- I had always loved cartoons, especially 'Bugs Bunny,' and I found I enjoyed making animated films. Even a 30-second commercial involved drawing and painting, storytelling, not to mention actors, music, and sound effects.
+- I'm still surprised to be an author. I wonder what I'll write next?

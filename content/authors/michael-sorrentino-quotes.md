@@ -1,0 +1,106 @@
++++
+author = "Michael Sorrentino"
+title = "Michael Sorrentino Quotes"
+quotes_len = "100"
+description = "the best 100 Michael Sorrentino Quotes"
++++
+- Listen, the conditions in prison as a whole - you're not sleeping in a comfortable bed, you're not eating good food, and this is for long periods of time.
+- Me and my wife have a really, really strong foundation.
+- At the end of the day, stick up for yourself whether you have spiky hair, long hair, blonde hair, black hair, whatever it is, stick up for yourself and go for your dreams because at the end of the day, you can pretty much accomplish anything if you put your mind to it.
+- I believe you have three loves in your life and one true love. I really do.
+- There's enough Situation to go around.
+- I was practicing intermittent fasting while I was in prison. My window of intermittent fasting was between 16 and 17 hours on the weekdays, and 18 and 19 hours on the weekends.
+- The Situation has mass appeal.
+- If you don't go the gym, you don't look good. If you don't tan, you're pale. If you don't do laundry, you don't got no clothes.
+- I definitely am aggressive - I'm not saying I'm not - but at the same time, I'm sweet and I'm genuine and I'm generous and I'm respectful.
+- I'll be honest: I'm not really the best at dancing.
+- Some days I'm Uncle Situation, other days I'm Dr. Situation, I'm Chef Situation.
+- When I first told people the name 'Situation'... they were like, 'That's the best thing I've ever heard.'
+- I'm in constant battle with MTV to see where the line falls. You know, the things I do and say and the things they profit on and the things I profit on.
+- This disease of addiction has touched not just me but millions of Americans out there. Me being in the spotlight, I want to tell my story because there are a lot of misconceptions. I want to let people out there know that there's hope.
+- I love a challenge.
+- I like Armani Exchange, Guess, Rock & Republic. There's a lot of places. I'm not too picky. I like to be trendy, and I like to look good.
+- I've been in love. I believe in destiny and true love.
+- As soon as someone hears the name 'Situation,' they're gonna kind of know that it's gonna be good.
+- I work very hard on my body, and I'm not just known for my six-pack or my body. I also believe that I have pretty good camera presence.
+- At 25, I had lost my job due to the economy, and my family wanted me to become a policeman or firefighter, but I knew there were other things out there for me. I sent some pictures to New York City and a model agency called and said, 'Where have you been?'
+- I actually love to give back.
+- Everybody when they're little wants to be on billboards or on TV.
+- I'm good in front of the camera in terms of speaking or entertaining or being humorous, but when it comes to dancing, you really got to know your stuff in order to be confident. You can freeze up or get stiff, and it's just not a good situation.
+- I really believe in positive energy and positive thinking and dreams and all that type of stuff.
+- There's only so long you can rule the reality world.
+- It's actually a privilege to actually learn how to really dance.
+- I was very proud of the 'Jersey Shore: Family Vacation' that was airing on TV.
+- All the girls in Australia are hot.
+- Everybody loves me, babies, dogs, yah know, hot girls, cougars.
+- In a year's time, I was able to start a brand name and make it a household name. That's The Situation.
+- I will eat a hot dog but I'm not big into hot dogs.
+- The secret ingredient to every meal is love. And also garlic.
+- I never regret anything.
+- Every day when I wake up, I gotta go to the gym.
+- On the 'Jersey Shore,' people got a glimpse through a keyhole of who I really am. But the world really started to see me on 'Dancing With the Stars.' I am not the best dancer. That was never my strong point. But I wanted to let people know, hey, this kid is risking a lot just to know a different side of him.
+- Be confident in what you got.
+- You can't get girls if you can't speak to them.
+- There are not too many places I can go without someone saying, 'Hey, can I take a picture of you with my daughter,' or whatever. I'm humble when it comes to that stuff. I never refuse a handshake or a kiss on the cheek. The fans are the ones who put me where I am today.
+- There's a single with D.J. Class and Fatman Scoop - I'm not going to claim to be a singer, but my voice is in it and the song is technically about me.
+- I love being an entertainer. It's almost been a lifelong journey to find out what I wanted to do.
+- I have so much respect for our troops.
+- I pick my swimsuits just like I pick my women. As soon as I see it, I like it, and that's it. I get it real quick.
+- I am a boxer-brief man.
+- The way you see me on 'Jersey' is a snapshot, and you can't judge from a snapshot.
+- I can play many roles, a guy who takes on a challenge on very short notice with potentially damaging results, if I make the wrong move... I shoot for the stars. If I get the moon, I'm OK with that.
+- On the back of my car, it says 'The Situation' in letters. It's pretty fun. I work so much, I've been blessed to be busy, but when I have time and I'm able to drive my car, which is a couple times here and there, you know, it says 'Situation' on the back of the car, and people are honking the horn and fist-pumping, and it's really, really cool.
+- Miami has beautiful women, beaches and weather.
+- I did 'Jersey Shore 6' sober, and you really just concentrate on yourself and just being the best person that you can be or be better than you were the day before.
+- When you see The Situation in person, it can startle some people.
+- I arrange my other activities around my workout. I have to organize my body, mind and health first.
+- The Situation' - my name, or my character - is known worldwide now.
+- I'm really grateful for all the support from my fans.
+- In the beginning of my career, everybody knew it, it was no secret that I loved the spotlight. I basked in it. And then all of a sudden, I turned into this person who was reclusive, or hiding.
+- I am always looking for ways to expand my brand.
+- I'm taking the name The Situation and I'm... like, I don't know, I'm turning it into The Corporation or something.
+- It is a part of my personality, but not the full circle. That character that you see is 'The Situation.' It's not Michael Sorrentino. You're seeing 'The Situation,' almost like Clark Kent and Superman.
+- Oh my God, to be a free man, to be honest with you, it's awesome. It's fantastic.
+- You can see how prison could affect some of the other guys that are there for longer than a year. Because eventually, it starts to eat away at you. And if you don't work at yourself mentally or physically or spiritually, eventually you're going to be swallowed up by circumstance.
+- That hater-juice is best served cold.
+- You sort of take your freedom for granted sometimes.
+- I understand that there's going to be a shelf life for 'Jersey Shore.'
+- I can speak a little Italian.
+- I'm worried about taking care of myself and working out and taking my body to the best it could be.
+- I love sushi.
+- My abs are so ripped up they're called 'The Situation.'
+- I used to be a fitness model.
+- It's very hard for me to write back to some of the fan mail, so one of the things I wanted to do was reach out through a book.
+- I've always been in unbelievable shape.
+- When you realize that your freedom is being taken away from you, you're like, 'You know what, I'm not going to get good food in prison, so I'm going to order McDonald's, Wendy's, Chick-fil-A.' We're turning up and living our best life, and I did that.
+- I do like Drake's 'Forever.'
+- In the beginning of 'Jersey Shore,' for sure, that was the real Mike. That's the Mike that I know, that's the Mike I love. And that's the Mike I strive to be every day.
+- Everybody goes through their own tribulations in life.
+- The must haves at a Super Bowl party are women, music and some chips and dips.
+- I always had dreams, my whole life, of being somebody special. Someone out in the world that everybody knew of and everybody liked. Somebody unique. Even when I was down on my luck, in my head I still had those dreams.
+- Everyone knows that I have abs.
+- I'll be the first one to tell you if I made a mistake.
+- If you're looking your best, you're going to feel your best. If you feel your best you're going to act pretty charming and when you walk into the room, they're going to be like damn, who is that?
+- Sometimes in people's lives, when bad stuff happens, their dreams just die, and they end up settling. I guess that's their decision, maybe, because they didn't believe in their dreams or forgot their dreams. My dreams never died.
+- You can hate on me all you want to, but what can you possibly say to somebody that looks like Rambo, pretty much, with his shirt off.
+- I'm like a pretty deep dude.
+- I was just proud of myself that, even under extreme stress and adversity, I was still able to do my job and do it well. And still able to earn an income while in prison.
+- My license plate I did get registered, and it is S-I-T-C-H... so that's pretty cool.
+- I love to help others that are suffering from the disease of addiction, and I'm just very, very passionate about that.
+- I've realized what I want to do in life in that I just love being in front of the camera.
+- The real Mike is somebody who is a positive person, a generous person. A loyal person. Somebody that's gonna help you if you call me up and say, 'Mike, I got a flat tire.' I'm there, you know?
+- I don't really feel the need to defend myself for having a six-pack.
+- I'm just saying that being in this business is not easy, and it's definitely not for everybody.
+- I am a real person with real fears, hopes and dreams.
+- I was born with a mic in my hand.
+- My ideal woman is beautiful inside and out.
+- Every day I wake up and my popularity gets bigger and bigger.
+- I have a tell-all book about where I came from, as well as a workout video.
+- My whole life has been a search for finding myself, pretty much.
+- I'll be the first one to tell you if some girl turned me down.
+- People are so happy to meet me. Stars come up and want to take their picture with me.
+- Hey, I live life by the moment. I have no regrets. I live it to the fullest. I have made a lot of mistakes in my life and I'm learning from them. I'm 'The Situation.'
+- When you look at my astonishing physique you probably think to yourself, This kid must eat nothing but molten steel. That's a common misconception.
+- I felt very accomplished staying busy in prison.
+- Losing is not an option for me.
+- I'm limitless. Glass is always half full.

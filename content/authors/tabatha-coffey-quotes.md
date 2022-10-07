@@ -1,0 +1,35 @@
++++
+author = "Tabatha Coffey"
+title = "Tabatha Coffey Quotes"
+quotes_len = "29"
+description = "the best 29 Tabatha Coffey Quotes"
++++
+- During a color consultation, I like to reference food as a visual. Hot fudge and orange marmalade paint a clearer picture and helps prevent end results that leave you feeling unsatisfied.
+- By the way, intelligence to me isn't just being book-smart or having a college degree; it's trusting your gut instincts, being intuitive, thinking outside the box, and sometimes just realizing that things need to change and being smart enough to change it.
+- If you walk into my wardrobe, it's kind of hilarious. It's a sea of black.
+- I've always had a thing for old movies, old Hollywood. I've always just loved watching Marilyn Monroe and Greta Garbo. In all of those old movies from the '40s and '50s, women put themselves together so well, with a little bit of drama and elegance. That was fascinating to me growing up.
+- I have always been a fixer. I am a fixer. I like problems, and I like puzzles, and I like to help people, so I have been a fixer, and I have always been an educator.
+- Being in the beauty industry has taught me that most of us are never satisfied with how we look. We all wish we had better hair, could lose that last 10 pounds, or look like someone else. I always see the beauty in the clients that have sat in my chair, and I've tried to help them see it, too, and feel good about themselves.
+- There's so much bullying with young people and them feeling like they can't come out, and they don't know what to do. And it's something that you have to work through. And, you know, for me, it was - I came out, and then I went back in for a minute. And then I came out, and I was like, 'You know what? This is who I am.'
+- I think a lot of us feel the need to always be connected, and finding time to relax and sometimes play is something that I think we all need to make more time for, especially me.
+- My parents actually ran drag clubs in Australia, which is how I grew up. It was normal for me. It was my normal. I knew the other kids didn't do it, but for me, it was life, and nothing was wrong with it. I would see nothing wrong with Beyonce having a drag queen nanny. And why not? Everyone needs one! And a great gay man in their life.
+- The hottest look for a night out is a deep side part. If that part is not at least three inches in length, then start over. The wider the part, the more open your eyes appear. It is an alluring and seductive look that will keep your date's attention the entire night.
+- I thought Steve Jobs was amazing. He was such a great businessman. Someone that has just been really continually successful with their brand and hasn't gone away, Madonna is incredible. We've all kind of listened to her for years and seen her grow up and change, and she's never strayed away from who she is.
+- Sometimes, in order to follow our moral compass and/or our hearts, we have to make unpopular decisions or stand up for what we believe in.
+- I'm a sucker for expertly-executed detail and surprise elements in clothing.
+- I am gluten free, dairy free and sugar free, although I do slip up on the sugar sometimes because I have a big sweet tooth!
+- Being successful is about professionalism, and chewing gum is unprofessional. Its also a huge pet peeve of mine.
+- I love the Cannes Film Festival. From the lavish parties and events to the red carpet attire, this star-studded week-long event is where I get a lot of inspiration for hair and fashion.
+- Remember this: classics never make a comeback. They wait for that perfect moment to take the spotlight from overdone, tired trends.
+- I first learned how to do hair from drag queens. I learned eyelashes are the key to life, because they make everyone look fabulous.
+- I'm really proud that the LGBT community has gotten behind me because, as I said, I am part of the community, so I do as much as I possibly can for our community and for our rights, so it's nice that everyone is supporting me as well.
+- When you're someone in the media, the good thing is, I guess, that you can reach a lot of people.
+- I turned 40 on the set of the reunion show for 'Sheer Genius,' so it wasn't a hideous birthday because I had everyone on the cast and crew sing 'Happy Birthday' to me, and I won $10,000 for being the fan favorite. It was really liberating to turn 40 and realize that I felt very comfortable with myself and knew who I was.
+- Creativity runs across many categories in life, from the arts-and-crafts project a mum or dad does with their kids, to the bestselling author's manuscript, to the designs of the hairdresser, to the creations of the computer programming genius.
+- We have to stand up for what we believe in, even when we might not be popular for it. Honesty starts with being ourselves, authentic and true to who we are and what we believe in, and that may not always be popular, but it will always let you follow your dreams and your heart.
+- We should all feel confident in our intelligence. By the way, intelligence to me isn't just being book-smart or having a college degree; it's trusting your gut instincts, being intuitive, thinking outside the box, and sometimes just realizing that things need to change and being smart enough to change it.
+- I definitely at times notice a difference in service when I go out. You know, I can walk in to grab a cup of coffee or walk in to have lunch or dinner, and people definitely seem on their best behavior, which is funny, or I start to see people clean up around me, which I always find really, really amusing.
+- We have all met people that act 'old' or think a number makes them old, and I truly don't believe that is the case. If you have a good attitude toward aging, and you do what you can to live healthy and take care of yourself, I don't think the number matters.
+- A lot of people forget how important it is to be creative. We get caught up in getting ahead and in day-to-day minutiae. But creativity is a fundamental mode of expression, as is being tenacious and standing by your own convictions and passions, even if it's not the 'popular' choice.
+- It's a good giggle to look back at yourself in your 20s. You thought you were so fierce and fabulous, and it's just embarrassing.
+- I love my iPhone - I've actually gotten into games, and I find them really relaxing. Don't laugh at me, but I have 'Sally's Spa' - fantastic; 'Penguin Catapult' - it's great; and 'Word Solitaire' is my new favorite.

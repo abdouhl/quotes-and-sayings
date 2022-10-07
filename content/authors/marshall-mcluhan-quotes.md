@@ -1,0 +1,75 @@
++++
+author = "Marshall Mcluhan"
+title = "Marshall Mcluhan Quotes"
+quotes_len = "69"
+description = "the best 69 Marshall Mcluhan Quotes"
++++
+- Anyone who tries to make a distinction between education and entertainment doesn't know the first thing about either.
+- There are no passengers on spaceship earth. We are all crew.
+- Advertising is the greatest art form of the 20th century.
+- The printing press was at first mistaken for an engine of immortality by everybody except Shakespeare.
+- Advertising is an environmental striptease for a world of abundance.
+- As technology advances, it reverses the characteristics of every situation again and again. The age of automation is going to be the age of 'do it yourself.'
+- The scientist rigorously defends his right to be ignorant of almost everything except his specialty.
+- The car has become the carapace, the protective and aggressive shell, of urban and suburban man.
+- Canada is the only country in the world that knows how to live without an identity.
+- Art at its most significant is a Distant Early Warning System that can always be relied on to tell the old culture what is beginning to happen to it.
+- Jokes are grievances.
+- I don't necessarily agree with everything I say.
+- A point of view can be a dangerous luxury when substituted for insight and understanding.
+- We become what we behold. We shape our tools and then our tools shape us.
+- In this electronic age we see ourselves being translated more and more into the form of information, moving toward the technological extension of consciousness.
+- Today the tyrant rules not by club or fist, but disguised as a market researcher, he shepherds his flocks in the ways of utility and comfort.
+- Historians and archaeologists will one day discover that the ads of our time are the richest and most faithful reflections that any society ever made of its entire range of activities.
+- We drive into the future using only our rearview mirror.
+- We shape our tools and afterwards our tools shape us.
+- The more the data banks record about each one of us, the less we exist.
+- Societies have always been shaped more by the nature of the media by which men communicate than by the content of the communication.
+- The spoken word was the first technology by which man was able to let go of his environment in order to grasp it in a new way.
+- The modern Little Red Riding Hood, reared on singing commercials, has no objection to being eaten by the wolf.
+- Publication is a self-invasion of privacy.
+- Television brought the brutality of war into the comfort of the living room. Vietnam was lost in the living rooms of America - not on the battlefields of Vietnam.
+- An administrator in a bureaucratic world is a man who can feel big by merging his non-entity in an abstraction. A real person in touch with real things inspires terror in him.
+- Schizophrenia may be a necessary consequence of literacy.
+- The medium is the message. This is merely to say that the personal and social consequences of any medium - that is, of any extension of ourselves - result from the new scale that is introduced into our affairs by each extension of ourselves, or by any new technology.
+- Far more thought and care go into the composition of any prominent ad in a newspaper or magazine than go into the writing of their features and editorials.
+- One of the effects of living with electric information is that we live habitually in a state of information overload. There's always more than you can cope with.
+- Darkness is to space what silence is to sound, i.e., the interval.
+- Affluence creates poverty.
+- The new electronic independence re-creates the world in the image of a global village.
+- Innumerable confusions and a feeling of despair invariably emerge in periods of great technological and cultural transition.
+- Today it is not the classroom nor the classics which are the repositories of models of eloquence, but the ad agencies.
+- As the unity of the modern world becomes increasingly a technological rather than a social affair, the techniques of the arts provide the most valuable means of insight into the real direction of our own collective purposes.
+- The business of the advertiser is to see that we go about our business with some magic spell or tune or slogan throbbing quietly in the background of our minds.
+- Great art speaks a language which every intelligent person can understand. The people who call themselves modernists today speak a different language.
+- The photograph reverses the purpose of travel, which until now had been to encounter the strange and unfamiliar.
+- The name of a man is a numbing blow from which he never recovers.
+- The mark of our time is its revulsion against imposed patterns.
+- Good taste is the first refuge of the non-creative. It is the last-ditch stand of the artist.
+- Mass transportation is doomed to failure in North America because a person's car is the only place where he can be alone and think.
+- For tribal man space was the uncontrollable mystery. For technological man it is time that occupies the same role.
+- Politics will eventually be replaced by imagery. The politician will be only too happy to abdicate in favor of his image, because the image will be much more powerful than he could ever be.
+- I think of art, at its most significant, as a DEW line, a Distant Early Warning system that can always be relied on to tell the old culture what is beginning to happen to it.
+- Obsolescence never meant the end of anything, it's just the beginning.
+- Art is anything you can get away with.
+- Madison Avenue is a very powerful aggression against private consciousness. A demand that you yield your private consciousness to public manipulation.
+- Our Age of Anxiety is, in great part, the result of trying to do today's job with yesterday's tools and yesterday's concepts.
+- The medium is the message.
+- It is the framework which changes with each new technology and not just the picture within the frame.
+- A typewriter is a means of transcribing thought, not expressing it.
+- Ads are the cave art of the twentieth century.
+- Antipathy, dissimilarity of views, hate, contempt, can accompany true love.
+- Most of our assumptions have outlived their uselessness.
+- Money is just the poor man's credit card.
+- Appetite is essentially insatiable, and where it operates as a criterion of both action and enjoyment (that is, everywhere in the Western world since the sixteenth century) it will infallibly discover congenial agencies (mechanical and political) of expression.
+- If the nineteenth century was the age of the editorial chair, ours is the century of the psychiatrist's couch.
+- All media exist to invest our lives with artificial perceptions and arbitrary values.
+- Money is a poor man's credit card.
+- I wouldn't have seen it if I hadn't believed it.
+- Everybody experiences far more than he understands. Yet it is experience, rather than understanding, that influences behavior.
+- American youth attributes much more importance to arriving at driver's license age than at voting age.
+- Where the whole man is involved there is no work. Work begins with the division of labor.
+- Diaper backward spells repaid. Think about it.
+- When producers want to know what the public wants, they graph it as curves. When they want to tell the public what to get, they say it in curves.
+- Ideally, advertising aims at the goal of a programmed harmony among all human impulses and aspirations and endeavors. Using handicraft methods, it stretches out toward the ultimate electronic goal of a collective consciousness.
+- A commercial society whose members are essentially ascetic and indifferent in social ritual has to be provided with blueprints and specifications for evoking the right tone for every occasion.

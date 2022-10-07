@@ -1,0 +1,38 @@
++++
+author = "Nina Hagen"
+title = "Nina Hagen Quotes"
+quotes_len = "32"
+description = "the best 32 Nina Hagen Quotes"
++++
+- I sing about UFOs and extraterrestrials, and so I designed a UFO fashion. It includes science-fiction bikinis and Bermuda Triangle shorts.
+- You see, you learn from all your bad experiences, so they're really positive. It's all part of the cosmic knowing.
+- I create my own lyrics. I have a great band. I have a drummer from East Berlin.
+- Who are we to judge somebody for who he's allowed to fall in love with?
+- I was traveling on our tour bus through Europe and I was thinking I want to have long blonde hair.
+- I have a following. Whenever I am on tour they come. It is always sold out.
+- I grew up in East Berlin, in a family of artists.
+- I never have a bad night, bad day, bad moment.
+- I sing about heaven and hell, angels and demons.
+- Do some selfless service for people who are in need. Consider the whole picture, not just our little selves.
+- I know what's best for me, and I want to do things my way. So, now I listen to my inner voice and my heart - and that's how I make my decisions.
+- You don't always have to have a record out. I'm not a sausage factory, you know, turning out records every year.
+- I meet many people, I talk with them, like a TV show host. I show what's going on with Greenpeace, interesing political things, I have artists, musicians and bands.
+- It wasn't fun to go to school, because we had to wear these blue things around our necks. We had to join the Pioneer Society, and we had to salute with our hands over our eyes. Even then, I was thinking for myself. I thought this wasn't so different from the way the Nazis had conditioned people.
+- When I was growing up in East Germay, everyone said there was no God. So I started looking for it myself.
+- Maybe one day I'll have a big hit, and the world will make a big sex symbol out of me like they always do when there's a new chick.
+- I am a Love Boat.
+- You have to see my show to believe that I'm the only unique Nina Hagen on this planet.
+- It doesn't matter how old people are. It matters if they love each other and have fun with each other. It has nothing to do with age. To get old is a mental disease. Everything is in the head.
+- Jesus Christ will be the leader of an intergalactic earth evacuation. We're getting some earth leaders up there to check the mother ship. The Bible says that the sky will be glorious and Christ will come back to us all.
+- We can change the world if we change ourselves. We just need to get hold of the old patterns of thinking and dealing with things and start listening to our inner voices and trusting our own superpowers.
+- I heard opera all day long. From the time I was 9 years old, I was imitating the singers; later I studied opera. But we also got Western television and radio, from the Americans in West Berlin. When I was 11 years old, I turned into a hippie and gave flowers to policemen. And when I was 21 and left Berlin for London, I became a punk.
+- I sing 'All Apologies' with my own lyrics. People want to sing along, but then, oops, they realize it's a different story.
+- I have a wish for world peace and the truth. I would like to see a society that will bring happiness to all life forms. Of course, to the Nazis, I appear a rebel, but to the rebels, I appear like a normal person from Venus.
+- As long as karma exists, the world changes. There will always be karma to be taken care of.
+- I once had a dream and this one familiar god, who was probably one of my master teachers, said, 'You should not worry about being on the charts. That's not important.'
+- It's a human right to be able to have a relationship.
+- Life is so great every day. I am telling things every day.
+- People who are stuck in a Catholic church, that's OK for them because that's what they need right now.
+- I have my own strength.
+- I screamed and cried, but no one ever came. No doubt it was in one of those scream-filled nights in which my strong singer lungs and my crazy voice were born.
+- I don't have to try to be outrageous. I am outrageous.

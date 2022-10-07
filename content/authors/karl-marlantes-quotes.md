@@ -1,0 +1,25 @@
++++
+author = "Karl Marlantes"
+title = "Karl Marlantes Quotes"
+quotes_len = "19"
+description = "the best 19 Karl Marlantes Quotes"
++++
+- Really important books to me are the classics. I try very hard to read them well - you know, especially once I got serious about writing. So, reading Tolstoy several times - 'War and Peace,' 'The Kreutzer Sonata' - all those were really important to me.
+- I grew up in Oregon, where as a teenager I worked with my grandfather Axel on his i shing boat at the mouth of the Columbia River.
+- When the peace treaty is signed, the war isn't over for the veterans, or the family. It's just starting.
+- The Marine Corps taught me how to kill, but it didn't teach me how to deal with killing.
+- I knew many Marines had done brave deeds that no one saw and for which they got no medals at all. I was having a very hard time carrying those medals and didn't have the insight or maturity to know what to do with my combination of guilt and pride.
+- For every veteran who goes through a divorce, a wife goes through one, too. For every veteran alone in the basement, there is a wife upstairs, bewildered, isolated and in despair from the dark clouds of war that hangs over family life.
+- Vietnam was the first time that Americans of different races had to depend on each other. In the Second World War, they were segregated; it was in Vietnam that American integration happened in the military - and it wasn't easy.
+- I was given the ability to create stories and characters. That's my part of the long chain of writers, publishers, agents, booksellers, librarians, and a host of others who eventually deliver literature to the world. I want to do for others what Eudora Welty did for me.
+- I mean, if you're proud of what you've done when you've served in the military, well then we call that bragging. And if you are unhappy about what happened, we call that complaining. And so what are you going to do?
+- We all want to be special, to stand out; there's nothing wrong with this. The irony is that every human being is special to start with, because we're unique to start with. But we then go through some sort of boot camp from the age of zero to about 18 where we learn everything we can about how not to be unique.
+- I began writing 'Matterhorn' in 1975 and for more than 30 years I kept working on my novel in my spare time, unable to get an agent or publisher to even read the manuscript.
+- War is society's dirty work, usually done by kids cleaning up failures perpetrated by adults.
+- 'Matterhorn' is my metaphor of the Vietnam War - we built it, we abandoned it, we assaulted it, we lost, and then we abandoned it again.
+- In the military I could exercise the power of being automatically respected because of the medals on my chest, not because I had done anything right at the moment to earn that respect. This is pretty nice. It's also a psychological trap that can stop one's growth and allow one to get away with just plain bad behavior.
+- I mean... if you're raised as a decent human being, killing somebody is against every moral thing you've ever been taught. And so, generally, in combat it's 'krauts,' the 'gooks,' the 'yanks' - whatever you want to do to try and make it so that it's not a human being.
+- When I first got back from the war, I said, 'I'm gonna write the Great American Novel about the Vietnam War.' So I sat down and wrote 1,700 pages of sheer psychotherapy drivel. It was first person, and there would be pages about wet socks and cold feet.
+- 'The Odyssey' is the great tale, and I was really taken by 'The Iliad,' so I dig into those things, and when I was a kid I didn't. You've gotta have a certain level of understanding yourself before that stuff really starts to resonate.
+- And I think that it's - the military has actually made improvements, so people are considering post-traumatic stress disorder as, at the least, a possible psychological problem. You know, when I was in Vietnam, it was just considered malingering. And we're making progress.
+- I don't want any romantics to go into the military. I'm not a pacifist. I think we need a military, and the better one we have, the better off we are. I don't want kids going in there thinking that it's John Wayne on Iwo Jima. That's not healthy.

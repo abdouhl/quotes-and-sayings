@@ -1,0 +1,21 @@
++++
+author = "Katharine Weymouth"
+title = "Katharine Weymouth Quotes"
+quotes_len = "15"
+description = "the best 15 Katharine Weymouth Quotes"
++++
+- Moderate to conservative Democrat. But I'm not going to impose my views on the editorial page.
+- Hillary Clinton famously talked about how raising a child takes a village. Except our society isn't set up that way. We're organized in nuclear units, and a single mom can ask her friends only so many times for help picking up the kids.
+- We're no longer a newspaper in the morning, we're a 24/7 newspaper organization.
+- I don't personally feel that I have to save democracy and journalism.
+- My grandmother knew J.F.K. and L.B.J. That was her world. I enjoy meeting interesting people. But that's not my world.
+- It's not like I pretend the past doesn't exist or that I'm not proud to be a part of it.
+- People assume that I came back to Washington because of the 'Post', but the truth is less romantic. I came back for a job.
+- I care deeply about journalism, but we need to be a business.
+- My mother doesn't cook; my grandmother didn't cook. Her kids were raised by servants. They would joke about Sunday night dinner. It was the only night she would cook, and apparently it was just horrendous, like scrambled eggs and Campbell's soup.
+- I certainly hope to be a great publisher, and if people want to love me, too, that's even better.
+- I don't feel like my job is to be beloved.
+- Part of my job is to make the tough calls.
+- The way I live is really me.
+- Women are often meeker in meetings and afraid to ask for raises and promotions. I've told countless female colleagues to stop apologizing when they ask for more. It's not personal, it's business.
+- I think I felt like a regular kid. Growing up in New York, I never felt I was a big deal.

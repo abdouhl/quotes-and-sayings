@@ -1,0 +1,63 @@
++++
+author = "Tommy Lasorda"
+title = "Tommy Lasorda Quotes"
+quotes_len = "57"
+description = "the best 57 Tommy Lasorda Quotes"
++++
+- Everybody wants to win, but everybody doesn't win.
+- I've had heroes in my life - Joe DiMaggio, Babe Ruth.
+- If you love your job, you haven't worked a day in your life.
+- You give loyalty, you'll get it back. You give love, you'll get it back.
+- I believe managing is like holding a dove in your hand. If you hold it too tightly you kill it, but if you hold it too loosely, you lose it.
+- No, we don't cheat. And even if we did, I'd never tell you.
+- I love doubleheaders. That way I get to keep my uniform on longer.
+- You can have the best team in baseball, and if nobody goes through the turnstiles, you've got to shut the doors down.
+- 'Pressure' is a word that is misused in our vocabulary. When you start thinking of pressure, it's because you've started to think of failure.
+- When I took the job as the manager of the Olympic team, I didn't take it because I was a Dodger. I did it because I was an American, and I wanted to bring that gold medal where it belongs in baseball, the United States. And that's exactly what our team did.
+- Chan Ho had a great career and was the exemplification of class, dignity and character.
+- I didn't even graduate from high school. I've never told anybody that before. I got my degree later, when I was in the army.
+- I started in the lowest league in baseball, and I worked my way all the way up to Triple A and then to the big leagues. I never reached the level that I thought I would reach as a player. But that's the way it goes. So then I started from the bottom as a manager, and I worked my way up to managing the Dodgers for 20 years.
+- Guys ask me, don't I get burned out? How can you get burned out doing something you love? I ask you, have you ever got tired of kissing a pretty girl?
+- Managing is like holding a dove in your hand. Squeeze too hard and you kill it, not hard enough and it flies away.
+- Everywhere I go, I feel strange.
+- My theory of hitting was just to watch the ball as it came in and hit it.
+- I do not care whether you're a Democrat or you're a Republican or an independent. We must pull for the people who are wearing the uniform of the armed forces. These people weren't drafted. They enlisted, because they believe.
+- When I was 15 years old, I used to actually dream I was pitching in Yankee Stadium. Bill Dickey was my catcher.
+- We're all put here for a reason. And one little movement changes your way of life.
+- Grownups have to say 'please,' too.
+- My son wasn't gay. No way.
+- I bleed Dodger blue!
+- If you don't love the Dodgers, there's a good chance you may not get into Heaven.
+- I've always called L.A. 'the world capital of sport.'
+- I still remember the entire Boy Scout motto. I don't remember the serial number of my gun in the army. I don't remember the number of my locker in school. But I remember that Boy Scout code.
+- I'm telling you, I don't like cheaters.
+- I firmly believe that there is a God. I firmly believe that there is a Heaven. And I firmly believe that if you go there, it's gonna be great.
+- When I was interviewed after I got hired to replace Walter Alston, a future Hall of Famer, I was asked: 'Don't you feel pressure on you?' I said: 'Want to know something? I'm worried about the guy who's going to have to replace me.'
+- When you - when you become the manager of a major league team, particularly the Dodgers, to me, that's a privilege and an honor. No matter where you go or what you do, you represent that position that you have. And you represent that organization that gave you the opportunity to be doing what you're doing.
+- Listen, if you start worrying about the people in the stands, before too long you're up in the stands with them.
+- There are three types of baseball players: Those who make it happen, those who watch it happen and those who wonder what happens.
+- I've never used one word of profanity in front of my wife, or my daughter, or my granddaughter... or anybody else's wife.
+- People say you can't go out and eat with your players. I say why not.
+- Always give an autograph when somebody asks you.
+- When we win, I'm so happy I eat a lot. When we lose, I'm so depressed, I eat a lot. When we're rained out, I'm so disappointed I eat a lot.
+- Sports has kept me on the straight and narrow path.
+- You get an opportunity to do something for your country, you better get out and do it.
+- The only way I'd worry about the weather is if it snows on our side of the field and not theirs.
+- They could never beat me in Springfield. I loved that old ballpark. If I could have pitched there all my career, I'd be a 300-game winner.
+- I am so happy and proud to learn of Hideo Nomo's election to the Japanese Baseball Hall of Fame. He was quite a pitcher and competitor, but he is also a very special and caring person.
+- You can wake up every day and make today better than the last.
+- I was fortunate enough to coach the U.S. Olympic team in Australia.
+- Sometimes you've just got to let an umpire know that you're not satisfied with his decision. That they've missed the play in your opinion. Not that it's going to do you any good, but you've got to let them know.
+- There are three kinds of people in this world: people who make it happen, people who watch what happens, and people who wonder what happened.
+- I've got a portrait in the Smithsonian. Who ever thought that would happen?
+- Sometimes, you get too hopped up, too excited, and it works against you.
+- Baseball is like driving, it's the one who gets home safely that counts.
+- I bleed Dodger blue and when I die, I'm going to the big Dodger in the sky.
+- The difference between the impossible and the possible lies in a man's determination.
+- Everything I have, I owe to baseball and the Dodgers.
+- One time I was doing a speech to a group of kids, and just before I get there, I see this little kid crying. I found out they just lost a game, and he was the losing pitcher. I went over there, put my arm around him, and said, 'What are you crying for? When major league players lose, they don't cry.'
+- My goal is to live to be 100.
+- About the only problem with success is that it does not teach you how to deal with failure.
+- Baseball is played by all countries now, and softball, too.
+- No matter how good you are, you're going to lose one-third of your games. No matter how bad you are, you're going to win one-third of your games. It's the other third that makes the difference.
+- The only Angels in Los Angeles are in Heaven, and they're looking down on the Dodgers.

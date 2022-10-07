@@ -1,0 +1,30 @@
++++
+author = "Jilly Cooper"
+title = "Jilly Cooper Quotes"
+quotes_len = "24"
+description = "the best 24 Jilly Cooper Quotes"
++++
+- For sheer sexiness, a man must be beautiful. Funny. yes. Clever, no.
+- The male is a domestic animal which, if treated with firmness and kindness, can be trained to do most things.
+- I think it bespeaks a generous nature, a man who can cook.
+- I've got a book coming out soon so I just must get some weight off.
+- The bank told us we ought to sell this house to pay off our overdraft. Riders saved the day. I was so pleased when it got to number one, I went all around the fields crying and crying.
+- But I always seem to finish a book and then think, oh God, I've got to pay a tax bill, so I'd better write a novel, so I tend not to stop and learn word processing.
+- At home I have big vats of cabbage soup that I make to slim down.
+- I was so flattered that someone wanted me to write a book, I said I would. It was published in 1969.
+- I wrote my earliest piece for The Sunday Times about being a young wife.
+- And I would really like to be a grandmother, but only when Felix or Emily meet the right person and are ready.
+- It must be a terrible pressure to have to go to the office.
+- I live at home and, if I want to start work at 11 o'clock, I can.
+- I'd never have written the big books in London.
+- Never drink black coffee at lunch; it will keep you awake all afternoon.
+- Leo, sadly, has Parkinson's, but he used to cook all sorts of dazzling things.
+- If you look across the valley, you can see exactly what I mean: about four beautiful houses, and you think something is happening in each of them. It's like a mural.
+- There is nothing more attractive than a man who is not a New Man.
+- I have a theory that the secret of marital happiness is simple: drink in different pubs to your other half.
+- I'm basically a very happy person and I don't have to be anybody else.
+- You've simply got to go on and on with your family and friends and tell them how much you love them because you never know whether they'll be there tomorrow, do you?
+- I love the long grass coming up to meet the willows.
+- But really I'm not terribly interested in what I eat.
+- My own parents loved each other very much.
+- I would really like to spend more time with the family. Every time I go abroad I miss them all dreadfully.

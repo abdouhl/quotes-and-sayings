@@ -1,0 +1,54 @@
++++
+author = "Nick Jonas"
+title = "Nick Jonas Quotes"
+quotes_len = "48"
+description = "the best 48 Nick Jonas Quotes"
++++
+- I'm pretty crazy about the Yankees. When I can't actually watch a game, I TiVo it. I am also a die-hard Dallas Cowboys fan. I don't tell many people that because I will get made fun on because I'm from New Jersey!
+- Having haters is just a part of the business, and the more haters you have, the more people like you - that's how I view it, because I try to see the positive in things.
+- The one mentality I've always tried to have is that no matter what stage in your career that you are in as a musician or a performer or a songwriter or whatever, there's always more to learn.
+- I admire Kings of Leon. I think their records are amazing. Just from hanging out with them, I can say they're good guys. It's cool to see that they get to do what they love. But I think they clearly have an appreciation for where they came from, and it has shaped who they are.
+- I love the show 'Nashville,' I mean, that's a show that's pretty incredible.
+- I kind of date my musical discovery back to when I was 13 years old, getting my iTunes account and using that as a major tool to discover new music.
+- I think that dating other musicians can be complicated at times. Especially when they think highly of themselves.
+- I've always been quite driven. I take after my father.
+- It's a dream of mine to win a Grammy one day. I'm not saying I'm Grammy-worthy, but it would be a dream come true.
+- My thoughts on gay marriage are that everyone has the right to love and be loved, and that's the position I take.
+- It doesn't matter if the world is pulling you down. With Christ, you have everything.
+- I've been blessed to have acting opportunities in movies, television, as well as Broadway, and definitely want to continue to do so.
+- I trained myself to not get my hopes up, because there were so many times in the room where you'd be like, 'This feels amazing, this is a hit!' And it never saw the light of day.
+- I'm not one of these Disney haters. I'm really appreciative of the foundation it laid for me.
+- The world of music is changing so dramatically every day, the way people hear music. It's different. It's a new day and requires new thinking.
+- I flirted with Rihanna once. It didn't work - but it didn't not work. It didn't go anywhere, but it was a great conversation.
+- I love pizza; you can't really go wrong with pizza.
+- Growing up, my dad was a pastor, and much like The First Family or people in front of the public eye, we were highly scrutinized as a family within the church and looked at as - well, I guess you would call an example of what that family image should be.
+- The tricky thing is, from what I've heard, I'm a bit emotionally unavailable.
+- I think my favorite song from another artist would have to be 'Superstition' by Stevie Wonder.
+- Quality. That's the key. Everything I do, I want it to have that stamp that people like Jay Z, for instance, have on all the things they touch.
+- I have really musical parents, and my dad was always encouraging, but the desire to get onstage and perform really did come from me. I'd never push my future children.
+- I made a resolution in 2010 to stop drinking Diet Coke, and I haven't had Diet Coke since then. I think it was the best life change I've ever made, because I drank quite a lot of it.
+- Being a pastor's kid comes with a lot of pressure and scrutiny. A lot of my dad's sermons were about respect. It was a beautiful way to be taught about love and two people being equal.
+- I keep my political views to myself.
+- Find things you're passionate about, and find others who are as passionate as you are and will focus on giving you an opportunity to shine and to have your moment where you can be in front of others to show what you can do.
+- I like Instagram - it's a good way to keep up with my friends without having to text or call all the time, and I really like Snapchat.
+- I am who I am, and I can't change that. It's not something I've labored over.
+- I've been known to drop a spoken-word bit into a song from time to time. But not straight-up rap. I don't know that I have that gift.
+- I feel really fortunate to come from a home that was always supportive and stemming from creativity, integrity and building character.
+- It sounds funny, but my biggest fear is that I'm not perfect. I'm a perfectionist, and I get upset when things go wrong or when I don't do well.
+- I really like scripted dramas. My favorite show of all time would have to be 'Lost': I loved how the writers and producers were able to weave the different storylines together; and the acting in that show was incredible.
+- My upbringing was faith-based, but we believed you should love all others as you want to be loved, because everyone should be treated equally. That's helped me have an understanding of people on different journeys and in different walks of life. At the end of the day, we're all the same, because we all want to be loved.
+- I get to wake up every day and create music. And even when it's a tough moment as far as career ups and downs, it's always something you're passionate about, and it's a beautiful way to spend your life.
+- I've gone to normal clubs, straight clubs, and I've gone to gay clubs to party with my friends and fans. There's no difference. I have nothing to prove. I'm very comfortable in my own skin, and I'm thankful to have as many close gay friends as I have, people who have been so supportive in my life and have always been there for me.
+- I grew up here in New York City and New Jersey, performing on Broadway shows, surrounded by some of my closest friends from the LGBT community. My father, a minister from New Jersey, shaped my view that love is love, that we are all equal.
+- I have a lot of memos in my phone of songs; I've had dreams about a melody. It's always melody first as far as when stuff like that happens - I find that my melodic sense is my strongest asset as a songwriter.
+- People who are feeling bullied and people who feel like outsiders should talk to their parents and guardians about finding a place with likeminded people where they can feel accepted. That's what I needed, and that's what I found with musical theater.
+- I'm actually pretty good with computers. I use computers when I'm working on making and producing music, so I do know a thing or two!
+- My faith plays a big part in who I am: a Christian guy playing pop-rock music. I'm in a pop-rock band, not a Christian band.
+- I see my career as not just music, but as hopefully an entertainer on all mediums, and someone who can have real influence and make great art.
+- My real musical discovery started when I was 10 with Stevie Wonder and the Jackson 5, and acts that I connected with because they were young when they were doing it, like me. Then I kind of came into my own a couple of years later; I found new artists that shaped my musical landscape. For instance, Kings of Leon played a big part in that.
+- My first introduction to pop music was probably the Osmonds, the Jackson 5, the BeeGees... Then the Beatles eventually. My father was pretty specific about what we listened to early on.
+- I think a lot of what you do in acting, and for the most part singing and dancing and everything, is trial and error. It's all about just seeing what works, and if it does, to use it, and if not, to throw it away.
+- I would have studied English, but I really don't like to read.
+- I think part of the beauty of being a pop phenomenon is that you're going 1,000 miles per hour, and it's all happening - and that's also the hard part about it.
+- Acting has always been a passion of mine, so any opportunity that allows me to do that is definitely of interest to me.
+- As far as One Direction goes, and Mindless Behavior and all the other bands, I'm all for it, and if there's ever an opportunity to work with them, that'd be great.

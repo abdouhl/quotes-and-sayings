@@ -1,0 +1,106 @@
++++
+author = "Tom Steyer"
+title = "Tom Steyer Quotes"
+quotes_len = "100"
+description = "the best 100 Tom Steyer Quotes"
++++
+- We agree that Citizens United is a very bad decision. We don't believe outspending your opponent is the way to go, since we don't believe we will ever be outspending our opponents!
+- We will pay a heavy price if we insist on navigating the 21st century with a 20th century mindset.
+- Tax cuts for the rich defund the critical public programs on which American families depend.
+- I think that Chuck Schumer and Nancy Pelosi obviously are incredibly sympathetic to the DACA people. And so am I, of course.
+- Clean energy is the ultimate growth strategy for our economy - one that would add millions more good-paying jobs right here in the United States.
+- As a Californian, I feel lucky to live in what is truly the Golden State - a place of sunshine, agricultural bounty, natural beauty, technological innovation, and boundless optimism.
+- Climate change is a global crisis - one the international community and private sector must tackle together if we have any hope of averting the worst impacts on our health, our economies, and our communities.
+- Trump has become the star of our 24-hour political news cycle, and every pundit in America seems to be grabbing for some of the reflected light from his explosive campaign.
+- I think I was on this very straightforward escalator - grammar school, high school, college, get a job on Wall Street, kind of everything leads to the next thing. But at what point do you get to step back and say, 'I'd like to take a broader view of my time on this planet?'
+- Faced with global challenges, politicians like Donald Trump have played on the fears and concerns of the American people with divisive, hateful rhetoric and proposals.
+- Renewable energy is a clear winner when it comes to boosting the economy and creating jobs.
+- I was in business for 30 years, and my experience is that the best way to operate is to work fairly and closely with partners over a long period of time.
+- American democracy depends on the public's ability to remain accurately informed on our state of affairs.
+- I think the days of the climate deniers are over. To deny basic science is to risk the trust of the general public.
+- I'm a 30-year businessperson. I believe in American business. I believe in American ingenuity, and I believe in American innovation.
+- We must transform the relationship between police and the communities they serve.
+- In 2013, I dedicated myself full-time to combating the very real impacts of climate change. Working across the country, NextGen Climate Action formed new coalitions and worked hard to make climate change a part of our national conversation - and across the country, we had a big impact.
+- My mother, Marnie Fahr Steyer, was a lifelong smoker - up to three packs of unfiltered cigarettes a day. I like to think that, if Mom were still with us today, she'd be happy with the strides we've made to protect our children from the ongoing health crisis of tobacco addiction.
+- In the presidential debates back in 2008 and 2012, the candidates clearly didn't know how to make climate change resonate with voters - if they mentioned it at all.
+- I founded NextGen Climate with a clear mission in mind: to act politically to prevent climate disaster and preserve American prosperity.
+- Donald Trump's crass charms are apparently very limited - historically so, if polling is any indication.
+- We need to make sure that we're not in a society that is unbalanced and unfair and where the richest Americans are taking advantage of everybody else.
+- I really don't want the highlight of my life to be my success as an investor. Genuinely. My idea of death would be that person who is still telling you about that goal he scored in 1974.
+- America faces very real challenges. The climate crisis, inequality, stagnant wages, student debt - the list goes on. Rather than address these serious problems, Trump uses hate-filled rhetoric to divide America by race, religion, and ancestry.
+- The idea of 'climate' - in quotation marks - is never going to be the issue. It's always going to be a local, human issue. And so to the extent that you put 'climate' on the ballot, that's never going to move the needle.
+- Trump manipulates the fearful by promising that he will use his fraudulent deal-making prowess to protect and take care of his supporters.
+- In American politics, the deepest rivalry is between the rational world and the right wing of the GOP, who are increasingly marginalized in their view that America cannot take on the big challenges.
+- Since the Reagan era, Republicans have prescribed cuts for rich people and corporations as a cure-all. But every time they put their theory into practice, the rich just get richer, and everyone else gets left behind.
+- I'm willing to do just about anything to try and contribute to getting us back on a growth path that is just and good for America.
+- Despite the frequent use of coal miners as a potent political symbol, coal jobs are disappearing - and they're not coming back.
+- The American people know that climate change is the kind of problem only America can solve.
+- The most powerful thing in politics is voter-to-voter contact. People take in ideas and formulate opinions by contact with other people they perceive to be trustworthy - other voters, people from their communities.
+- I am passionate about preserving the rights and opportunities of current and future Americans. That has meant fighting to stop global warming.
+- That is not something I embrace. I think there are real distinctions between the Koch brothers and us.
+- The fact of the matter is, people care about their own human interests: the people they love, their families, and their communities.
+- I think I understand the relationships between different people within the company: people who are straightforward employees, people who can impact the bottom line, and people who share in the bottom line. I don't think you can understand inequality in America unless you understand what's driving profitability.
+- Climate change carries implications that stretch far beyond extreme weather, however. The effects on public health are far more alarming - and those have to be taken into account in order to calculate an accurate estimate of the costs of inaction.
+- We try to separate the world into the stuff we can control and the stuff we can't.
+- The whole key to a fight is throwing the first punch.
+- To say Donald Trump would be a disaster for our country, our democracy, and our future would be doing a grave disservice to the word 'disaster.'
+- As I like to say, if you want to pay attention to a horse race, put two dollars on a horse, and you'll pay enormous attention to all 11 horses in the race.
+- I think that my general feeling about the United States is that democracy works, and I've believed that my whole life, and my experience as a businessperson for 30 years was if you ignore the sound and fury, American democracy works if you give it enough time.
+- Bringing climate change to the forefront of American politics means making politicians feel the heat - in their campaign coffers and at the polls - and it's time we voters make a change.
+- If we are to candidly and comprehensively address climate change - which I believe is the true crisis of our time - we must find new ways to generate energy and fuel.
+- When an oil company executive tells American families that we don't need to be concerned with tar sands pipeline safety, it's not only misleading, it's insulting.
+- The dialogue around climate change can often become mired in gloom and doom, which is understandable given the topic.
+- Only when the oil and gas industry has taken full account of, and responsibility for, the impacts of exploring for and extracting fossil fuels can we engage in a serious and worthy evaluation of whether fracking can indeed provide a bridge to a sustainable energy future.
+- Violence never solves problems. It may cover them up temporarily because of the fear it is intended to inspire, but it is part of a cycle, not the end of a cycle.
+- Republicans like to accuse Democrats of trying to 'pick winners and losers.' They say we should run government 'like a business' and let 'the market' decide important matters. When it comes to the declining fortunes of dirty fuels like coal, however, they quickly they abandon these principles.
+- We can't double down on the failed energy policies of the past.
+- If you're struggling to make your mortgage payment, and you've got three kids between the ages of 12 and 18, and you and your spouse works, and someone says, 'Oh, by the way, the world's ending,' it's like, 'Please. You don't need to tell me that.'
+- What Bernie Sanders is talking about, which is trying to get back to a more perfect democracy, is something that we support, too. We just think that the idea of... wishing the rules were different and then pretending they were is something which, unfortunately, probably would be disastrous from the standpoint of energy and climate.
+- On climate and clean energy, government sets the international framework, and the private sector uses that framework to do what it does best: innovate, create, and drive global progress.
+- We eliminated the monarchy. We put limits on how long one person could lead our country and on the powers they held while in office. We took differences of opinion seriously - in fact, we built them into the fabric of our government.
+- Californians like to spend a lot of time talking about how great our state is, but the truth is that we have learned and executed a very important lesson: if we want to win on issues as critical as climate change - if we want to lead - we absolutely have to stand together.
+- As president, Trump's economic proposals will bend our very economy and tax system to his purposes.
+- We believe the way social change occurs in the United States, over the last 200 years, is the democratic process.
+- On the path to a low-carbon, clean-energy future, we need cleaner, non-intermittent sources of power that will allow us to keep the lights on when the wind isn't blowing or the sun isn't shining.
+- Republican politicians often evoke the Bible when it suits their purposes. But they disregard some of its most important teachings when formulating policy. This includes the story of Noah's Ark.
+- Our message to leaders from every continent was simple: California has succeeded on climate and clean energy because we've emphasized local, human values and built a coalition that includes community and environmental leaders, working families, and communities of color - as well as unions and progressive business.
+- The tech-driven economy leads to a two-tier job market where workers are either critical or 'commodity.' This divisive 'winner-take-all' mentality hurts most Americans and worsens economic inequality.
+- Trump's one consistent position is that he will stop at nothing to protect his properties and his profits.
+- Demanding that our leaders take action on climate change is about a lot more than polar bears and ice caps; it's about safeguarding our health, preserving our prosperity, and protecting the future of our children.
+- Trump's vitriol attracts large crowds and may even win him the Republican presidential nomination but dishonors our best traditions. It spits in the face of every protection and opportunity our Constitution promises.
+- The most sacred duty of the President of the United States of America is to defend and protect the Constitution and the principles it enshrines: freedom, fairness, and equality.
+- I've always said that climate change is the defining issue of our generation. I've set out to hold candidates and elected officials accountable and to push our democracy to truly represent the interests of our kids.
+- The more we allow Republicans to concentrate the lion's share of wealth in the hands of a few, the more power these wealthy few will have. And they will use this power to continue rewriting the rules of both our economy and our political system in their favor.
+- As a presidential candidate, Donald Trump promised to 'fix the rigged system.' By 'fix,' he apparently meant rigging it to permanently benefit billionaires like himself.
+- I am a true believer that we have to change the way we generate and consume energy in the United States.
+- We need to ask elected officials supporting Keystone XL whether they're willing to put their constituents and our environment at risk so that foreign oil tycoons get a better return on their tar sands investments. Keystone XL backers will keep trying to sell us a sucker's deal; it's up to us to say no.
+- Fossil fuels are raw materials that have to be extracted and processed. Wind and solar energy are different. The only costs associated with them are technological.
+- I believe that trying to deal with Donald Trump is like trying to play three-card monte in Central Park: it's not going to work out.
+- The truth is that transitioning to clean energy like wind and solar will create millions of new, good jobs that can't be outsourced, and spur economic growth - all while avoiding the inevitable, significant damages our economy will suffer should we keep building more pipelines.
+- We think that when the American people make a decision together that they want something, politicians have to listen to them, and that's the process we believe in.
+- Tragically, no industry has done more to block crucial action to address climate change than the oil industry.
+- As a businessman, Trump preyed on the hopes and anxieties of struggling middle-class families. He cheated and scammed employees and customers alike. He left behind a trail of bankrupted companies. Past is prologue, and Trump has continued to pursue his own aggrandizement ruthlessly and relentlessly as a candidate and as president-elect.
+- Some members of the ruling class are making a concerted effort to expand the wealth gap.
+- My experience of American politics is that people raise issues, and they get addressed in an effective but imperfect way. But that's sort of the American system: Mind the problem and worry it, and then we attack it with overwhelming power and put it away - and that's the end of that problem.
+- I've spent a lot of time studying corporations and what makes them tick.
+- Clarity of vision is the key to achieving your objectives.
+- I know there are five stages of grief, but my parents raised me to pull up my socks when times get tough.
+- Americans can take on huge projects. But they need to understand why they should take on a huge project.
+- Investing in more fossil fuel infrastructure will not strengthen our economy over the long-term, since the market is clearly indicating that clean energy sources are the future.
+- With many serious challenges facing our country - pressing issues like climate change, income inequality, and education - Trump has expressed neither the inclination nor the ability to take on these problems.
+- Another word for politics in my mind is organization. You have to be organized; you have to get out there. It's not just magic.
+- Here's the truth: Keystone XL won't make America energy-independent. It will threaten our land and livelihoods to pump Canadian tar sands' heavy crude through America and out to foreign countries, like China.
+- If you know your destination, choosing a route - while not trivial - is manageable.
+- No one can be immune from our laws; everyone must be held to account.
+- America can't stop talking about Donald Trump. Even if we want to look away, we just can't.
+- The most expensive way to do business is to do it deal by deal, each of which is highly contentious.
+- Though much about Donald Trump is chaotic and unpredictable, his overall agenda as a businessman and politician is clear and consistent: He wants to make himself more powerful, and he doesn't care how he does it.
+- When Republicans say they want to run government 'like a business,' they apparently mean 'run government like a Trump casino headed straight for bankruptcy court.'
+- If he truly thinks he can be president, Donald Trump needs to understand that we need real solutions - not more walls and giveaways to polluting special interests.
+- I think Donald knows climate change is a serious threat - but he only cares about protecting his luxury coastal properties, not the rest of America. Observing his actions as they relate to his business interests offers the best insight into the man behind the bluster.
+- Breaking of norms and disregard for decency have huge, long-term costs.
+- For years, TransCanada has been selling the Keystone XL pipeline to Americans with all of the enthusiasm of a used car salesman - and using all of the same tricks. However, one myth is more egregious than all the rest: this pipeline will enhance America's energy independence.
+- Tar sands oil is dirtier, more corrosive, and worse for the environment than conventional oil.
+- What makes a successful country is when you invest in the people of the country - whether it's education, health care, job training - and you rebuild a clean America to provide the kind of infrastructure that will be sustainable and let us grow.
+- Donald Trump may be unusually flamboyant, but his views are all too representative of the party that is about to nominate him for president.
+- Voting is our right, but it is also our responsibility because if we don't take the next step and elect leaders who are committed to building a better future for our kids, other rights - our rights to clean air, clean water, health, and prosperity - are placed directly in harm's way.

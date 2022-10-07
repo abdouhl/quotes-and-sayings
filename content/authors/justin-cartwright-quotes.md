@@ -1,0 +1,95 @@
++++
+author = "Justin Cartwright"
+title = "Justin Cartwright Quotes"
+quotes_len = "89"
+description = "the best 89 Justin Cartwright Quotes"
++++
+- In the new artisan coffee movement, Jeremy Challender, a 32-year-old Australian who is one of the founders of Prufrock Coffee, explains precision is everything for the barista. Jeremy is able to analyse his coffee with the benefit of an app on his phone.
+- Nicola Barker is both prodigiously talented and admirably fearless. I have loved her books. But for some time, I had little or no idea what the point of the story of Sri Ramakrishna was. In fact, he was one of the outstanding men of 19th-century India.
+- So often in English fiction, people are either upper-class twits, or else they're knockabouts, less than human.
+- Just before the opening of the 20th century, the Collyer brothers, Homer and Langley, are born into great privilege on the Upper East Side of New York, in a mansion overlooking Central Park.
+- It is a commonplace to say that novelists should be judged by their work rather than their private lives or their publicly expressed views. And writers, of course, subscribe enthusiastically to this idea.
+- It's a strange failure of the literary world that Updike never quite received his due. Despite winning two Pulitzers and two National Book Awards and countless other awards and honours, he was denied the Nobel.
+- In a way, advertising, for all its shallowness, its love of design, its modishness and its self-justification, is curiously innocent. The idea of the hidden persuader or the manipulator is largely absurd.
+- If Franschhoek has a fault, it is in the lavish refurbishment of wine farms and estates which has reached absurd proportions. Some, like Graf Delaire Estate, are brand new, with jewellery shops, indoor streams, and very high-end lodges for rent at prices not many South Africans can afford.
+- I love Franschhoek, and straight off the plane, I went to the incomparable Quartier Francais, on the main street, for breakfast. This small hotel and restaurant is regularly near the top of every poll for best hotel and restaurant in Africa.
+- If I was at home, I'd find myself checking email and looking at the Internet when I should be working. In the library, I can get an awful lot done in a couple of hours, but it can become quite sociable, which you have to watch out for. There are a lot of people you can pop out and have a coffee with.
+- It is true that it is usually for their books that novelists reserve their most considered and ordered thoughts, but the fact is they arise inescapably from one consciousness: the same one that is occupied in all the other activities which make up a life.
+- I have worshipped Berlin from the day I read 'Two Concepts of Liberty' in South Africa. It seemed to make it respectable to be a liberal.
+- Strangely enough, the legend of John Brown, who was clearly crazy, helped the abolitionist cause and is thought to have precipitated the American Civil War.
+- Personally, I have detested Gordon Brown since the moment in 2001 when he tried to make cheap capital out of the Laura Spence affair; as his troubles have piled up, I have felt no sympathy for him at all.
+- In Sydney, I gave what was billed as a masterclass to bright students of writing at the University of Sydney. But the term 'masterclass' was possibly over-egging the pudding. All I could do was pass on some lessons from my own life, and the most obvious is that if you want to be a writer, you must first have been a reader.
+- Homer Collyer's chosen form of self-expression is the piano, although late in life, when his hearing also goes, he takes to writing.
+- Not many people like Johannesburg, but I love the place.
+- When I wrote my first serious novel, 'Interior', I was inspired by a 1978 book of Updike's, 'The Coup', which is set in Africa and will come as a delightful surprise to anyone who has only read his Americana.
+- I always assumed I could never make a living out of literary fiction, and I was right. When I did try, it took four years before being published.
+- Nadine Gordimer came over just before she died. She didn't want to talk about books or the arts, but about the abuse of the constitution by the government.
+- Someone once pointed out that there are quite a lot of animals in my books, and I'm sure that is something to do with 'The Wind in the Willows.' I must have picked up a rather anthropomorphic view of them.
+- Weimar lasted 14 years, the Third Reich only 12. Yet Weimar is always seen as a prelude to the Third Reich, which appears to have been created by Weimar's failures.
+- The plane approaches Cape Town and, as always, I am astonished by the view of Table Mountain and the surrounding sea. It is so overwhelmingly beautiful that I feel the urge to belong - not necessarily to the people, but to the landscape.
+- 'Point Omega' starts in an art gallery, where an unnamed man is watching, day after day, a 24-hour version of 'Psycho,' an installation that was created by the Scottish artist, Douglas Gordon. In it, the events and the minutiae of Hitchcock's film are painfully slowly reproduced; the watcher is obsessed with the detail revealed.
+- 'A Just Defiance' has been a huge success in South Africa. While reading at times like a well-written thriller, its significance is to reveal apartheid to have been far more brutal, ruthless, and self-serving even than we had suspected.
+- There's this idea of bankers retiring and painting watercolours. You can't dabble in art - it's a life. Being a writer, an artist... is a whole life.
+- It was my idea to do a two-hour course of barista training. I was keen to learn how to finish off my coffee with a picture of a heart or a palm tree or, perhaps, a swan.
+- As Eric Weitz argues, the Weimar Republic (1919-1933) was not responsible for the Reich; it was a democratic, socially aware and progressive government, way ahead of many other European governments in its introduction of workers' rights, public housing, unemployment benefit and suffrage for women.
+- 'Homer and Langley' is the work of E. L. Doctorow's old age. There are fewer Homeric references than you might have expected, given that the narrator is called Homer Collyer and is blind, although, like the classical Homer, not born blind.
+- The Sheldonian Theatre in Oxford is an astonishing building, designed by Christopher Wren. Its painted ceiling has just been restored so that the darkish miasma that was Robert Streeter's original allegory of truth and light striking the university is now bright with playful cherubs and lustrous clouds.
+- The great thing about the public is that they're quite capable of believing two absolutely contrary views at the same time.
+- Franschhoek Valley was, in recent memory, a simple place with some notable vineyards and two or three streets of Victorian cottages and a few older, thatched houses. The valley was settled early in the 1680s by Huguenots fleeing repression.
+- The successful advertising agent is the one who can convince the clients that he knows something they don't.
+- The point about 'state-of-the-nation' novels is not that they should be about the 'state-of-the-nation', but they should be about people.
+- The Bodleian Library, next to the Sheldonian, is one of the great libraries of the world. As well as holding most of the books printed in England since the first quarter of the 17th century, it houses priceless printed texts, manuscripts, and collections.
+- I thought that, post-apartheid, there would be absolutely no interest in South Africa. That has been both true and untrue. The major writers like Gordimer and Coetzee have produced major books. But some of the more minor writers have drifted away.
+- It is uncomfortable to be reminded that the Catholic church only removed the reference to 'perfidious Jews' from the Good Friday liturgy in 1960.
+- Writing 'Judas: The Troubling History of the Renegade Apostle' must have been a difficult task because there are no facts. Judas may quite possibly never have existed at all, and if he did, the Judas kiss may not have happened.
+- My brother and I were brought up sort of thinking that we were English. I remember hearing the poet Roy Campbell on the radio and being quite shocked that he had a South African accent. I didn't know there were any South African poets.
+- Helen Zille, formidable leader of the Democratic Alliance, routinely vilified as representing white interests only, is trying to make sure everyone knows that the case against Zuma is strong and is trying to have it investigated in a judicial review.
+- Peter Stanford is a writer on religious and ethical matters. He was for four years editor of the 'Catholic Herald.'
+- The book tour is a strange institution. You are wheeled about to explain your book and even to justify it.
+- Consciousness - that, to me, is the theme of the modern novel.
+- 'The Cauliflower' is not strictly a novel, as Barker says in her indispensable afterword.
+- I suppose on the filmmaking side, you can learn how to cram a lot into a small space. But I think that advertising, even on what is called the creative side, is incredibly easy if you have that kind of mind. A lot of people regard it as Machiavellian and dangerous, but, in fact, it is morally neutral.
+- It is surprising how many people who don't read believe they have a book in them. Why? Nobody would imagine that Alfred Brendel took up the piano on a whim at 25 when he found accountancy unpleasant.
+- You can't believe anything that's written in an historical novel, and yet the author's job is always to create a believable world that readers can enter. It's especially so, I think, for writers of historical fiction.
+- This is the strange thing about South Africa - for all its corruption and crime, it seems to offer a stimulating sense that anything is possible.
+- I'm not an especially male novelist, but I think men are better at writing about men, and the same is true for women. Reading Saul Bellow is a revelation, but he can't write women. There are exceptions, like Marilynne Robinson's 'Gilead,' but generally, I think it's true.
+- In his later years, Ramakrishna took up residence at the Dakshineswar Kali Temple, from where his radiance extended far, even beyond his death in 1886.
+- I was lucky to get to Oxford. I am now an honorary fellow of my old college, which is nice, particularly for a colonial like me.
+- Franschhoek - French Corner - is a place which serves South Africans as a kind of sophisticated fantasy, an alternative version of what life could be. The small town is enclosed by wild mountains, at this time of year blue and dusty green.
+- The druidical claims for Stonehenge seem to belong to that bonkers-but-persistent strand of Englishness that believes there is something particularly mystical about the English themselves, who were clearly a chosen people.
+- A connection between poetry and blindness is a classical trope.
+- Great architects like Taut, Mendelsohn, and Gropius built some astonishing buildings which were to change the way architects around the world thought. Brecht and Weill forever changed musical theatre; Kaethe Kollwitz and others changed German perceptions of the purposes of art.
+- My own interest in Kafka's letter came about when I was writing an article on Peter Ginz, the boy novelist held in Terezin, not far from Prague, and exterminated in Auschwitz by the Nazis. The Ginz family were from more or less the same milieu as the Kafkas.
+- Historians and journalists always have agendas, but if I want to find out what's going on in South Africa, I read Nadine Gordimer or John Coetzee because they offer novelistic truth.
+- I was once asked by Jeremy Paxman what is it about celebrity and said that people these days seem to think a celebrity is someone who has escaped the constraints of ordinary people: that they don't have the same kind of problems, almost as if they're classical gods.
+- America is the big subject of the second half of the 20th century, tackled in one form or another by all the great American male writers. You could make a case for saying that it was the only game in town - from Bellow to Roth to Updike to Richard Ford - America was more or less explicitly the leitmotif.
+- This Oscar Pistorius business is interesting. There is this cult of carrying lots of guns and being ready to shoot somebody. There were people I knew had guns and carried them openly around Johannesburg. It is frowned on now to carry a gun, but Pistorius and co. got away with it.
+- There was loose talk of Enron management practices and reminders of a scandal at the University of Toronto, when a big donor corporation, Eli Lilly, was said to have vetoed the appointment of an academic who doubted the effectiveness of Prozac.
+- 'The Cauliflower' is full of these bizarre anecdotes, some of them petty, others moving or whimsical, as its many characters try to make sense of the universe in which they live - a universe strange, febrile, and utterly unique.
+- The working-class Africans are not doing very well, and one of the problems is their education is so shocking. It is routinely said it is a result of apartheid. Deliberately, black people were not allowed to know too much. They could read and write a bit to be useful, but that's about it.
+- DeLillo has said that he no longer feels a compulsion to write long, compendious books. In his later years, Saul Bellow said something similar. DeLillo, of course, has written very long in the past, notably with the 850-page Underworld (1997), and his story has been America.
+- As I read 'The Infinities', with its magical, playful richness, its sensuous delight in the power of language to convey the strangeness and beauty of being human, I wondered if J. M. Coetzee, with his bleak, pared-down, elemental view of the world, had ever read a Banville and, if he had, whether he had envied him his astonishing powers.
+- Winning the Whitbread was a very major thing for me. I'd always been well reviewed, but this made me widely read.
+- We authors certainly don't know what is going to happen to our books. Are they going to disappear into the ether, following music downloads, or are ebooks going to open up a whole new world of readers? And how much are we being paid per copy? We haven't a clue.
+- Advertising, the product of capitalism, can only justify itself on the premise that the market is a force for good.
+- 'The Infinities' is a shortish book but densely loaded with Nabokovian slyness, gorgeous imagery, and disturbing insights into what it means to be mortal.
+- A good novel is something that challenges perception, that allows you to see the world anew through a different point of view - something that genre fiction doesn't do, although it sells more because it doesn't disturb people's innate sense of what a novel should be about. Often, people want characters to be nice, for example.
+- Transport is not a ministry the ambitious should accept: no transport minister has gone on to be prime minister.
+- Tom Fort, a BBC radio journalist, starts from the assumption that 'many of us have a road that reaches back into our past'. For him, this is the 92 miles of the A303 - as he subtitles his book, the 'Highway to the Sun'.
+- I love John Updike immoderately. I am profoundly shocked that he has gone because he was, for me, the greatest American writer of the second half of the 20th century. He was also a gracious, charming, and witty man.
+- Coffee must be treated gently and smoothed out. I hadn't realised it was so temperamental.
+- I grew up reading Updike. I remember being alarmed to find that he had published short stories by the time he was 22. I think 'Pigeon Feathers' was the first collection of stories I read. Only much later did I discover his non-fiction reviewing and art criticism.
+- When Doris Lessing won the Nobel Prize for Literature at the age of 88, she was the oldest person ever to receive the prize and one of only 11 female winners in its history. Her award was the end of a very long journey from a remote farm in Rhodesia to a banquet at Stockholm's Stadshus, the grand city hall in Stockholm.
+- The book that meant most to me was 'The Wind in the Willows.' It sounds ridiculous, but that was my vision of England.
+- If I had been brought up in America, I think I would still have had the same sort of job as a writer.
+- Germany led the world in photography and film: 'The Cabinet of Dr Caligari' and 'Metropolis' are works that, to this day, film buffs revere.
+- I thought I'd write a massive postmodern novel about Richard the Lionheart and Robin Hood, but it turns out they couldn't have met because the first mention of Robin Hood appears 60 years after Richard died.
+- I write from what I take to be the realist's point of view, looking at life as it really is - or the way I see it to be.
+- The ANC was the product of a much earlier South Africa, a gradualist and non-tribal multi-racial organisation, driven to violence by the intransigence of the Afrikaner Nationalist Government, obsessed with improbable ideas of revolution.
+- For novelists, sharply drawn moral conflicts are often useful, and even human and personal disasters can be seen as material.
+- The fascination with Judas has persisted despite the fact that there is no evidence of the hard facts of his life. Even the 'Iscariot' attached to him may be nothing more significant than a corruption of the name of the town from which he came.
+- Jim Crace's novels have one thing in common, which is that each is set in an entirely original world. None of these worlds is of a specific time or place, but they seem to have some connection to our own lives.
+- James McBride's 'The Good Lord Bird' is set in the mid-19th century and is based on the real life of John Brown, the one who lies a-mouldering in his grave.
+- Complete barista-standard coffee machines cost from £1,600 to more than £20,000.
+- It's true that all my novels have been versions of myself to some degree.
+- 'Powers of Persuasion: The Story of British Advertising' by Winston Fletcher - the impression you get from reading this book, which covers post-war advertising until the present, is of a chaotic, self-serving, occasionally brilliant but ultimately shallow business.

@@ -1,0 +1,118 @@
++++
+author = "Jason Momoa"
+title = "Jason Momoa Quotes"
+quotes_len = "112"
+description = "the best 112 Jason Momoa Quotes"
++++
+- I get up at 5 A.M., and I train hard. I've got two young children, so I have to get up early. But I like it.
+- My son loves swords and shields and dragons.
+- When I found out more about the Maori culture, I fell in love with it, and with the people, too.
+- Morning is when I do all my best work.
+- I'm just gonna make art myself. I have a lot of ideas of things I wanna do and really talented people and friends I'm around, so we decided to make our own thing and set out to do it.
+- My wife says to do the dishes, and I'm like, 'Yes, baby. I can clean up.'
+- I grew up being an artist, but also rock-climbing and traveling the world and teaching my kids.
+- Everything has technique to it. So if there's something you wanna try out, I think it's always good to get a trainer or listen to people who know what they're doing.
+- My favorite movie is 'The Diving Bell and the Butterfly.'
+- When you're just an actor, you do your role, and then you're in your trailer. It's not as hands on as when you're directing. You live and breathe it.
+- There's a bunch of stuff I want to learn. Instead of waiting around on set all day, I'd rather be learning something cool.
+- My wife's trying to get me into yoga, and it's gonna take me a while, but eventually I'm gonna have to.
+- I grew up with a single mother, and I wasn't out shooting too many guns.
+- Whenever I wake up, I'm up. I don't lie there like an idiot. I get up, run up a hill, get some exercise, and have some time with my thoughts.
+- I'm not a big fan of just doing weights. Anything more physical is infinitely better.
+- Both my parents are artists, so that just makes me look at everything slightly different. I listened to different music; I dressed differently. So I kind of grew up without following the pack.
+- There aren't, like, four Aquamans before me. I get to set the tone for it.
+- Most people don't know who I am in the industry. I'm far from 'Conan' and 'Game of Thrones.'
+- I don't think a lot of people are calling me to play doctors and lawyers, which is fine with me. I can put a suit on, but I don't really like to.
+- The truth is we're all searching. We're all looking for guidance, for mentors, and I'm by no means someone to follow.
+- Anyone who spends time on the road knows there's something special about being in the middle of Utah or Nebraska - you sit with it, and there's a peace about it. You can go left or right, and it opens up all kinds of doors. You take your own path.
+- We don't own a TV. My kids are always outdoors.
+- My kids are always like, 'Why do people always want to take pictures with you?' and I'm like, 'Because I'm your Dada, and you're my daughter. That's why.' It's definitely mostly because of 'Game of Thrones.'
+- I was born in Hawaii, but I was raised in Iowa.
+- Both my parents were painters.
+- There's a lot of things I would definitely go to bat for in Hawaii. I've been all over that stuff. If someone told me to be quiet about that because of my profession, no. That's my people.
+- I love life and if there's something that I'm playing that I love, I'll research it.
+- I'm raised to actually think, to use my brain.
+- That's one of the great things about being an actor. You get to learn all these things normal people don't get to learn.
+- Swimming can be boring. To me, it's like going on a treadmill.
+- I go train, and like with Conan, I'm in leather, and with Drogo, I'm in leather or armor or something else. I'm not in my adidas sweat suit or my matching tracksuit pants to go work out. I got too busy of a day. I've got my boots.
+- There's nothing I've ever worked on that beat 'Game of Thrones' - that's a 10-hour movie; they put a lot of money in it.
+- I'm kind of ADD in that sense where if I start liking something, I'll just learn it to the absolute max.
+- I'm a huge art buff.
+- I'm not going to normally get hired to play those emotional things, and I'm capable of it. I was raised by a single mother in Iowa - I'm just trapped in a big, dumb body.
+- I think a man needs to be a man. To hold a woman the way she wants to be held. Just do whatever your woman wants, and you'll be fine.
+- I've led a career of having to take work to see my family, over picking and choosing, instead of 'I need food on the table and I don't know how I'm going to pay the mortgage.'
+- My children aren't normally allowed to watch a lot of things that I'm in.
+- I can't wait until I get to play the fat guy in the office.
+- I'm a big kid, you know?
+- I've got kids, goats. My wife always wanted a donkey, so I bought her one.
+- I was raised by a strong single mother.
+- I'm sure all actors have trouble. The guy who always plays the funny guy, he wants to be taken seriously. And there's the action guy who wants to do serious stuff. Everyone's grass is greener.
+- 'Game of Thrones' is the greatest thing I've ever been a part of.
+- Zack Snyder is a huge fan of 'Game of Thrones,' and I met him in the training stunt facility that I train at, and I guess he really liked me because he later called me into his office, and we talked about playing Aquaman.
+- I just love stories, and I love movies, learning and seeing the world. Growing up in Iowa, it was like, you wanna see the world? Movies can help you do that.
+- I couldn't get a job to save my life. That's why I wrote 'Road to Paloma.' That got into Sundance and got into that scene, and that's how I got the role in 'The Red Road.'
+- I'm one of those freaky people that actually reads books.
+- The reason why I wanted to direct is because there are personal stories that I want to tell, but also because I love every part of movie making - from the wardrobe to the set decoration to cinematography.
+- I grew up rock climbing.
+- I want it to be the greatest thing I ever do: make good humans.
+- I actually went to study with the Ramapoughs in New York. I wanted to be able to see the mountains and the forest, be around the people.
+- I have my ups and my downs like anyone. All I can do is be me.
+- Iowa is an amazing place. But I didn't have much race around me. I was definitely not like everyone there.
+- I think I was pretty reckless and definitely a bit out of control. Now, I'm more focused.
+- Being raised in Iowa, I know what a cornfield does for me, and I wanted to have that same kind of feeling for the Ramapo Mountains.
+- There's a couple of things you shouldn't do to other humans and you shouldn't say to other humans that Khal Drogo does.
+- I grew up with artists.
+- There is a lot of pretty horrific stuff that happens, and I don't usually get those kinds of characters who get to go to those places.
+- I told my wife, 'One woman, lots of toys!'
+- I'm an early riser. I work out really hard. I push myself; I get my job done, and at the end of the day, there's a Guinness waiting for me.
+- You get a lot of respect for 'Game of Thrones,' and it was a lot of fun to play, but it didn't help my career a lot because Khal Drago doesn't even speak English.
+- I haven't been an actor who's been able to pick and choose roles, and being a family man, it's been about putting food on the table.
+- When I did play team sports, I was into soccer and hockey. I loved hockey. And then rock climbing became the thing that got me out of Iowa, and I traveled the world for rock climbing. I really loved the, I guess you would say, dirtbag lifestyle of not eating much and traveling the world and slipping into different cultures and just observing.
+- I'm not really tough.
+- I'm a Batman fan from Day 1. My daughter's favorite is Wonder Woman, and my son loves The Flash, Cyborg, and Superman.
+- I saw Frank Frazetta's art, and it seared on my memory. I love his paintings. They're so amazing.
+- Emilia Clarke is someone I'm very close to, like a sister, and I love her very much.
+- I would love to do comedy.
+- When I went off to college in 1997, I didn't go back and watch 'Conan.' I was out partying and dating women.
+- My mom's an artist in every way. She's a painter, a photographer. She's a wanderer - always searching, always seeing. I guess you could say my mom gave me her eyes.
+- When I got 'Stargate: Atlantis,' I said, 'Man, I'd love to be on HBO.'
+- I'm half Hawaiian and the haka is a very sacred thing, something your family teaches you - my father taught me.
+- My kids are my greatest piece of art.
+- For 'Conan,' I had to eat boiled chicken breast and work out all the time and basically eat like a bird every two hours and stay ripped.
+- I was a skateboarder when I was little; I still skateboard. I teach my kids how to skate.
+- Train hard, train hard, train hard.
+- I always loved samurai movies, and I wanted to incorporate that whole level of elegance and just the code of the samurai to 'Conan.'
+- I don't mind standing up for what I believe in.
+- I don't want to be like Spider-man or Batman, the do-gooder kind of thing.
+- When I read that Khal Drogo role, I was blown away. I couldn't believe it was happening. I had to have that role.
+- In my man cave, I have tomahawks, throwing knives, and old black-bear furs. There's skulls, weapons everywhere.
+- I'm a walking contradiction.
+- After 'Game of Thrones,' having a character like that, that's like the pinnacle of your career.
+- Me and my son got pictures on the Batmobile. I'm a big kid.
+- I watch action movies, and you don't remember when Jason Statham does a kick or punch. It's character trait stuff you remember.
+- I've been fascinated with Maori culture since I was a kid.
+- To play Khal Drogo was phenomenal, and I wished there was more stuff he could have done. I'm going to miss that character.
+- I'm a strong alpha male but sensitive.
+- I did 'Batman v Superman' for one or two days.
+- I got called 'pretty boy' my whole life.
+- I was an outcast. I was from a town of wrestlers and football players.
+- I was a snowboard bum and a climbing bum.
+- I'm a big softie.
+- I'm not the king in my own house. I have to wash the dishes and take out the trash and say, 'Yes, baby.' I'm 6-foot-5, but I kind of walk around hunched over.
+- I'm a big wuss, and not the king in the least. My wife is.
+- If you're in a small town somewhere and you can go and visit Paris, you can go to the top of Everest, that's just cool. It's worth it because you become more educated in something.
+- I'm not a barbarian.
+- You paint something, and it's yours. It's your heart up on the wall.
+- I want to be remembered as, I hope, an amazing husband and a great father.
+- When I'm by myself, I'm really cool and nice to everyone, but then the whole paparazzi thing? If you see me with my kids, I change.
+- This is a unique legal loophole in the U.S.: If a non-native comes on a reservation and commits any crime, the non-native should be prosecuted by a federal court. Tribal law can arrest and hold someone for a year, but tribal law cannot prosecute non-natives. So since the federal courts are so overloaded, some of the cases get tossed out.
+- I do love horses, but I'd rather be on motorcycles.
+- If you're too disciplined, it can mess up your mind. You need to have that treat for yourself.
+- I love working with Oscar winners.
+- I'm a father, a son, and a grandson, and if anyone messed with my wife, mom, or grandmother, and if the law didn't care about it, what would I do? Would I be defined by that action?
+- My mum raised me on 'On the Waterfront,' 'Gone with the Wind' and 'Rear Window.'
+- I love carbs, but denial is good training for the mind.
+- My wife's Lisa Bonet. I'm a very lucky man.
+- I've done a lot of dumb things in my life.
+- If I had a horse of my own that I loved and fed and knew me, it would be amazing.
+- As far as getting work, no one thought I spoke English. It was absolutely ridiculous. I'd show up at a meeting and they'd be like, 'Oh my God, you speak English! That's so cool.' They didn't really know what to do with me.

@@ -1,0 +1,22 @@
++++
+author = "Jessica Mulroney"
+title = "Jessica Mulroney Quotes"
+quotes_len = "16"
+description = "the best 16 Jessica Mulroney Quotes"
++++
+- Sometimes all you need is that onetime break and it'll change your life. If you get your item on a celebrity, that's almost like the top of the top - a new way of creating business.
+- Sometimes the simplest tasks are so incredibly challenging but everyday I try and I make choices to push myself further than I could ever imagine.
+- Living with mental illness is not a choice and can lead to debilitating circumstances.
+- Styling is such a small part of what I do. I have, like, 10 jobs. People don't know that I work so much on the back end of things. They think I'm just dressing people. My business is with brands.
+- I don't take myself too seriously. I never think I'm the smartest person in the room.
+- It's tough to be a designer. It is really tough to be a Canadian designer.
+- Listen, every person has to have a bit of privacy in their life. There are certain things I hold very dear and secret.
+- I didn't invent something; I just chose to find my strengths and do things that make me happy and work with businesses I'm proud of and create strategies that I think work. And so far, so good, but I'm not changing the world.
+- Sometimes all you need is that one-time break and it'll change your life.
+- Even when you work from home, getting yourself dressed is the first step. I often find there are days where I'll be in my pajamas all day. I feel like a useless human being.
+- To be a good mom, you have to step away from it for a minute. Whether that's getting out of the mom outfit or hanging out with your girlfriends - and not just your mom group friends - hanging out with other women.
+- There are things I'll never talk about for sure. My life is an open book, but there's always a few secret pages in the back that nobody will be able to read.
+- When I style women, I find shapes that make them look and feel their best.
+- I work with real women of all shapes and sizes.
+- I always want to be recognised for the work I do and not the company I keep.
+- I try to promote confidence within women through fashion. It is not about wearing all the silhouettes, it's simply about what makes you feel good. Period.

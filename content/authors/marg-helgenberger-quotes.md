@@ -1,0 +1,17 @@
++++
+author = "Marg Helgenberger"
+title = "Marg Helgenberger Quotes"
+quotes_len = "11"
+description = "the best 11 Marg Helgenberger Quotes"
++++
+- If I was working hard, she bled into my personality. I became more cynical.
+- By the time May rolls around, I'm probably going to want to spend a month on an island. But if Steven Spielberg or Steven Soderbergh or any number of directors were to say 'Hey, there's this role, are you interested?' I'd be there in a flash.
+- There were a coupla times when I had had it. And when I'm pushed to the limit, I scream.
+- I'm Catholic, he's Jewish, and it was just easier to elope.
+- Before Huey was 5, I could take him to work with me. Now, though, he has sports and lessons and friends, and it's not fair to remove him from his whole life.
+- We would love to have other children. It hasn't happened. We haven't been lucky enough.
+- I just cleared the slate and thought of her as a mother and went from there.
+- One of the jobs I had was cutting out the blood clots on a side of beef.
+- That got me to L.A. and reintroduced me to my future husband.
+- I didn't work on the killing floor. I worked in the section where you break the meat down and package it.
+- Women loved that part 'cause K.C. was just sassy.

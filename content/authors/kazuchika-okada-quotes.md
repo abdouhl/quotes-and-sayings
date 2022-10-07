@@ -1,0 +1,44 @@
++++
+author = "Kazuchika Okada"
+title = "Kazuchika Okada Quotes"
+quotes_len = "38"
+description = "the best 38 Kazuchika Okada Quotes"
++++
+- I want to keep going to new audiences and showing people firsthand how great NJPW is.
+- I was a young age, 16 years old, in Mexico. I traveled to these different countries, and I have the new style from Mexico and TNA. I wrestled two years in Florida, then back in Japan, and everything combined for a new style. It's different. I was looking for old school wrestling that looked new.
+- Dropkicks are old moves, but I wanted to make a new version of an old move.
+- I had no aspirations beyond middle school except to wrestle, no reason to go into high school. This world is all I've known since 15 years of age.
+- There is more emotion in a match in New Japan. The matches here in the U.S. are so fast that sometime they lack emotion. It is move, move, move.
+- So, wrestling, being strong, having good matches? I learned that in New Japan. But as a TV character? TNA was good.
+- When I was just a strong wrestler, TNA didn't use me. I didn't have a character, so I knew I needed one.
+- I heard of the word 'rainmaker.' It means one particular star who could make a company or project rich and successful. Someone that makes it rain with money. I thought it was a really good concept, so I took over that idea to become the rainmaker.
+- I was always a good wrestler. I feel like I can wrestle anybody.
+- Tenryu is a legend in Japan.
+- I didn't get to wrestle at all in TNA. I wanted to wrestle, and they wouldn't let me.
+- New Japan is far superior to WWE when it comes to the quality of the roster and the quality of the matches.
+- I learned in TNA that I needed more than just a good match - I needed a character. That's how I became the 'Rainmaker.' It was good for me.
+- Hell, I might want to be like some other people and become a movie star or join the UFC. You never know.
+- Jay White has a great chance to make his name off of me. But I'm not going to make that easy.
+- TNA didn't use me, but I got hungrier to wrestle. The struggle made me better.
+- To have a Japanese wrestler standing as the face of professional wrestling, there's only one person for that spot, and it's me.
+- My dream is to bring a G1 tournament to the United States. I want to do a G1 in front of American crowds.
+- I am new school, but Ultimo Dragon taught me that wrestling is a fight. He taught me the importance of the fighting spirit in the ring.
+- I'm going to show you how we do it in New Japan Pro Wrestling. That's what you get whenever I wrestle, whoever's in the ring with me.
+- I am the face of NJPW.
+- Of course I wanted to main-event wrestling matches in TNA, but in their eyes, no, that would not happen. So I went back to New Japan.
+- From what I can see, gone are the days where you can just be the strongest, and that will put you at the top. It takes a little bit more... something else to grab the attention of not just pro wrestling fans but fans in general - to catch their eye.
+- In all honesty, I'm not interested in records.
+- Many people ask me about WWE and if I'd go to WWE in the future. They ask me if I'm going now. I will not go. I want to make New Japan Pro-Wrestling bigger.
+- I really appreciate ROH for letting me wrestle in the United States. American fans get to see me and get to see New Japan. Ring of Honor lets us do that.
+- There's no bigger a superstar, and nobody closer with the fans, than Kazuchika Okada.
+- I wouldn't say I really admired anyone. When I was a kid, there were definitely a lot of tough guys, but they weren't really cool. If anything, that was an influence on me: to take that toughness and combine it with the cool style, the cool entrance, the cool gear - and driving to work in a Ferrari.
+- I started wrestling in Mexico, and then I came to New Japan.
+- Being the longest-reigning champion isn't that big a deal to me because records are made to be broken.
+- IWGP is the number one title in the world.
+- I think it's cool to be able to show people who don't know anything about NJPW what we do.
+- My dropkick is from Mexico, but my fighting spirit is from Japan.
+- I'm the best, not Omega. I love New Japan more than Omega, and I will continue to prove that.
+- I love working in front of American crowds.
+- I'm not interested in WWE at all.
+- I should hold the IWGP title always.
+- I like doing the shows with Ring of Honor, but I don't want to leave Japan.

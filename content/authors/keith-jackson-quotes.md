@@ -1,0 +1,31 @@
++++
+author = "Keith Jackson"
+title = "Keith Jackson Quotes"
+quotes_len = "25"
+description = "the best 25 Keith Jackson Quotes"
++++
+- Bo Schembechler was the best after-dinner speaker I ever heard. He'd even have the old boys in the back of the room snorting and jumping up and down.
+- I talk to the guy who busted his butt all week to buy a color TV, and the woman who's raising her kids, the people I owe a debt to. I'm talking to people in hotel rooms, lonesome people.
+- I don't want to get back into the pressure cooker of play-by-play and worry about travel. I don't want to die in a stadium parking lot.
+- Baseball is a game of geometry, while football is a game of explosive emotion. Every emotion known to mankind is in that 60 minutes - pride, pain, dedication, satisfaction, fear.
+- You must tell the truth. You must be truthful to yourself and the values of the game that got you there.
+- Michigan has such grandiosity. It has all those all-Americans. You can't go anywhere without finding a Michigan graduate.
+- My grandma once told my mama, 'The kid's walking crazy around the cornfield, talking to himself.' I was calling ballgames.
+- I think college football is a reflection of Middle America. You go into a college football town, and you will find three generations of a family sitting together. It's a rallying point for the university, the community, and the families.
+- I'm one guy who loves to drive to work.
+- When the money gets bigger and the stakes get higher, the sea gets wider, and the sharks in the water grow sharper teeth.
+- I've had two jobs and one wife.
+- Amplify, clarify, and punctuate, and let the viewer draw his or her own conclusion.
+- I've announced every kind of sporting event except hockey and demolition derby, and to be frank about it, I don't really care to ever do those.
+- We're thrifty. We can live off our interest, save the principal, and let the kids go off and have a hoot.
+- The one thing you can't ever forget - the playing field is the property of the players and the coaches. It is not to be used by some fat-butted announcer trying to make a name for himself.
+- You guys got big uglies, fuumm-bull, and 'Whoa, Nellie.' What I got was, 'Lindsey, why are the trash cans still out front?' 'This homework needs more work,' and the inevitable was, 'How fast were you really going?'
+- When you come into Camp Randall Stadium to play a game, you better double-clutch your chinstrap because you're going to be in a smash-mouth game.
+- If I've helped people enjoy the telecast, that's fine. That's my purpose.
+- Football is not a contact sport, it is said: it is a collision sport. Dancing is a contact sport.
+- The older I got, the more willing I was to go into the Southern vernacular, because some of it's funny.
+- It's the broadcaster's dilemma. Are we true journalists? I don't know if I am or not.
+- The best way to get somebody's attention is with a little quiet, and then yell at 'em.
+- If I could get someone like John Grisham or someone like that to sit down and write a book with me, I'd love that.
+- This 'Whoa, Nellie!' thing is overrated. There were all kinds of stories going around. People said I had a mule in Georgia named Nellie. Well, we had a mule in Georgia, but her name was Pearl.
+- I can't buy the happiness I see on people's faces when I give them a fifty dollar bill.

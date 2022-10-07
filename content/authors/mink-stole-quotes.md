@@ -1,0 +1,16 @@
++++
+author = "Mink Stole"
+title = "Mink Stole Quotes"
+quotes_len = "10"
+description = "the best 10 Mink Stole Quotes"
++++
+- We've had the same set designer and the same crew in many cases since 1972.
+- Even then, our family was extraordinary, with ten kids.
+- The first things I did when I got out of school in '65 was to buy a pair of Levis and pierce my ears.
+- John is a cottage industry in Baltimore and the city opens its doors for him whenever he is making a new film.
+- The point is, when you have a chance to have a big adventure, especially if, like in your case, it doesn't hurt anyone, it's just plain foolish not to take it.
+- It was there that, through a mutual friend, I met John Waters - proving what I've always said: you meet the best people on field trips.
+- You don't have to tell anybody a damn thing you don't want to.
+- Restless, and in desperate need of adventure, I quit my job at an insurance company to travel west with a couple of guys I smoked pot with, scandalizing my family.
+- I met John when I was 18 and I was in my first John Waters film when I was 19.
+- But some things are the same. My mother still owns the house I grew up in, on what would now be called a cul de sac, but which the sign on the corner called a dead end street.

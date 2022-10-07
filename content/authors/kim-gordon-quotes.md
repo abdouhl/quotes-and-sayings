@@ -1,0 +1,81 @@
++++
+author = "Kim Gordon"
+title = "Kim Gordon Quotes"
+quotes_len = "75"
+description = "the best 75 Kim Gordon Quotes"
++++
+- I love the way Lady Gaga finds humour in fashion, but it's still very stylised.
+- In the early eighties, there were a lot of artists involved with the music scene. All those young artists, before their careers took off, were into music. Robert Longo used to play some guitar. He had a band for a while. Basquiat had a band. I mean, people were always trying to mix music and art - in fact, I'm guilty of it myself.
+- I just think that playing bass, like punk rock bass with a pick, wasn't meant to be done for 25 years.
+- L.A. prides itself on newness or being the last frontier or just not liking old things and tearing them down to build new things. But Malibu history is interesting to me. My mom's family was one of the early families in California, so there's history going back to the 1840s or '50s.
+- I mean, I don't even think of myself as a musician, really.
+- I wasn't very confident about clothes; I was always hunting through racks, never sure what looked right. It can be like that again when you're older.
+- It's hard to get hot over a painting; there's no equivalent for teenage obsessiveness. Art obsession is ideology. Ideology can be made sexy, but it's easier in music.
+- I think that certainly, whenever you have a new band, the first record always has a certain energy to it before you know what you're doing. I think some of the early Sonic Youth stuff was maybe like that.
+- I was kind of freaked out by the art world in the 1980s. Just the money thing. All the competition over artists.
+- I don't even know if I always entirely get what I'm trying to say right away with lyrics. I like a lot of things that are more subtext. I grew up mishearing lyrics my whole life, but somehow there's so much more, too, that's implied in vocal delivery and the music itself and the gestural quality of it.
+- It's hard to say when the life of a band starts and stops... but playing music together is an act of trust. When that's broken, it's impossible to continue.
+- I don't see myself as a rock star. I don't see myself in that way. I'm interested in work that offers some sort of critical dialogue.
+- Anyone becomes mannered if you think too much about what other people think.
+- I never thought about doing anything other than making art.
+- The last two records I liked playing a lot.
+- Part of my desire to play music was because I wanted to escape the art world and the politics of it; the petty gossip-y art world. But you know, I feel like they're both equal forms of expression.
+- I still don't really feel like a bass player.
+- No one talks about woman power. The Spice Girls - they're masquerading as little girls. It's repulsive.
+- It's really hard for me to sing and play bass. Unless you're singing something that's kind of in rhythm with the bass, the melodies, it's just difficult.
+- I never felt like I had anything really figured out. When I was a teenager, it was all about teenagers having an 'identity crisis.' That was the phrase that was used. But in my early 20s, I was still like, 'When am I going to be over that?'
+- I'll leave a store if I hate the music. If it's just, like, techno, I feel like my brain is going to explode.
+- You can't be a strong or cool woman and be represented except in a harsh way, looking mean and cold and hard. It's like reverse sexism.
+- I've never been good with structure - doing assignments for the sake of them or doing things I'm supposed to do.
+- Women make natural anarchists and revolutionaries because they've always been second-class citizens, kinda having had to claw their way up. I mean, who made up all the rules in the culture? Men - white male corporate society. So why wouldn't a woman want to rebel against that?
+- I don't really feel comfortable anywhere except when I'm working alone at home. It's exhausting to be out around people.
+- I feel most free onstage. The audience, it's an abstraction. You don't really see anyone out there, but you feel the audience inside you.
+- I was very aware of performers who have a persona, whether it's Siouxsie Sioux or Patti Smith or Lydia Lunch, and I'm just this middle-class girl coming from a more conventional upbringing, this California person. But in a way I felt like it's important to represent the normal.
+- A friend of mine introduced me to Thurston Moore because she thought I would like him. He was playing with the tallest band in the world, the Coachmen. They were sort of like Talking Heads, jangly guitar, Feelies guitar. Anyway, it was love at first sight. His band broke up that night. And we started playing.
+- My parents lived by Rancho Park. And my mom, later in life, got into playing golf. She and her male cronies would get up at five in the morning and sneak onto the back nine. I kind of just started getting into it. For a long time, I was really puzzled by why people liked it.
+- It's amazing how many things you can do when you're just pretending.
+- In a lot of the art world, you have to present yourself as you know what you're doing at a young age. Music gave me another outlet. The 'no wave' bands were such an inspiration; it felt so free - once you start doing it, it's hard to stop. But I can't get away from art. It comes back around. I wouldn't be true to myself if I didn't pursue it.
+- I went to art school, and I wanted to be an artist since I was 5. I basically moved to New York to do art, and I just sort of fell into doing music at an early age.
+- You're always going to feel like you're catching up, and part of that is just balancing work and motherhood and the whole feeling of needing to please, which I do think girls and women feel more than men.
+- But everything has been so gradual that it's sort of all come from, just hard work and basically being at it.
+- I picked up the bass kind of postpunk-style. There's a real art to not learning how to play an instrument and being able to still play it.
+- I'm a slow learner. When people are so talented or facile at picking up an instrument and playing covers, like Yo La Tengo, I admire that. But I could never do that.
+- I try not to think too much about what the audience is thinking and what they think I should do.
+- In rock music, people have certain assumptions that it makes people more enlightened, and it really doesn't.
+- I see it as more of a teenage activity than, you know, she's only 11, but you know, I think it's great that she knows so many girls who want to play music. And I see it more as a teen activity than I do as going into music.
+- After you've graduated, you're supposed to be an adult and go out into the world, and you're still not formed. It's an interesting... horrible, horrible time.
+- I am basically a shy person, so performing sometimes helps me focus - having all those people concentrate their attention on you. I don't see it so much as becoming another person onstage; it's more exploring a different side of your personality.
+- Working on art, as opposed to being in a constant collaborative state, as in a band, is something that I've always done - to a smaller degree, but it always remained a part of my integral self.
+- I've done art on my own, and I've also collaborated with other people to make art. And collaborating with other people is always interesting because you end up doing things you probably wouldn't do otherwise.
+- I have a really hard time writing my own lyrics for this record, because one, I had to write so many and also I was kind of perplexed by the idea of how I was going to sing and play... because at that time, we hadn't really thought about asking someone else.
+- I mean, most of it is probably more obscure and just more noisy than either of those two bands, but Thurston has stuff all the time that he's involved with that is fairly obscure and experimental.
+- Unless you're singing something that's kind of in rhythm with the bass, the melodies, it's just difficult.
+- Rap music is really good when you're traumatized.
+- Sonic Youth, for better or worse, is/was a machine that carried me along through pregnancy, motherhood, and creative opportunities I never would have achieved on my own. I'm grateful and surprised that we were listened to, loved, ignored, and overrated.
+- I like the adrenaline of playing improv - it makes me feel really calm.
+- I try not to think too much about what the audience is thinking and what they think I should do. I'd be self-conscious if I did. Anyone becomes mannered if you think too much about what other people think.
+- You know, we have our own audience, and it's not like - they just know we're not going to do certain things.
+- I watch 'Buffy the Vampire Slayer' with my daughter. We're very into Buffy and Buffy's friends.
+- I just happened to start playing music for the conceptual ideas.
+- I never really thought of myself as a musician. I'm not saying Sonic Youth was a conceptual-art project for me, but in a way, it was an extension of Warhol. Instead of making criticism about popular culture, as a lot of artists do, I worked within it to do something.
+- Because our daughters have school and it's just such a hassle going down to New York all the time, we can really only go on the weekends, we kind of... Steve came up here and worked out stuff for the second half of the record.
+- I grew up listening to John Coltrane and jazz, so they were subtle influences. I sometimes think about doing some kind of weird jazz record, but I don't know... It's on my list of things to do. I don't want to have to then go promote it.
+- And then, I was thinking of doing a record just like starting with voice, because I did this one song that was just kind of a cappella, and I did it for this art piece I did where people could come and play music to go with a voice.
+- I do retweet some of the things that people say about the things I've done, but I don't necessarily want to use it to promote myself because I find that it gets kind of boring. There should just be a whole different site for that. Because it's just kind of boring and gross to use it just self-promotion.
+- I'm a mom, but I don't always want to look just like that.
+- Basketball and ping-pong are my two forms of exercise.
+- It is fun to smash guitars.
+- Well, it was kind of accidental that Jim started playing with us, although it wasn't sudden... we hadn't really looked around to think who could be a fifth member.
+- I think of myself as unconventional, I guess. I maybe always had a problem with authority, like a stubbornness about what's expected - despite wanting to get some recognition through performing - but also not always wanting to do the expected thing.
+- I'm kind of a sloppy feminist. Any ideology makes me a little nervous because there's some point where it doesn't allow for the complexity of things.
+- I'm a relatively shy person, but I love being challenged and putting myself in positions that are scary.
+- I would be too self-conscious if I just thought of writing lyrics for a song. I have to trick myself into doing it.
+- I really want to start playing basketball. I actually bought a new basketball.
+- I love Northampton. As exciting and glamorous as New York can be, I'm always really relieved to get back there.
+- It's really hard for me to sing and play bass.
+- Sometimes I think fashion is more of a conversation between men than it is for women.
+- I like that show 'Ray Donovan' - I'm obsessed with that. He's in Hollywood, he's some kind of a fixer, but he's also kind of a thug. And 'Scandal,' the D.C. one with Kerry Washington.
+- I don't have any desire to do something that sounds explicitly rock. Like, I don't have a burning need to be a rock musician. I feel like I've taken that as far as I can take it, for me.
+- I can't think about whether I'll disappoint Sonic Youth fans. It's not like I want people to be disappointed, but I just can't control that.
+- Everyone's so interior now, they're not really looking around them. They're on their phones.
+- There's only so many small shows you can do. A lot of the smaller things are more side project things. Not everything is appropriate for Sonic Youth to do.

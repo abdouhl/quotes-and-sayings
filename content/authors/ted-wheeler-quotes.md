@@ -1,0 +1,106 @@
++++
+author = "Ted Wheeler"
+title = "Ted Wheeler Quotes"
+quotes_len = "100"
+description = "the best 100 Ted Wheeler Quotes"
++++
+- I certainly didn't see the mayor's withdrawal coming. I was looking for a highly contested mayoral campaign.
+- We are fortunate to live in an attractive, highly desirable and vibrant city. A city that is growing, that draws new residents and visitors from across the world each day and a city with a great sense of pride in all we do and have to offer.
+- If you intend to use our beautiful city to cause mayhem, disturb the peace, create fear and commit violence, you are not welcome here.
+- Imagine a safe city with all the affordable housing we need, a city that uses its resources to help lift the marginalized up and into stability. This is the Portland I imagine. This is the Portland I dream about every single day.
+- I said I wanted to lay the foundation for my governance and that included building relations with the City Council, with bureau directors, making sure we had the right leaders in place, making sure we're communicating with community groups that have an interest in of policymaking. I feel that we did that.
+- Yes, Portland is governable. Yes, it's challenging.
+- My privilege as a white man, my privilege as the mayor and the leader of the institutions of power in this community I believe shielded me from time to time from the many difficult and uncomfortable truths about our history and about our society.
+- We don't know what the trajectory of autonomous or linked vehicles will be, and we don't have a clear understanding on what that means in terms of infrastructure and policy. But we know it's coming.
+- The only way we are held accountable is if people know what government is doing.
+- The most effective role for the Oregon Treasury is to continue to demand responsible business practices and use our influence to push for the development of profitable investment opportunities in the clean energy sector.
+- Portland has a long history of embracing the most important of American values. Those are the rights to assembly and the rights to free speech. And we're proud of protecting those core American values.
+- We have to nurture and support the idea of pluralism.
+- Mike Marshman is a quality choice to fill the role of Portland Police Chief.
+- Transitioning our households, businesses and government operations in Portland and Multnomah County to 100 percent clean energy by 2050 is achievable, but it will require strong policy guidance and innovative new sources of funding.
+- It's the job of the president to ensure the protection of liberty in the United States of America.
+- We must transition away from the dirtiest fossil fuels toward renewable sources of energy for the sake of our economy and our planet.
+- Washington, D.C., has for too long ignored the reality that if we do not invest in infrastructure in urban America we are doing so at the jeopardy of the economy.
+- While it's generally easier to stay the course, it's a bad idea if that course does not take us where we want to go.
+- If we cannot create a beachhead, an anchor of affordability in our communities, in our urban areas, we will lose the people who actually make the community what it is.
+- Why are these things happening in Portland? In part, it's because we are a progressive community. Groups like Patriot Prayer and the Proud Boys... they come from the outside. They come here because they know that their message is not necessarily welcomed here. They're trying to provoke a reaction.
+- I was inspired to see leaders from Paris, New York City, San Francisco and Vancouver, B.C. rolling up their sleeves to create clean and safe transportation systems; make homes and buildings efficient, comfortable and affordable; and ensure more of our energy comes from clean sources like wind and solar.
+- There are some situations where the police need to have adequate resources on hand in order to be able to go into a situation safely. Their job is to enforce the law, not be martyrs.
+- As mayor I don't intend to be just a voice for Portland. I intend to be a voice for urban America.
+- Is Portland worse off than other cities? Is Portland really 'Tent City U.S.A.?' I want to be clear: The answer is no. While the homeless situation in Portland is significant and unacceptable, it is not unique.
+- Opponents have claimed that regulating carbon will hurt the economy and businesses. The economies of California and British Columbia prove otherwise.
+- The police should be focused on policing criminal activity, and that's sort of the beginning, the middle and the end of it for me.
+- Homelessness is an umbrella term for a lot of different problems that need separate solutions.
+- I don't think what's in my pocketbook matters.
+- We have an obligation at the local level to do everything we can with the resources we have. And we do those things. But we're never going to solve homelessness - not here in Portland, not here in any major city in America - if we keep assuming that it is purely a local issue.
+- I will not allow continued planned street violence between rival factions to take place on the streets of Portland.
+- My residents don't know who a federal officer is or a local police officer or a county deputy or a state patroller. They don't know, and they don't care. It's all the same to them.
+- Clean energy provides a unique opportunity in rural and urban communities alike by training Oregonians with new skills for projects that must be built in our communities and can't be outsourced.
+- We're going to send a unified message to the rest of this country, which is that we do not accept violence in this community. If you are thinking of coming to Portland, Oregon, to engage in acts of violence, we don't want you.
+- My top priority if elected mayor is matching Portland with economic opportunity.
+- The City of Portland, our police bureau, and our employees do not cooperate with ICE.
+- There is a national climate here. We're seeing a rise in hate speech, in intolerance, in racism, in division.
+- It sends the wrong message to participate in hosted golf and other entertainment activities while thousands of Oregonians face foreclosure, unemployment or are simply struggling.
+- From Portland's ban on large, fossil fuel terminals to Oregon's Clean Fuels Standard and the Clean Electricity and Coal Transition Act, our local actions send ripples through the energy landscape nationwide.
+- I can not regulate Daryl Turner. He's a union official.
+- There is definitely a balance that I have to strike both in terms of supporting the Police Bureau - making sure they have the tools and the resources they need to do their jobs effectively. But I also have an important role to play when it comes to oversight and accountability.
+- The world's attention is increasingly focused on climate change. It threatens our economy, our environment and ultimately our families' health and livelihoods. For coastal states like Oregon, the stakes are even higher.
+- As Oregonians, we share a deep optimism for a better future. From the time of the Oregon Trail, we have understood that a better future won't just happen by accident or by sticking with the status quo.
+- There's some basic ideals that we should be able to agree on as Americans: We don't tolerate violence on our streets.
+- I am a firm supporter of the First Amendment, no matter the views expressed.
+- I see my role as police commissioner as providing strategic oversight, support and accountability for the bureau.
+- I didn't get into politics so that I could take little bites around the edges.
+- If I cannot address the issue of visible homelessness and abject poverty on the streets of this community, I will not get re-elected in four years.
+- Portland doesn't have a 'sit-lie' ordinance like Seattle or San Francisco. Our use of high pedestrian zones is significantly more limited and nuanced, but it gives authorities the flexibility they need to address specific public safety or public health threats in congested areas, by keeping our sidewalks accessible and walkable.
+- I don't even recognize myself sometimes.
+- Portland took the lead on climate action more than 25 years ago when we became the first U.S. city to adopt a climate action plan.
+- Wishful thinking did not give Oregonians the bottle bill. Wishful thinking did not give the public access to beaches. Nor can we expect wishful thinking to turn around a decades-long disinvestment in our higher education system.
+- Oregon deserves a Governor who is fully focused on the duties of state.
+- Again, when it comes to enforcement of our community standards, we support people's rights to demonstrate, but we don't care about who you are or your politics are. If you engage in violence in this city, you will be held accountable.
+- We can't simply dismiss the idea that autonomous vehicles are going to be a big part of our transportation system.
+- When Oregon was founded as a state in 1857, its constitution explicitly banned Black people from visiting, living and owning property here.
+- A permanent, growing fund for student aid will help all Oregonians afford needed education and training and build a path towards a stronger future.
+- At a time when leadership on climate protection and clean energy are more vital than ever, Portland and Oregon must step up and lead.
+- The changing climate is pushing already vulnerable communities into crisis situations. Children with asthma are forced to miss school and stay inside due to poor air quality. Day laborers and construction workers must work outside in dangerous temperatures. People without homes are unable to escape the impacts of hotter summers and wetter winters.
+- I think it is extremely inappropriate for people to be blocking traffic, to be harassing people going about their everyday business and violating the law. I do not support that kind of behavior.
+- I am committed to ensuring that, as Portland grows, the things we love about our city grow along with us.
+- Portland has a proud history of protest.
+- I have a beautiful desk. I rarely sit behind it. That's not where my job is. My job is in the community.
+- The porridge is either two hot or too cold. At any given moment in this city the police are being criticized for being heavy handed and intervening too quickly, or they're being criticized for being standoffish and not intervening quickly enough.
+- I'm ready to fight, and I'm ready to make sure progressive includes progress.
+- I did not inherit a single dime from my father.
+- Violence is not and has never been a legitimate means to a political end.
+- My job is to protect the safety of everyone... protesters, counter-protesters, and bystanders alike.
+- I am dedicated to ensuring that the prosperity our city is experiencing extends to everyone who lives, works and visits Portland.
+- I was very clear that we'd invest much more in shelter space to get people off the streets, out of doorways, out from overpasses and get them connected with services - whatever services they need, whether it's mental health whether its addiction or economic resources.
+- I'm willing to take criticism all day long from Fox News. But I'm not willing to accept criticism from Fox News of the men and women of the Portland Police Bureau.
+- Too often, the very institutions that are supposed to protect and serve our community have instead failed people of color, specifically our black community.
+- If you can't create a world-class university, why not invite one in?
+- I am mindful of my responsibilities as state treasurer, and I will not shirk those responsibilities.
+- As we double down on urgent issues of housing affordability, access, inequities and displacement, we must prioritize addressing climate change.
+- The police should be addressing car break-ins and burglaries and things like that. And increasingly what they're doing is providing social services. The majority of police are not trained in the provision of social services.
+- If you know me, you know I mutter quite a bit. Not one of my most redeeming qualities.
+- Peaceful demonstrations are essential to our democratic system. Unfortunately, some individuals have engaged in unlawful and dangerous activity, including arson, rioting, looting, and damaging public and private property.
+- I believe my role as mayor is to be out in the community and as much as possible, I want my team out in the community.
+- I'm going to rely upon the advice of affordable housing experts to make sure we meet the public's expectations.
+- And by reducing carbon pollution in our atmosphere, we are protecting our air, water, mountains, forests, deserts, valleys, coasts and rivers - the astounding natural ecosystems that support all life and make Oregon the special place we call home.
+- It is the mayor's job to be the glue that holds everybody together.
+- I have been humbled by my first two weeks in office.
+- If people are expecting the mayor of Portland to solve the problem of homelessness they're going to be sorely disappointed and that's just the truth.
+- Portland is an amazing and awe-inspiring city. It's a city we cherish for its beauty. A city we love for its tolerance.
+- There's no question that, in nearly seven weeks of nightly demonstrations, the police have done many things right, and they've done some things wrong as well.
+- I want Portland to be the cleanest city in America.
+- The Clean Energy Jobs legislation will provide predictability and certainty for large carbon emitters.
+- Funding to replace crumbling infrastructure has always been hard to come by.
+- Portland needs a mayor who is going to take on the significant issues this city is facing.
+- The trading mechanism proposed in Clean Energy Jobs is based upon sound free-market principles. It will allow emitters to find the most cost-effective ways to meet emissions reduction goals.
+- I believe we should take steps to ensure that travel is not only cost effective, but also in line with what the public expects from public employees during challenging economic times.
+- This is part of the core media strategy out of Trump's White House: to use federal troops to bolster his sagging poll data. And it is an absolute abuse of federal law enforcement officials.
+- The tactics that the Trump administration are using on the streets of Portland are abhorrent. People are being literally scooped off the street into unmarked vans, rental cars, apparently. They are being denied probable cause. And they are denied due process. They don't even know who's pulling them into the vans.
+- My fight isn't with Charlie Hales. My fight is with the problems he has failed to address as mayor.
+- Violence and hatefulness have never been - nor will they ever be - who we are. This is the city I was born in, the city I was raised in and the city I love. Portland is also a united city.
+- I get up in the morning and by the time I've gone to bed there's three or four or five new crises that weren't there when I started the day. That's what being mayor of Portland is about.
+- My goal is to always be a transformational leader, and to go big. And when you go big, you don't always win. And I'm OK with that.
+- In order to do the right thing and to provide the right long-term view for the city, it might mean you're only in politics for a little while.
+- I want to be clear: We can address safety and livability issues head-on without criminalizing homelessness. After all, people living on our streets are themselves vulnerable to crime and other hazards.
+- The criminal justice system is not the right place - or it shouldn't be the place of first resort to provide addiction or mental health services. It should happen elsewhere with no police and no judges and no juries and no jails.

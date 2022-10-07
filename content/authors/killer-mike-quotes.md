@@ -1,0 +1,105 @@
++++
+author = "Killer Mike"
+title = "Killer Mike Quotes"
+quotes_len = "99"
+description = "the best 99 Killer Mike Quotes"
++++
+- I've been watching wrestling since I was three years old.
+- A lot of time, when you're poor and you ain't got but 15, 20 bucks in your pocket - if you can't change your shoes, you can change your look with a haircut.
+- I used to have go-karts and mopeds and motorcycles when I was a kid. Then my grandpa let me drive a real car at about 13 or 14 and I just... I never cared about bikes again after that.
+- A lot of times, elections are lost, and the hope of the public is lost because they don't turn out.
+- I've been in the newspapers since I was about 15 - not for rapping, but for real substantive stuff I was doing in the community, organizing around gang violence in the schools. So I had already made my grandma proud before I was on TV. I've always been who I am.
+- Government should fear the people, not the other way around.
+- Being a cop is often seeing the worst of the human condition and behavior. With all of that said, there is no reason that Mike Brown and also Eric Garner are dead today - except bad policing, excessive force, and the hunt-and-capture-prey mentality many thrill-seeking cops have adapted.
+- I'm happy to be for people what Scarface, Ice Cube, and Rakim have been for me.
+- The older I get, the more of an anarchist I become, and I don't mean in a punk rock way.
+- I don't want to be walking around angry and feeling rage.
+- I'm not going to stop being who I am.
+- I'm a Banksy fan. I'm also a fan of Chris Hobe, Mister Totem, Drew Wootten, Mad Clout, Hense and Sever, in visual and street art. And Jonathan Mannion and Shane Nash in photography.
+- My hair is dry. A lot of shampoos and greasers don't work with me, and so I started playing around with a chemist on a product that'll work with me.
+- For the people of Baltimore, I don't criticize rioting, because I understand it. But after the fires die down, organize, strategize, and mobilize.
+- Those 'Pledge' records did good for me, and they're the foundation that this Killer Mike is built on, but I was judging myself on physical sales and didn't understand that music sales were declining overall.
+- I just like cars, period. I can find something to like about pretty much any car. I've had as much fun whipping around Italy in a little Mini Cooper as I've had whipping through Miami in a Bentley GT.
+- I think all politics is local.
+- Being in love makes you feel kind of naive.
+- I don't accept 'political rapper' because I don't give a damn about either political party. I give a damn about the people. My rap comes from a sociological standpoint rather than picking a particular side or dogma or ideology. I just want people to be free to do what they want, as long as they don't harm others.
+- I like the New York style of funk, the California style of funk, but the South I never felt like - and Atlanta particularly - got the credit for taking their lessons and progressing on it.
+- It's a totally different spiel when I talk at Morehouse. But when I'm talking at MIT? At the University of Cincinnati? I'm telling white people, in order to stop systemic racism, you must first befriend, become a colleague of, get to know intimately, put yourself culturally in the framework of someone who doesn't look like you.
+- You can't argue that hip-hop rots away the moral character of kids or rots their brain and still see middle-class white kids going to college who are listening to hip-hop. Going on to become healthy adults listening to hip-hop.
+- I don't let people talk bad about Rick Ross around me. Like, you can't do it. He owns - I've heard a legend - 30 Wing Stops in the areas he grew up near. You can never say anything about him. If that represents ten jobs per place, that's 310 jobs provided.
+- I have white friends who have the Confederate flag on their license plates, and I have no issue with that if they see that as a matter of heritage. But I do not think it should ever fly over a state, city, county building, or school, for the simple reason that it represents secession from the Union.
+- In my 20s, I was just angry.
+- I'm an alpha male.
+- This is a beautiful life we lead in spite of whatever things come against us or whatever team loses or wins.
+- America has done a great job making brutally fast, stripped-down cars.
+- I take being an American very seriously.
+- I am Michael Render - that's what my mom named me. 'Killer Mike' is what my dumb friends called me in a rap battle once, and it stuck.
+- I have hurt my community. I have to look myself in the mirror and know that, and I have to own that in order to grow past that.
+- I have matured as a man to understand where my suspicion of women comes from and how that has everything to do with me and nothing to do with them. I have to deal with that.
+- People don't accredit Killer Mike and El-P with having the humanity that we do. They don't understand that the darkness and the anger that we rap about comes from a place of love, care, and concern.
+- I don't understand how any black person can tell me that they're not pro-gun.
+- In my heart of hearts, I truly believe that Senator Bernie Sanders is the right man to lead this country.
+- My mom had did a wonderful job of giving me two great dads: I had a biological and non-biological dad.
+- What's more American than young people speaking their mind over things they had to create over pots and pans and electronically because music was taken out of schools? What's more American than making something out of nothing? What's more gospel than rap music?
+- I never stop reading. I read everything, and I read every day. If you never read anything, be curious. Curiosity is the true foundation of education, reading things that we've factually already agreed on, and I love reading books. With that said, it's more important that you ask the question 'why.'
+- For all my proclivities for thuggery, I am a typical middle-class dad. I'm a gangsta rap suburban father!
+- Black people shouldn't have permanent friends or enemies: they should have permanent interest.
+- The best advice that I've gotten from Nas is honestly to just be me and to keep staying true to myself. It took me a long time to figure out how to pop, but then, when you get famous, people are kind of like, 'Oh, well, we don't want as much of you.'
+- Being a cop must be hard. My dad was one and never wanted any of his children to follow in his footsteps.
+- The police are paid by the public and carry a public trust, and they take an oath to protect us as citizens. The police have lost sight of that and must be reminded that we pay them to protect us, not to simply engage and cage us.
+- For me, muscle cars are a tribute to American ingenuity.
+- My grandmother had been a part of the civil rights movement.
+- My ears are shot. I'm a musician.
+- I'm a student of Ice Cube and Scarface, which means the stuff I rap about is not radio-friendly, and it's very opinionated. and it's very much from the perspective of a black man in America, and our opinion ain't always popular when we have a political opinion.
+- The fact that I'm in a group that inspires others artists is just heaven to me.
+- I've made classic records, and going into making 'R.A.P. Music,' I was determined to top the entire legacy of the 'Pledge' series, and the fact that I won a Grammy, and the fact that I was associated with OutKast, and the fact that I'm a Dungeon Family member.
+- No Child Left Behind left a lot of kids behind.
+- I tell people I live in Atlanta. Georgia's outside of Atlanta, absolutely. But my family's from the very rural south. My family's from Tuskegee, Alabama. And they're from Eatonton, Georgia. Places like Greenwood, Georgia, my family is from... so I've seen it both ways.
+- It's less to do about me - 'Hey, I'm black and it hurts my feelings; it's a symbol of slavery and oppression' - and more to do with the fact that, as an American, I will not honor a group of treacherous traitors. That's why I despise the rebel flag.
+- I shouldn't have to be preparing my children that the world is going to be unfair to them for the rest of their lives.
+- I've worked with incredible producers in the past, but when me and El-P got in a room, there was no way I was going to let off his head because not only was he one of the greatest producers I heard, he was one of the illest rappers I had ever heard.
+- An army took on the Union; an army lost. That nation, the Confederate States, lost. And if - that flag - in terms of publicly or state-sponsored things, or local or county or city-sponsored things - should be forever wiped from the memory, because that side lost.
+- Atlanta is unique to me. You got poor black people, but I also saw this: I saw black doctors, lawyers, educators. All you gotta do is want to be it to see it, and once you see something, it can be a reality.
+- I cannot lie: as good as it feels to get my deserved props, the best part of reading social media after I meet folks is reading, 'Mike was a nice guy.'
+- I was raised a black child in the South, where you're indoctrinated into a religion that an oppressor gave you.
+- If your great-great-grandfather participated on the Confederate side, and you hold some sentimental value to that, and you want to fly the flag and hang their picture up in your home, that's fine. But it should not be on anything that taxpayers pay for, because taxpayers are a part of the Union, not the Confederacy.
+- My rights are precious, and I value those provided to me through the United States Constitution so much.
+- My biggest failure was trying to start and run a music label. The music industry was dying, and I wasn't ready to help other people the way that they needed to be helped. I was trying to, and I was stifling myself with it.
+- I believe being honourable lasts longer than rapping good.
+- I prefer a real villain to a false hero.
+- We are raising a generation of kids where everyone gets a trophy. But in real life, everyone don't get a trophy.
+- A lot of times, our greatest minds are locked into a 9-5 job.
+- I'm not going to restrict myself as an artist.
+- Rap is supposed to scare soccer moms.
+- We have a responsibility to do better as black people in this country. I don't care how white people look at you - I care that we have a one-trillion-dollar spending base, and if you want to see change, you have to start to focus on, economically, how can we change our communities.
+- I've been a music fan all my life, and you know the difference when the musicians care.
+- I'm a black man who grew up in America. I'm a father of four children. They don't all have the same mother. I own a business.
+- You do not fly the flags of losers over the winner's country.
+- Ultimately, Dead Prez should have went multi-platinum. But when people didn't rally around them, I knew the black hip-hop audience had become far less politicized.
+- I don't want to be married to any ideology, because life is a lot more fluid than that, and I think that we're trained and conditioned in this country to think in teams.
+- Nas is truly one of the greatest lyricists to ever come out of Queens, which has produced more great MCs than any other borough. He's one of the greatest MCs of my lifetime and in the world. He's also a friend.
+- I write in the booth and memorize in rehearsals.
+- I maintain hope that this country can be what it's supposed to be.
+- I grew up working class in Atlanta.
+- I will never take a day off policing the people we pay and keep a public trust with. I will use my camera, my pen, my pad, and my network to do my part, to make sure that Americans will no longer fear their government. Or its employees. They work for us - not the other way around.
+- I'm a man's man.
+- Someone tried to introduce me to Michael Bloomberg, but I declined.
+- If you don't like the NRA, get a million black people to join. Go to the convention. Realize that this ain't white people in hoods, just regular working class people like you that are probably going to be friendly and engage you. And then add your thoughts to the agenda.
+- We should be led by principles and morals and not by men.
+- We have essentially gone from being communities that were policed by people from the communities to being communities that are policed by strangers, and that's no longer a community: that's an area that's under siege.
+- I believe in smart people.
+- All of us, as citizens, need to kind of get over our classisms and vote for the betterment of us all.
+- I've been a sinner and a saint. If you've been a saint all your life, it's pretty easy to sleep at night. If you've been a sinner, you're just as comfortable in it.
+- Jake 'The Snake' Roberts of Stone Mountain, Georgia, was the darkest! I mean, he could've been a movie villain, he was so intense! He also had the hardest finishing move of all time, the DDT.
+- Rap, to me, is communal. It's something you do with your friends. So becoming a member of a group was the dream.
+- My hope is that very young people in America who have experience with the streets, hip-hop, college, higher learning will fuse all that together. I just want to be the music that can relate to both sides, that stitch together their lives or represents their experiences.
+- Bernie Sanders is the only politician who, consistently for 50 years, has taken that social justice platform into politics.
+- Black people need to share collective dollars and demand equal representation, and the way you do that is by controlling their own economy and putting money behind candidates.
+- Martin Luther King, Jr. was a revolutionary, simple and plain.
+- If we could figure out ways for kids to exit college without having the burden of debt, what we have really figured out is how to create a more fertile breeding ground for people who can think innovatively and progress us as a species.
+- Freedom is not something you're even trying to fight for; you are free. Go. Make sure you live free every day.
+- I'm trying to get more into television and film. I know, like, a million models and rappers have said that, but I actually enjoy voiceover and acting in particular.
+- You a role model by way of someone will model after your role. They'll model themselves after what they perceive is success. That doesn't mean they take your morality and virtue seriously. They want what you want, and they're willing to do what you do to get it.
+- The way you start to break down systemic racism is to start building individual relationships with people who are not like you.
+- We need more Rocafellas; we need more Bad Boys.
+- I don't know what the hell the future brings. If I did, I would play the lotto and win the mega millions and buy toy cars, real muscle cars, sneakers, and art.

@@ -1,0 +1,38 @@
++++
+author = "Kenneth L. Pike"
+title = "Kenneth L. Pike Quotes"
+quotes_len = "32"
+description = "the best 32 Kenneth L. Pike Quotes"
++++
+- Language is a tool adequate to provide any degree of precision relevant to a particular situation.
+- I wanted a theory that would allow one to live outside the office with the same philosophy one uses inside it.
+- God cannot be reduced to a sample for analysis.
+- With acknowledgement of residues, we can be more easily prepared to grant the unit of science, the overlapping of disciplines, and the total coherence of all facts.
+- We assume, to begin with, that the individual is at least as complex in his internal structure as the language is which he speaks - otherwise, how could he speak a language which is complex?
+- Normal social behavior requires that we be able to recognize identities in spite of change. Unless we can do so, there can be no human society as we know it.
+- This required the development of a view which allowed one to integrate research with belief, thing with person, fact with aesthetics, knowledge with application of knowledge.
+- Fruitful discourse in science or theology requires us to believe that within the contexts of normal discourse there are some true statements.
+- Without a possibility of change in meanings human communication could not perform its present functions.
+- Language is not merely a set of unrelated sounds, clauses, rules, and meanings; it is a total coherent system of these integrating with each other, and with behavior, context, universe of discourse, and observer perspective.
+- So I see that Christianity in believing in a Creator pulls together more facts, data, inner experience and ability than any mechanistic view could hold for me.
+- Nobody is as good as he thinks he is.
+- Acceptance of the power of God in one's life lays the groundwork for personal commitment to both science and Christianity, which so often have been in conflict.
+- Identity in the form of continuity of personality is an extremely important characteristic of the individual.
+- Outward failure may be a manifested variant of inward success.
+- Courage to continue comes from deeper sources than outward results.
+- Today's practicality is often no more than the accepted form of yesterday's theory.
+- The price that one pays for refusing to act on the truth as one sees it, is to be led to believe untruth to avoid guilt.
+- If language did not affect behavior, it could have no meaning.
+- The universe extends beyond the mind of man, and is more complex than the small sample one can study.
+- The view of the local scene through the eyes of a native participant in that scene is a different window.
+- That a society controls, to a greater or lesser extent, the behavior of its members is a universal; but the methods, the particulars of that control, vary from one culture to another.
+- When I conform to truth, I do not conform to an abstract principle; I conform to the nature of God.
+- If the scholar feels that he must know everything about any topic, he is in trouble - and will not publish with a clear conscience.
+- There is no truth without responsibility following in its wake.
+- Christianity stands or falls as a living program, a way of life, made concrete in the life of man by the life of God through the life of the concretely living Christ.
+- Verbal and nonverbal activity is a unified whole, and theory and methodology should be organized or created to treat it as such.
+- Revelation and the nature of truth must be viewed in reference to the structure of language.
+- The detached observer's view is one window on the world.
+- It is also, I would guess, a universal that in all societies people value respectability granted to them.
+- The marvelous thing is that even in studying linguistics, we find that the universe as a whole is patterned, ordered, and to some degree intelligible to us.
+- If I were to adopt pure mechanism as a philosophy, there would be no way I could choose to be a scholar.

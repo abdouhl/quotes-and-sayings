@@ -1,0 +1,86 @@
++++
+author = "Joel Salatin"
+title = "Joel Salatin Quotes"
+quotes_len = "80"
+description = "the best 80 Joel Salatin Quotes"
++++
+- Our culture doesn't ask about preserving the essence of pig; it just asks how can we grow them faster, fatter, bigger, and cheaper. We know that's not a noble goal.
+- Choose to patronise your local farmers; as eaters, you need to demand a different type of food. Appreciate the pigginess of the pig.
+- If a job is worth doing, it's worth doing poorly first.
+- There's a short chain between field and fork, and the shorter that chain is - the fresher, the more transparent that system is - the less chance there is of anything from bio-terrorism to pathogenicity to spoilage.
+- Ecology should be object lessons that the world sees, that explains in a visceral, physical way, the attributes of God.
+- Nobody trusts the industrial food system to give them good food.
+- In general, we run the farm like a business instead of a welfare recipient, and we adhere to historically-validated patterns.
+- You can't have a healthy civilization without healthy soil. You can't have junk food and have healthy people.
+- Despite all the hype about local or green food, the single biggest impediment to wider adoption is not research, programs, organizations, or networking. It is the demonizing and criminalizing of virtually all indigenous and heritage-based food practices.
+- No civilization on the brink of collapse has ever changed fast enough to avert collapse.
+- It really disturbs me that the environmental movement has been co-opted by creation-worshippers instead of being encouraged by the Creator-worshippers.
+- We would be a much healthier culture if the government had never told us how to eat.
+- We need to respect the fact that cows are herbivores, and that does not mean feeding them corn and chicken manure.
+- The pig is not just pork chops and bacon and ham to us. The pig is a co-laborer in this great land-healing ministry.
+- I didn't really see a way to make a living on the farm. I always loved writing. I was the guy who won the D.A.R. essay contest and things like that, and it was the era of Watergate, and I decided I would be the next Woodward and Bernstein, and then retire to the farm.
+- We move the cows every day to a new spot which allows the grass time to recuperate and go through its what I call 'the teenage growth spurt.'
+- It's very common to implement mob grazing and double your production for a per-acre capitalisation investment... because it doesn't take any more corraling, no more electricity, rent, machinery or labour to double your production on an existing place.
+- Industrial agriculture, because it depends on standardization, has bombarded us with the message that all pork is pork, all chicken is chicken, eggs eggs, even though we all know that can't really be true.
+- That's the joke about confinement pigs: they taste like whatever sauce you cook them with.
+- Think of all the mesquite in Texas, the pinyon pines, the acorns in Appalachia, every place has the possibility of mass production. It's an infrastructural system so nestled in ecology, it's a more beautiful ecology.
+- The mechanical food system externalizes a lot of costs like obesity or Type 2 diabetes.
+- Our biggest fear is that 'Food, Inc.' will move heavy-handed food-safety regulations forward.
+- From zoning to labor to food safety to insurance, local food systems daily face a phalanx of regulatory hurdles designed and implemented to police industrial food models but which prejudicially wipe out the antidote: appropriate scaled local food systems.
+- The farmers are older; they are under financial stress to produce more margins, yet they keep getting less.
+- We believe that the farm should be building 'forgiveness' into the ecosystem. What does that mean? That a more forgiving ecosystem is one that can better handle drought, flood, disease, pestilence.
+- We're scared to death to try new things because we think we have to get it right the first time.
+- What we're looking at is God's design, nature's template, and using that as a pattern to cut around and lay it down on a domestic model to duplicate that pattern that we see in nature.
+- I am libertarian, and Americans generally are, more than, say, Canadians and Australians.
+- 'Organic' doesn't mean what people think it means.
+- We will never sell or have an IPO. What that does is suddenly flushes you with cash. It makes you now work for a group of stockholders, who, again, put pressure and temptations on your true-blueness.
+- Know you food, know your farmers, and know your kitchen. Start building up your larder! We don't even use that term any more.
+- New Zealand has incredible global recognition for grass-fed livestock.
+- The cycle of life is death, decomposition and regeneration, and a person who wants to stop killing animals is actually anti-life because it's only in death that life can be regenerated.
+- The truth is, everything is eating and being eaten.
+- We can move water easily with plastic pipes. We can move shade around with nursery cloth like a tinker toy for animals and plants. Yet we have developed this necessity to grow food with chemical fertiliser because we have forgotten the magic of manure.
+- I inherited Mom's verbal skills, and participated in forensics and essay contests in elementary school - and won every essay contest I ever entered.
+- The linear, single species idea of farming is an assault on ecological function. Something's going to break down in that system - anything from soil structure, in economics... but where to start is with true ecological function.
+- Our motto is we respect and honour the pigness of the pig and the chickenness of the chicken. That means not confining them in a house with hundreds of others.
+- A pig has a plow on the end of its nose because it does meaningful work with it. It is built to dig and create soil disturbance, something it can't do in a concentrated feeding environment. The omnivore has historically been a salvage operation for food scraps around the homestead.
+- Outrageous behavior, also known as the lunatic fringe, is the seed bed of innovation and creativity.
+- Oh, my goodness, when we came to the farm in 1961, I mean, it wouldn't even support one salary.
+- The industrial food system is so cruel and so horrific in its treatment of animals. It never asks the question: 'Should a pig be allowed to express its pig-ness?'
+- Frankly, any city person who doesn't think I deserve a white-collar salary as a farmer doesn't deserve my special food.
+- I see myself today as Sitting Bull trying to bring a voice of Easternism, holism, community-based thinking to a very Western culture.
+- I'm a Christian-libertarian-environmentalist-capitalist-lunatic. It's a humorous way for me to describe that I'm not stereotypical.
+- Know you food, know your farmers, and know your kitchen.
+- I need people - theatrics and schmoozing and storytelling are part of my talent.
+- I would suggest that if you get in your kitchen and cook for yourself, you can eat like kings for a very low cost.
+- Instead of buying into the global agenda, which is using food as just industrial stuff, we would say we view food as biological, a living thing, that belongs in smaller communities.
+- We can't begin to feed ourselves with a local-centric system if we lock up land in royal manor models.
+- From my earliest memories, I loved the farm. My grandfather was a charter subscriber to Rodale's Organic Gardening and Farming Magazine and had a huge, well kept garden with an octagonal chicken house in the corner.
+- You wanna get diarrhoea? Eat industrial food.
+- I want people to think through issues. I'm just tired of blind alignment.
+- God doesn't just miraculously and physically intervene in the whole process, so if I just go and drop a bunch of chemicals and herbicides that leach into the groundwater, I can pray all day to keep my child healthy, but if the herbicides gone into the groundwater come up my well, my child's going to drink that water.
+- I'm incredibly optimistic about what individuals can do. We have technology that our grandparents would have given their eye teeth for.
+- An orchard can grow pastured poultry underneath. A beef cattle or sheep farm can run pastured poultry behind the herbivores, like the egret on the rhino's nose.
+- You know, in our culture today, our Western, reductionist, Roman, linear, fragmented... culture, we don't ask how to make a pig happy. We ask how to grow it faster, fatter, bigger, cheaper, and that's not a noble goal.
+- Get in your kitchens, buy unprocessed foods, turn off the TV, and prepare your own foods. This is liberating.
+- Our land-healing ministry really is about cultivating relationships: between the people, the loving stewards, and the ecology of a place, what I call the environmental umbilical that we're nurturing here.
+- If we fail to appreciate the soul that Easternism gives us, then what we have is a disconnected, Greco-Roman, Western, egocentric, compartmentalized, reductionist, fragmented, linear thought process that counts on cleverness.
+- We control health and pathogenicity by complex multi-speciated relationships through symbiosis and synergy. Portable shelters for livestock, along with electric fencing, insure hygienic and sanitary housing and lounging areas, not to mention clean air, sunshine, and exercise.
+- Land degradation did not start with chemical agriculture. But chemical agriculture offered new tools for annihilation.
+- We've created a tenfold core value protocol to make sure that we don't fall into an 'empire' attitude.
+- I always said if I could figure out a way to grow Kleenex and toilet paper on trees, we could pull the plug on society.
+- Nature moves towards balance.
+- I think it's important to understand that in the big historical context of things, there has been land degradation from civilisation since the beginning of history. I mean, the Rajputana desert in India is a manmade desert caused by overgrazing.
+- The butcher, baker, and candlestick maker have been around a lot longer than supermarkets and Wal-Mart.
+- Throughout high school, I peddled my eggs, had a vendor stand at the local curb market - precursor to today's farmers' markets - and competed in 4-H contests and interscholastic debate.
+- Too often, parents whose children express an interest in farming squelch it because they envision dirt, dust, poverty, and hermit living. But great stories come out of great farming.
+- We've got this cultural mentality that you've got to be an idiot to be a farmer.
+- Unfortunately in the U.S., the courts have pretty much sided with the GMO lobby and suggesting that a farmer has no rights to be protected from GMO contamination.
+- I don't have money. Monsanto has money.
+- We can produce more per acre on a fifth of the fuel as the industrial food system.
+- There's a big difference between industrializing production of tractors and industrializing production of food. We like technology, but we really like technology that allows us to do better what nature does itself.
+- We only want autonomous collaborators that are incentivized to make or break their own income.
+- The cows shorten the grass, and the chickens eat the fly larvae and sanitize the pastures. This is a symbiotic relation.
+- The shorter the chain between raw food and fork, the fresher it is and the more transparent the system is.
+- My imperative is to seek every moment and to live so God is in control.
+- Our main deal is pastured livestock. So we have beef cattle, pigs, turkeys, laying chickens, meat chickens, rabbit, lamb and ducks - egg-layer ducks.
+- Gluten intolerance and celiac disease are direct results of American agriculture policy and, specifically, the government's wading into the food arena.

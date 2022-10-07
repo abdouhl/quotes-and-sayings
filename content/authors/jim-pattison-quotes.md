@@ -1,0 +1,29 @@
++++
+author = "Jim Pattison"
+title = "Jim Pattison Quotes"
+quotes_len = "23"
+description = "the best 23 Jim Pattison Quotes"
++++
+- I've made more mistakes than anyone I know. Sometimes I learned something, and sometimes I just find myself doing it again. It makes me mad when I wasn't smart enough to learn the first time. You just think it's going to be different the next time, and it's not, as it turns out.
+- In the Sixties, conglomerates were all the rage.
+- I track some long hours.
+- I come to work, and I have a good time. I have no reason to change anything that I do.
+- Radio had been very good to me as a car dealer. It's flexible, and it's fast - you can get on the air in an hour and change your message - and compared to other types of media, it's very good value.
+- We all fail - I have failed so many times, but it never discourages me. I just pick up and go.
+- My dad made a huge impact on me in terms of right and wrong.
+- I probably fly twice a week, within Canada and the States.
+- Today, public companies don't like the idea of conglomerates. People want to buy something in which they know where they are putting their money - into the food business or the oil and gas business. They don't want to put their money into a hodge-podge as a general rule.
+- What I like most about an aquarium is that all ages, from toddlers to pre-schoolers to retired grandparents, can really enjoy the wonders of the sea.
+- My grade 3 teacher put on a kids' Christmas concert, and I played the kazoo, so my mother bought me a trumpet. I took lessons for eight years, was in the Kitsilano Boys Band, and I played in the Vancouver Junior Symphony for two years.
+- When you live in Vancouver, you realize most of the population is in eastern North America.
+- When I came out of high school, my objective in life was to get a job selling used cars, but after trying for two weeks, nobody would hire me.
+- I've got a lot of respect for tuba players, just carrying that thing around.
+- I've always believed that competition is good for consumers and good for businesses.
+- I went into radio in 1965 when I got a license for CJOR 600 AM. It was my second business.
+- In my job, I have many operations, so I tend to use time in my car to think. I get in the car after work and drive all night -11 hours, Vancouver to Banff.
+- People in the high-tech sector are living with change every hour. They can get up in the morning and find themselves behind already.
+- No matter what business you are in, there is change, and it's happening pretty quickly.
+- When I was 8 years old, I sold garden seeds.
+- In Canada, things are very honest.
+- It's quite normal to hear of a change and see it as a problem, but it's probably an opportunity, depending on how quickly you can adjust.
+- During school, I'd advertise cars in the University of British Columbia newspaper.

@@ -1,0 +1,40 @@
++++
+author = "Mike Dewine"
+title = "Mike Dewine Quotes"
+quotes_len = "34"
+description = "the best 34 Mike Dewine Quotes"
++++
+- Throughout my career, I've been someone who's led... and solved problems we had.
+- One of the most important things that I have learned in my 57 years is that life is all about choices. On every journey you take, you face choices. At every fork in the road, you make a choice. And it is those decisions that shape our lives.
+- Obamacare is, quite simply, the federal version of Romneycare.
+- I found, in the Senate, you can have significant impact whether you're in the minority party or the majority party, and a lot of it goes back to... that you really have to be able to count to 60.
+- You have to give people a reason to believe that, under your leadership, America will be better. Rick Santorum has done that.
+- Sherrod Brown, in the House, was one of 66 members of the House to vote against the Patriot Act, and he continues to vote against the Patriot Act, to deny our law enforcement the tools they need to go against terror.
+- As a young prosecutor, I used the Bureau of Criminal Investigation extensively. I saw that there were problems with BCI. Frankly, I thought I could fix them. I thought if I was successful, I could really make a difference as attorney general.
+- Even beyond policy considerations, Romneycare was a horrible model to suggest for the federal government because the Constitution does not give Congress the power to impose an individual insurance mandate.
+- I was sent to Washington by the people of the state of Ohio. We have a diverse state. I am advocate and a fighter for this state.
+- What the American people really want to know is if Jeff Sessions is going to be a good attorney general. Is he going to protect my family? Is he going to make my community safer? The answer is clearly yes.
+- It is my mission to ensure that HIV-positive children and children with AIDS are no longer overlooked and that they begin receiving the treatment and care they deserve.
+- My job as attorney general has been, in regard to guns, to have oversight in regard to concealed-carry licenses.
+- I find it personally distracting when kids are constantly texting, but they can be texting something that is just benign and just fine.
+- You know, kids text a lot today. It's phenomenal.
+- To be elected president, you have to do more than tear down your opponents. You have to give the American people a reason to vote for you - a reason to hope - a reason to believe that under your leadership, America will be better.
+- The entertainment industry is encouraging young people to defy and deceive their parents.
+- Effective cyber-security should be considered an investment.
+- Elections are about the future and not about the past.
+- On my first day in office as Ohio attorney general, I authorized Ohio to join the multistate lawsuit challenging the constitutionality of Obamacare.
+- Federal law provides very powerful tools, such as strict mandatory sentences, to go after repeat violent offenders who are illegally in the possession of a gun.
+- Well, you know, my wife and I have eight children. We have now 19 grandchildren.
+- Kids are important.
+- Most people who are selling their mineral rights, this is a once-in-a-lifetime transaction. The people who are buying, the landmen who are coming in, do it every day. So there's a little inequity there about knowledge.
+- Yeah, look, I think what we have with the social media and the digital media, and all the telecommunications we have today is a big megaphone, amplification.
+- In his brief 21 years on this earth, Michael Smith Jr. touched countless lives.
+- I do not have the luxury of deciding which provisions of the Ohio Constitution to defend.
+- Governing is about making tough decisions, but it's also about figuring out a better way to do things.
+- The way I've gotten things done is by working with Democrats and Republicans. I worked with Jay Rockefeller, for example, on highway safety issues.
+- Judges need to restrict themselves to the proper resolution of the case before them. They need to avoid the temptation to set broad policy.
+- This is a time for a national conversation. A conversation about the document that binds us as a nation and a people. That document, of course, is the Constitution.
+- I have a long, long record of working with Democrats and Republicans alike.
+- I've served Ohioans starting as a county prosecutor in 1976 for, for 30 years. I think they know my integrity. I think they know my honesty. I think they knew who, who I am.
+- I'm for the fracking. I think it's an opportunity for Ohio to really get a lot of jobs. But we have to do it right. We have to really take a deep breath, do it right, make sure the public is protected, make sure our land is protected.
+- Since its inception, our Nation has stood on the foundations of compassion and justice.

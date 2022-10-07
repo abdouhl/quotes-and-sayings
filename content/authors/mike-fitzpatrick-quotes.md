@@ -1,0 +1,33 @@
++++
+author = "Mike Fitzpatrick"
+title = "Mike Fitzpatrick Quotes"
+quotes_len = "27"
+description = "the best 27 Mike Fitzpatrick Quotes"
++++
+- Despite the administration's long public information campaign, for many months polls have consistently indicated only 37 percent of those eligible for Medicare say they only partially understand the program.
+- The Internet has brought communities across the globe closer together through instant communication.
+- Our flag represents every American and it should not be hidden away as a result of property agreements.
+- The estate tax punishes years of hard work and robs families of part of their heritage by imposing a huge penalty on inheritance after death - a tax on money that has already been taxed.
+- The freedom to connect to the world anywhere at anytime brings with it the threat of unscrupulous predators and criminals who mask their activities with the anonymity the Internet provides to its users.
+- Back then, the excise tax was designed to be a luxury tax for people who owned telephones.
+- However, the Medicare prescription drug benefit has changed, and if the nearly 3,000 seniors I have met through 12 town halls can represent a sample of opinion, many seniors do not yet understand the prescription drug program and do not plan to sign up for coverage.
+- The best defense against these people is to educate parents and children of the dangers that come along with the Internet and by limiting access to certain sites during the school day.
+- As the father of six children, I know very well the challenges technology poses to our families.
+- The American flag is the symbol of our freedom, national pride and history.
+- Terrorists have already attacked our Nation once. There is every reason to believe that they will try again - possibly with a weapon of mass destruction; a weapon that could be smuggled into our ports.
+- I am encouraged by the news today that United States special operations personnel found, identified and killed the terrorist Abu Musab al-Zarqawi, the operational commander of the al-Qaeda led insurgency in Iraq. Al-Zarqawi was the public face of the insurgency.
+- The technological breakthrough of the World Wide Web has been enormously beneficial to society.
+- Parents have the ability to screen their children's Internet access at home.
+- Today, credit rating agencies rate companies, countries and bonds.
+- Our teachers are responsible for our children's welfare for the six or eight hours they are at school and we need to know without question that their safety will be paramount on the minds of teachers, faculty and volunteers.
+- Although Customs and Border Protection analyzes cargo and other information to target specific shipments for closer inspection, it still physically inspects only a small fraction of the containers under its purview.
+- Anyone can use these sites - companies and colleges, teachers and students, young and old all make use of networking sites to connect with people electronically to share pictures, information, course work, and common interests.
+- Dying should not be a taxable event.
+- The drug plans our seniors choose will define their health care options for years to come. If they do not make a decision and wait until the May 15 deadline passes, they will face penalties and higher prices for the drugs that they need.
+- Our troops are committed to bringing security to Iraq while its government matures. American forces will continue to accomplish their mission with caution, precision and honor with the thanks of a grateful nation.
+- Traditionally, Medicare's assurance has been that for the elderly and persons with disabilities that they will not be alone when confronted with the full burden of their health care costs.
+- Make no mistake; child predation on the Internet is a growing problem.
+- These sites have torn down the geographical divide that once prevented long distance social relationships from forming, allowing instant communication and connections to take place and a virtual second life to take hold for its users.
+- Internet safety begins at home and that is why my legislation would require the Federal Trade Commission to design and publish a unique website to serve as a clearinghouse and resource for parents, teachers and children for information on the dangers of surfing the Internet.
+- Myspace alone has just over 80 million users and ranks as the sixth most popular English language website and the eighth most popular site in the world.
+- Telephones are a virtual necessity - not a luxury - and the revenues collected by this tax flow into the general fund. But this once temporary tax remains and costs American taxpayers, our small businesses and families almost $6 billion dollars a year.

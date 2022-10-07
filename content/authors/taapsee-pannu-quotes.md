@@ -1,0 +1,106 @@
++++
+author = "Taapsee Pannu"
+title = "Taapsee Pannu Quotes"
+quotes_len = "100"
+description = "the best 100 Taapsee Pannu Quotes"
++++
+- I judge my film choices based on the director, and then I see how much the story has affected me when I read it or when I hear it in the narration. Then comes how important my role is in it, but primarily director, script, and then role.
+- I'm very good at manipulation.
+- I feel that I'm a perpetual struggler. I always keep struggling to get certain roles, and when I get them, I struggle to get certain types of films.
+- While I do my work with a sense of honesty, I tell myself, 'What is the worst that can happen? I fail, right?' So, will I stop living after that? No. I will try again.
+- Telugu cinema can really spoil you. They treat you like a queen. As soon as you get down from your van, they will all stand up, and they won't sit till you have passed by. I love that attention and miss that.
+- Honestly, till the time each and every movie-goer knows about me, I will not stop doing multiple films a year.
+- I can't suddenly say that because I am acting opposite Amitabh Bachchan, Akshay Kumar, and Varun Dhawan... I should get the same salary as theirs. Because I won't get the audience to the theatres as much as they will.
+- I am looking for projects that challenge me, make me uncomfortable, and also projects that are in the hands of the right team. Then it's up to me to take a leap of faith.
+- To me, a good film is one that can keep me engaged for two hours.
+- I played a biker in one of my earliest films in Telugu, 'Mr Perfect.'
+- Nobody is going to keep giving me chances even after two-three of my films don't do well.
+- I am an outsider. I was never offered the kind of roles where I could play the glamorous diva, because there are already so many of them doing it - and doing it well. So I had to bring to the table much more than just looking good.
+- This industry is quick to stereotype. People had started talking about how I was primarily being part of women-centric movies. I didn't want to be labelled as part of a mahila morcha.
+- Nepotism and outsiders are two sides of the same coin that is Bollywood. They both have to co-exist. Both have their share of struggles.
+- I feel it's better we have an open mindset to see what exactly we are trying to say. In 'Mulk,' we have not criticised any community, and neither have we said any community is good or bad. We have just shown the true picture and left it to the audience to make the choice.
+- I am very expressive and hyperactive.
+- I never thought I could pretend to be someone else.
+- I didn't even plan Bollywood! I did my first film just to experience something new, and not start a career!
+- At the end of it, box office result matters. And the weird thing is that we do not know the formula of that.
+- Who said that looking good is not a task? There are so many girls with a well maintained body, but will they be able to walk the beachside in front of the camera wearing a swimsuit? Carrying your body in a certain manner to look sexy is also an art.
+- I'm not a confused person in real life. I'm very clear.
+- Doing films like 'Judwaa' helps me relax, and that should be my reason for doing it, not to compensate for doing films like 'Pink.'
+- I have this habit of not rehearsing a lot; I don't go on practicing my dialogues, pauses, and actions.
+- In school and college, there have been instances where I wish I knew how to defend myself.
+- I really want to do a sports biopic.
+- I never thought I was gullible, but I know that I trust people easily and take people on face value.
+- I don't regret a single decision of mine. Even if I made mistakes, they helped me evolve.
+- Either I choose to behave or live a life of someone else, or I choose to be myself and live the life the way I want.
+- Eve-teasing used to happen almost on a daily basis in Delhi. I used to travel in DTC buses while going to college for the longest time. I got my car when I was 19. So for two years before getting a car, I used to travel in DTC buses. And eve-teasing used to happen almost daily.
+- Maintaining pay parity is very important, and I am in total favour of it.
+- As a child, I liked to play different type of sport, and I grew up to be an ardent sports fan. I have been watching all sports tournament religiously, especially badminton.
+- It helps me rejuvenate when I use my energy in different directions and then come back to acting.
+- In Hyderabad, it was really warm. I had decided to move there even before my first film released.
+- I want people to believe that I can pull off more than one or two types of genres or characters.
+- I never regret or sit back and think that I shouldn't have said something. There are a lot of people who tell me that you shouldn't say this or that or should keep quiet, and I really think that I can either be true to my conscience or can live a fake life by staying quiet.
+- I didn't know how to act, but I was open to learning. I was not delusional that looks would help me sail through.
+- Working in a hugely, commercially successful film benefits everyone.
+- I have been following badminton for quite some time, and I know most of the Indian players personally.
+- I used the same hand to pat my back and to pick me up when I get shattered after losing out on a film due to reasons except your credibility to that role.
+- Though my parents have seen me in all possible avatars, my extended family has been pretty excited since the time they've gotten to know that 'Manmarziyaan' is a story based in Amritsar.
+- I play on my honesty. Audience like me because they find me honest.
+- Post 'Pink,' I don't have any film which I can pick out from my filmography and say 'It would have been better if I hadn't done this film.'
+- By being part of films like 'Judwaa 2,' I can ensure that I garner more fans, who'd then want to watch me in other powerful films.
+- Over the years, we have been conditioned that certain communities need to be looked upon in a certain typical way. So I think we need to question the logic behind it. 'Mulk' is going to question that logic - and where did it start and why did it start and the need to change it immediately.
+- I've seen people being in awe of Anurag Kashyap, but I'm not a fangirl.
+- If my films fail, I will work on something else; my life will not end. And the film is not the end-all of my life.
+- I will stand for equality, and that doesn't mean giving me reservation. I would like to fight for it; just give me a fair chance. That's what being a feminist is.
+- I was told, 'You are not beautiful and glamorous enough,' 'Oh no, you're too serious an actor...' 'You're not good enough an actor,' 'You are not so and so's daughter.' I was even told, 'You are not a big, marketable name.'
+- I haven't faced harassment in terms of work, but I think every girl in India has gone through some or the other awkward moment in public where she was eve-teased or touched inappropriately.
+- I have taken my friends' bikes for rides, but my parents never allowed me to get one for myself, as they think bikes are unsafe. Personally, though, I love bikes.
+- Honestly, trolls don't affect me anymore. In fact, I want to use social media for the benefit of my genuine followers - I pick up one or two tweets and use my sense of humour to entertain them.
+- 'X-Men' or 'Avengers!' I want to be a mutant or an Avenger.
+- With 'Judwaa 2,' I captured the kind of market that I could have never penetrated into on another occasion.
+- I have never used a fairness cream in my life. I don't think being fair is in any way superior to any other colour. And when I started working, I found that being fair has actually backfired for me. I have lost a few films because I'm too fair.
+- I want to be a star. It doesn't mean that I'll act any less. My performance will be at par, but I want to be a star. I want the audience to spend their hard-earned money on my tickets without doubting. And when that day comes, I'll believe I'm a star.
+- The trolls don't realise that they are actually helping me become more popular, and in return, I am helping them grab a celebrity's attention. I think my trolls and I are very good friends.
+- I have always been inclined towards sports.
+- I will do all genres. I will do intense roles, along with the kind of films that I have grown up watching, like 'Biwi No. 1' and 'Judwaa.' But I won't do films where, if you take me out of the script, nothing changes.
+- When you are in safe hands of a brilliant filmmaker and an ace co-actor, there is nothing to fear.
+- There are many projects that come an actor's way, and one cannot say yes to all of them. Reasons of saying no vary all the time, but for me, it has never been on the pretext of not wanting to work with 'a particular actor' ever! I would never do that.
+- I never thought I could be an actor, as I was always a studious geek and was always interested in mathematics.
+- Since I am an actress and not a social activist, cinema is the best medium for me to state my views.
+- At the end of the day, it's show business: you earn money to make money.
+- As an individual, I have no fear of failure... I think that translates on-screen in my performances.
+- As long as I get to do the kind of work I want to do, I am okay with being a Z-lister.
+- No matter how beautiful actors are, it is not easy to look drop-dead gorgeous in every shot in a commercial film. To carry yourself as if you are the diva, it is not an easy job.
+- I keep saying this: that I'll get married when I am ready to have a kid. I won't have a kid without getting married for sure.
+- I am moving towards that zone where I don't want to be a replaceable name. This is my goal. I want to hear from the industry that, 'You are the only one who can do this. We will not go ahead with the project if you don't do this.' And I want to hear from the audience that it is worth watching a film that I have done.
+- People think that unless you become the de-glam girl, who has horrible things happening to her, you're not really acting; all it takes to cry for the camera is some glycerine. Not doing anything is what's difficult; I know a lot of actors who will agree with me.
+- I always find a reason to be happy before I sleep. For me, happiness is a choice that is in your hands.
+- I don't believe in poking nose in other people's matters, but when it comes to matters related to me or something that affects me, I will not shy away for saying something I believe.
+- I watch a lot of badminton, and as a result, I know more or less about the forms of most of the players.
+- You can make me work for 14 hours at a stretch, but don't make me sit.
+- It is not a shocker to me that a film went out of my hands, not because I was not credible, but because I was not so-and-so's daughter or sister or dating so-and-so.
+- I think being strong is something that resonates with my personality. It's on my face.
+- Having done both commercial and hard-hitting cinema, I can say none of them are easy.
+- I truly consider sports stars as the real stars because they represent our country, which makes them really stand apart. I don't think I can be one of them, and I just find them extremely confident and self-made.
+- Whenever I've surprised my audience, I've gained something out of it.
+- You have to keep proving yourself - every film - until the audience believes you can do anything.
+- My technique is different, and I am more spontaneous. I don't like rehearsing.
+- As an actress, I am happy that people are offering me good roles and I am earning success critically and commercially.
+- I am a self-proclaimed feminist in a lot of ways, but I am not going to say that I will take a pink flag and run to India Gate with that.
+- We have to jump into the competition and prove ourselves every moment.
+- I'll always have to make sure things happen eventually and don't slip from my hands, from under my nose. I'll always have to be on my toes.
+- I don't understand indie films. So, I won't do such films.
+- It's very claustrophobic to live a life which is not really how you wanted to live. You are forcing yourself to be quiet and behave like someone you are not.
+- I'm trying to break a lot of prejudices with my every film.
+- What matters is how good you are in the screen space you get.
+- I make sure I don't repeat my genre, don't repeat a role for sure.
+- I didn't have a list of dos and don'ts when I started acting, but one thing was very clear that I would only work in films which I would enjoy watching.
+- It is funny now, but in the beginning of my career, some of the films failed at the box office, and filmmakers stopped casting me, saying I am bringing bad luck to their film.
+- As a child, I wanted to be an astronaut, then a fighter pilot, and then later, as I grew up, I was focused on scoring high marks so that I could do an MBA in marketing.
+- I want to play whoever is opposite 'Iron Man.' I want to romance Robert Downey Jr.
+- Post 'Pink,' I figured out which direction I want my career to take.
+- I genuinely don't feel like a star, with the kind of struggle I've had to go through.
+- I knew that the only way to get noticed would be by doing something that was not expected of me. I was sure I wouldn't get noticed if I continued to play the heroine in films like 'Chashme Baddoor.'
+- A prequel to 'Baby' was never on the cards, but when the movie was successful, we realized from the audience response to my character that they wanted to see more of me.
+- I am not much of a trained actor. I have to get my brain and heart to go deep inside the situation, and then, probably, I can start acting. It takes me a little while to get out of it.
+- With every movie, I am trying in my own little way to do whatever I can to change the way female characters have been presented and how an actress that comes from a family outside the industry is making an impact.
+- Cinema is a form of art, and like every other art form, cinema also needs freedom of expression.

@@ -1,0 +1,67 @@
++++
+author = "Jesse White"
+title = "Jesse White Quotes"
+quotes_len = "61"
+description = "the best 61 Jesse White Quotes"
++++
+- I tell the people that hire us, if we don't get a standing ovation when we're finished with our performance, it's free - and we've always been paid.
+- The youngsters who live in housing projects are some of the most talented and nicest kids you'll find anywhere. But they're right on the cutting edge - they could go either way. You have to work with them, guide them, and mold them like a piece of clay.
+- I was a public aid recipient for about nine years as a kid, and this time of year was always tough sledding, so I just committed myself to doing something good for someone at Thanksgiving, and especially Christmas.
+- I first met Dr. King in 1954 when I was a student at Alabama State University and a member of a local church down there. He was in town to organize a rally against public transportation. Rosa Parks had been arrested for refusing to give up her seat to a white man, which was illegal back then.
+- Naming a bridge after Dr. King was the right thing to do.
+- I don't just work with these kids to make them good tumblers or good dancers. I'm working with them to make them good citizens - to become taxpayers, not tax-eaters. I teach them to say please and thank you. I show them how to use a knife and fork and how to fold a napkin.
+- I want to encourage all parents to read to their children because it helps them to become better educated, better informed.
+- Instead of going to spring training, I went to basic training.
+- Things were tough. Segregation was all around - in the schools, the buses, the restaurants, the theaters. But Dr. King worked hard for black people to have a fair share.
+- You cannot force a child to use their limbs if they're in pain.
+- Work hard, be honest, help people, never give up, love your fellow man and woman, give back to society, and don't ever discriminate.
+- Just saying 'I want this and I want that' doesn't do it. My boys share and share alike in the income that the organization brings in, so that teaches them the lesson: If you work, you can earn some money. That's how life is; it's the American way.
+- I was not a good student; I was an average student. In order to play basketball and baseball, I had to go to school every day. And so I was pretty good in terms of attending school.
+- I remember when we were called 'colored,' and Dr. King would always tell young people not to get upset at what people called you. He said if it is not the name your mother gave you, then smile, keep walking, and that's exactly what we did.
+- I've never looked down on anyone who uses the system, but I believe that it's a temporary station in life and that we should all work toward getting off it. And once we get off it, we should pay back to that system.
+- My administration is committed to continue using taxpayer dollars wisely.
+- The most influential people in my life are deceased. These include my parents, George Dunne, and Dr. Martin Luther King, Jr., my minister in college.
+- We just believe when you have parental involvement, we are going to get a better bang for the buck, so to speak. And we also encourage parents to speak with their young people about the importance of safe driving. And also remind them, too, they cannot be distracted.
+- George Dunne stuck his neck out for me in the '70s, when it wasn't a very popular thing to do.
+- There are some basic rules if they want to join the tumbling team. No drinking, no smoking, no swearing, no drugs and, most of all, no belonging to a gang. I read the riot act to them the minute they want to join. I tell them there's only one gang they can belong to if they want to be with me and that's Jesse White's gang.
+- Do something to make your community a better place to live.
+- You don't jump out of an airplane and stop halfway. It's all the way.
+- There are a lot of young people out there who need to start using their idle time in a positive way. Parents need to play an important role in making sure their children succeed in school.
+- Often when we reach great heights in life, we forget who brought us there. Well, I have not.
+- When there is a mission before you, you see it from its beginning to its conclusion.
+- When you come through this world, and you become successful, you have to give back.
+- I have a center at 412 West Chicago Avenue. It's called the Jesse White Community Center and Fieldhouse. It's a state-of-the-art gymnastics facility, game room, weight room, computer lab.
+- I have to play the hand that was dealt me.
+- I never traced my roots, man. I only know that I'm a brother with a big heart - and that somebody brought my roots over here by way of boat.
+- I'm a disciplinarian. And I've always been disciplined. I like to be on time. If I have a job to do, I'm going to see it from its beginning to its conclusion. No excuses, no alibis. That's how I run my life. It's called self-tough love.
+- I speak very quickly, even for an elected public servant. So if I fast-talk you, I'm not trying to mislead you.
+- These kids are looking for direction, for identification. Kids join gangs because they need a father figure or they want to be part of a group.
+- During the holiday season, we've asked everyone within the sound of my voice that if you're going to celebrate, celebrate in a responsible manner.
+- I believe that if a person has four DUIs, I think they've had enough bites at the apple, and I think that when you go beyond that, I think that's a little bit too much.
+- If you ask a young man from my team, 'Would you rather deal with police or with White?' they'll tell you 'police' every time.
+- After being away at college and in the Army, I never considered living anywhere else. I loved Chicago then, and I love Chicago now.
+- I find it reprehensible that anyone would seek to denigrate the legacy of Dr. King in any way.
+- My parents made a great sacrifice to make sure that we had something wonderful at Christmas, and through the help of the state and others, we were able to have a good meal.
+- I just believe that when we work together, wonderful things are going to happen.
+- It is every parent's nightmare when a child is in trouble with the law. As a parent, you can do your best to guide young people, but as adults, they make their own choices and live with the consequences of those decisions.
+- Some people collect coins. Some people collect rocks. Some people collect stamps. I colllect kids and hope I can do something for them.
+- Not one has ever left my team to go join a gang.
+- This is a great country, and it's a melting pot. People shouldn't judge other people by the color of their skin, their church, or the area where they reside.
+- Dr. King used to meet me outside the basketball stadium and give me $20 bills to get by.
+- I believe that the Democratic Party is a party of the people, and we have to make sure that we have good representation so that those services that the people richly need and deserve will go forward.
+- We try to instill a sense of fair play, a sense of honesty.
+- I just thank the people who took part in our graduated drivers task force, who came with their thoughts and ideas as to how we can best keep our roads safe, and it has paid off.
+- I'm the longest-serving secretary of state in Illinois, but I also want to go down in history as one of the best they've ever had. I will work every day toward that.
+- I used to jump out of airplanes. I was a member of the 101st Airborne Division. When parachuting, you never look down at the ground. You feel for it with your legs. Your knees are your shock absorbers - you cannot tighten them. Same as skiing.
+- You cannot imagine how many people called, how many letters, how many emails. Every place I go, people ask me, 'Please, don't quit.'
+- My top goal as your Secretary of State is to save lives by reducing fatal traffic crashes. When I established the Teen Driver Safety Task Force, the goal was to improve Illinois' graduated driver licensing law and, even more importantly, to save lives.
+- You cannot just expect a promotion to come from the sky.
+- The art of compromise should be always alive and well. You represent the people of your district, the people of your county, your city, your township. Make sure that you do it for the people rather than your party or issue.
+- Do something good for someone every day.
+- Taxation is probably one of the biggest problems this state is facing, especially in Cook County. I think Cook County is one of the counties a lot of people don't want to live in anymore.
+- When you're with a person for a long period of time, you get to know what they can and can't do.
+- My kids know that as long as they're part of the tumbling team, they're safe in the community.
+- We just want to make sure individuals who drive on our roads are not impaired and they are a responsible person behind a motor vehicle.
+- When you give young people an opportunity to use their time wisely, we support them, and when we do that, we support ourselves.
+- I've taken just 12 vacation days in 18 years.
+- I believe in commitment to duty. That's how I've lived my life.

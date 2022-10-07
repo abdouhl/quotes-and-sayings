@@ -1,0 +1,24 @@
++++
+author = "Tom Parker Bowles"
+title = "Tom Parker Bowles Quotes"
+quotes_len = "18"
+description = "the best 18 Tom Parker Bowles Quotes"
++++
+- My mother was a mother. She didn't really work, apart from bringing us up, which a job in itself, but at an age where lots of people are thinking of retiring, so is having up to 20 or 30 engagements a day, and she's brilliant at it - she has always been brilliant with people.
+- My father would go shopping, and he was supposed to buy loo roll or something, but he'd always come back with some fish or shellfish. And we've always had fresh vegetables from the garden. He is a massively keen gardener, so he grew all our tomatoes, artichokes, asparagus - whenever he wasn't working, he was in the garden.
+- It's a very open-armed experience in Australia - you feel immediately welcomed - I felt being here for three months - honoured, delighted, proud.
+- I love London. I love the U.K., but if I was going to live anywhere else on Earth, it would be Australia.
+- You get lots of people, especially where I live, who go in to a butcher and insist on organic beef - even when the butcher has better-tasting stuff from a farm that's been producing wonderful meat for 100 years but hasn't jumped through the hoops to get organic certification.
+- When I was 18, I went to India and was stupid enough to drink the tap water. I ended up with dysentery. It's not an experience I wish to go through again.
+- It's rubbish to say that just because it's organic, it's better. There's good organic, and there's bad organic. We should all be thinking about taste, not some stamp on the package.
+- London was a spice mecca. The first recipe for curry in English was actually published in 1747.
+- My father was in the army, and you know not to talk about things on the telephone that you wouldn't want to hear transmitted.
+- People moan about Twitter, people being rude and trolling. Just turn it off. Life goes on.
+- There's absolutely nothing anyone can say about my mother or myself or my step-father that we haven't heard before. You'd have to be a Dickens or a Nabakov to come up with something really offensive.
+- I travel as light as possible and usually pack in less than a minute. If I'm going somewhere hot, I throw in some flip-flops, T-shirts and shorts - but I still pack clothes that I never use.
+- Like the Devil, the Norway lobster is known by a variety of different names: cigala in Spain, langoustine in France, Dublin Bay Prawn in Ireland. And in Italy, as well as the U.K., scampi.
+- The diet is a twisted, noxious thing, all tortured abstinence and short-term fraud. I speak from bitter experience. As a restaurant critic, I eat to live and live to eat. And having a toxic aversion to exercise, there is little to prevent the inevitable bulging of my gut. Hence the need for the occasional diet.
+- I slipped through every school I went to without leaving a trace. I was in no team; I was never a prefect. I was totally mediocre - well, I probably still am - but at places like Summer Fields and Eton, it's all about sport and doing your bit, and I always preferred to watch telly or read a book than run round a field.
+- I have stayed in lots of great hotels around the world, and the Plaza Athenee is definitely one of my favourites.
+- All you care about with your parents is that they are happy, and my mother is exceptionally happy at the moment, and I've always adored my stepfather, and he's always been a kind and good and lovely man.
+- My father was often away with the army, or in London, but mum did a lot of the cooking. She never liked cakes - not baking. Meat. Fish. That's what she did.

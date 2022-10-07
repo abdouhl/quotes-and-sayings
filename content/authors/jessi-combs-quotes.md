@@ -1,0 +1,29 @@
++++
+author = "Jessi Combs"
+title = "Jessi Combs Quotes"
+quotes_len = "23"
+description = "the best 23 Jessi Combs Quotes"
++++
+- By trade I am a metal fabricator, so I have a degree in custom automotive fabrication.
+- I have a whole new appreciation for Carroll Shelby, the Ford program of the 1960s, and it's awesome that Superformance is keeping the dream alive with their incredible cars.
+- I didn't have boundaries when I was growing up. I knew the difference between right and wrong, and all the things a kid needs to know, but nobody ever said to me, 'You can't do that, because that's not what girls are supposed to do. That's more of a boy thing.'
+- I think our whole family just never limited ourselves to what anybody expected of us based on our gender. I never grew up that way.
+- Being a fabricator is fun, amazing and empowering but you'll need to put on your thick skin to face opposition on a daily basis.
+- Always look at the path you want to take and stay on it, try not to veer from it.
+- I've never strayed from who I am or where I came from.
+- My foot is just as heavy as a dude's foot, if not heavier.
+- The message that I tell everybody, the one that I sign on all of my autographs, the one that resonates with me is, 'Never give up. Never, ever give up,' There are so many things that I've learned in my life. Anything is possible. There are no limits to what you can accomplish.
+- I am the fastest woman on four wheels.
+- I am not good at following rules, I am not good at following instructions, I am not good at driving slow.
+- Ideas, dreams, and goals morph as we experience life, so I'm not sure I can look at it like there's something I haven't yet achieved since I will always be striving for something more.
+- South Dakota was a place where you could take risks. You could break barriers and get away with it.
+- I thought Bentleys were supposed to be grandma cars.
+- I use trigonometry all the time.
+- I want to be in the Guinness Book of World Records. And I don't have the patience to grow the longest fingernails in the world. Why not be the fastest woman on four wheels? It makes complete sense.
+- I need to be able to depend on the products I use to stand up to the demands I put on my vehicles.
+- I love cars because they can take you on adventures that you never thought possible.
+- I look at television as a giant commercial for promoting this mission that I'm on. It's the best way for me to show that girls can be anything they set their minds to. I don't do it for the fame, and I most certainly don't do it for the money. It's sad that a lot of people want to get into television specifically for that reason.
+- Math makes sense when you apply it to projects.
+- Cars are my life. They're my everything, and if it has a motor, I love it.
+- You can accomplish anything, if you are focused and determined, believe in yourself, and get education and certifications that will give you confidence.
+- I trust the CRC brand and continue to use CRC automotive products because they deliver what they promise.

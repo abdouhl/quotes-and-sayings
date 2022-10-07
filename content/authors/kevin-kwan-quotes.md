@@ -1,0 +1,93 @@
++++
+author = "Kevin Kwan"
+title = "Kevin Kwan Quotes"
+quotes_len = "87"
+description = "the best 87 Kevin Kwan Quotes"
++++
+- Writers often say that characters begin to write themselves, and I never used to believe that. I always thought that was complete hogwash.
+- As a child, I could bike down the hill from my house and grab an ice-cold bottle of soda from the neighborhood grocer, which was nothing more than a corrugated metal shack run by two Indian men clad in sarongs.
+- My mother likes to say that I was conceived to shop - not just born to shop. My whole life as a child was following her and her sister and friends around on her shopping trips.
+- I live in New York, but I still get the village gossip. My apartment is a crash pad for so many Singaporean cousins and friends.
+- A lot of the people who live the lives of 'Crazy Rich Asians' don't see the humour of their lives simply because this is just who they are. Even though I'm from that part of the world, I'm no longer part of that world.
+- I've lived in New York City for over twenty years now, and every single day is like a new adventure. At this point, there are many places I'd love to visit, but I can't imagine living anywhere else on the planet.
+- As a child, I didn't even realize I was Chinese. I was Singaporean, but my identity was wrapped up in the culture I was experiencing every day.
+- Especially in the West, people want to understand Asia on a deeper level because it's become the engine of the world economy, like it or not.
+- My grandparents were far more English in their manners than they were Chinese. For example, we spoke English at home, had afternoon tea every day, and my grandfather, who attended university in Scotland, would smoke his pipe after dinner.
+- I really don't keep an outline; I don't organize in any way. I just write.
+- Asian literature is evolving with the people. It's always a reflection on what's happening to the culture at large.
+- All Americans knew was 'The Joy Luck Club' and children of dry cleaners trying to assimilate. The Asia that I was seeing was a world of people who are incredibly sophisticated, and I wanted to represent that side.
+- I remembered that my grandfather had spent his teenage years in Shanghai and that he went back after he finished medical school to work there in a hospital. So I went back into my family archives and was able to find out his exact address; it was a street that was in the French Concession.
+- Every family is a crazy family.
+- If I were to generalize a bit, I would say that the ultra rich in Asia live on a scale that far surpasses the wealthy in the U.S. or Europe.
+- I'm a writer. I'm naturally introverted, so being the public face of something, I don't think I do it well.
+- I came from a family of extremely old money, and so by the time I was born, there was really just a trickle of money left.
+- Even if they're not Asian or super rich... everyone has a nagging mother. Everyone has that obnoxious uncle, or that cousin who's a bit too snobby.
+- I spent the first 12 years of my life growing up in Singapore. Back then, in the early '80s, it was still a tropical island at the tip of the Malay Peninsula striving to shine on the world stage.
+- I moved to New York and went to art school at Parsons School of Design. Became a photographer. Became a creative consultant.
+- Hollywood is a whole other level of crazy. I've never met so many assistants who have assistants. It's a stratified society on its own.
+- People have always been fascinated by the foibles of the wealthy and privileged.
+- I have pictures of my grandmother from the 1920s and '30s in avant-garde dresses that looked like they could have come from the House of Worth or Lucien Lelong. She would never say if they were couture, but I do recall her telling me, 'All my clothes and shoes came from Paris.'
+- Certainly, living in the U.S., as I have for over two decades, you see how Asians are portrayed in the media... I didn't see myself represented, you know, when I used to look at ads on TV.
+- It would have been amazing to have been a student at Oxford during that golden moment in the 1910s, rubbing elbows with the likes of Aldous Huxley and T.E. Lawrence, before World War I shattered everything forever.
+- My grandmother used to get her shoes made in Paris in the '30s, and they would be shipped to her in Singapore.
+- I know an elderly society matron in Singapore who would rather walk in the scorching sun for blocks on end rather than have her chauffeur drive into the Central Business District at peak hour and pay the $1.50 surcharge.
+- There's always been this tradition of satirizing these rich groups of people.
+- I grew up with a posh English accent, and all my aunts sounded as if they came out of a Merchant Ivory movie.
+- The China Rich seem to be spending on a scale that's just beyond anything we've ever seen before. They are building and buying an insane amount of luxury residences around the world, commissioning huge flying palaces from Boeing, and paying ridiculous amounts for art.
+- I wanted to introduce a contemporary Asia to a North American audience.
+- It used to be, on TV, you'd see only two types of Asians. You'd see the science geek who's using his mobile phone or something like that, or you'd see a very token Asian family - yuppie mother and father and two little Asian kids. It's the last barrier for Hollywood.
+- I remember I had an aunt that lived in a house that had this beautiful ceramic wall that was entirely a painting of a peacock.
+- I love Netflix and Amazon and watching movies on streamers as much as the next person.
+- 'Crazy Rich Asians' may be fiction, but given the situation I grew up in, I've had an unparalleled view into the very real world it depicts.
+- I come from an old establishment family from Singapore.
+- My father came from old money. There was less of an expectation for the children to earn a living.
+- I think snobbery is one of the oldest customs in the world, and the rich will always find ways to rank each other and make themselves feel more special than others.
+- Warner Bros. is just this amazing historic studio that does great movies.
+- Couture occupies the uppermost stratosphere of fashion. It is the holy of holies, as only about 2,000 women globally are fortunate enough to wear these precious garments tailored to their exact measurements, making it perhaps the most exclusive club in the world.
+- In Singapore, there may be 50 old-money families, but you wouldn't know them to look at them.
+- In Asia, it's customary to get together with your entire extended family on a regular basis, and it's all rife with politics.
+- People are often disappointed when they meet me because I'm not this giant, flamboyant - you know, I don't wear sequined jackets.
+- The most important thing to keep in mind is the incredible diversity of talent that's out there - there are so many great actors from all over Asia, from Singapore and Hong Kong to the Philippines and Mainland China, not to mention many great Asian-American actors who are eager for fun and challenging roles.
+- I was born in Singapore, and I lived there until I was 12. I had a very fortunate upbringing.
+- My books are comedies; I want to take my readers on a jet-setting romp, make them laugh, make them swoon at the beautiful settings, and maybe even make their mouths water at all the food.
+- When my first novel, 'Crazy Rich Asians,' was published in 2013, many readers were astonished to learn that in Asia, there were women who dressed in couture from morning till night.
+- They say truth is sometimes stranger than fiction, but there's such a thing as believability when you're writing a novel.
+- If you're the water boiler king of China, you're selling a billion water boilers.
+- I sort of wanted to reveal this other side of Asia: Southeast Asia, where the Chinese have been wealthy for generations and have different ways of relating to money. I wanted to sort of reveal this world to readers.
+- I'm not sure if being Chinese really helped, but I do think that if a non-Asian had written a book called 'Crazy Rich Asians,' they might not have been looked upon so kindly.
+- In order for me to write a scene, it's very important for me to see and experience everything with my own eyes, so yes, I was able to visit some remarkable houses and destinations while I was in China.
+- I've recently rediscovered Anthony Trollope. I used to read him back in college, and a friend turned me on to a whole new series of his work, 'The Palliser Series.' It's a series of seven or eight books.
+- My father went to boarding school in Sydney when he was 14.
+- I have a photographic memory.
+- The idea of Asian ascendancy has entered public culture.
+- Living in the West, you see how there's only two versions of how Asian men are supposed to be. Either they're very nice, yuppie husbands with children in ads, or they're IT geeks.
+- It's not normal to go into a house and see a pond in the middle of the living room full of baby sharks. It's not normal to go to someone's garage and see a private plane.
+- I do believe that peoples' natures can be changed, and they have to be changed if we want to live in this modern world and be a part of it.
+- 'China rich' is the new 'crazy rich.' It's a new level of outrageousness. It comes from this world where overnight fortunes have been made, but the fortunes are so ginormous compared to anything we've ever seen in the history of the world.
+- When cultural movements happen, it's so beyond your control.
+- Canada has become such a staging area for Chinese money.
+- I love romantic comedies more than anything.
+- I think, at least for me, I'm so impressed by Shanghai and how all of China continues to evolve. On a style level, you're seeing this increased sophistication and brand awareness.
+- No matter our background, we all have crazy families.
+- There's so much emphasis on the economic might of China, of Southeast Asia, Asian 'Super Tigers' and things like that. But nobody was really looking from the perspective of a family story, of these individuals.
+- Growing up in Singapore, I wasn't allowed to visit China. So when I was finally able to go there after the country began opening up to tourism in the 1990s, I found it to be utterly astounding.
+- Such huge money has been made in China - it can be hundreds of millions in a year - and there's a need to validate it by showing what they can buy and how much of it.
+- I would not call my family 'traditional Chinese.' We were more what I would term the Colonial Chinese.
+- I grew up in a household where there were really, really strong matriarchal characters. I think that's true of many Asian households. People tend to think of Asia as a misogynistic society or a society where men rule. At least in my experience, the women rule the household; the women rule the social scene. The men often become very useless.
+- I'm naturally a shy, quiet person.
+- Old money in Southeast Asia is much more discrete and low key. It's about not wearing brand names. It's about being invisible, almost. The billionaire can be taking the bus with you.
+- I go to Shenzhen, China, and am taken to a vast luxury spa with a hundred leather recliners and a hundred accompanying plasma screen televisions bolted to the ceiling.
+- To me, families are fascinating. I choose to explore it through comedy and through comic situations.
+- One of the dreams on my wish list is to spend more time in Thailand.
+- I've always been drawn to the Edwardian period in England. To me, it seems like such a fascinating time, when the British Empire was at the height of its powers and the strict mores of the Victorian age were dissipating into the decadence of King Edward's reign.
+- It's human nature when you first make your big fortune to want to show off a bit. I don't begrudge that whatsoever.
+- I met a Shanghai photographer who finds these old streets and matches the French names to what they are today. I was able to find my grandfather's block, and just walking the same streets and finding his house was deeply moving. I finally felt connected to China.
+- I'm not revealing any deep, hidden secret that there are wealthy people in Asia.
+- I was born on the island of Singapore, and I grew up there until I was 11 years old, when I was forcibly removed by my dad and planted into suburban Houston. I was in shock for the first year and then began to really love it - but didn't love it quite enough to stay.
+- There are old-money Asians that would never be caught dead with a Chanel handbag or sporting anything that has a label it.
+- My golden dream was to move to New York and live in the Village and become that cool rebel beatnik Jack Kerouac.
+- My father grew up in a life of extreme privilege.
+- At least when it comes to food, there's no snobbery in Singapore.
+- I grew up at a time in Singapore - the '70s and '80s - where it was still possible to go riding around the island barefoot. And I was one of these kids that was just climbing trees and running around the neighbourhood.
+- I wanted to explore what all this new-found wealth means for the different generations of Chinese who have to live together in this place that is transforming at warp speed into the richest country on the planet.
+- The characters that populate my books are global nomads in their own right, keeping multiple homes around the world and constantly jet-setting to new places.

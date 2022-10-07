@@ -1,0 +1,109 @@
++++
+author = "Naomi Klein"
+title = "Naomi Klein Quotes"
+quotes_len = "103"
+description = "the best 103 Naomi Klein Quotes"
++++
+- I think there has been this really bad habit of environmentalists being insufferably smug, where they are sort of saying, 'This is the issue that beats all other issues,' or, 'Your issue doesn't matter because nothing matters if the earth is fried.'
+- I was having a lot of people ask me to update 'The Shock Doctrine' and add a chapter about Trump.
+- I am not saying Russia is not important, but Trump's base is very well defended against that: 'the liberal media is out to get him', 'it's fake news', and all the rest.
+- A large-scale crisis - whether a terrorist attack or a financial crash - would likely provide the pretext to declare some sort of state of exception or emergency, where the usual rules no longer apply.
+- My grandfather was actually a union organizer at Walt Disney. He was an animator. He used to draw Donald Duck for Walt Disney.
+- I want to act, if I can, as a bridge for people who read 'Shock Doctrine' or 'No Logo'. People who are sitting out for whatever reasons.
+- Fossil fuels are - they're inherently centralized. And you need a lot of infrastructure to get them out, and you need a lot of infrastructure to transport it, as Obama was explaining in front of all that pipe, right? Whereas renewable energy is everywhere.
+- While everyone is focused on security and civil liberties, Trump's Cabinet of billionaires will try to quietly push through even more extreme measures to enrich themselves and their class, like dismantling Social Security or auctioning off major pieces of government for profit.
+- Before I had Toma, I was one of those people who had no interest in other people's kids. I was. 'Don't hand me that baby!'
+- As I was writing 'The Shock Doctrine', I was covering the Iraq War and profiteering from the war, and I started to see these patterns repeat in the aftermath of natural disasters, like the Asian tsunami and then Hurricane Katrina.
+- Politics hates a vacuum. If it isn't filled with hope, someone will fill it with fear.
+- As I explored Trump's inextricable relationship with his commercial brand, and its implications for the future of politics, I began to see why so many of the attacks on him have failed to stick - and how we can identify ways of resisting him that will be more effective.
+- If David Duke got the percentage of the vote that Le Pen got, we would be terrified, as well we should be.
+- There have been presidents with business interests before. But there has never been a fully commercialized global brand as a sitting U.S. president. That is unprecedented.
+- One shouldn't gamble with what is irreplaceable and precious.
+- Since the 1980s, we've been living in this era, really, of corporate rule, based on this idea that the role of government is to liberate the power of capital so that they can have as much economic growth as quickly as possible, and then all good things will flow from that.
+- Among my generation, there was a purist position that any contact with electoral politics was an unforgiveable compromise.
+- Here in Canada, the people who oppose the tar sands most forcefully are Indigenous people living downstream from the tar sands. They are not opposing it because of climate change - they are opposing it because it poisons their bodies.
+- When I went to Australia, I had this feeling, like, 'Wow, this is really a different country.' I think that feeling of genuine foreignness, that this is a very different culture, which is increasingly rare in our globalised world.
+- As soon as you write about climate change, the first attempt to discredit you is, 'Well, you wrote this on a computer,' or, 'You took a plane to this conference.' So your opinion isn't valid.
+- The Trump Organization is paid millions of dollars by these developers for the privilege of putting the Trump name on those towers.
+- Africa is poor because its investors and its creditors are unspeakably rich.
+- The more hardcore conservative you are, the more tightly identified you are with defending the interest of capital as an interest of the system based on hyper-competition, the more likely it is that you vehemently deny climate change. Because if climate change is real, your worldview will come crashing down around you.
+- We need to invest in healthcare, in education, in the sciences. And in so doing, we will tackle one of the most intractable problems we face, which is gross wealth inequality. We can't fight climate change without dealing with inequality in our countries and between our countries.
+- When you start talking about sacrifices, pretty soon people start feeling like chumps.
+- We are looking to brands for poetry and for spirituality, because we're not getting those things from our communities or from each other.
+- My father was born in Newark, New Jersey, and my mother was born in Philadelphia. They both went to Stanford for grad school and met there.
+- We have a structural problem because you can simultaneously understand the medium to long-term risks of climate change and also come to the conclusion that it is in your short-term economic interest to invest in oil and gas. Which is why, you know, anybody who tells you that the market is going to fix this on its own is lying to you.
+- I think I'm a critic of corporate power, whether locally or globally. And the term 'globalization' I've never found all that helpful.
+- The divestment movement is a start at challenging the excesses of capitalism. It's working to delegitimize fossil fuels and showing that they're just as unethical as profits from the tobacco industry.
+- When I feel my blood sugar getting off, I drink a glass of kale juice. It's so disgusting you don't want to eat anything!
+- A new bubble will replace the old one. A new technology will come along to fix the messes we made with the last one. In a way, that is the story of the settling of the Americas, the supposedly inexhaustible frontier to which Europeans escaped.
+- Those looking for ideology in the White House should consider this: For the men who rule our world, rules are for other people.
+- This is what he has been selling on the 'The Apprentice', through his self-help books, how to - you know, 'Trump 101' or the 'Art of the Deal' or, really, back to 'Art of the Deal'. So almost the more he gets away with, the more he is reinforcing his brand.
+- Change or be changed, right? And what we mean by that is that climate change, if we don't change course, if we don't change our political and economic system, is going to change everything about our physical world.
+- Throughout U.S. history, national crises have been used to suspend constitutional protections and attack basic rights. After the Civil War, with the nation in crisis, the promise of 40 acres and a mule to freed slaves was promptly betrayed.
+- There are things that government can do to incentivize the free market to do a better job, yes. But is that a replacement for getting in the way, actively, of the fossil fuel industry and preventing them from destroying our chances of a future on a livable planet? It's not a replacement.
+- The customer is always right: 'It's my money. You have to listen to me'.
+- I think I would say that there is absolutely no way to reconcile an austerity agenda with climate action. Our political class needs to understand that the fight against austerity and the fight for climate action are the same fight.
+- As soon as it was clear, in Copenhagen in 2009, that the Senate was blocking Obama from introducing meaningful climate legislation, the push was for him to use executive authority, use the EPA, use the tool of federal leases, and there was just a refusal to do it.
+- Look at the structure of the Gates Foundation and this idea that, rather than trying to solve these huge global problems through institutions with some kind of democracy and transparency baked into them, we're just going to outsource it to benevolent billionaires.
+- In terms of Hurricane Sandy, I really do see some hopeful grassroots responses, particularly in the Rockaways, where people were very organized right from the beginning, where Occupy Sandy was very strong, where new networks emerged.
+- That is the core of Trump. He is undoubtedly an idiot, but do not underestimate how good he is at that.
+- Brands like Starbucks came along and talked about their brand as itself being a community, the idea that Starbucks is what they like to call a 'third place,' which is not their idea; it's the idea of basic citizenry needing a place that is not work, that is not home, where citizens gather.
+- The truly powerful feed ideology to the masses like fast food while they dine on the most rarified delicacy of all: impunity.
+- Because the Republicans are never going to turn on Trump so long as he still has his base, and he will continue to have his base so long as this idea that he is standing up for workers, it remains intact. And the only way that that gets eroded is if it isn't just about Russia all the time, but is also about those economic betrayals.
+- The problem with Donald Trump is that he went and designed a brand that is entirely amoral.
+- We live in a society that is powered by fossil fuels, but for the meantime, we're in it. Maybe there's, like, five people living in the woods off-grid, but they're spending all their time maintaining that, and they don't have much time left over for anything else.
+- 'Shocking' is like a bolt from the blue. It is something external that ruptures your world.
+- When Nike says, just do it, that's a message of empowerment. Why aren't the rest of us speaking to young people in a voice of inspiration?
+- I am about safety for the people and the planet.
+- I think the fossil fuel industry is genuinely freaked out by the combination of the price collapse, the divestment movement, and that fact that renewable energy is getting so cheap so fast.
+- Trump would have been unelectable were it not for the groundwork laid by Bill Clinton and Bill Gates, two liberal heroes.
+- The reason why nothing sticks to Trump - or very little sticks to Trump - is that he created this brand idea that has to do with being the guy who gets away from it.
+- I've been trying to pinpoint what keeps drawing me back to the Gulf of Mexico, because I'm Canadian, and I can draw no ancestral ties.
+- He was about building up the Trump name and then selling it and leasing it in as many different ways as possible.
+- Maybe Trump himself will be voted out through impeachment, right?
+- I do believe that our ability to jam the Trump brand is somewhat limited. I think we can chip away at it, but ultimately, the way to undermine the Trump brand is a better product in the political marketplace, if you'll forgive the capitalist metaphor.
+- If there is one thing BP's 'watery improv act' made clear, it is that, as a culture, we have become far too willing to gamble with things that are precious and irreplaceable, and to do so without a back-up plan, without an exit strategy.
+- I don't think there could've been a pitch as crass as Trump's 'I can fix America because I'm rich' without that groundwork laid by Davos and the Clinton Global Initiative.
+- 2007, according to a Harris poll, 71 percent of Americans believed that climate change was real, that it was human caused.
+- Even though I believe in mass social movements, I'm uncomfortable in crowds.
+- If you look at the polling around climate change in this country before 'Sandy', that was kind of the low point in terms of Americans believing that climate change was real and that humans were causing it.
+- It's really, really hard to get in rooms with people you don't usually work with and try to find common ground.
+- The growth in emissions is coming from the developing world. So if we are going to get out of this, it's going to come out of a process of cooperation and collaboration. That's why it really requires a paradigm shift.
+- I was the rebel in our family and a child of the eighties. That meant going to the mall.
+- I don't think you can understand Trump's relationship to his voters and how he gets away with what he gets away with, without understanding the pact between a lifestyle brand and its consumer base and how that really transformed the global economy in the 1990s.
+- I really did have this powerful sense, when I was in New Orleans after the storm, of watching all these profiteers descend on Baton Rouge to lobby to get rid of the housing projects and privatise the school system - I thought I was in some science-fiction experiment.
+- One of the ideas that I wanted to highlight, which is actually a very bipartisan idea - it's not just about conservatives - is this worship of wealth, the CEO saviour.
+- If you're biking more and walking more, you're going to be happier and healthier. And you'll probably feel better if you take out less garbage, as most of us feel pretty crappy about that. But I don't think we can mistake those acts for doing what it takes to address a crisis at a global level.
+- I can tell you Donald Trump's products may not be made in America, but Donald Trump was made in America.
+- It takes me a long time writing books. It takes me about five years to write a book, and when I'm done, the last thing I want to do is to do it again.
+- That's the big mistake the environmental movement made - 'We'll scare the hell out of you, and you'll become an activist'.
+- We have to change the kind of free trade deals we sign. We would have to change the absolutely central role of frenetic consumption in our culture. We would have to change the role of money in politics and our political system.
+- We live in an interconnected world, in an interconnected time, and we need holistic solutions. We have a crisis of inequality, and we need climate solutions that solve that crisis.
+- After the Pearl Harbor attacks, around 120,000 Japanese Americans were jailed in internment camps. If an attack on U.S. soil were perpetrated by people who were not white and Christian, we can be pretty damn sure that racists would have a field day.
+- That is the meaning of the Trump brand - being the boss who is so rich and so powerful he can do whatever he wants. So the way in which he ran for president was to embody that idea as fully as he possibly could with his outrageousness.
+- In a marketplace where it's so easy to produce products, where your competitors can essentially match you on the product itself, you need to have something else. You need to have an added value, and that added value is the identity, the idea behind your brand.
+- The Trump family's business model is part of a broader shift in corporate structure that has taken place within many brand-based multinationals, one with transformative impacts on culture and the job market, trends that I wrote about in my first book, 'No Logo: Taking Aim at the Brand Bullies'.
+- For someone with a background of economic justice, what scared me about climate change is not just that the sea level will rise and we'll have more storms - it's how this intersects with that cocktail of inequality and racism.
+- There is a triple layer of jargon when writing about climate change. You have the scientists, who are very cautious now because of the amount of climate denial. Then you have the U.N. jargon - I had to carry around a glossary of terms. It was like an alphabet soup.
+- This phrase, 'culture jamming,' was very much in vogue in the 1990s when these superbrands sort of emerged and started kind of projecting their names onto ever more surfaces.
+- We can't leave everything to the free market. In fact, climate change is, I would argue, the greatest single free-market failure. This is what happens when you don't regulate corporations and you allow them to treat the atmosphere as an open sewer.
+- That's the trick of free market economic theory: it doesn't just ask you to only be selfish and not care about others. It tells you that by being selfish, you are helping others. And, in fact, by trying to directly help others, you will hurt them.
+- My sister lives in Oklahoma. And, you know, it is so shocking that James Inhofe, the foremost climate-denying senator, is from the state that is so deeply climate-affected.
+- I think people are just incredibly depressed and hopeless about the prospects for change.
+- What I hope is less about what the greens will do but what people who don't consider themselves part of the green movement will do.
+- A state of shock is what results when a gap opens up between events and our initial ability to explain them. When we find ourselves in that position, without a story, without our moorings, a great many people become vulnerable to authority figures telling us to fear one another and relinquish our rights for the greater good.
+- My worry about this exclusive focus on Trump - the personality and how all of this is so unprecedented - is that then the solution seems to be, 'Well, we'll just get rid of Trump.'
+- What we know is that the environmental movement had a series of dazzling victories in the late '60s and in the '70s where the whole legal framework for responding to pollution and to protecting wildlife came into law. It was just victory after victory after victory. And these were what came to be called 'command-and-control' pieces of legislation.
+- What you want to do is you want to own as little sort of hard infrastructure as possible, and your real value is your name and how you build that up.
+- I've never seen a movement spread as fast as the fossil fuel divestment movement.
+- I think there's a couple of things going on. One is that Trump's relationship with his base is not the traditional relationship of a politician and the people who elected him, and the constituency, which is a relationship of some accountability, right? The idea is that the politicians are working for the people. They're public servants.
+- The Heartland Institute, which people mostly only know in terms of the fact that it hosts these annual conferences of climate change skeptics or deniers, it's important to know that the Heartland Institute is first and foremost a free market think tank. It's not a scientific organization.
+- Governments started negotiating towards emission reduction in 1990. That's when the official negotiations started.
+- In the midst of the pain and panic of the Great Depression, as many as 2 million people of Mexican descent were expelled from the United States.
+- Everybody that's trying to get anything progressive done in this country knows that the biggest barrier is getting money out of politics.
+- Nike was the essence of sports, transcendence through sports.
+- The electoral strategy for 2016 was, 'Vote for me; I'm not Trump,' and, 'Trump is dangerous, so get out and vote.'
+- The way in which people talk about climate is just so wonky and so abstract and such a boys' club that it makes a lot of women just roll their eyes or feel that they are somehow not qualified. I certainly had to fight that feeling in myself in order to write about it.
+- You've got the Trump water and Trump Steaks and Trump's very so-called dodgy university. And so many of the towers, the Trump towers around the world, the Trump resorts around the world, those are not owned by the Trump Organization.
+- There is some pretty powerful self-interest in wanting a future that is not just running storm-to-storm. The argument that I make is not that we aren't competitive and selfish and greedy. We are. We're all of these things. We're complicated, competitive, greedy and nasty, and kind and generous and compassionate.
+- I had maybe watched 'The Apprentice' a couple of times. I didn't know that in later seasons they deported half of their contestants into tents in the backyard. They called it Trump's trailer park.

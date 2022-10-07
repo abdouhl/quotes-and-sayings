@@ -1,0 +1,64 @@
++++
+author = "Kyle Maclachlan"
+title = "Kyle Maclachlan Quotes"
+quotes_len = "58"
+description = "the best 58 Kyle Maclachlan Quotes"
++++
+- Working on 'Housewives' was very similar to 'Sex and the City.' Different cities, of course, but a high level of talent in the writing and acting on both!
+- I think most actors feel an obligation to do right by the people they're playing.
+- I believe in fate. Sometimes that means an old bearded guy sitting on a cloud and pulling the strings; sometimes it means random atoms swirling through a cheerless universe; sometimes it means everything being preordained thanks to your karma credit from your previous lives.
+- I try to travel as light as possible to avoid baggage issues. Los Angeles airport is notorious for baggage delays, so I'll often FedEx a suitcase ahead or back so I don't need to stand around; it also minimises problems at check-in.
+- I'm proud of 'The Hidden.' I feel like we took a B-movie and kind of turned it into an A-minus action movie. We kind of elevated the material a little bit. It's got a great car-chase scene at the very beginning. It has some terrific moments in it, some funny stuff. It's a great rental.
+- When I went back home to Seattle after filming 'Dune' in Mexico, I thought, 'Did this really happen?'
+- I like eating, cooking and shopping. It all goes together.
+- If I'm going to make something in the kitchen, even if it's something as simple as a sandwich, I will take the extra time to make it a great sandwich instead of just an average sandwich. I don't mind investing a little extra work to make something special.
+- I did a little movie called 'Touch of Pink,' where I played a Cary Grant-type guy, which I thought was a lot of fun, and I thought I was moderately successful in my own interpretation of Cary Grant.
+- I never felt that my life was not complete without a child. I don't know if that, as a younger man, I'd have had full appreciation for it.
+- Everyone has their 'Showgirls.' We remember the great films actors have been in, and the rest get forgotten. But occasionally, people like to revisit the ones that get swept aside.
+- The most appealing thing to me about food is combining and layering flavors, tastes, and textures. So the perfect sandwich has to be toasted. It has to have Emmenthal Swiss cheese and a combination of sweet and savory - some cranberry or fig thing happening - with different kinds of meats like Black Forest ham and roast beef.
+- A lot's riding on 'Dune,' and my friends in Seattle realize what's happening if I freak out a bit. They accept whatever I happen to be, and they tell me when I'm slipping out of Kyle. They call me the 'God Emperor of the Universe.'
+- I really fight for my privacy.
+- The way 'Showgirls' was presented to me, it sounded like an interesting project, and it kind of just went off the rails as we were doing it.
+- When I'm in a foreign city, I like to get to know it like a local.
+- I'm a pretty organised packer, laying out everything beforehand, as I don't like to take extra stuff. I've got a good eye for judging how much I can stuff into one suitcase. I've often not brought the right items, but I'd never avoided a chance to shop, unlike most men.
+- Becoming a parent expands you as a human being. I am having the most wonderful time. You've married, but the addition of a child strengthens and deepens everything.
+- My workout is my meditation.
+- The fact 'Twin Peaks' had a life at all took most of us in the cast by surprise. We thought it would be too unusual for network television. The original intention was that it would be a two-hour movie. If the network didn't want to pick it up as a series, it could just show that. But ABC took a chance.
+- I have an avocado tree at my place in Los Angeles - it's the smoother-skinned one, which tends to be a little stringy. Often the birds or raccoons get the avocados before I can harvest them. I have figs, too, which are great with prosciutto, of course. I have limes and lemons, which I use to make lemonade.
+- I'd love to visit South America, especially Argentina, as I'm a winemaker myself. They do a fantastic malbec, so it would be a dream to sample their grapes. New Zealand would be great, too. I'm a golfer, so it would combine both my loves.
+- I'd like to do more Shakespeare. I'd like to do Iago in Othello. I look so benign. It would be interesting to see that black evil come out of my soul.
+- The nice thing about New York is that you're finally able to wear those winter clothes that have been sitting in your closet in mothballs.
+- Walla Walla is where I make wine, with Eric Dunham. He and I partnered up on a small project for me. We make pretty good cabernet and syrah.
+- The difference with doing a play is that you are in control. In film you are in the hands of the director and the editor and the producer.
+- Sometimes for an afternoon snack, I'll get some tortilla chips and half an avocado, and I'll just eat that like guacamole.
+- I am a big one for subtlety and empathy. My dad was softly spoken and didn't carry his honours and accomplishments for everyone to see.
+- I've always enjoyed drinking wine, ever since I was in college. My appreciation really took off when I began to visit Napa. I was toying with an idea of making wine in Napa, but it's prohibitively expensive, and the competition is fierce.
+- Most actors are pretty adaptable because we work with so many directors.
+- I think my wife married me for my guacamole.
+- David Lynch plucked me from obscurity. He cast me as the lead in 'Dune' and 'Blue Velvet,' and people have seen me as this boy-next-door-cooking-up-something-weird-in-the-basement ever since. I was 23 when I first met him, in his bungalow on the Universal lot, and could never have predicted we would have such an enduring relationship.
+- The film world is a crazy place to be. You sit around all day waiting for the phone to ring. Are people talking about you or aren't they?
+- When I started acting, my whole focus and intention was to work as a stage actor in a company where you're asked to different roles - do a comedy, do a tragedy, etc. I haven't had any reservations about jumping from one type of genre to another.
+- The Monmouth Coffee Shop is the best place in London.
+- My first-ever visit to a cheese factory was in Tillamook Washington... yes, I am that nerdy.
+- Even after doing that TV thing, 'Roswell,' I'm still waiting to see my first UFO.
+- When I think of 'Mad Dog Time,' I think of the fact that I got to drive fast cars all day long up in Canada. That was really fun. We were on these back roads with these great cars.
+- My breakfast consists of two cappuccinos and maybe a toasted English muffin, and that's pretty much it for me unless I decide to go a little more upscale, and then I'll have scrambled eggs.
+- My first album was The Doobie Brothers... 'Captain and Me.' You always remember your first!
+- I originally wanted to be an opera singer. I studied classical voice at the University of Washington but soon realised I didn't have the instrument or the discipline. The road for opera singers is more difficult than for actors.
+- Hollywood is not good when it comes to age.
+- I always think of the Pacific Northwest as giant trees and rain and clouds and dampness, like the Native American art from that area. That all says Pacific Northwest to me. Salmon. It really only exists on the Western side of the Cascades.
+- When the audience first sees Cooper talking into his tape recorder at the beginning of 'Twin Peaks,' I think that's the greatest introduction to a character I've seen in my career. It tells you everything about the guy right there in a few minutes as well as bringing up a whole load of questions.
+- It's amazing to think of the nutritional responsibility you have in cooking for a kid, which then makes you wonder if you're getting enough yourself.
+- Hamlet is a little daunting.
+- Lynch is not as strange as his films. He's a complex guy with a very interesting view of the world. But he's very accessible, with a good heart.
+- 'Portlandia' is the most fun show. When I get a breakdown of what the arc of the story is going to be, I could never in my wildest dreams anticipate the direction.
+- I have olive trees and have tried my hand at curing small batches of olives, with varying degrees of success. So sometimes there are leftover olives I use in pasta sauce because they didn't quite make the grade.
+- I get very caught up with things. I used to be dominated by domestic things. I had a lovely house in LA-and it became this growing, mad obsession.
+- I've done Graham Norton's show three times now. He tackles taboos and subject matter that wouldn't make it past the censors in the States.
+- I've got German, Cornish and Scottish ancestry. It might help explain my affinity for forests, the sea, and fatty foods.
+- Becoming a father increases your capacity for love and your level of patience. It opens up another door in a person - a door which you may not even have known was there. That's what I feel with my son. There's suddenly another level of love that expands. My son is my greatest joy, out of everything in my life.
+- I questioned everything. I didn't see a character developed in Platoon at all. The character in Blue Velvet was much more fascinating to me.
+- I like to go and watch 'Blade Runner,' which made no sense but which I loved going into that world. I think people loved going into the world of 'Dune' with all of its problems.
+- 'Dune' was like a giant machine, and it was hard to keep track of all the pieces, but 'Blue Velvet' was a very sleek, compact little experience.
+- Looking at 70 from 49, I don't see it slowing me down. Maybe I'll need a nap during the day! I'm thinking when I'm 85 I'll settle down a bit. But I'm going to fight, kicking and screaming, every step of the way.
+- Actors have an unusual perspective on clothing. You've really got to know the impact of what you're wearing on the character you're playing.

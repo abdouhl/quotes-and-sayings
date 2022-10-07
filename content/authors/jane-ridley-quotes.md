@@ -1,0 +1,15 @@
++++
+author = "Jane Ridley"
+title = "Jane Ridley Quotes"
+quotes_len = "9"
+description = "the best 9 Jane Ridley Quotes"
++++
+- 'Family Secrets' is thought provoking, well written, and remorselessly intelligent.
+- Political biography is in the doldrums. No one wants to read 800 pages or so of cradle-to-grave dead politics, especially if it's familiar stuff and has all been written about before.
+- We live in an age of generational turmoil. Baby-boom parents are accused of clinging on to jobs and houses which they should be freeing up for their children. Twentysomethings who can't afford to leave home and can't get jobs are attacked as aimless and immature.
+- Adolescence was only recognised as a life stage in the early 20th century, when psychologists got down to work. Today's generational battle obscures the fact that adulthood is happening later. A new transitional stage has emerged after adolescence: the twenties.
+- Romantic love came under attack, first from the Freudians and then from the neuroscientists, who said that being in love was a chemical reaction in the brain. Marriage is no longer seen as a lifetime commitment.
+- The main reason why historians have skated over the relationship of Victorian PMs with the press is that they haven't been looking for it. It takes a lecturer in media studies such as Paul Brighton to point out that media management was part of the job of a Victorian prime minister.
+- To most of us, adulthood means being able to earn a living, possess a home, get married and rear children, and this implies having autonomy or control over one's life. In the 19th century, becoming an adult was celebrated as a liberation from paternal authority. Today we regard it more as a time of regret and stagnation.
+- Historians who write about families are usually feminists who think in terms of gender relations.
+- It is a truth universally acknowledged that secrets are toxic and break up families.

@@ -1,0 +1,31 @@
++++
+author = "Melissa Joan Hart"
+title = "Melissa Joan Hart Quotes"
+quotes_len = "25"
+description = "the best 25 Melissa Joan Hart Quotes"
++++
+- Tune in to Kids and Family Week is perfect for me.
+- I love directing. It's where my heart is, and it's the way my mind works.
+- I'd always done family-friendly stuff. I wanted to do a film where I could show my darker side and make people uncomfortable.
+- I didn't get married. I do have a boyfriend. We live together.
+- Kids aren't going to understand single life in New York City.
+- I'm singing background on one of Blondie's songs on her new album.
+- I have six sisters, so I assumed I'd have a girl. Learning I was having a boy was really weird.
+- When I first got pregnant, I freaked out. Then I had to remind myself: I'm turning 30.
+- I used to go to school in Manhattan with a bunch of the City Kids.
+- If I'm going to do something a little bit more adult, I'll do it if it's going to be on at a different time slot or if it's going to be something that kids won't be able to get their hands on.
+- The whole reason Sabrina came about was because we wanted something good for families to watch on TV.
+- I rescued a dog. It was a beautiful.
+- I think a lot of the problem is that at 8 o'clock there's nothing on for kids.
+- Eventually, everyone said, Why don't you direct? It would save time. And that's how it started.
+- This is the first time in my life I've had hair this short. It's always been down to my waist. I can't hide behind my hair any more.
+- I don't know enough about daytime, I think, to say anything.
+- Sabrina ran for seven years with a different director every week.
+- There was a big question as to whether or not different generations have grown up differently.
+- I'm not a happy-ending person. I want to know what happens once Cinderella rides off with Prince Charming.
+- I'm calling from my car, I'm sorry, I'm like running around like crazy.
+- I hope to do films. Right now I'm just doing projects that are interesting.
+- In the Emperor's New Clothes, they got a different celebrity to do each voice. They drew up a picture of each character and then each actor wrote their own part.
+- Every prop, every shot, every pearl that rolled across the floor was exactly how I wanted it to be.
+- My career has always revolved around what I do and don't want my sisters and brothers seeing me doing.
+- I don't think I'm great at acting. I think I'm great at directing.

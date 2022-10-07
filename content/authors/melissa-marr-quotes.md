@@ -1,0 +1,18 @@
++++
+author = "Melissa Marr"
+title = "Melissa Marr Quotes"
+quotes_len = "12"
+description = "the best 12 Melissa Marr Quotes"
++++
+- As a lifelong romance reader, it's always satisfying to get to talk to other romance readers!
+- Over a four-month period, I sat down and wrote every day. And then there was a novel, and all of a sudden, there were agents and offers.
+- I watch comic book movies. Give me 'The Avengers,' give me 'Thor', those are my area. But I don't watch comedies.
+- I was very afraid to write a novel - it was a dream for a very long time, and it was one of the few things that I was afraid to try.
+- 'Graveminder' is about a mortician, a young woman with commitment issues, a dead teenager, and a town called Claysville where the dead don't always stay dead.
+- Westerns were all daddy liked to watch. Give me some Clint Eastwood, some Charles Bronson, and I was a happy girl. It was our father-daughter bonding.
+- I eventually realized that good things wouldn't happen to me if I didn't make the right choices.
+- I have amazing kids, an amazing husband, a fabulous career, wonderful parents. If I had to go through some rough spots to get to this amazing place, so be it.
+- I was the girl in the black leather jacket with the black fingernails, picked up after school by guys with loud cars and motorcycles. I carried straight-A grades, but I had a little trouble with rules. I tended to have a bit of an authority problem.
+- The world is too fascinating to limit yourself to one path or one sort of people.
+- They say, 'Write what you know.' What I know isn't cheerleader; it has a little bit of teeth to it.
+- I want to say that I really appreciate that readers are willing to work with my tendency to write in several different genres and for different age groups.

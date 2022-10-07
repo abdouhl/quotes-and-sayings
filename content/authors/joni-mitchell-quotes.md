@@ -1,0 +1,110 @@
++++
+author = "Joni Mitchell"
+title = "Joni Mitchell Quotes"
+quotes_len = "104"
+description = "the best 104 Joni Mitchell Quotes"
++++
+- My goal as a writer is more to comfort than to disturb.
+- I've got 50 different tunings in the guitar.
+- I'm a night owl.
+- Because I'm so busy and because I think of myself as a painter, I desperately guard the time that I have to paint. And sometimes I'm irresponsible to my career in order to paint. Because painting is obsessive. I forget to eat. I forget to sleep.
+- I don't like to make fluffy little songs, but now I want to make some light songs.
+- When the world becomes a massive mess with nobody at the helm, it's time for artists to make their mark.
+- I'm a Buddhist.
+- With a painting, you don't have to go back and paint it again.
+- Ira Gershwin, shame on him. I mean, some of the writing.
+- I lost my daughter at 21. I had to give her up because I was broke, no place to take her, no money to take her. That was very traumatic.
+- I get the same charge from juxtaposition of colors as I do from juxtaposition of chords.
+- My family could only afford to get me the box of eight Crayola crayons, but I craved the one with all 24 colours. I wanted magenta and turquoise and silver and gold.
+- I believe that I am male and I am female.
+- I don't like being too looked up at or too looked down on. I prefer meeting in the middle to being worshiped or spat out.
+- Augustine, Anne Sexton and Sylvia Plath are confessional writers and all three make me sick. I have nothing in common with them.
+- We managed to put together a compilation that had some creativity to it. In the meantime I was listening to the free radio stations and I noticed that during their war coverage they were playing these songs born out of the Vietnam War that were all critical of the soldiers.
+- An unhappy mother does not raise a happy child.
+- When I came to California, it was the mecca of the world. Every young person on the planet wanted to be here.
+- Not to dismiss Gershwin, but Gershwin is the chip; Ellington was the block.
+- I sing my sorrow, and I paint my joy.
+- If I'm censoring for anyone, it's for my parents. They are very old-fashioned and moral people. They still don't understand me that well.
+- You wake up one day and suddenly realize that your youth is behind you, even though you're still young at heart.
+- There are things to confess that enrich the world, and things that need not be said.
+- I heard someone from the music business saying they are no longer looking for talent, they want people with a certain look and a willingness to cooperate.
+- To enjoy my music, you need depth and emotionality.
+- I love to dance.
+- I loved Debussy, Stravinsky, Chopin, Tchaikovsky, anything with romantic melodies, especially the nocturnes. Nietzsche was a hero, especially with 'Thus Spoke Zarathustra.' He gets a bad rap; he's very misunderstood. He's a maker of individuals, and he was a teacher of teachers.
+- Nobody understood The Reoccurring Dream, but after September 11, when we were coerced to do a national duty and go out and shop, surely people could begin to see what I was getting at.
+- It's in my stars to invent; I was born on Madame Curie's birthday. I have this need for originals, for innovation. That's why I like Charlie Parker.
+- Americans have decided to be stupid and shallow since 1980.
+- I certainly don't want to be an angry old artist.
+- I came through folk music simply because it was easy to get into it.
+- My life came down to being a granny and watching a lot of television.
+- Eventually, with success, I started to feel more and more isolated - like I didn't have a community of artists.
+- I always thought the women of song don't get along, and I don't know why that is.
+- I'm a little young for retirement.
+- The thing that gave me the most pain in life, psychologically, and it gave me tremendous pain psychologically, is man's disrespect for nature.
+- I have an aversion to being mislabeled. Here's a label I'd accept: I'm an 'individual.' I'm someone who can't follow, and doesn't want to lead.
+- I do have this reputation for being a serious person.
+- I'm a very analytical person, a somewhat introspective person; that's the nature of the work I do.
+- The Beginning of Survival is my best album. I am very proud of it, and I am surprised at it, too. I thought some of Travelogue was a little heavy, but I don't think this is heavy.
+- Van Gogh was impulsive.
+- Paul Simon started piling up a lot of words, more than the bar could handle, and I stopped!
+- My individual, psychological descent coincided, ironically, with my ascent into the public eye.
+- My name had gone stale, and no matter how progressive I got, it was my time to die.
+- No one likes to have less than they had before. That's the nature of the human animal.
+- Drag wasn't always counterculture.
+- The considerations of a corporation, especially now, have nothing to do with art or music.
+- I have one piece of music, since 1997, and I don't see it having lyrics. Where does it go in this world? So I haven't recorded it.
+- This is a nation that has lost the ability to be self-critical, and that makes a lie out of the freedoms.
+- I can't remember anything I ever wrote.
+- Edith Piaf knocked my socks off when I was 8, but I didn't know what she was singing about.
+- Fame is a series of misunderstandings surrounding a name.
+- You have this mounting aggressive ignorance with the rabbit's foot of their particular religion. You don't really have any kind of spiritual law, just a kind of a rabid mental illness. The songs are a little slice of life.
+- I couldn't see passion as a bad thing.
+- You know, Neil Young is singing Rock n' roll will never die, and Neil never rocked and rolled in his life. I mean, he rocked, but he didn't roll. He has got no swing in him.
+- I find a lot of poetry to be narcissistic.
+- I see music as fluid architecture.
+- I'd had a rough childhood.
+- What I do is unusual: chordal movements that have never been used before, changing keys and modalities mid-song.
+- We have a war dictator who was not elected, he snuck in. so he punishes people that threaten him in any way, or even say something he doesn't like. It has no resemblance to democracy.
+- Everyone I know has attention deficit, and they say it with great pride. It's a bad time to be right.
+- For the first time in my career, I'm working in a fine-arts arena, so I'm finally getting some intelligent reviews.
+- When you're trying to pass on the best of the stuff you're culling to what should be a hungry culture but you have it diminished... that's kind of disappointing.
+- White rhythm is waltzes, marches, and the polka. In Africa, rhythm is used for a celebratory groove, but white rhythm doesn't have such an enormous vocabulary of spirits. It's basically militant.
+- I hate show business.
+- My childhood was very difficult. I had every childhood disease and then some, but my parents didn't mollycoddle me. They left me to fight those battles on my own. I guess that was very Canadian, very stoic. But it's good. I had to become a warrior. I had to give up hope and find a substitute for hope that would be far more stable.
+- At the point where I'm trying to force something and it's not happening, and I'm getting frustrated with, say, writing a poem, I can go and pick up the brushes and start painting. At the point where the painting seems to not be going anywhere, I go and pick up the guitar.
+- I see bodies as individual things.
+- Buddy Holly and the early rock 'n' roll was no lighter than the way I play. It's very minimal.
+- I know my generation - a lot of them, they're getting old now, and they want to think back fondly, they want to kid themselves. A lot of them think, 'Yeah, we were the best.' That's the kiss of death. That's non-growth. And also that's very bad for the world.
+- In terms of fiction, I'd rather go out and have a good time than read a book about someone having a good or bad time.
+- Rachmaninoff made a musician out of me. His 'Rhapsody on a Theme by Paganini' was the piece that sent me into raptures. It spoke to me. To me, it was a tender entreaty for the misunderstood.
+- I wanted to paint in a folk-artist-y way. My heroes were Van Gogh, Gauguin, Matisse, and Rembrandt. I think Picasso is about as a modern as I got. But I incorporated things that they rejected as well as movements that happened later.
+- I learned a woman is never an old woman.
+- You could write a song about some kind of emotional problem you are having, but it would not be a good song, in my eyes, until it went through a period of sensitivity to a moment of clarity. Without that moment of clarity to contribute to the song, it's just complaining.
+- My first four albums covered the usual youth problems - looking for love in all the wrong places - while the next five are basically about being in your 30s.
+- In New York, the street adventures are incredible. There are a thousand stories in a single block. You see the stories in the people's faces. You hear the songs immediately. Here in Los Angeles, there are less characters because they're all inside automobiles.
+- Sorrow is so easy to express and yet so hard to tell.
+- The God of the Old Testament is the depiction of evil.
+- The coming of the kids hasn't come out in my art yet.
+- I had made all these rules for myself: I'm not writing social commentary, I'm not writing love songs.
+- My parents told me I'd point to a bed of flowers and say 'Pink. Pretty,' before I knew any other words.
+- I think I would go further into fine arts, I think, if I were to continue.
+- America is in a runaway-train position and dragging all the world with it. It's grotesquely mentally ill.
+- The songwriting was almost like something I did while I was waiting for my daughter to come back.
+- I see the entire world as Eden, and every time you take an inch of it away, you must do so with respect.
+- But I have a tremendous will to live and a tremendous 'joie de vivre,' alternating with irritability.
+- People used to say nobody can sing my songs but me - they're too personal.
+- I thrive on change. That's probably why my chord changes are weird, because chords depict emotions. They'll be going along on one key and I'll drop off a cliff, and suddenly they will go into a whole other key signature. That will drive some people crazy, but that's how my life is.
+- I don't understand why Europeans and South Americans can take more sophistication. Why is it that Americans need to hear their happiness major and their tragedy minor, and as jazzy as they can handle is a seventh chord? Are they not experiencing complex emotions?
+- There was this mountain village in Russia where my music was getting in on some German radio station. I remember this because music used to get up to Saskatchewan from Texas. Late at night after the local station closed down.
+- I'm a method actress in my songs, which is why it's hard to sing them.
+- In some ways, my gift for music and writing was born out of tragedy, really, and loss.
+- I used to be monastic, almost. Now I'm like a Tibetan that has discovered hamburgers and television. I'm catching up on Americana.
+- Back then, I didn't have a big organization around me. I was just a kid with a guitar, traveling around. My responsibility basically was to the art, and I had extra time on my hands. There is no extra time now. There isn't enough time.
+- I conceived in art college at the age of 20, near the end of term.
+- I'm not a pitiable creature. It's just that I suffer very eloquently.
+- My style of songwriting is influenced by cinema. I'm a frustrated filmmaker. A fan once said to me, 'Girl, you make me see pictures in my head!' and I took that as a great compliment. That's exactly my intention.
+- I have always thought of myself as a painter derailed by circumstance.
+- When I began experimenting, people weren't ready for it. Once it's in its second and third generational stages, people can accept it.
+- I come from pioneer stock, developers of the West, people who went out into the wilderness and set up home with nothing but a pair of oxen.
+- I'm irresponsible to my career in order to paint. Because painting is obsessive. I forget to eat. I forget to sleep.
+- My heart is broken in the face of the stupidity of my species.

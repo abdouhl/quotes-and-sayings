@@ -1,0 +1,30 @@
++++
+author = "Tevin Campbell"
+title = "Tevin Campbell Quotes"
+quotes_len = "24"
+description = "the best 24 Tevin Campbell Quotes"
++++
+- So, you do make a lot of sacrifices in the business, but you have to stay humble and you have to live that normal life. That's what I do now. It keeps me grounded.
+- I didn't have much of a relationship with the songs and my voice was changing. I didn't have any control over it. I mean, one day it could be high and the next day it could be gone. And that's why we had to keep going back in and doing songs over.
+- I'll be 40 this year, so 'Can We Talk' is really not me anymore. Now I have the freedom to express myself through my music and write about my likes, my dislikes, and my passions. There's no greater feeling than being able to express myself.
+- I was raised in the church and liked singing in the background. I never really wanted to be the main attraction, and I'm still not sure I can sing.
+- If you listen to 'Paris,' when I'm up on the bridge part, it literally sounds like my vocal cords are being ripped apart.
+- I was approached by Spectra Music Group, so that led to me finally releasing 'Safer On The Ground.' It really was just about putting all the dots together.
+- Sometimes I think what it might be like if I stayed in the background and was just singing in a choir somewhere. That crosses my mind on some of the bad days when I'm overworked. But it's just a fleeting thought.
+- When I was in the business, when I was younger, it was more work for me. I didn't actually start to live my life until I left the business, and you don't want to do that.
+- So, the idea of being a star on MTV and all that never really appealed to me. It makes life hectic.
+- The black man's struggle in this country, I understood that. But I didn't really understand the historical message behind the 'Paris' song until later in my life.
+- I was more of a dancer back then, I did choreography, but I was nothing like 'Powerline'.
+- I do ultimately wanna go back to Broadway and do live theater; I wanna act. But singing is my love. I feel like I'm sitting on a pot of gold.
+- I experienced a lot while I was away from the industry. From being on Broadway to learning more about myself. Those are really the things that I'm writing about.
+- Most of the songs that I write have nothing to do with the stuff that I used to sing about since I didn't write back then.
+- My main concern about coming back is being able to financially support it on my own. I don't want to depend on any record company to do it for me. But I have a fan base, people still streaming my music.
+- When I was a kid I loved to sing, that's all I did.
+- It's really, really amazing and I have a couple of college friends and their friends are huge fans of 'Powerline'. I mean, they got the t-shirts, they got the memorabilia, they got all that stuff.
+- I'd like to not have to worry about image, about doing the right thing all the time. Not that I want to be a criminal or anything. I'd like to be able to do something wrong and not feel the whole world will know.
+- I remember doing Broadway, I started Broadway in 2005, and, of course, I sing two songs in the play, 'Hairspray'.
+- I have done some bad things - things I can't and won't talk about. Nothing that bad, but if that stuff was printed in the papers, they'd paint me as a bad guy. I couldn't be Tevin Campbell, Mr. Perfect. But I really don't want to be Tevin Campbell, Mr. Perfect.
+- It's a great compliment to be compared to Michael Jackson, but people are starting to realize now that I'm just me, and that's all I want to to be.
+- I can't flip a burger, I can't do anything. All I know how to do is sing. I've been blessed to be able to make a living doing what I love.
+- I have a goal to reach, a way I want my voice to sound, and until I get there, I won't feel that I'm really that good.
+- I could go to the mall with my friends or go to movies or hang out without a care in the world. I could chase girls and not have to worry about whether they want me because they've heard my records on the radio.

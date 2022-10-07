@@ -1,0 +1,24 @@
++++
+author = "Tim Jackson"
+title = "Tim Jackson Quotes"
+quotes_len = "18"
+description = "the best 18 Tim Jackson Quotes"
++++
+- There is a real fear around shifting from our existing economic system because people believe it gives us social organisation, a sense of freedom, and the ability to be nice to each other. Growth is seen as a social lubricant that allows us to be socially responsible.
+- In short, avoiding the scourge of unemployment may have less to do with chasing after growth and more to do with building an economy of care, craft and culture. And in doing so, restoring the value of decent work to its rightful place at the heart of society.
+- Firms produce goods for households - that's us - and provide us with incomes, and that's even better, because we can spend those incomes on more goods and services. That's called the circular flow of the economy.
+- The philosophical point is that our happiness and wellbeing is not based on incomes rising. This is not just the wisdom of sages but of ordinary people. Prosperity is more social and psychological: it's about identification, affiliation, participation in society and a sense of purpose.
+- Big companies are reliant on institutional investors on a punishing schedule which leads to ruthless behaviour. This form of capitalism with this structure and incentives will never deliver sustainability.
+- Novelty is adaptive when things are changing and you need to adapt yourself. Tradition is essential to lay down the stability to raise families and form cohesive social groups.
+- The idea of a non-growing economy may be an anathema to an economist. But the idea of a continually growing economy is an anathema to an ecologist.
+- Questioning growth is deemed to be the act of lunatics, idealists and revolutionaries. But question it we must.
+- If we are going to be able to create a new economic vision, companies will need to rethink every aspect of their operations; their bottom lines, ownership structures, demands on financial returns, how they raise capital. For example, an ethical company would say it should only take a fair share of the planet's resources and campaign on this.
+- The care and concern of one human being for another is a peculiar 'commodity.' It can't be stockpiled. It becomes degraded through trade. It isn't delivered by machines. Its quality rests entirely on the attention paid by one person to another. Even to speak of reducing the time involved is to misunderstand its value.
+- It is the accuracy and detail inherent in crafted goods that endows them with lasting value. It is the time and attention paid by the carpenter, the seamstress and the tailor that makes this detail possible.
+- The most staggering linguistic turnabout for me is the one that equates green economy with 'sustained economic growth.'
+- Productivity - the amount of output delivered per hour of work in the economy - is often viewed as the engine of progress in modern capitalist economies. Output is everything. Time is money. The quest for increased productivity occupies reams of academic literature and haunts the waking hours of C.E.O.s and finance ministers.
+- On the mathematical side, you could in principle build a society in which people were fulfilling their needs and flourishing as human beings in a higher way than in a consumer society, provided you had the right investments in the opportunity to flourish in less materialistic ways.
+- We have stood up and said continuing growth in the Western world is unjust, inappropriate and potentially destabilising. Having said that, we understand why governments do it, so there is an onus on us to show there are other stories and to identify the institutional innovations you might need in order to arrive at this other place.
+- Our own relentless search for novelty and social status locks us into an iron cage of consumerism. Affluence has itself betrayed us.
+- Status-driven, conspicuous consumption thrives from the language of novelty.
+- We spend money we don't have, on things we don't need, to make impressions that don't matter.

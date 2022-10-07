@@ -1,0 +1,50 @@
++++
+author = "Mike Rowe"
+title = "Mike Rowe Quotes"
+quotes_len = "44"
+description = "the best 44 Mike Rowe Quotes"
++++
+- To me, we're living in a non-linear world... But the truth is we are linear creatures. Everything unfolds one after the next. And that's the thing we've become disconnected from.
+- Always flat front. You've got to be deeply suspicious of a man who consciously goes with pleats. Why would you do that?
+- It's funny; it's a real balancing act. In TV, everybody's talking about authenticity. In order to make 'Dirty Jobs' authentic, I really can't be overly informed. The minute I am, I become a host... It's a very tricky business paying a tribute to work, because TV is very bad at it.
+- My mother's dad dropped out of the eighth grade to work. He had to. By the time he was 30, he was a master electrician, plumber, carpenter, mason, mechanic. That guy was, to me, a magician. Anything that was broken, he could fix. Anybody anywhere in our community knew that if there was a problem, Carl was there to fix it.
+- I'm looking forward to the future, and feeling grateful for the past.
+- 'Bloody do-gooders' is my expression for people who are nicer than me, who are better than me.
+- Happiness does not come from a job. It comes from knowing what you truly value and behaving in a way that's consistent with those beliefs.
+- I wouldn't wish any specific thing for any specific person - it's none of my business. But the idea that a four-year degree is the only path to worthwhile knowledge is insane. It's insane.
+- Most people don't know where their food comes from. We're confused about the fundamentals. How does our food wind up on our plates? How exactly is it that, when I flick the switch, the lights come on?
+- Stop looking for the 'right' career, and start looking for a job. Any job. Forget about what you like. Focus on what's available. Get yourself hired. Show up early. Stay late. Volunteer for the scut work. Become indispensable. You can always quit later, and be no worse off than you are today.
+- I can say the willingness to get dirty has always defined us as an nation, and it's a hallmark of hard work and a hallmark of fun, and dirt is not the enemy.
+- People like to cherry-pick the parts of their career that they're either in the midst of or that they're the most proud of, but the truth is careers and lives are tapestries.
+- There's a belief... in the country that we can cure unemployment by creating opportunity. The skills gap proves that opportunity along is not enough to get people employed.
+- I'm fascinated by the skills gap.
+- For me, what's the old expression, 'Comfort the afflicted and afflict the comfortable,' that's really what religion is good at when it is done right. And the truth is, so is television.
+- One of the things that continually surprised people with the kind of shows I do, is that we try and find people who aren't doing jobs that are traditionally aspirational but who have nevertheless prospered and found real contentment doing it.
+- If you're trying to raise a son, it gives you a chance to say things like, 'Chop your own wood; it will warm you twice.'
+- At the risk of being glib, I would say if you really want to make America great again, you have to make work cool again.
+- The skills gap is a reflection of what we value.
+- It really wasn't until I was 15 or 16 years old that I realized that the church was always there; it was always a part of what we were doing, even if it wasn't at the center of everything we did.
+- Boredom is a choice. Like tardiness. Or interrupting.
+- 'Dirty Jobs' is a fun, simple little show with huge themes under it. For me, it's penance, it's redemption, it's a sweaty mess.
+- We need to tell better stories of men and women who master a trade. We have to stop telling kids to blindly follow their passion and show them the opportunities that exist. That was the big, overarching message of 'Dirty Jobs.'
+- We've waged war on work. We have collectively agreed, stupidly, that work is the enemy.
+- Work ethic is important because, unlike intelligence, athleticism, charisma, or any other natural attribute, it's a choice.
+- Dirt used to be a badge of honor. Dirt used to look like work. But we've scrubbed the dirt off the face of work, and consequently we've created this suspicion of anything that's too dirty.
+- There is a lot of stuff we can't control, but it is completely in our power to decide what the definition of what a good job is. That's up to us.
+- I'm from Baltimore.
+- In a very general way, our society has fallen out of love with the skilled trades. Part of the problem is a myriad of myths and misperceptions that surround the jobs themselves, but the biggest cause is our stubborn belief that a four-year degree is the best path for the most people.
+- Meaningful work is very different than drudgery.
+- Every bad joke, every endorsement deal, all of the things that a typical host would normally get creamed for, people don't mind, because they know I don't cheat when it comes to the work I actually try. I'm a lab rat. I'm a perpetual apprentice. The joke is on me if there is one.
+- What you do, who you're with, and how you feel about the world around you is completely up to you.
+- I'm not disinterested in the rest of the world, but studies show the rest of the world is really freaking far away.
+- The thing that makes 'Dirty Jobs' different is that it's one of the few shows that portrays work in a way that doesn't highlight the drudgery. Instead, it highlights the humor.
+- You've got a lot of very, very smart people standing by waiting for somebody else to do the work. Not a recipe for long-term solvency in my opinion.
+- 'Dirty Jobs' is maybe the simplest show in the history of TV, with the possible exception of 'The Gong Show'. I go around the country; we've shot in every state. And we spend a day with people who do jobs that are dirty or dangerous or ridiculous or difficult.
+- We don't need American Idols. We need American icons. Icons of work.
+- The one thing that TV is bad at doing is preaching. There are two extremes, you either turn the people into a punchline or turn them into hero, and both of those things suck, because most people are neither in real life.
+- Most of the things I do brand wise are both missionary and mercenary in their position, and that's really important to me; that's one of the first things I look at when I say, 'does it make sense to do a deal?'
+- I've got one of those over-stuffed leather chairs from the Pottery Barn. It faces north. I live in San Francisco, so there's the Golden Gate Bridge off to the left, and there's Alcatraz off to the right, and I've got a pile of pulp fiction next to me, and there's usually a decent bottle of red wine next to the fireplace.
+- I always complain because I'm old now and everything hurts.
+- I come from a blue collar family, but my personal life isn't. I didn't get the gene that my grandfather had in spades. He was a local hero. Built the church that I went to. Built the house I grew up in. Steamfitter, pipefitter, electrician, mechanic and plumber. I wanted to do those things. But it just didn't come easy.
+- Good jobs look a lot like kids playing and adults working.
+- We need to promote an ethic of work. And there's no way one guy or one company is going to be able to do it. It has to be a big hot mess - public, private, government, NGOs and smart alecks on the TV talking about it.

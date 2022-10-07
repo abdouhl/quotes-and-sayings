@@ -1,0 +1,43 @@
++++
+author = "Maggie Q"
+title = "Maggie Q Quotes"
+quotes_len = "37"
+description = "the best 37 Maggie Q Quotes"
++++
+- You should see me during an action film. I look like an abuse victim.
+- I love shooting guns. Not at people or animals, but I love shooting blanks!
+- We rarely grow when we're happy, we grow when we hurt.
+- I don't think you can be successful in television without appealing to women. I don't think it's possible. I think that men like women. It doesn't really matter what they do - they love anything. But women don't necessarily like every woman, so I think that's a challenge to get the female audience to not only relate to you but also like you.
+- As women, I think it helps that we are complex creatures by nature so just being a woman helps to understand a woman's journey.
+- I weirdly feel very natural, in the physicality that comes my way, whether it's guns, cars or whatever. For some reason, it's second nature to me.
+- Our choices are going to determine the future for our children, our children's children, and their children. I take that responsibility very seriously.
+- Here's my goal: I want to make a seriously dark show, and not on a network that has ever done that.
+- I don't work out and be healthy and want a strong body because I want to look good in a bikini. I do all of those things for me and for my health. I'm not going on the cover of 'Maxim' and 'FHM' because that's not me.
+- When you come to America, it's a very serious thing. It's not like you arrive and they say, 'Hey, come on! Do movies!' I can't just be hopping around. I have to focus and be still and make sure that I put the time and effort in. Because if I don't, I could lose it like that.
+- When people go through tragic circumstances, it's not that there is no love there, but it's so hard to deal with and sometimes the gap starts to happen.
+- The CW is a very fashion-oriented network and they like their stars to look a certain way. I like that, but at the same time, I need Nikita to be toned down a bit. You can't draw too much attention to Nikita because she's an assassin.
+- My goal when I make my show is to make a show for women. I don't make a show for men.
+- Sometimes you're famous before you're good.
+- Facebook? I have no clue about it. MySpace, none of that. I'm the worst.
+- Audiences are so much more sophisticated than they've ever been. They expect a lot more. I don't think because it's an hour of your Thursday night rather than an hour and a half of your weekend that you should be gypped at all in quality.
+- The 1970s 'Wonder Woman' was sort of a kitsch thing. It was a very specific time for that, and it's hard to modernize something like that.
+- I don't know how people box for a living. I don't know how they can just hurt people for a living and be OK with it.
+- My manager's biggest dream is for me to be on Letterman. She says, 'Oh, Maggie, will you promise me you'll be on 'Letterman?' What can I say? I just tell her I can't promise, but I'll try my best.
+- Not only do I not want to be stereotyped as this Asian girl who fights - gee, what a wonder - but also I have more to offer than that.
+- I like PETA as a group for many reasons, but one of the reasons that I admire them is that they say and do the things that other groups won't do.
+- The student will try to defy the master. Always.
+- There was a time where I thought I could only date vegans. I was wrong because I was missing the fact that somebody should be right for me first, instead of just having similar values.
+- I've gotten used to the point where I'm so used to being sweaty! I like to wear less makeup and be tougher!
+- There's so many issues tied to the meat industry. I mean, social, environmental, humanitarian - all of them. I know that when I'm eating that I'm not hurting the planet, I'm not hurting other people on this planet, I'm not hurting animals... and I'm not hurting nature.
+- You're asked, 'Do you know kung-fu?' Yeah. That's what we do. We wake up, we brush our teeth, we do kung-fu!
+- I mean, if we try to 'fluff up' 'Nikita?' We're done. If we try to 'fluff' 'Nikita,' I don't want to be involved and I don't want to watch the show.
+- It's just cool for a girl to be able to do her own thing. I do a lot of movies, and I'm very lucky, and I'm not complaining. But in movies, alongside big action men, we've always got to take a step back and let the men shine.
+- I don't do anything but sleep, when I'm not working. I have no life. I'm no fun. All I want to do is sleep and get ready for the next day. It's awesome.
+- I, Maggie, personally cannot tell you that you're going to save the planet. But what I do know is that we can draw a line to an issue that can conserve what we already have and what's left in a way that we can actually breathe the air, drink the water, actually grow things in soil - that matters in a real, practical way.
+- I'm just totally into being strong. There's something about wanting to get a jar or whatever out of a high cupboard, or moving a sofa over because my dog's bone rolled under it, and not having to call anyone for help. There's comfort in that.
+- There is nothing cooler than having lines like, 'Batman, the fate of the world is upon us.' Who gets to say that? And who gets to say that in a deep, earnest, amazingly sexy way?
+- With stunt guys, you can punch them in the face because it's, you know, just part of work. You feel bad about that but not as bad as if you punch another actor.
+- I'm not a wushu champion. I was an athlete when I was a kid. I was a swimmer and a runner, but all this action stuff is such a challenge. It really, really is.
+- I'm not a vampire movie fan, per se. That's not to say that I haven't enjoyed movies with vampires in them.
+- I'm bringing what I've always wanted: film quality work on television. That's the way it should be.
+- I enjoy privacy. I think it's nice to have a little mystery. I think because of technology a lot of the mystery is gone in life, and I'd like to preserve some of that.

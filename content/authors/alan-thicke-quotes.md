@@ -1,0 +1,45 @@
++++
+author = "Alan Thicke"
+title = "Alan Thicke Quotes"
+quotes_len = "39"
+description = "the best 39 Alan Thicke Quotes"
++++
+- Fitness needs to be perceived as fun and games or we subconsciously avoid it.
+- My advice, it's get involved in any and every aspect of the business that affords itself to you.
+- If one tends to be a humorous person and you have a sense of humor the rest of your life then you can certainly lighten the load, I think, by bringing that to your trials and tribulations. It's easy to have a sense of humor when everything is going well.
+- We look for opportunities to play together including basketball, tennis, swimming, riding bikes and touch football. I try to provide a loving environment where we can play. I think that's good on so many levels - emotionally, for family interactions and, of course, physically.
+- On a selfish basis, I really enjoy sports and activity.
+- It's always been said that comedy comes mostly out of the dark side anyway.
+- One week you may be an actor, and the next week you had to be nimble enough to be a TV host. And the week after that, you might have to do some stand-up or be in an improv company or write and sing a song somewhere.
+- In terms of social media, I try to have my voice heard loudly in the cacophony of other influences whether from television and the Internet or social media... I want my voice to be heard in terms of the standards and values that I try to pass on to my kids.
+- People talk about, 'Well, why don't they bring 'Growing Pains' back?' No, it belongs in the time capsule exactly where it was. It would probably look corny and dated if they tried to redo that. But I think, for its time, it was meaningful.
+- I've always felt that improv looks and feels more clever when you're there to experience it live than when you have the degree of separation that television creates. Television raises expectations.
+- There are psychological repercussions to illness and we need a little more help to get through the effects not only on the afflicted but on the family. And I think there's even a place for humor in that.
+- There is no doubt in my mind Bill Cosby was a bad boy.
+- And introduce an element of cynicism and darkness into it and just realize that we're all vulnerable. We are humans. There is a finite end to this life and we're all going to face it and a little silliness can help.
+- In 'The Goods,' I'm Ed Helms' dad, and I was known all those years as Kirk Cameron's father, and now I'm known as Robin Thicke's father, so I find myself playing myself a lot and, frankly, living up to expectations of what the public's image of me is.
+- My kids are all pretty big and tough and strong, and I don't worry about them being bullied - the reverse, be kind to people and don't ever be a bully yourself, and I think they've followed that.
+- Part of the mystique of shows like 'Curb Your Enthusiasm' is the idea that they begin with a couple of plot lines, and then a bunch of geniuses improvise dialogue. It's not quite that unstructured and loose. It makes for a good urban myth, but everything's a little more tightly scripted and programmed than that.
+- I was discovered, or mentored, by Norman Lear, who plucked me from the grinder of relative obscurity.
+- I wouldn't call myself a standup in the presence of Jerry Seinfeld or Chris Rock, but I do my share of it and it has been and remains part of my activity and I like it.
+- If it is a first offense, you ground them and have a talk. The second offense would call for counseling.
+- I did write a lot of TV themes - I wrote about 45 of them, and a couple of which are still reference and popular today, like 'Diff'rent Strokes' and 'Facts of Life.' But I was a limited musician.
+- I'm not doing anything Jack Nicholson turned down. Any part that required a character distanced from myself would have been a reach. But the one thing I've always done well at, and I'm most devoted to, is my children.
+- The two things I hear wherever I go, literally walking down the street, through airports, or in restaurants - it is either 'You raised me,' or 'Fellow Canadian.' Not even a paraphrase - those are the exact remarks.
+- I have few other characters to relate to other than myself. I have enough of a body of work now that the paternal side of Alan Thicke gets a lot of play. I do get a lot of calls to play dads.
+- As a father, my first priority is to help my sons set and attain personal goals so they will develop self-confidence and individual strength. Engaging in regular fitness activities with my children helps me fulfill those responsibilities.
+- I'll be on my third honeymoon, so I'm more of an authority than I care to be.
+- About 100 things that your kid will do that will surprise you and break your heart and it will be a combination of fact based therapy, medically advised kinds of passages accompanied by celebrity anecdotes and just some funny stuff to lighten the load.
+- If I could have grown up to be Robin Thicke, I would have. But I'm glad somebody in the family did.
+- When I started out, at the CBC in Toronto, there was so little work. It was a different world from what it is now. Now we're blessed with so much production in so many Canadian cities.
+- My priority is to turn people - especially kids - on to sports and being active so they don't even have to think about it being good for their health. If people participate for the fun of it, and believe me - it is fun, then fitness programs will be much more successful.
+- My advice to Robin is listen to your heart, do what you feel. Follow your heart in love and marriage as you would in careers, and you'll be fine. Robin has a great heart. He's a fabulous father.
+- I have some realistic humility which comes from my first career as a writer. I wrote for other people for ten years. I saw some incredible egos not based on any reality. They were great when they were on top and awful when they weren't. I learned a lot about how to treat people.
+- My two boys were the same ages as the kids in the show. In real life or in between the breaks I was raising two kids off camera who were not unlike the two kids who were being paid to be my kids.
+- Family involvement is a valuable thing and playing together actively can be the '90s version of it. Instead of just watching, you can do it together... something we don't spend enough time on. We can motivate and excite each other about fitness.
+- So there was a constant flow and a thin line there between reality and television and yes, much of what I was experiencing in my real life was also what was going on in the television show to the extent that I had to take writers' advice and from the counselors around.
+- I'm not able to go in with an act that I use month to month year to year all the time. It's constantly evolving and changing and that keeps me on my toes but certainly adds to the challenge.
+- I'm a big proponent of having a mental health component go along with whatever the physical realities are.
+- The way I was parented did affect my parenting - probably in the reverse. My dad was pretty strict, and the next generation probably wants to be less strict.
+- There's not much that I haven't done in my life, but there's lots of things that I'd like to do better. The variety of my career has been the fun of it, and I can thank Canada for that.
+- So we had psychiatrists and counselors and therapists around the set regularly, especially for those scenes in which Jason would be dealing with a patient to make sure we were doing it all appropriately.

@@ -1,0 +1,55 @@
++++
+author = "Jodi Picoult"
+title = "Jodi Picoult Quotes"
+quotes_len = "49"
+description = "the best 49 Jodi Picoult Quotes"
++++
+- Every year I tell myself that I'm not going to read any reviews and then I do. We're all human and when I read something negative it hurts. I think when you write it's part of the game, you're going to get some good reviews and some bad reviews and that's how it goes. I don't write for the reviews.
+- I write about all the horrible things that can happen to kids as a way of keeping those things from happening to mine. Write the books, spit three times over your shoulder and you're safe.
+- I know that books I have written will still resonate in 50 years - particularly 'My Sister's Keeper.' It has sold three million copies in the States alone. I strongly feel that, as a novelist, you have a platform and the ability to change people's minds.
+- There's that unwritten schism that literary writers get all the awards and commericals writers get all the success.
+- I don't believe in writer's block. Think about it - when you were blocked in college and had to write a paper, didn't it always manage to fix itself the night before the paper was due? Writer's block is having too much time on your hands.
+- Researching 'Lone Wolf,' I was amazed at how thoughtful and intelligent these animals are. There has never been a documented attack against a human by a wolf that wasn't provoked by the human.
+- My friends say I have two speeds: fast and blistering.
+- I am an activist. I have a really big pulpit with my fiction and I love knowing that I can make people think.
+- I think there are readers out there and I don't think the book is dead. And more importantly I don't think readers have to choose between literary and commercial fiction.
+- I think I have sort of gravitated toward issues that I don't know the answers to, because that's what's more interesting for me to write.
+- Gay teenagers are four times as likely to attempt suicide as straight ones. I wish they knew that there's nothing wrong with them; that they are just a different shade of normal.
+- I'm the kind of person you want to kill. I had an incredibly happy childhood. I married a terrific guy when I was 23. I have great, well-adjusted kids. Sometimes my husband and I look at each other and do a little jig in the kitchen. This is the best life.
+- Everyone has a book inside of them - but it doesn't do any good until you pry it out.
+- Writer's block is for people who have the luxury of time.
+- As an American I wanted to explore... why are we the only first world country that still has capital punishment? Is it because we're too afraid to really examine the system, or is it because we really truly believe that this is the best way to deter future crime?
+- I started writing when I had three kids under the age of 4. I used to write every ten minutes I got to sit in front of a computer. Now, when I have more time, I function the same way: if it's writing time, I write.
+- I woke up one morning thinking about wolves and realized that wolf packs function as families. Everyone has a role, and if you act within the parameters of your role, the whole pack succeeds, and when that falls apart, so does the pack.
+- The act of writing... is the act of trying to understand why my opinion is what it is. And ultimately, I think that's the same experience the reader has when they pick up one of my books.
+- Instead of plotting the demise of the traditional family, as some politicians and religious leaders would have you believe, gay people mow their lawns and watch 'American Idol' and video their children's concerts and have the same hopes and dreams that their straight counterparts do.
+- On a shelf above my computer are five letters that spell out W-R-I-T-E. Just in case I forget why I'm there. I also have 'Wonder Woman' paraphernalia from when I wrote five issues of the comic, and pictures of my husband and kids.
+- I consider myself spiritual and I'm married to a man who is both an atheist and a humanist, and my kids have been raised with the traditions of different religions, but they do not go to church or temple. My feeling is that everyone should be able to believe what they want or need to believe.
+- Read a ton. Take a workshop course so you learn to give and get criticism.
+- It's a fallacy that writers have to shut themselves up in their ivory towers to write. I have all these interruptions, three of which I gave birth to. If I was thrown for a loop every time I was distracted I could never get anything done.
+- If you read a book that's fiction and you get caught in the characters and the plot, and swept away, really, by the fiction of it - by the non-reality - you sometimes wind up changing your reality as well. Often, when the last page is turned, it will haunt you.
+- Gay rights is not something most of us think about - because most of us happen to have been born straight.
+- I had absolutely no trauma in my childhood. If anyone ever assumed that my books were autobiographical, they'd be sorely disappointed, because none of these things happened to me.
+- I'm always writing, even when I'm not at my desk. I write on my hands. I used to write on my kids' hands, too, but they don't let me any more. When I'm driving I sometimes write all the way up my arms.
+- I think many of my books, including 'Handle with Care,' including 'My Sister's Keeper,' circle back to how far are we willing to go for the people we love? I think love changes the way we think. It's the thing that takes you out of what your normal set of beliefs would be.
+- I think the reason these readers come back to me is because I represent their points of view. It may not be my point of view, but that's OK. Everyone still deserves to have their say.
+- I feel I'm able to get rid of any demons lurking in my psyche through my writing, which leaves me free to create all of this and to enjoy our family life, stepping away from all the fictional traumas and the dramas. If I write about family in crisis, then I won't have to live through it, I guess.
+- It's certainly my honor to be able to, hopefully, change the world a tiny bit, one mind at a time.
+- My first job was as an assistant in the local library. Self-fulfilling prophecy?
+- I have several writer friends, but I don't involve them in my work process. I'm more likely to talk about the business of publishing with them.
+- Even though I don't write about things that come from my life because I'm lucky, and I live in a great place with great kids and, you know, a great husband, I think you can find threads of me in the characters, so that's really what being a writer is, probably.
+- When I think about writers who use fiction as social commentary and to raise social awareness but who are also very popular, I think of Dickens.
+- Writing is total grunt work. A lot of people think it's all about sitting and waiting for the muse. I don't buy that. It's a job. There are days when I really want to write, days when I don't. Every day I sit down and write.
+- I don't have to live the lives of my characters to write about them. It's about really putting yourself in their shoes.
+- If you read the first page of one of my novels, I can guarantee that you will read the last one. This isn't just social commentary. This is also about writing good page-turners. I want people to keep reading.
+- I write adult fiction, but a good 40 to 50 per cent of my readers are teenagers. I love that if they have to grow up and move past JK Rowling they can move to me. From Jo to Jodi!
+- Many of my books come from what if questions that I can't answer, things that I'm worried about as either a woman, a wife, a mom, an American.
+- You might not write well every day, but you can always edit a bad page. You can't edit a blank page.
+- Most people in America want an easy read. I call it McFiction - books which pass right through you without you even digesting them. I don't mean a book that has two-syllable words. I mean chapters you can read in a toilet break. Happy endings. We are more of a TV culture.
+- I think the 'New York Times' reviews overall tend to overlook popular fiction, whether you're a man, woman, white, black, purple or pink. I think there are a lot of readers who would like to see reviews that belong in the range of commercial fiction.
+- I'm not going to tell a person how to think, don't believe in that. What I want to do, when I write these books, is just to say don't be so sure of yourself. Let me pull the carpet out from underneath you, and let's see if you can still find the footing.
+- People are always afraid of the unknown - and banding together against the Thing That Is Different From Us is a time-honoured tradition for rallying the masses.
+- For me it's more important that I outline all the facets of a controversial issue and let the reader make up his or her mind. I don't care if readers change their minds, but I would like readers to ask themselves why their opinion is what it is.
+- When you're stuck, and sure you've written absolutely garbage, force yourself to finish and then decide to fix or scrap it - or you will never know if you can.
+- I will say overwhelmingly what means so much more to me than the opinion of one reviewer are the letters I get from fans who tell me how a particular book has changed their life.
+- I was one of the first authors to have an active website. I'm totally obsessed with technology. I'm always looking for ways to connect with my readers. I answer all my fan mail.

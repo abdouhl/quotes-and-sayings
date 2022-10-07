@@ -1,0 +1,24 @@
++++
+author = "Monica Ali"
+title = "Monica Ali Quotes"
+quotes_len = "18"
+description = "the best 18 Monica Ali Quotes"
++++
+- I was always an outsider, always standing outside, observing and trying to figure things out. Which is exactly what you need to do as a writer, I suppose.
+- People don't get involved with local charities or politics because they think it's hard to make a difference and the problem feels overwhelming. But I believe that if all I've time for this year is to write one letter to the local council, it's still worth doing.
+- Kids are naturally inventive and curious and creative, but most adults have had that beaten out of them. Writing is a form of play; you have to get rid of all those internal censors that we adults have, the things that say, 'Don't go there, that's not allowed.'
+- I started writing 'Brick Lane' when my children were two years and five months old. We were on holiday in the north of England when I was overtaken by a compulsion to start writing.
+- I rarely get a moment to myself, but I love the way that my agenda is dictated by the children, not my work.
+- I get really excited if I think I'm going to introduce somebody to a writer they haven't found before and I think they'll love. My favorite books to get as gifts are any that the giver is messianic about.
+- I don't want to get hung up on what 'people,' that nebulous mass, think about me. That's the way to unhappiness, I think.
+- People always want to identify a writer with their protagonist.
+- A new car is not going to change your life.
+- You know how if you're born in a certain situation you always expect your life to run on a steady trajectory? I've never really had a sense of that. I assume that life is going to go up and down.
+- Outside of interviews, I spend very little time thinking about myself. I spend time thinking about my writing and my children and other things that are pertinent.
+- I like Beryl Bainbridge a great deal, and she is a writer who absolutely demands to be read a second, third, and fourth time. I admire her great courage in leaving so much unsaid and asking the reader to really engage her brain.
+- Character is always my driving force. And to tell a good story and to provide an entertaining read.
+- Some writers are more natural public performers than others; personally I find it quite strange giving interviews. But everyone has parts of their job that they like more than others. You can't complain if you get to do what you love doing most of the time, can you?
+- I always try to create conflict and drama in my books; it's the engine of the novel.
+- I guess there's a sort of cycle with writing books. There's all the researching and then the imagining and writing - which is the real job - and then there's always a period when the book comes out and you have to lift your head and venture out.
+- I wish I got a lie-in on Saturday mornings but I never do.
+- I'm very eclectic in my music tastes - anything from Nina Simone to Beethoven to Talvin Singh.

@@ -1,0 +1,15 @@
++++
+author = "Johan Santana"
+title = "Johan Santana Quotes"
+quotes_len = "9"
+description = "the best 9 Johan Santana Quotes"
++++
+- I knew that the Mets had never had a no-hitter. I never had one. This is very special. I knew this means a lot to New York.
+- I didn't want to go on the DL. I want to keep pitching and competing. They decided it's better for me to take some time off and that's what we're going to do.
+- I don't feel my best right now, but at the same time, I'm not trying to find any excuses or anything.
+- That no-hitter stuff was a long time ago; I don't think that has anything to do with it. I'm just going through a tough time.
+- We did this together. We, as a team, made history tonight.
+- I'm not executing my pitches. I'm not commanding my fastball, and I get behind in the count. When I try to throw strikes, I'm getting hurt. That's not the way I pitch.
+- I mean, coming into this season I was just hoping to come back, stay healthy and help the team.
+- There's times when one play makes the whole difference, one calls makes the whole difference. And tonight it was that call.
+- We're not done. We're just going to continue playing and hoping to put some wins together again.

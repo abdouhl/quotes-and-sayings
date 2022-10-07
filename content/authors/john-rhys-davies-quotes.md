@@ -1,0 +1,72 @@
++++
+author = "John Rhys-Davies"
+title = "John Rhys-Davies Quotes"
+quotes_len = "66"
+description = "the best 66 John Rhys-Davies Quotes"
++++
+- How stupid do you have to be to imagine that you can turn 'The Lord Of The Rings' into a film script?
+- I hate being out of work!
+- When I looked further into my mother's history, I realised that her anxieties and her neuroses could be accounted for by facts from a very early age. Her parents, William Henry Jones and Sarah Emily, were desperately poor.
+- Unkindness is quite a major sin.
+- Films are fun, but life is much richer.
+- I'm not actually sure that actors or artists should be allowed to have a family, because the focus you need, the egotism, the myopia, is just taking away from the relationship.
+- I think 'The Lost World' could've been a successful movie except for the fact that it pre-dated the good special effects and computer graphics.
+- Once you've got a child to the point that they've discovered books, they're safe. There's a world of the imagination that when they're hurt or upset, they can move into, and it is wonderful.
+- Given the fact that I have a family and responsibilities, it's the mark of a man to find the courage to do what is right in the face of oppressive evil.
+- We live in a modest system, a galaxy called the Milky Way. If we named every star in the Milky Way and put them in the Hollywood telephone directory and stacked those telephone directories up, we'd have a pile of telephone directories 70 miles high.
+- I can't give a soundbite for love or money.
+- When the writers themselves are a bit out of control, and their lives are collapsing around them, they seem to rejoice in misery and celebrate the wrong sort of things.
+- I used to fly airplanes myself, so being above the ground doesn't worry me too much.
+- Villains are a lot of fun. My villains have a lot of tongue-in-cheek. They are sometimes conscious of and a little bit gleeful of their villainy.
+- I am a believer in the evolutionary process, and yet I have sympathy for the friends of mine who are creationists. I don't find the positions incompatible.
+- Basically, theater or film is a dangerous industrial environment.
+- If I had a bloody tattoo for every film I'd done, I'd be a walking billboard.
+- When you've opened your heart to a child as you have to, there's always the fear that you may discover that the child is not viable. Losing that child is not a position you want to find yourself in.
+- Actors are always looking for actor-proof parts. A part so good you can't screw it up!
+- I count myself a a rationalist and a skeptic with a very conscious awareness of my indebtedness to Western Christian civilization, and I am a fairly passionate defender of it.
+- Just think about it: in every shop in the reading world since 1956, there has been two feet of book-space devoted to Tolkien.
+- The script of 'Shogun' was so tight that you could not take a word out of a sentence, you could not take a sentence out of a scene, and you certainly couldn't take out a scene without putting ripples right through the back or the front of the overall story.
+- There's nothing like the discipline of having to work on a cold film set on the Danubian plain in Bulgaria. Boy, does it get cold.
+- To experience the unique sense of elation that you have when your child is sleeping on your chest in an incomparable emotion.
+- With a bad script and even the best cast, the most you can hope for is to turn a sow's ear into a silk purse.
+- 'Shogun' was a mini-series, so even though it went on television, we filmed it like a movie.
+- Sometimes you learn more from films that aren't terribly successful and, indeed, sometimes you learn more from real disasters than you do from the ones that succeed.
+- I have a lot of respect for aspects of Islam, but I would not choose to live in a theocratically organised Muslim society.
+- I do not want to see a society where, should I ever have any, my granddaughters have their fingernails pulled out because they are wearing nail varnish.
+- Actors endow the villain in fiction with a warmth and quality that makes them memorable. I think we like fictional villains because they're the Mr. Hyde of our own dreams. I've met a few real villains in my time, and they weren't the least bit sympathetic.
+- I think your children are your measure of success, regardless of work and career.
+- Faith is not a rational thing, and yet to understand the universe, rationality alone will not give it to us. Our understanding of the universe must transcend the rational.
+- Sometimes a writer just needs a hook.
+- When you think about a walking tree, laughter is the response.
+- There is a demographic catastrophe happening in Europe that nobody wants to talk about, that we daren't bring up because we are so cagey about not offending people racially.
+- I've always been attracted to films which explore the qualities of courage.
+- Intellectually, now, I believe that it is a complete vanity to say positively there is no God.
+- A solitary child growing up in Africa, you're really quite dependent on books.
+- If you cannot have fun on a set and enjoy what you're doing, you're better off giving it up.
+- I think I have more stamps in my passport than most stamp collectors have in their collections.
+- Many do not understand how precarious Western civilization is and what a joy it is. From it, we get real democracy. From it, we get the sort of intellectual tolerance that allows me to propound something that may be completely alien to you.
+- My parents were always Welsh-speaking and very proud of Wales.
+- I like heroes, and would like to be a hero myself. I suppose we all want that.
+- If you've gotta follow a fashion, pick a good fashion, I say, yes.
+- I'd love to spend more time on the Isle of Man. I love the anonymity of putting on a boiler suit and going down to buy parts for the compressor. And Norman Wisdom's a neighbour; I salute him occasionally.
+- I enjoy acting. It's not that I begin to think I'm getting better. I now fully know that I've made no improvement whatsoever since I was 20. I can live with it.
+- To be an actor for 30-odd years trying to become recognized, and to end up playing a full prosthetic and a character 3 foot 9', or something like that, is... well, it just shows that you can get actors to do anything.
+- It's not hard to get people to take a premise and accept it.
+- Western Europeans are not having any babies.
+- The most despised sector of Hollywood are the writers. A good writer is quickly promoted to a 'concept man' - and then a producer - because he's too valuable to simply be a writer.
+- Actually, I'm addicted to science fiction. Let me make my diction clear - I love sci-fi.
+- Spying is a like a game of chess: Sometimes you have to withdraw, sometimes you have to sacrifice one of your pieces to win - preferably a knight rather than a king or queen.
+- In the film world, we can all be heroes. In the real world, where heroism can cost you your life or the life of the ones you love, people aren't so willing to make those sacrifices. When they do, they are set apart from the rest of us.
+- The word 'career' and 'actor' really don't fit in the same paragraph, let alone sentence. There is no career structure for actors.
+- 'Indiana Jones' wasn't physically tough, but they are the only two films I've ever been ill on. On 'The Last Crusade,' I got sciatica. That's when the sciatic nerve, which goes through the funny hole in your pelvis down your leg, swells and rubs against the nerves.
+- I'm a little smarter than most.
+- The universe starts off with the Big Bang theory, and the first thing that emerged from the Big Bang is essentially hydrogen and then helium. And that's what combusts in stars. Finally, stars implode, and they build heavier elements out of that. And those heavier elements are reconstituted in the heart of other stars, eventually.
+- People have become disillusioned with Parliament, and that threatens democracy.
+- No one should be allowed to stand for Parliament without proof that he has taken responsibility for other people.
+- Hollywood is a far safer place to work than working abroad, because of the skill level, and because of the safety considerations that experience and unionization have created.
+- Peter Jackson and Steven Spielberg are men at the top of their game, and Jackson especially is going to change the nature of film-making.
+- As I come towards the end of my life, you get to see things in a slightly different perspective.
+- I was offered the opportunity to narrate the Catholic bible, and it was something I really wanted to be involved with.
+- I found it marvelous that the great supporters of America in Europe are, of course, those countries that American consistency and firmness in the Cold War ended up liberating.
+- When you get back to fundamental questions - 'Why should anything exist?' A, I'm not sure what the answer is in terms of the science, and B, I'm not sure that science can even ask that question.
+- I love a good safari.

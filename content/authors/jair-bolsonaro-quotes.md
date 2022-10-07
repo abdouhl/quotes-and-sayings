@@ -1,0 +1,88 @@
++++
+author = "Jair Bolsonaro"
+title = "Jair Bolsonaro Quotes"
+quotes_len = "82"
+description = "the best 82 Jair Bolsonaro Quotes"
++++
+- Palestine is not a country, so there should be no embassy here.
+- If anyone interferes into the private life of two people, I will defend the right of those two people between their four walls. That is no problem.
+- We will reduce the tax burden, simplify tax rules, and make life easier for those who want to produce, do business, invest, and create jobs.
+- Everywhere I go, people embrace me and treat me like a national hero. The people in the streets are asking for the return of the military. They ask, 'When are you coming back?'
+- I am not a troglodyte.
+- Young people in Brazil for a long time have been an easy prey for the Left, from communists in Brazil. Social media liberated them from that.
+- If I were racist, I wouldn't be so crazy as to declare it on television.
+- We are the voice of freedom.
+- We will preserve the environment.
+- Elections won't change anything in this country.
+- We will do business with the Chinese - but we will not hand our territory over to anybody!
+- What we need is a government with authority but without authoritarianism.
+- We will never resolve serious national problems with this irresponsible democracy.
+- Brazil is a paradise.
+- Let's make Brazil Great!
+- China is taking over Brazil, and that is worrying. They are investing in mining, agriculture, energy, ports, and airports.
+- The minority must bow to the majority.
+- I don't want any country buying up Brazil, but we will do business with all countries, and China is an exceptional partner.
+- You do not negotiate with terrorists.
+- We do not want socialism.
+- Do I need to know about medicine to solve the health problem in Brazil? Do I need to know about agriculture to advance the agribusiness?
+- My heart is green, yellow, blue, and white.
+- It saddens me to see the entrepreneurial world in Brazil, because it's a misfortune to be a boss in our country, with so many labor laws.
+- We will invest heavily in safety and security... preserve the environment... make progress on biodiversity and economic progress.
+- No other country in the world has as many forests as we do.
+- I am in favour of a dictatorship.
+- God above all.
+- I will not accept an election result that is not my own victory.
+- I took over a Brazil in the midst of a profound ethical, moral, and economic crisis. We are committed to changing our history... We want to govern by example.
+- Good citizens deserve the means to defend themselves.
+- We are going to change the destiny of Brazil.
+- It's these leftwing people, who always put themselves above the rest, who are fascists.
+- We do not want a Bolivarian America.
+- We are taking over a completely broken Brazil. We've never had such a major ethical, moral, and economic crisis, and we want to get out of this quagmire.
+- I would not board a plane piloted by a quota beneficiary or be operated on by a quota doctor.
+- I spent 17 years in the Brazilian army.
+- We can't continue with this social democracy here in Brazil.
+- We can't keep flirting with communism and socialism.
+- More than safeguarding someone's life, firearms safeguard the freedom of a people.
+- It doesn't matter what the colour of your skin is, your sexual preference, the region where you were born, your gender. We're all equal... We can't take certain minorities and think they have super powers and are different from the others.
+- I am one of the most attacked persons.
+- I'd rather my son died in an accident than showed up with some bloke with a moustache.
+- We are going to unite this people. We will unite whites and blacks, homosexuals and heterosexuals... We will unite bosses and employees, and we won't plant the seed of discord between them.
+- This history of a secular state doesn't exist, no. The state is Christian, and those who are against it can leave.
+- You'll never change anything in this country through voting. Nothing. Absolutely nothing.
+- If Congress grants permission, I would put armed forces in the streets.
+- Not a centimetre will be demarcated for Indigenous reserves.
+- We don't have a big party. We don't have election funding. We don't have television time.
+- In every war, innocent people die.
+- We are going to change Brazil!
+- I can't just suddenly become 'Little Peace and Love Jair'... I've got to carry on being the same person.
+- If one day the military comes to power, it will be through a vote.
+- Together with this Brazilian people, we will build a new nation.
+- Political correctness is a thing of leftist radicals.
+- We need to unify Brazil, to pacify it.
+- I prefer a prison full of criminals than a graveyard full of innocent people.
+- We're in Brazil here: Great Brazil just like the Great America of our dear Trump.
+- We are winning the hearts of these young people out there.
+- I ask myself, 'Why can't a truck driver have the right to carry a gun?' Just think about it; put yourself in the shoes of a truck driver. He nods off at the petrol station... and when he wakes up the next day, his spare tyre has gone.
+- We cannot allow the indiscriminate entry of all those who come here only because they wanted to come.
+- This idea of, oh, poor little black person, oh, poor little poor person, oh, poor little woman, oh, poor little indigenous person - everybody's a poor little something! I don't try and please everybody.
+- Real democracy is food on the table, the ability to plan your life, the ability to walk on the street without getting mugged.
+- We are going to unite the people, rescue the family, respect religions and our Judeo-Christian tradition, combat gender ideology, conserving our values.
+- This cowardly business of international NGOs like WWF and so many others from England sticking their noses into Brazil is going to end!
+- Those who didn't vote for me don't need to worry - they won't be persecuted.
+- I have five children. There were four boys. The fifth, I got weak, and a girl came.
+- Israel is a sovereign state. If you decide on your capital city, we will act in accordance.
+- If we are competing in elections, it's because we believe in the popular vote and will be slaves to our constitution.
+- I would like to have had that experience of combat. I would have liked to.
+- All of us have a mission here on Earth.
+- A country the size of Brazil can't be held back by Mercosur to do trade with the rest of the world.
+- We seek to better integrate Brazil into the world... and eliminate unfair trade practices and uncertainty for foreign trade flows.
+- We want democracy and peace.
+- We are the true Brazil.
+- In Jair Bolsonaro's Brazil, those who disrespect the law will feel the weight of that very same law.
+- I vote for every privatization bill that I can. It is the Left that opposes privatization. They just want to preserve their government jobs.
+- Let's be proud of our homeland once again!
+- I believe that a strong man makes a strong country.
+- Every honest citizen, man or woman, if they want to have a weapon in their homes - depending on certain criteria - should be able to have one.
+- I know what hierarchy and discipline mean. Without those, we will never have order and progress.
+- We distrust the electronic vote here.
+- Because women get more labor rights than men, meaning they get maternity leave, the employer prefers to hire men.

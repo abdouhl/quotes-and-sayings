@@ -1,0 +1,106 @@
++++
+author = "Jeffree Star"
+title = "Jeffree Star Quotes"
+quotes_len = "100"
+description = "the best 100 Jeffree Star Quotes"
++++
+- I love tie dye, metallic, and anything that stands out in terms of fashion. If it is fun and unique, I am into it... especially if it has aliens on it!
+- I always keep a damp beauty blender and a powder compact in my purse, and I touch up a lot.
+- The cat eye is one of my favorites to rock because you can do so much with it from a thicker, bold look to the thin, simple black line. I sometimes even step it up a notch by adding colored liner or glitter to keep it fun and unique!
+- It's always so much fun playing with makeup and meeting my incredible fans.
+- Whether you are seeing family, a dinner with your friends, or meeting new people for the first time, you should still have fun with your look!
+- I'll date whoever is attractive, as long as it's a man. But I'll be like Katy Perry from time to time and kiss a girl.
+- I used to be really shy, and I think something happened in my brain where I was like, 'All right, I don't care anymore. I'm just going to be myself.' So I went to school wearing eyeliner and eye shadow, and they called my mom, telling her it was a distraction. My mom fought the school, and I got to wear makeup every day.
+- I know it sounds so dumb, but when you've had pink hair for 12 years and take that away, you're looked at in a different light.
+- Heels, and shoes in general, are such an easy way to complete any outfit and give it that little bit of flare or edge you want.
+- 'Jeffree Star Approved' is copyrighted in America.
+- I have porcelain skin and tattoos all over my body, so the sun can be my worst enemy. I also am trying to never age, which is why you can always find me hiding behind massive sunglasses or under an umbrella when the sun is out!
+- When you have no fear, the possibilities are endless.
+- My mom used to be a model.
+- You know me: I'm always down to be brutally honest.
+- It's been a dream of mine since I discovered my first lipstick to create and own my very own brand. My goal is to create products that do exactly what they say and that actually last!
+- Some people, like myself, rock colored contacts, crazy hair, and black all year round.
+- NYFW is not just about the designers and the runway. It is a massive production from the celebrities in attendance, the assistants backstage prepping the models before they walk to the epic after-parties!
+- I would rather just be successful and have money than be famous.
+- I have been getting glitter-dipped nails for ages and love them.
+- I knew I was gay since, like, fifth grade.
+- I have to admit that most of what I wear on the daily is all black.
+- I've used the Internet since I was in high school - it was my tool for self-promotion.
+- I am absolutely in love with platforms and platform sneakers.
+- Even if I'm in a movie theatre, I'll touch up an hour into the film because I know I could be a little shiny.
+- The past can never be erased. It is always going to be there.
+- Blush pink is a timeless, classy, and soft color that all of us can rock any time of year!
+- I like to always be as productive as possible.
+- I love seeing fashion from the past making a comeback.
+- So many people always fear tattoos because they don't want to limit themselves from certain jobs. I clearly never let that stop me and just got covered head to toe.
+- My face doesn't sweat, and my body never really ever sweats.
+- I love lips, so I wanted to make the most lightweight liquid-to-matte lipstick on the market!
+- Don't get me wrong: not all camo is trendy or cute. The right camo and camo shades, though... perfection.
+- I love nail art and anything that sparkles and grabs attention.
+- I never dreamt of being a pop star or being on stage - makeup was always my true passion.
+- Fake eyelashes are a great way to step up your look to the next level.
+- I used the Internet as a vehicle to get places not many people did before.
+- I think a lot of people are too safe in the makeup industry.
+- I am such a huge Spice Girls fan: always have been and always will be.
+- Having a good brow can totally brighten your face and give you more of an expressive, youthful look!
+- I've been rocking these brows and crazy hair since I can remember.
+- My mum had 'Cosmopolitan' magazine as a subscription and 'Vogue,' and every month I would be like, 'I wanna be that girl in that ad.'
+- I think a lot of brands are scared to put out wild shades, but I love that.
+- Skin care is so important, and I'm the craziest person about it.
+- Negative or positive attention - I think it's all great.
+- I shaved my eyebrows in 10th grade.
+- I can go from wearing Jordans and Toms to platforms and heels; it just depends on my mood.
+- Tatttoo concealers can cover almost every tattoo on your body if you do it right.
+- Besides makeup, my other passion is music.
+- I love doing photoshoots; it let's me really show off my personality, flair, and makeup within a photo.
+- When you're from Cali and it's always sunny, you kind of want some rain.
+- I didn't want to sit around and wait for someone to discover me, so I created my own self through the Internet.
+- Red lipstick has always been a classic. You have seen the red lip on people from Marilyn Monroe to Marilyn Manson. The right shade of red can turn a boring look into a bold, eye-catching statement.
+- I think being authentic online and living my life so openly allows people to actually relate to me.
+- I'm blessed to have a family that always supported me being me.
+- Ever since I can remember, I hated silence. I wanted it filled with guitars and melodies to sing all day.
+- Everyone is so into labeling themselves. I don't really put too much into that.
+- I always knew I was different than everyone else, and smarter.
+- Celebs most likely pay someone to do their makeup for events, shows, red carpets, etc. My mind is blown sometimes when I see some of the horrendous contour or the uneven foundation.
+- Seventh grade was the first time I dyed my hair, and I went to school with red and black stripes, so I looked like a zebra.
+- I'm in a unique position, reviewing products for a living, as well as having a successful cosmetics company.
+- I'm just Jeffree. Everyone calls me he/she/whatever they want to call me; I'm an alien.
+- I can't just say everything that I feel because, at the end of the day, I am a product.
+- I was the first one to have high-speed Internet before all my friends.
+- Gender is irrelevant, and if you love somebody, you love somebody.
+- I love wearing black, especially leather or even faux leather! It just adds edge and a sense of class and maturity to your outfit!
+- Music is really important to me; Kurt Cobain is important to me. Hearing Nirvana was pretty life-changing.
+- I have evolved over the years, just as we all have, but I definitely have stayed true to who I am.
+- My past has been recorded, it's been videoed. It's been exploited all over the Internet.
+- I am a huge fan of Nirvana and always will be.
+- Halloween is all about being bold, daring, and creative! You get to be someone else for the night thanks to makeup and a costume. I pretty much do that on the daily, so I am not that big on Halloween, but I do appreciate a good costume and some incredible makeup.
+- I've worn makeup for so long, my skin needs it.
+- Getting to see new places, their culture, and getting away from what I am used to is so rewarding.
+- I feel like with the whole Internet era, people can be so judgmental and evil online.
+- Me being nice or positive is not what people want to hear, which sucks.
+- It takes a lot of guts to put on a face full of makeup, being a male in the world where a lot of people still think that cosmetics are only for women.
+- Barbies, nails, and fashion - I'll take everything in baby pink, please.
+- If you go to my shows, 90 percent of my fans are females between the ages of eleven and eighteen. People look at me like a living mannequin; all of these girls want pink hair. They want the cool makeup and contact lenses and cool clothes.
+- I have over seventy tattoos.
+- If you click on MTV, it's the same 10 bands and the same 10 songs, and it gets so old. Kids are looking for something besides what they get on the radio.
+- I love trying new things but, of course, love sticking to the classic makeup looks.
+- Pink is my go-to color, which is why I have had my hair pink for years, on and off.
+- Color is key to making your makeup pop and have your unique look stand out amongst the rest.
+- You really just can't go wrong with a classic red lip.
+- I was someone that loved to seek attention when I was younger.
+- All of the love and support I have gotten about the release of my Jeffree Star Cosmetics line has made me blessed beyond words.
+- Pink looks good on everyone.
+- I didn't even know about guys wearing makeup, like David Bowie and Boy George. When I was really young, I wasn't into that - I was into Britney Spears.
+- Most of my fans are really young, and they feel like they've discovered me.
+- Highlight and contour are two major steps in getting the 'perfect' beauty look.
+- I sometimes rock crazy shoes or a bright jacket, but my go-to is typically black, head to toe... minus my hair and makeup, of course!
+- I used to copy looks from fashion ads in my mother's 'Cosmopolitan' magazines and steal her eye shadows.
+- You can dress down or dress up anything simply by what footwear you rock.
+- Growing up, me and my mom never really talked about me being gay.
+- Believe in yourself, and don't let anyone stand in your way.
+- I have Louis Vuitton everything. I'm obsessed.
+- In just a few years, I have turned my small company into a multi-million dollar makeup empire.
+- I love leather vests and jackets, black leggings, black lips.
+- I clearly love colors in my hair and try to keep my hair evolving through the years.
+- If you wear bold, bright clothes, you can't have a bad day!
+- Finding a picture of me without makeup is like trying to get the last Gucci bag at Neiman Marcus: not gonna happen.

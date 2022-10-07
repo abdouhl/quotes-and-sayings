@@ -1,0 +1,21 @@
++++
+author = "Monica Keena"
+title = "Monica Keena Quotes"
+quotes_len = "15"
+description = "the best 15 Monica Keena Quotes"
++++
+- I read. It's also nice for me to get involved in schoolwork, which is a totally different world than acting. It makes me feel like I am doing things that normal people are doing at my age.
+- I used to do kickboxing, because I liked the cute outfits.
+- Yoga's an amazing release.
+- I don't like the dark. I really am afraid of the dark.
+- I love playing different characters all the time, so I'm concentrating on doing other stuff.
+- I like somebody who makes me laugh. He's also got to be prepared - I'm sort of a loose cannon, in a good way. I also like people who disagree with me and make me work to prove my point.
+- I love being with my family, my friends, and my boyfriend.
+- I think everybody's always attracted to both sexes. I mean, I think that women are very attractive. I've kissed girls, but everybody experiments. It's part of growing up.
+- It's pretty overwhelming to know that people can call up Moviefone and find out where it's playing.
+- I'm the biggest slob in the world. My apartment is a mess.
+- I think what sets this one apart is that there are two horror movie icons finally battling each other. You actually see them beat the crap out of each other instead of just terrorizing the kids in the movie.
+- I look really young. I always get carded at bars. No one believes that I'm over 18, let alone over 21.
+- I would say I think Jason is going to lose and Freddy will win. I don't know why. I just feel that Freddy is more maniacal and thinks more than Jason does.
+- I've done yoga, and I want to start Pilates soon.
+- I'm kind of an insomniac and watch TV late at night.

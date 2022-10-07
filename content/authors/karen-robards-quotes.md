@@ -1,0 +1,26 @@
++++
+author = "Karen Robards"
+title = "Karen Robards Quotes"
+quotes_len = "20"
+description = "the best 20 Karen Robards Quotes"
++++
+- My books are about ordinary people caught up in extraordinary situations.
+- I love 'The Guardian' series. Bianca St. Ives is one of my favorite heroines ever, and the combination of action, suspense, and romance makes her story pure fun to write.
+- My method is, I just sit down and write a book.
+- Books are still my favorite present.
+- When I was in law school, there was a used book store nearby. I picked up a Harlequin romance and read it. It was stress relieving.
+- My orange Persian Mews hangs out with me while I write.
+- My parents did not encourage romances.
+- The year I turned 16, I spent the weeks before Christmas dropping hints to my parents about how much I wanted - no, needed - my own transportation.
+- I came out of what we romance writers call The Romance Ghetto, because we get so little respect.
+- I didn't know how to be a writer. But I thought, 'I can do this.'
+- I write the best book that I can write each time.
+- I was in law school at the University of Kentucky and realized I didn't really like law school, so I took a creative writing course for something different.
+- I grew up with three little brothers. Every Christmas, we'd have piles of toy trucks and Lincoln Logs and G.I. Joes under the tree. Those were for them. For me? My No. 1 favorite present of all time: books. Two or three tall stacks of wonderful stories that I could lose myself in for weeks.
+- The good romances are as good as anything.
+- I haven't always felt it was okay to read romance novels. When I was younger, it embarrassed me to be seen with my books, but I've come out of the closet.
+- I start writing with only the vaguest idea about who my characters are and what is going to happen, and the characters and plot come into existence as I go. I've tried doing it the other way, but for me, outlining is a waste of time because I never follow the outline.
+- For Christmas 1999, my husband surprised me with a trip to Disney World. Along with our boys, we were standing on the roof of the Contemporary Hotel at midnight on New Year's Eve 2000 watching fireworks explode over every amusement park in Orlando. It was a magical way to celebrate the millennial, and a never-to-be-forgotten Christmas present.
+- I write to please me, and I've been very lucky. It's like playing baseball. You just keep swinging, and eventually you get a hit.
+- To move up to hardcover is a way of getting more attention for my books. It means a lot to me: It means my books are legitimate.
+- I thought I was too intellectual to read something like 'Sweet Savage Love.'

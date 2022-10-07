@@ -1,0 +1,53 @@
++++
+author = "Jonathan Franzen"
+title = "Jonathan Franzen Quotes"
+quotes_len = "47"
+description = "the best 47 Jonathan Franzen Quotes"
++++
+- The real pleasure in writing this, for me, was discovering how little you need.
+- But as far as being popular, yeah, I think Dave Barry is really funny.
+- The Mekons were kind of like the background music of my life.
+- I hate Whole Foods.
+- It's just a matter of writing the kind of book I enjoy reading. Something better be happening at the beginning, and then on every page after, or I get irritated.
+- If you have not had direct firsthand experience of loving a category of person - a person of a different race, a profoundly religious person, things that are real stark differences between people - I think it is very hard to dare, or necessarily even want, to write fully from the inside of a person.
+- For most of my life, I didn't pay attention to birds.
+- I feel as if I'm clearly part of a trend among writers who take themselves seriously - and I confess to taking myself as seriously as the next writer.
+- I think cultures of conformity produce vast quantities of shame, both in people who simply can't conform and people who do conform, but underneath, they're not feeling conformist.
+- And Silence of the Lambs is a really smart book.
+- Manhattan is just all bank branches.
+- We may freak out globally, but we suffer locally.
+- I was about 13, in some ways, when I wrote the first book. Approximately 18 when I wrote the second.
+- Most of the people who have complaints with me aren't reading me.
+- To read is to have experiences; every book changes my life at least a little bit. The first time I can remember this happening was when I was 10, with a biography of Thomas Edison.
+- There used to be rather serious firewalls between the artist and the buying public - the gallery, the publisher. And technology demolishes that wall and basically says, 'Self-promote or die.' And that is a bad head for any sort of artist to be forced into.
+- It seems to me self-evident that if you have a life, things happen in it, and certain things do change; certain things end. People you know die.
+- 's one of the perversities of the age: I'm embarrassed by its success, but I'm happy it's selling.
+- The radical otherness of birds is integral to their beauty and their value. They are always among us but never of us. Their indifference to us ought to serve as a chastening reminder that we're not the measure of all things.
+- If you're interested in how people behave, if you're interested in the way they talk about themselves, the way the conceive of themselves, it's very hard to ignore drugs nowadays, because that is so much part of the conversation.
+- I was unwise enough to actually mention this in public a few times, and in fact to point out that there were two versions of the book now. One of them had somebody else's name on the cover, one had my name on the cover.
+- I'm a poor person who has money.
+- When I finally gave up any hope of doing anything representative of the American family, I actually seemed to have tapped into other people's weirdness in that way.
+- I don't dislike people; I love people.
+- It's not surprising to see in my own work, looking back, and in the work of some of my peers, an attention to family. It's nice to write a book that does tend toward significance and meaning, and where else are you sure of finding it?
+- I'm not a sexist.
+- I look at my father, who was in many ways an unhappy person, but who, not long before he got sick, said that the greatest source of satisfaction in his life had been going to work in the company of other workers.
+- I wrote two plotted books, got some of the fundamentals of storytelling down, then... it's sort of like taking the training wheels off, trying to write a book that's fun in the same way without relying on quite such mechanical or external beats.
+- One reason that birds matter - ought to matter - is that they are our last, best connection to a natural world that is otherwise receding. They're the most vivid and widespread representatives of the Earth as it was before people arrived on it.
+- I am not somebody who goes around saying men are superior or that male writers are superior. In fact, I really go out of my way to champion women's work that I think is not getting enough attention. None of that is ever enough. Because a villain is needed. It's like there's no way to make myself not male.
+- I'm not fussy about my food.
+- I don't even read positive reviews unless they are absolutely certified by eight different people to not contain one thing that could upset me.
+- The technology I like is the American paperback edition of 'Freedom.' I can spill water on it, and it would still work! So it's pretty good technology.
+- I hate the word 'partner' so much.
+- I hate that word dysfunction.
+- I don't think I could live with someone that I didn't have an intellectual friendship with.
+- A big part of me would be very proud never having anything of mine adapted, because if you want the real experience, there's only one way to get it. You're going to actually have to be a reader.
+- I really enjoy doing both, but I didn't write nonfiction until 1994.
+- I defy anyone to finish Halldor Laxness's 'Independent People' without wetting the pages with tears.
+- Only in my 40s did I become a person whose heart lifts whenever he hears a grosbeak singing or a towhee calling, and who hurries out to see a golden plover that's been reported in the neighbourhood, just because it's a beautiful bird, with truly golden plumage, and has flown all the way from Alaska.
+- 'The Man Who Loved Children,' Christina Stead's masterpiece, remains the most fabulous book that hardly anyone I know has read.
+- I voluntarily inflicted a certain level of insanity on myself.
+- It's very liberating for me to realize that I don't have to step up to the plate with a plot that involves the U.N. Security Council.
+- I was a late child from my parents, so I grew up surrounded by people a lot older than me. I think even when I was 21, I felt like I was a 70-year-old man.
+- I had a brief period of questioning whether I should perhaps adopt a child. And my New Yorker editor, Henry Finder, was horrified by the notion.
+- I know what paranoia is like. I know what it is like to worry about what people are saying about you and become obsessed with what people are saying about you.
+- I used to think it was hard to write, and I still find the process more or less unpleasant, but if I know what I'm doing it rattles along, then the rewrite whips it into shape rather quickly.

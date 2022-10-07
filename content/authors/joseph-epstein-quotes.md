@@ -1,0 +1,29 @@
++++
+author = "Joseph Epstein"
+title = "Joseph Epstein Quotes"
+quotes_len = "23"
+description = "the best 23 Joseph Epstein Quotes"
++++
+- The decisive moment in the defeat of upper class, capital-S, Society may have come when, in newspapers all over the nation, what used to be call the Society page was replaced by the Style section.
+- I am the heterosexual Truman Capote.
+- I know how many days in which I have just answered e-mail, had three phone calls and a two hour lunch. Poof, gone. They are not infrequent.
+- I myself think anti-Semitism is about envy.
+- No one has really ever defined what a friend is.
+- Of the seven deadly sins, only envy is no fun at all.
+- One serious drawback about letters is that, in order to get them, one must send some out. When it comes to the mail, I feel it is better to receive than to give.
+- We know the ideal isn't where the action is.
+- I know from the middle distance I give off the look of being prolific, which is a funny compliment to receive.
+- Envy is never general, but always very particular - at least envy of the kind one feels strongly.
+- In recompense, envy may be the subtlest - perhaps I should say the most insidious - of the seven deadly sins.
+- Culture means, I think, that you have widened your experience enough through reading and through being a little bit thoughtful about these things that it has changed your outlook in some ways. And not necessarily made you a better human being but made you see things.
+- I think the story is my form.
+- The pleasure of jogging and running is rather like that of wearing a fur coat in Texas in August: the true joy comes in being able to take the damn thing off.
+- I just know so many people who have six or seven foreign languages and have read everything and have musical training and they are still dorks.
+- Not to like ice cream is to show oneself uninterested in food.
+- I am married to someone I love.
+- I am basically a complainer and all the grounds for complaint have been swept out from under me.
+- By the way, the secret of speaking French is confidence. Whether you are right or wrong, you don't hesitate.
+- I should prefer to die laughing, and, on more than one occasion, thought I might.
+- I know how deeply slothful I am.
+- My wife who is non-Jewish regrets it all the time that I can say these terrible things about fellow Jews and she can't.
+- One of the pleasures of being a Jew, I don't have to tell you, it allows you anti-Semitism.

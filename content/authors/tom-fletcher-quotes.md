@@ -1,0 +1,106 @@
++++
+author = "Tom Fletcher"
+title = "Tom Fletcher Quotes"
+quotes_len = "100"
+description = "the best 100 Tom Fletcher Quotes"
++++
+- In late 2011, I watched a documentary by Stephen Fry called 'The Secret Life Of The Manic Depressive.' He shared his story of bipolar disorder and depression, and it sounded exactly like me. I just cried.
+- Going to Africa to highlight the plight of kids with AIDS and HIV made us realise just how lucky we are.
+- I think it doesn't really matter what you do for a career, that breakfast routine - get the kids ready, off to school and out the house - if you can have something in the fridge that you know and trust, and that you know your kids enjoy it then it makes your life so much easier.
+- Fame is not all it's cracked up to be, and I felt self-conscious in the public eye.
+- As a parent I know how challenging it can be to identify the right books and how rewarding it can be when you do find the right fit.
+- I'm the least rock'n'roll person ever.
+- Ever since I was a child, I've always been highly emotional. I'd feel excited one moment, then the polar opposite the next.
+- I love being a hands on dad I can't imagine it any other way.
+- I've spent a lot of long car journeys listening to audiobooks, so I know firsthand just how amazing they can be.
+- I hate the idea of parenting being this false perfect picture. It's challenging and difficult at times. I like the fact I can be honest about that and people seem to respect that.
+- What my wife and I love so much about reading with our children is that we are given a better understanding of them, as we see what they connect with.
+- Musically, I feel like the band was always my outlet.
+- Being able to build with my kids using my own Lego pieces that I've had for over 30 years combined with their new sets, that's really special. I can't think of anything else that was part of my childhood and now part of my parenthood.
+- We live in an age where kids are so familiar with screens, I wanted to show that with a little imagination a book can be just as interactive.
+- I hate the idea of having to conform with what's current and what sounds good on radio at the moment.
+- I'm really lucky that I grew up in a house full of books.
+- Whenever I leave 'Strictly' I want to be able to touch my toes.
+- Even at a McFly show, if I don't have a guitar for a few minutes... and suddenly being on my own, without my band mates and on the dance floor with no instrument and not singing, it will be absolutely terrifying.
+- Doing that on my own, the idea of touring on my own does not excite me very much.
+- After we covered Queen's 'Don't Stop Me Now,' Brian May and Roger Taylor sent us a bottle of champagne and asked us if we'd sing it on stage during the 'We Will Rock You' musical on what would have been Freddie Mercury's 60th birthday.
+- I'm just a bit awkward, but people think I'm rude.
+- Parenthood helps you be less selfish, because you don't care about anything as much as you do them.
+- If there's an Italian in the kitchen, let them get on with it.
+- It's a strange kind of responsibility being in the public eye and having people who follow you and admire you.
+- I think I do a lot of things averagely. So I have to combine them. It looks impressive but actually I don't think I excel at any of them.
+- You only do 'Strictly' once, and I don't want to have to worry about competing with Harry Judd!
+- When you become a parent, you're the responsible one and when there are noises around your house, you'rethe one that has to get out of bed and check it out. Before the children came along, I would have sent my wife to go and check out what the creak was.
+- I absolutely love being a dad.
+- I genuinely didn't start sleeping properly until I had kids of my own. And then that was just sleeping because of exhaustion.
+- We want to get our music out to the widest audience possible and working with a massive paper like The Mail On Sunday will definitely help us achieve that.
+- Being in a band is the best job in the world!
+- Ireland's always been good to us. We always get nostalgic when we play there because it was the very first proper show we did.
+- If you're in a band, social media has to be a huge part of your life.
+- Our first ever live gig was in front of Buckingham Palace, an Olympic event attended by some of the royal family, and we had to follow James Brown.
+- I wanted to lose weight, but rather than going about it the sensible way, I pretty much stopped eating.
+- When you look back the stuff that means the most to you is just being with your mates and having fun.
+- I didn't enjoy studying for my A-levels, so didn't really want to go to University to do something overly academic, and when I saw that Creative Writing was an option, I suddenly realised that it was something I could try to do.
+- I can dad dance.
+- My dad worked 12-hour shifts in the Kodak factory - I remember creeping about when he was on nights - but he was also lead singer in a band playing in British Legion and working men's clubs. My earliest memories are of being sat at the back of a pub, falling asleep on the bench while my dad played.
+- I've always been scared of the dark and aliens and monsters and things like that.
+- My career as an author began as I saw it as a natural progression from music, as both music and books are a method of storytelling.
+- My nan and grandad were really important. They took me to school every day. I couldn't have gone to theatre school without them because my parents had to work - there wasn't much money.
+- I am not flexible.
+- My dad used to tell me stories about aliens and UFOs when I was a kid and I was fascinated by science fiction and aliens.
+- My dad worked for Kodak and was made redundant when I was about 14. Despite this, my parents did everything they could to help me and my sister do what we wanted to do.
+- I had a really happy childhood.
+- You can't help but be affected by anything negative that's written about you, even if you can shrug it off.
+- I always knew, deep down, that I'd love to be an author, but I don't think I really thought about trying to do it seriously until it was time to leave school and consider what I'd do next.
+- Some songwriters have never been in a band, but the One Direction guys can relate to me, as I've been through the same kind of experiences as they have.
+- If the Fletchers are fed, the Fletchers are happy!
+- Dancing every day certainly gets you into shape.
+- I'm really just a big kid!
+- I think we had a really nice level of fame.
+- I was nearly in Busted.
+- I think a lot of the big companies need to be more conscious about the way they make their products. Fewer ingredients that are labelled really clearly, so you know exactly what's going on inside the pot.
+- It's not just about telling your kids what food is good for you, its about actually saying to them you're doing this because... or if you eat this before you go to football later it'll help you run even faster.
+- I'm not really looking forward to getting old.
+- I love being a dad.
+- We naturally are getting older and one of the beauties about being in a band is it keeps you feeling young.
+- I hated seeing myself on TV.
+- It's hard not to use cliches when talking about parenthood.
+- Being a dad you realise that it's not about you any more. All the cliches are true I think.
+- Without McFly, who are we? Trying to find out and pretend you're happy with that new version of you was really difficult.
+- All the stuff we have to edit out of our music, we put in our kids book.
+- It's always been important to involve my family as I knew when I signed up to 'Strictly' that it can take over your life.
+- My wife's Italian, so pasta is a go-to for my eldest - he loves a good pasta. My middle child is a scavenger, he'll just eat whatever.
+- I never think about the message I'm putting across in a song.
+- When Giovanna was pregnant with Buzz, I was searching so much on what it's like to be a dad. If I can provide any insights that's obviously a really good thing to spread.
+- It's only after the first six months that it really becomes fun for dads.
+- One of the things I love most about being in a band is being with my friends.
+- I've always felt like there'd be pressure if I ever did 'Strictly.'
+- I'm such a crier.
+- I literally asked Giovanna to be my girlfriend the day I met her when she walked into assembly when we were 13, literally straight away.
+- I always wanted to play Marius in 'Les Miserables,' I actually got offered the role but I had to commit to do it for six months, and as that meant I wouldn't have been able to tour with McFly I turned it down.
+- My all-time favourite children's book is 'Green Eggs and Ham' by Dr Seuss. Even as an adult I still appreciate it - what a masterclass in writing.
+- Being famous for being famous isn't our scene.
+- We never expect to go to No 1 - though of course we always hope to.
+- I enjoyed writing stories whenever there was call to do it at school, and started writing bad poetry when I was doing my GCSEs - like most people, I think.
+- Having a kid has really helped me in my life. It gives you a sense of needing to be stable. It's not about you any more, it's about this child that you've decided to bring into the world.
+- On stage, I have my three band mates and my guitar in front of me, and mic stand and that's like your shield - it's genuinely amazing what having an instrument does for you, it's like your safety blanket, taking that away is really weird.
+- It's by far the most challenging responsibility I will ever experience but it's such a huge privilege being able to be a father.
+- It's very useful to be able to look inside the mind of a seven-year-old when you're writing for youngsters that age.
+- There is no shame in therapy, no shame in seeking help.
+- I can say without doubt, that reading has had a huge influence on my life.
+- Although I started writing children's books before I had kids, my approach changed after I became a dad.
+- I love reading interviews that we've done and seeing how we come across, and thinking, 'Mmm, maybe we shouldn't say that again.'
+- I'm the least sociable person ever.
+- We wanted to write a book that we would have read as kids, and would love to read to our children.
+- I'd go to Starbucks and order a frappuccino and blueberry muffin and that was me for the day. Not only would I beat myself up internally if I consumed anything else, I'd be in a foul mood if we were working somewhere there was no Starbucks. It was an obsession - and a deeply unhealthy one.
+- If you are not able to look after yourself, you are not able to look after your kids.
+- We had absolutely no experience in writing kids books and its a very competitive market. But we buy and read a lot of children's books and we felt that our books had that extra something we were always looking for.
+- If it wasn't for musical theatre I wouldn't have met my wife, McFly wouldn't exist, none of it would have happened.
+- I've always loved reading, and as a child I used to try desperately to write books like the ones I read.
+- Setting up our own label allows us to rip up the rulebook and find new ways of reaching an audience.
+- I Google McFly a lot, once a day, to see what people are writing.
+- We're not idiots.
+- I am the last person on the dance floor at a wedding, I am the person that awkwardly hangs around the edge and says no unless they've had a few glasses of wine.
+- At my heaviest I was about 13st 7lbs.
+- It's hard when you're writing for someone else. You obviously always want to do your best work, but sometimes you write and have a song idea and you're like, 'Oh, it's so good I want to keep it for us.'
+- My parents made reading fun for me as a kid and that's stayed with me my whole life.

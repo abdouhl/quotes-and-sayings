@@ -1,0 +1,106 @@
++++
+author = "Abhijit Banerjee"
+title = "Abhijit Banerjee Quotes"
+quotes_len = "100"
+description = "the best 100 Abhijit Banerjee Quotes"
++++
+- Our democratic culture does not prioritise protecting an individual's right to live life her way, especially if that is not our way or the way of the community.
+- Celebrate the excitement of trying build something new and wonderful.
+- For me, psychologically, I am very much an Indian.
+- What's nice about experiments is that they are much more closely tied to what theorists think about the world than normal empirical research. You can design your experiment to exactly ask the question you want to ask. This is not true about normal empirical research.
+- You have to take it seriously that the economy is in crisis.
+- If you are a natural scientist, a publication the journal Science carries enormous prestige.
+- The world's poorest people use the cheapest available fuels - dung and twigs and even leaves.
+- I am not partisan in my economic thinking. We work with any number of state governments, many of which are BJP governments.
+- To insist that no one can support the interests of the aam aadmi without being one himself is like saying that no man can support women's rights.
+- Mass protests often get books or films banned, but very few people take to the streets to challenge the right of the State to decide what we can read or watch - it's still someone else's problem.
+- I was an Indian with zero sense of caste till I was 20. That's an unusual privilege but it came out of the fact that I was a middle-class Bengali.
+- I think when I say my county, it is always India.
+- Policy change is nothing if it's not patient work.
+- Investors don't like being in a world where everything is held up by and waiting for an approval from a very small number of people.
+- Climate change is something that we cannot fix alone - it is the original collective action problem - it will not work unless almost all the large economies of the world act together.
+- I will confess that in general decisiveness worries me; it is often an excuse for being impatient with the details or insufficiently sensitive to other people's concerns.
+- There is nothing remotely dignified about sorting through rotting trash to find something to feed your child, or asking someone for money because you have none (anyone who has contrived to give people money before they had to ask will never forget the look of gratitude in their eyes).
+- The investment climate in Gujarat under Modi has been very supportive of business interests; but it was the same under the Congress governments that came before him.
+- Healthcare expenses often wipe out families.
+- I'm not an early morning person.
+- My guess is that while the elites would like cleaner air, they are not willing to give up the convenience of being able to use their cars at will to get it, perhaps because they believe (I suspect incorrectly) that they can protect themselves from the consequences of vehicular pollution by investing in air-conditioners and air purifiers.
+- If democracy is to be an articulation of mutual respect, a leader in a democracy leads by showing respect to all.
+- The degree of political pressure to make MGNREGA jobs available varies massively from state to state - which is why access to MGNREGA jobs is worse in a very poor state like Bihar than in a richer state like Andhra Pradesh.
+- I was trained as an economic theorist; my job at MIT was as an economic theorist. At some level that's still part of my identity.
+- Even Milton Friedman - doyen of radical free market thought - was willing to consider some government intervention into primary education on the grounds that it is unfair for children to not get a chance in life because they were born to poor parents.
+- One problem with globalisation is that bad ideas seem to travel faster than good ones; first there was smearing tomato ketchup on everything; then drinking sugar-soaked cocktails ('Cosmo'-politanism) instead of our traditional whisky soda, and now this idea that we should abandon the poor to their fate in order to protect their dignity.
+- The first time I went to the Planning Commission was when it was under KC Pant, a long time ago. Since then I have been back there many, many times to the point where the many people who seem to spend their lives sitting outside the various offices and even the patches of grime in the hallways and stairwells began to look familiar.
+- Like many free market economists, with whom he had little else in common, Nehru seemed to believe that people will find a way to get their children educated.
+- I am no Rushdie. The only people who think of silencing me are my students, on days when my lectures are more opaque than usual.
+- Most farmers know that their children's future will probably not be in agriculture, but they have a hard time imagining a different life.
+- There is no doubt that in the last years of the UPA's rule, a certain lethargy had set into the way the central government went about its business.
+- In the development business doing something for both women and the environment is the equivalent of holding a royal flush in poker.
+- I have learnt an enormous amount from talking to people on the ground.
+- I have always found it difficult to wrap my head around population policies.
+- The tragedy of the UPA is not that it didn't do anything, but that it is not able to take credit for what it has done. By staying silent when it should have been shouting from the rooftop and by protecting the guilty, it surrendered the governance agenda to AAP.
+- We will remember UPA 2, if at all, it seems, as that period when things went mysteriously wrong - for the bribe-taking, buck-passing, foot-dragging, and general sense of paralysis.
+- My sense of my own superiority over many of my classmates would have been much more muted if I knew that they had seen me failing miserably at woodwork or cross-stitch.
+- Public conversations about who we are and who we want to be are key to the vitality of our democracy, and leaders can seed those conversations when they speak out their own views.
+- A universal cash transfer in the form of a minimum guaranteed income would mean that automatically everyone has something to fall back on without having to deal with the vagaries of their local panchayat.
+- One great pleasure of being an academic is the ability to trade in ideas with your colleagues and students; it is not much fun being the only connoisseur of some fine point.
+- The AAP was not the first group of well-meaning outsiders in politics.
+- The problem of getting from home to the metro, BRT or bus stop makes many people take their cars to work. Why not start a fleet of electric buses that just circle through neighbourhoods connecting them to the various public transport hubs?
+- Corruption is a huge problem and the poor and the powerless are often its most egregious victims. But it is not an accident that the most effective bureaucracies in the world rely much more on internal controls rather than on independent ombudsmen.
+- The AAP from the beginning made it clear that they were about changing policy and not being a symbol of purity in a corrupt world.
+- When I was a graduate student, I actually took a course in development economics and I thought it was the most boring thing in the world.
+- Anyone who has a child knows the importance of not over-playing your hand. He was up all night playing some game on his smartphone and you feel like saying that if it happens again the phone is gone. Forever. Till he is old enough to buy his own. Till then he can have your old Nokia.
+- Independence day is an interesting time to reflect on our strange fealty to institutions that the British left us, including those that were explicitly set up to be used against us.
+- If people don't want blue-collar work, our labour costs will remain high and our competitiveness low.
+- If democracy as we know it has to survive the elites have to regain their credibility. And they have to start by admitting that their economic model is broken.
+- I mean, I think it's a two-way relationship: I think you should not have too much faith in your own rationality. You should not have too much faith in the rationality of, you know, anybody else either. We all learn together about the way the world is, and I think it's a sort of antidote to wishful thinking of all kinds.
+- One does not have to agree with his views to be intrigued by the possibilities opened up by Prime Minister Narendra Modi's emergence as communicator/harangue-master in chief.
+- It is possible that Modi sees his life as evidence that hard physical work can triumph over every disadvantage, but if so, most of us Indians do not share his faith.
+- I was very lucky to be born into a very academic family. I was well-read, well-trained in mathematics. I had lots of advantages to start with.
+- We might think we are very different from Pakistan but we are not; we are the same people, with the same capacity for warmth and passion and intolerance and violence.
+- Mamata Banerjee and Narendra Modi, the ultimate didi and dada of Indian politics, should really commiserate.
+- Students often say things that they will one day change their minds about, but also things that change our minds when we think about them.
+- If you want to leave move money in the hands of poor people, you cannot do it through personal income tax cuts. You have to just give them money.
+- Here is an entirely banal idea that I think has the potential to change the world: Take evidence seriously. Taking evidence seriously does not mean privileging numbers over all other forms of knowledge - theories, narratives, images. Nor does it mean the kind of radical skepticism that questions everything to the point where no action is possible.
+- It is undeniable that the looming environmental crisis is partly the consequence of population growth.
+- Every nation necessarily inhabits a morally compromised space. All too often our ideals seem to be held to ransom by what we believe, rightly or wrongly, to be objective reality.
+- Jawaharlal Nehru did a huge amount for education in India.
+- What makes a leader great is not the fact that she (or he) has all the answers, but the ability to inspire and empower us to find the answers.
+- If there can be films about why hockey (and not just cricket) is cool, there can be a film or two about the virtues of honest, hard work.
+- The BJP must nurture the institutions that put credible checks and balances in place.
+- People who live inside garbage piles - that should not be happening.
+- Gujarat is a pro-business state, where civil society organisations are comfortable with working to make sure that business does not suffer. Large parts of the rest of India, for better or worse, are very different.
+- Partly, identity politics is a result of economic failure.
+- Most economies have a fair amount of tax evasion, depending on how their data systems are.
+- Insurance is important for protecting the health of people and Ujjwala is quite useful to low-income women.
+- One advantage of not being in power is that we can dream of reshaping the world exactly as we please.
+- Will we make all poverty history? No. But can we solve some of these extreme and egregious forms of poverty? I think yes, and we should.
+- It is absolute poverty that you could end, but I think relative poverty is a whole other issue.
+- In terms of being a professional, I want to be professional with everyone.
+- You don't boost growth by cutting taxes, you do that by giving money to people.
+- In my own work, I have written about how our public sector bank officials avoid making any new lending decisions - because lending always exposes them to some (infinitesimal) risk of being blamed for the loan going wrong.
+- Celebrate creativity and confidence in the face of adversity.
+- If the BJP government, like the Congress party, had asked what were the numbers on the fraction of people under a particular income, would I have not told them the truth? I would have told them exactly. I would have been as willing.
+- Whenever we try something new, mistakes will happen. Seemingly good ideas will fail and need to be re-thought.
+- The poverty line in the U.S., for example, has nothing to do with the poverty line in India. It is a relative poverty line. It is reset from time to time but it is related to U.S. median income, so if I set that to be the absolute poverty line everyone in India would essentially be poor.
+- We need to learn to work with political systems that are not perfect instead of taking the view: let's first fix the politics, then we'll fix the rest.
+- If you happen to be mostly depressed about the state of your life, I don't know whether you feel like doing impulse control.
+- Franklin Delano Roosevelt eventually became the greatest liberal leader of 20th century United States, but he started as a fiscal conservative. His greatness is founded in his willingness to change his mind to save his country from the Great Depression.
+- The Korean government is the first to declare that if you replace people with machines you have to pay a tax. It's a tax on robots. They make private companies internalise the social cost of unemployment. Social benefit is not the same as private benefit. We have to realise this.
+- Sometimes economists are right, and sometimes economists are wrong.
+- I think it is a very important point for India to create a bureaucracy that lives on the ground and gets its stimulus from how life is on the ground.
+- I am half Bengali and half Marathi.
+- Good intentions and grand theories do not make a good programme. Programmes work best when they're based on a detailed und­er­standing of the problem being solved and how they are implemented on the ground.
+- Catastrophic health shocks do enormous damage to families both economically and otherwise, and are easy to insure, because nobody gets them on purpose. On the other hand, insurance policies that only treat certain catastrophic illnesses are hard to comprehend, especially of you are illiterate and unused to the legalistic nature of exclusions etc.
+- If PM-Kisan is implemented well, it will leave some money in the hands of poor farmers.
+- So, I went to Harvard and I got exposed to American work habits. I didn't even realise for a while that I was behind. I kind of had the illusion that I was understanding things. But people worked so hard and the thing I learnt first in America was that people work incredibly hard.
+- Well-designed subsidies help the poor make the best of whatever opportunities they have; poorly designed ones either do very little or actually make things worse for them.
+- We value seriousness and willingness to solve problems.
+- We've learned a huge amount from organisations like Seva Mandir and Pratham, for example. In my personal experience, these organisations work on a very large scale with very poor people.
+- Milk production is one of India's great success stories.
+- This is why universities, and civil society more generally, are so important for a democracy like ours, founded on a genuine idealism that we have a hard time holding on to. They provide a space to question whatever we are doing in the name of things we say we believe in or might believe in.
+- My parents were not poor, I mean we were a very average middle-class family of academics, but my grandfather happened to have built house literally next to one of Kolkata's largest slum.
+- We are specialists who have something special to say. We have had no problem with working in any state interested in evaluating their policies.
+- One big mistake that we made in Delhi is that we made it a low-rise city which means that rich people have nice green colonies while the poor live in dusty areas.
+- In a world where audiences listen for attitudes rather than arguments or information, speakers must feel the pressure to posture rather than engage.
+- When you compare individuals, rather than countries, you find that education improves both income and the quality of life.

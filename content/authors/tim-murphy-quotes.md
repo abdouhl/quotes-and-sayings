@@ -1,0 +1,24 @@
++++
+author = "Tim Murphy"
+title = "Tim Murphy Quotes"
+quotes_len = "18"
+description = "the best 18 Tim Murphy Quotes"
++++
+- Over the last two decades, America has increased its demand for oil by nearly 30 percent, yet we have not expanded our ability to produce domestic sources of fuel.
+- The Iraqi people are living better lives now than three year ago, no longer living in fear.
+- More than 1.1 million taxpayers in Pennsylvania will enjoy a lower tax rate, more than 1.4 million married couples will benefit from the reduction in the marriage penalty, and more than 1.1 million parents will have the advantage of an increased child tax credit.
+- My great-grandfather was a coal miner, who worked in Pennsylvania mines when carts were pulled by mules and mines were lit by candles. Mining was very dangerous work then.
+- The face of terrorism in Iraq is dead. Abu Musab al Zarqawi brutalized, tortured, and killed thousands of innocent people, forcing Iraqis to live in fear. The Iraqi people finally had enough, and gave up his whereabouts to the Iraqi security forces.
+- When it costs $50 to fill up our gas tanks, it impacts every aspect of our daily lives and the community.
+- Al Zarqawi had a long history of terrorism. He was responsible for several bombings and beheadings in Iraq, including Pennsylvania native Nicholas Berg.
+- Making the tax cuts permanent will continue to grow the economy, create jobs, and put more money in the pockets of the hard-working families of Pennsylvania.
+- Today, children are watching more and more television, and are bombarded over and over with images and content that have the potential to dramatically influence their behavior.
+- As we continue to fight the war on terror, we express our gratitude to our troops whose valor over the last three years provided freedom to the Iraqis, while protecting our liberty here at home.
+- Moreover, health center services save money and lives by treating diseases before they become chronic conditions, require hospital care or require a trip to the emergency room.
+- Tens of billions of dollars could be saved in Medicare and Medicaid alone by eliminate fraud and improving patient care. Not only would this save money, but it will save lives.
+- The coal industry has helped fuel this Nation for 150 years, and coal can be used to heat our homes, power our economy, and protect our Nation for at least another 150 years if we continue to use it.
+- The pro-growth policies of Congress have helped created new jobs in the region and across the country.
+- However, many skilled medical volunteers are turned away because community health centers cannot afford to cover their additional medical liability insurance.
+- In the span of three years, the Iraqi people participated in three elections, drafted a constitution, and elected a new government. While more work remains, this is remarkable progress.
+- Instead of raising taxes as some would insist, we need to reduce waste and inefficiency in government.
+- The dedication of the United States Air Force, Special Forces, and others involved in the mission to tracking down terrorists can not be matched. We express our gratitude to these men and women who defend the freedom America represents.

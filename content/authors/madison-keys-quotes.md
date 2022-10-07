@@ -1,0 +1,106 @@
++++
+author = "Madison Keys"
+title = "Madison Keys Quotes"
+quotes_len = "100"
+description = "the best 100 Madison Keys Quotes"
++++
+- Love' is a big step. It's a big word. You have to work your way to it.
+- One night I couldn't sleep at three in the morning and I thought, I'm going to color-coordinate my closet. And I did. There's a whole system. It goes from white to black and then all the colors in the middle. Then it goes by tank tops to T-shirts to long sleeves, and then it goes to the next color. Then it goes to sweaters the same way.
+- Being able to rely on the matches I've won - at first they surprised me - but I've slowly been able to build confidence.
+- Let's just stop being bullies face to face, online, whatever.
+- I expect a lot for myself.
+- I've done some meditation stuff like apps on my phone, but sometimes it's just about breathing deeply taking some deep breaths and slowing my mind down and focusing and something simple that can really help quiet my mind.
+- I would be lying if I said I wanted to wake up and work out every day.
+- Sometimes I have lapses of attention, and I can lose some points very quickly - that's been a big thing for him.
+- I have a specific routine before every match. I like to grip my rackets, because I feel that someone else won't do it how I like them. But the biggest thing is that I don't like to stress about my match all morning. Twenty minutes before, I'll sit down and think about the game plan and warm up. And then I just play.
+- Serena's always been one of the best, and she will forever be one of the best tennis players in women's tennis.
+- There is nothing like Wimbledon. When I think about tennis, I think about this tournament.
+- My youngest sister does not like tennis at all, and she'll be the first one to tell you that, which I find pretty funny.
+- I think when you're younger and you're watching people play on TV, you always say that you want to be at the French Open - you want to be playing Grand Slams. But then actually being there doing it, it kind of blows you away thinking, Wow, I actually used to think maybe I could do that one day, and now I'm actually doing it.
+- Being away from the game and just remembering why I love competing and all of that, I think it helped me tremendously.
+- It was tough because I was on the road so much, on top of everything. I went through what every girl goes through emotionally in life, going through high school. It wasn't easy.
+- I think it's especially hard when you start at an academy, because everything is decided for you. And then when you go with U.S.T.A., there's only so many decisions you can make.
+- My priority when I get off the plane and get to a city is get situated at the hotel and then go on site and get a good practice in. Sometimes working out can help with getting over jet lag as well.
+- I want to be a role model for all young people.
+- As far as cities, one of my favorite stops every year is Rome I think it's super fun to play there, because the tournament is really cool and the fans are super engaged, but also you get to walk around going to dinner, and the history - it's truly one of the most amazing cities in the world. I love it.
+- I really wanted a tennis dress. My parents told me that if I played, they would buy me one. I was like, 'Hey, I'll try it.'
+- I think no matter who you are, or what you do, just be nice.
+- I don't really identify myself as white or African-American. I'm just me. I'm Madison.
+- It's, you know, kind of nice to be under the radar.
+- Being an American, we're very lucky that all of the attention is very rarely just on one person. Unless you're Serena - then it's on you all the time.
+- My thought process when I'm on the court is always thinking about getting better, and thinking about how I'm playing. Thinking about it as a process, as the big picture and what I need to work on, instead of being close-minded and thinking, 'I'm so nervous and have to win this match, if I don't, it'll be the worst.'
+- I grew up by the Mississippi River, and I would swim in that as a kid.
+- No one who has gotten second place at a Grand Slam is ever like, 'Yeah, now I feel fine about it.' Everyone wants the other trophy. But it inspires you to work harder and get yourself in that position again so that you can use what you've learned.
+- I loved dance, but tennis felt more natural to me. Dance did help with my rhythm and balance.
+- I make a little goal every day and work toward achieving it - even if it's the smallest little thing.
+- I'm a big fan of grass. It definitely suits my game.
+- I can play the No. 1 player in the world in a pretty close match.
+- I love Dennis Quaid! I don't know why, but I've loved him forever.
+- My nerves tend to dissipate once the match starts. When I know I've practiced as much as I can and I do my best and leave it all out there, I feel OK no matter what happens.
+- If you're not in my immediate circle, you're not someone whose opinion I value.
+- It's not the end of the world if I lose. I try to keep it all in perspective.
+- People aren't winning Slams at 21 anymore. It's later.
+- I don't really focus on other people's expectations of me. I only care what my own expectations are.
+- I think one big thing for me that I need to work on is being able to separate my feelings and emotions from my matches.
+- I think the biggest thing is knowing that those thoughts of panic are probably going to go into your brain, and just accepting it... So that's been the biggest thing. Not fighting it and trying to think I'm going to have the perfect mentality the entire time. That's not going to happen.
+- Sometimes it takes work to find a great group of friends whom you feel super comfortable and confident with.
+- When I have a nice rhythm going, and I have my toss in the right spot, when everything is kind of working how it's supposed to be, I think it's just really easy, you know, and I don't have to overthink on it.
+- I think when I start thinking about results, I stop playing the right way because I start getting too nervous.
+- It's one of those things where eventually in your career, it kind of switches from being the young up-and-comer to someone who has had results and the other person is trying to raise their level to play. I think it's a privilege.
+- The second I was on the tennis court, I had the structure I wanted. I was in complete control of what I was doing.
+- For me it's just never being satisfied with what I've done and always just wanting more and more.
+- I think it's definitely hard for the people who just out of nowhere come in and they do really well and all of the sudden the spotlight is on them.
+- I've always loved Charleston. It's always been one of my favorite tournaments.
+- Setting a goal, accomplishing it, and feeling good about yourself can help build confidence and perseverance.
+- It wasn't until people started asking me what my plans were for the future - if I would go to college or go pro - that it really hit me what I wanted to do. I decided I wanted to go pro and try to be in Wimbledon.
+- A lot of people just assume men's tennis is better.
+- Both of my grandmothers have always been really good bakers, and I was always in the kitchen helping them. Obviously I can't eat a lot of the things that I make, but just baking it and giving it to someone makes me feel really good.
+- I definitely have been working a lot on the mental side of my game.
+- My mom has always been that person who keeps me grounded, and my two younger sisters are always cheering me on.
+- I'm obsessed with my couch. I have the greenest couch on the planet.
+- We do get to do what we love. I think that's really special, and I think sometimes we get really caught up in the winning and the losing and rankings. And at the end of the day, we get to play a sport that we love for our jobs.
+- We do a lot of lifting, and mix it up with upper body and lower body. A lot of circuit training for cardio. I hate just doing long distance running, so I do 5 or 6 different exercises for 20 to 30 seconds then move to the next one.
+- I don't always have to play my absolute best to win matches.
+- I've had people ask me whether I'm concerned about wearing makeup into a match, for example. One year, an on-court commentator asked one of the girls to twirl after the match. Surely, he's not going to go up to a man to ask, 'Can you do a spin for us?'
+- I'm really lucky to have Lindsay Davenport as my coach. She was number one in the world, and she's won Grand Slams, so if there's any person who can help me get through, it's her. Getting her advice is very special for me.
+- I enjoy lifting weights more than I enjoy getting on the treadmill to run.
+- I will never be able to say 'Yeah, O.K., I'm good,' you know? I will always want more, and more, and more.
+- You can almost get overwhelmed if you start focusing on Serena being on the other side of the court.
+- The expectation from other people kind of gets on me.
+- I started full-time training when I was 10, signed professionally when I was 14, and won my first match at the same age.
+- Wimbledon just is the epitome of tennis.
+- Everyone else wants to hear 'I wanna be Top 5,' or 'I want to be winning a Grand Slam.' Those are all goals of mine, but I'm not going to put a time limit on them.
+- People always look shocked when I tell them the Cincinnati Open is one of my favorite tournaments.
+- It can be tough and lonely on the road, but at the end of the day we get to play professional tennis for a living, and I wouldn't change it for the world.
+- Usually before matches I eat plain pasta with a little bit olive oil, salt, pepper and chicken.
+- I think my biggest thing is learning when to hit which serve when, not doing the exact same thing over and over. Because O.K., great, it's 120 miles per hour, but they're standing right there, and they just block it back.
+- I could go through my Twitter account right now and there would be 10 horrible messages.
+- Since I came on the tour so young and I won my first match, I've had a lot of comments like 'You'll be a top player one day.' I got to the point where, as nice as it was to hear that, I almost stopped listening to it. I was almost putting added pressure on myself.
+- Sometimes I have lapses of attention, and I can lose some points very quickly.
+- Every single day, my parents fed me balls. Eventually it turned into having a coach, and then it went to being at an academy. You know, it worked out pretty well.
+- When you're 13 or 14, sometimes you wake up in a bad place. You feel like everything's out of your control. You don't know what to do.
+- I think I'll always consider the Quad Cities home.
+- I'm not the best at hiding my emotions.
+- I always travel with a cashmere blanket - I take it everywhere with me!
+- I know it's a cheesy thing to say, but I just want everyone to be able to get along.
+- My first U.S. Open main draw, it was a big stadium and I wasn't really used to it.
+- I think it's just really good to be honest with yourself and if I'm not feeling up for something I have no problem staying in my room in ordering some food and relaxing and managing my energy and kind of just checking in with myself throughout the day.
+- I like weightlifting and cardio workouts, and I'll do a lot of circuit workouts and plyometric as well.
+- There's just so much girl-on-girl hate. It happens to start in high school, and then it builds and gets bigger and bigger, and it seems like for some reason there's this mentality that if another girl does well, she's taking my spot.
+- For me, losing is definitely not easy, but I think you just have to keep everything in perspective. Just remember that there's another tournament around the corner.
+- You can get eight thousand great, amazing messages, and someone will send you one thing that you're maybe self-conscious about, and that's the only thing in your head for the rest of the day.
+- I've tried my best to be a good role model for my two younger sisters.
+- My mom and grandma always told me: if you don't have anything nice to say, don't say anything at all. It's something everyone needs to be more conscious about. Putting more positive energy out into the world would be so beneficial.
+- I think I have slowly kind of had my name out there a little bit more and had some success.
+- Accept others for their differences, what makes them different. That's what makes the world the world.
+- When people say that American tennis is dead and things like that, you kind of take it a little personal.
+- I've been on my own and traveling for years now.
+- I was getting, at like 18, 'Why haven't you won a Grand Slam yet?'
+- I think when it's a high-stress situation, my tennis definitely takes a big dip.
+- I always watched these tournaments and want to be seeded and get the bye and be in the second week of Slams and all that.
+- I'm one of those people who writes out words. All of my text messages? You can read them. Everyone would know what I'm trying to say. My sister will say 'BTW.' Do you mean 'by the way'? Is that what you're trying to say?
+- Sometimes you have to give yourself a break.
+- I try to live in the moment and not overthink things because then you start putting yourself in situations that you don't want to be in pressure-wise.
+- I would like to think I can win a trophy or two, but the main thing for me is to focus on consistency.
+- On those days when you don't want to get up, I think, I'm going to get through my entire practice without saying how tired I am or I try not to complain just because I was in a bad mood when I woke up. Even if it's not perfect and I slip up, I can catch myself and make myself of aware of where my mental space is at and move on.
+- I have one of those bodies that is just a little more injury-prone.

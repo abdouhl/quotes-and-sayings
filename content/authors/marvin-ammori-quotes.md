@@ -1,0 +1,103 @@
++++
+author = "Marvin Ammori"
+title = "Marvin Ammori Quotes"
+quotes_len = "97"
+description = "the best 97 Marvin Ammori Quotes"
++++
+- The neutral and level playing field provided by permissionless innovation has empowered all of us with the freedom to express ourselves and innovate online without having to seek the permission of a remote telecom executive.
+- Internet users should be able to choose where to go online and which applications to use. Comcast, say, shouldn't be allowed to block Skype just because it could siphon the communications giant's telephone business.
+- The Internet freedom issue we need to focus on is network neutrality.
+- The fights for media justice and racial justice have been intertwined since the 1960s Civil Rights Movement.
+- Under the Constitution, federal law trumps both state and city law. But antitrust law allows states some exceptional leeway to adopt anticompetitive business regulations, out of respect for states' rights to regulate business. This federal respect for states' rights does not extend to cities.
+- If someone has copyright over some piece of your stuff, you can sell it without permission from the copyright holder because the copyright holder can only control the 'first-sale.' The Supreme Court has recognized this doctrine since 1908.
+- Charter's merger sales pitch is pretty straightforward: it argues that it has always been too small to bully Internet companies, TV makers, and its own customers, so it has'un-cable' practices they hope to extend.
+- By definition, the Singularity means that machines would be smarter than us, and, in their wisdom, they can innovate new technologies. The innovations would come so quickly, and increasingly quickly, that the innovation would make Moore's Law seem as antiquated as Hammurabi's Code.
+- Net neutrality is the right thing for our democracy, economy, and global competitiveness. And Americans support an open Internet.
+- President Obama is a big supporter of keeping the Internet open. During his presidential campaign, he pledged his support to net neutrality repeatedly.
+- In 2011, mobile data traffic in the United States was eight times the size of the entire global Internet in 2000. That's traffic.
+- The CEO of AT&T told an interviewer back in 2005 that he wanted to introduce a new business model to the Internet: charging companies like Google and Yahoo! to reliably reach Internet users on the AT&T network.
+- Charter hired me - which, to be honest, took some humility on its part, since I have helped lead public campaigns against cable companies like Charter - to advise it in crafting its commitment to network neutrality.
+- The FCC can't enforce press-statement principles without adopting official rules, and those rules must be based on the legal theory of reclassification.
+- The user, not the ISP, should be the kingmaker of apps.
+- Google pays advertisers based not just on payment per click but also by number of clicks. The interplay between the two sets the prices, so a government-regulated price for 'equal access' might be difficult to set.
+- The FCC sided with the public and adopted extremely strong net neutrality rules that should be a global model for Internet freedom.
+- Congress created a safe harbor for defamation in 1996 and for copyright in 1998. Both safe harbors were designed to ensure that the Internet would remain a participatory medium of speech.
+- I discover real-time news far more often on Facebook than on Google News or a regular Google search.
+- Anyone unhappy with Google can use other search engines - including DuckDuckGo and Blekko, along with Bing or Yahoo.
+- The Internet isn't just itself a revolution - it sometimes starts them, too.
+- Thinking about free speech brought me to media regulation, as Americans access so much of their political and cultural speech through mass media. That led me to work on the FCC's media ownership rules beginning in 2005 to fight media consolidation, working with those at Georgetown's IPR, Media Access Project, Free Press, and others.
+- I'm all in favor of the FTC investigating companies when it believes there is proper cause to do so. An investigation, however, can lead to political pressure to bring a case, even if such a case is unwarranted.
+- Public participation helped create the Internet, and it helps protect it. That's worth celebrating and remembering.
+- Any 'network neutrality' rule should be designed to forbid phone or cable companies from controlling the Internet.
+- Courts are supposed to interpret laws to avoid 'absurd results' and to avoid constitutional problems - such as infringing on the free speech rights of Americans.
+- The Internet is one of the most revolutionary technologies the world has ever known. It has given us an entire universe of information in our pockets.
+- A ban on paid priority is central to any real net neutrality proposal, beginning with the Snowe-Dorgan Bill of 2006. Indeed, the notion of 'payment for priority' is what started the net neutrality fight.
+- I have tried to help build a framework that recaptures the First Amendment as a principle to empower all Americans, politically and personally, through access to plentiful, diverse communications spaces.
+- The terms of copyright last far too long: either the life of the author plus 70 years after death for a personal work or 95 years for a corporate work. That length doesn't encourage more authorship - it merely limits the speakers who could share powerful speeches, books, and films.
+- One goal of law - as we learn in law school from the first day of contracts - is to deter bad behavior.
+- Much of my work strikes me as pretty unified: as a lawyer, working in several areas, I have thought about how to promote freedom of speech broadly for everyone.
+- Data can generally travel the speed of light unless networks are congested. When there's congestion, usually the cheapest and best thing is simply to add capacity generally, not to prioritize certain sites over others.
+- Before the Internet, we were in a different sort of dark age. We had to wait to hear news on TV at night or in print the next day. We had to go to record stores to find new music. Cocktail party debates couldn't be settled on the spot.
+- 'Politico Magazine' listed me among the top 50 'thinkers, doers and visionaries transforming American politics' for my work in coalitions advancing net neutrality.
+- Without the ability to criticize unjust laws in powerful symbolic ways, we can't change them. And the point of a democracy is that people should be able to convince other people to change a law.
+- Both Republicans and Democrats can agree that more choices and lower prices in transportation would benefit consumers. Democrats would consider it 'smart government' and Republicans 'limited government.'
+- Over the course of a year - from January 2014 to March 2015 - millions of Americans, hundreds of businesses, and dozens of policymakers weighed in at the Federal Communications Commission in favor of net neutrality.
+- The Open Internet principles were not legal rules adopted by the FCC; they were effectively a press statement posted on the FCC website.
+- The Startup Act should give all Americans, not just immigrants, a better shot at being tomorrow's engineers and entrepreneurs. And that opportunity could begin at a young age with education in computer programming.
+- Free speech has remained a quintessential American ideal, even as our society has moved from the ink quill to the touch screen.
+- I find personalized search convenient - I read stories on my Facebook feed, my Twitter feed, daily email services, and my iPhone's Flipboard app, and would love to be able to focus my searches on just those particular services.
+- Default choices often remain unchanged for no reason other than being the default, either because of this lack of information or humans' status quo bias.
+- A report released by the Partnership for a New American Economy and the Partnership for New York City predicts that by 2018, there will be 800,000 science, technology, engineering, and mathematics (STEM) jobs in the United States that require a master's degree or higher - and only around 550,000 American-graduates with this training.
+- Google (and Bing and Yahoo!) don't 'owe' any company traffic. If a company has to spend more on advertising on Google, in addition to investing in search-engine-optimization, that is not a violation of any law.
+- On the Internet, speed matters. According to research by Microsoft, Google, and others, if a website is even 250 milliseconds slower than a rival, people will visit it less often.
+- In software and many other online markets, even dominant firms face potential threats because of the low costs for competitors to enter those markets. Threats more easily emerge because of better or newer technologies leapfrogging older ones.
+- In 'Bush v. Gore,' five justices had a partisan outcome in mind and then made up the judicial principle to justify it, while claiming that the decision would not be precedent for any future cases.
+- Competitors argue that Google rigs its search algorithms to demote listings for competing search engines. Many of the allegations of demotion come generally from sites of pretty questionable quality, such as Nextag and Foundem. Some of Google's primary competitors in 'specialized search' clearly place well in search results - Amazon and Yelp.
+- The FCC has made it clear it would punish a cable or phone company for deviating from providing 'neutral' access.
+- President Obama's FCC Chairman, Julius Genachowski, has a reputation in D.C. of being a 'tepid' regulator. From reports of his net neutrality proposal, he's living up to that reputation.
+- From search and books to online TV and operating systems, antitrust affects our daily digital lives in more ways than we think.
+- There is just one exception to the FCC's no-throttling rule - if a company can prove that throttling is 'reasonable network management.'
+- I have worked on open Internet, speech, and entrepreneurship issues for years.
+- As each year and debate passes, more broadband companies will start to see that their future lies not in restricting an open Internet but in betting on it.
+- In 2007, when I was a lawyer for the public interest group Free Press, I helped draft the complaint to the FCC against Comcast for secretly blocking BitTorrent and other technologies.
+- When Thomas Jefferson wrote the Declaration of Independence, declaring that all men were created equal, he owned slaves. Women couldn't vote. But, throughout history, our abolitionists, suffragettes, and civil rights leaders called on our nation, in reality, to live up to the nation's professed ideals in that Declaration.
+- 'Network neutrality' is sometimes called 'Internet freedom' or 'Internet openness' and is a legal principle that would forbid cable and phone companies like AT&T, Verizon, and Comcast from blocking some websites or providing special priority to others.
+- The first devices to record and play back music were the phonograph and the gramophone. The gramophone's inventor: Alexander Graham Bell.
+- In 1984, the Federal Trade Commission released a report that explained why taxis could charge customers exorbitant prices for dismal service. The simple reason, according to the 176-page study: lack of competition in the market. The culprit: local governments.
+- In the early 1990s, Americans used their home phone lines to connect their desktop computers to the Internet via ISPs like AOL, Earthlink, or Netzero. Back then, the ISPs didn't have cost-effective technology to select particular sites for blocking or privileging.
+- In the post-industrial economy, ideas and great minds often provide far greater return on investment than any other resources or capital investments.
+- Under the 1998 Digital Millennium Copyright Act, Tumblr, YouTube, Reddit, WordPress, and Facebook aren't responsible for the copyright infringement of each of their millions of users, so long as they take down specific posts, videos, or images when notified by copyright holders. But copyright holders thought that wasn't good enough.
+- A network neutrality rule could result in mere 'slaps on the wrist' or involve such expensive and difficult litigation procedures that no small company or consumer could ever bring a case.
+- Regardless of the industry, antitrust law is meant to benefit consumers - not competitors.
+- If a company is not a monopoly, then the law assumes market competition can restrain the company's actions. No problem. If a monopoly exists, but the monopoly does not engage in acts designed to destroy competition, then we can assume that it earned and is keeping its monopoly the pro-consumer way: by out-innovating its competitors.
+- Google's competitors argue that Google designs its search display to promote Google 'products' like Google Maps, Google Places, and Google Shopping, ahead of competitors like MapQuest, Yelp, and product-search sites.
+- Being a 'monopoly' is not illegal, nor is trying to best one's competitors through lower prices, better customer service, greater efficiency, or more rapid innovation.
+- Civil disobedience has almost always been about expression. Generally, it's nonviolent, as defined by Henry David Thoreau, Gandhi, and King.
+- Encourage public schools to teach American children how to code just after they learn to multiply.
+- The FCC banned throttling for good reason, namely that Internet service providers should not bias their networks toward some applications or classes of applications. Biasing the network interferes with user choice, innovation, decisions of application makers, and the competitive marketplace.
+- Net neutrality sounds wonky and technical but is actually quite simple. It would keep the Internet as it has always been - cable and phone companies would remain mere gateways to all sites, rather than gatekeepers determining where users can go and what innovators can offer them.
+- Liability limit has become a symbol of corporate greed in passing the risk of disaster to the U.S. government and U.S. citizens.
+- News seems to travel far more quickly on Twitter and Facebook than through search.
+- Political institutions are fair game in political debates in a democracy. Nothing is more fair game, in fact, than political matters of public concern.
+- Net neutrality is the idea that Internet service providers (ISPs) should treat all traffic that goes through their networks the same, not offering preferential treatment to some websites over others or charging some companies arbitrary fees to reach users.
+- 'Negative liberty' is a political science term meaning a liberty from government action. It is not a liberty to anything - like the liberty to meaningfully contribute to public debate or to have ample spaces for speech.
+- Evidence and economic theory suggests that control of the Internet by the phone and cable companies would lead to blocking of competing technologies.
+- A rule against paid fast lanes would encourage additional capacity; a rule permitting paid fast lanes would simply encourage cable companies to create congested slow lanes on the Internet so they could make money by selling fast lanes to big companies.
+- If the court is a political institution making important political decisions, then the public should debate the politics of Supreme Court decisions.
+- Google's competitors fail to demonstrate that Google's actions stifle competition rather than reflect pro-consumer innovations.
+- Today, in 2011, I'm giving Secretary Hillary Clinton the nod as the Obama Administration's improbable MVP in the technology realm.
+- Even though the Internet touches every part of our lives, one person is to blame for potentially destroying its potential for innovation and freedom of expression: former FCC Chairman Julius Genachowski.
+- The current FCC chairman, Tom Wheeler, is highly regarded, but some distrust him because he is the former head lobbyist of both the cable and wireless phone industries. He's also made some statements suggesting he doesn't understand or opposes network neutrality.
+- The FCC should obviously not propose bad rules that will be struck down; it should propose good rules that will be upheld.
+- The iPhone will forever be associated with the inventive genius of Steve Jobs and Silicon Valley. But the roots of innovation can be traced back - from one genius to another, at least - back to the genius who put the phone in iPhone: Alexander Graham Bell.
+- Broadband companies can have great success offering access to the unfettered Internet.
+- Almost 85 percent of the Latin American market is subject to net neutrality rules, and the European Parliament already favors strong ones.
+- Facebook refuses to let Google index or display content from its site. Facebook has partnered with Bing to make its results more social. Is Facebook acting to leverage its dominance in social towards a dominance in search?
+- Companies like Pinterest and Twitter did not become sensations because of Google search but because of the many ways users find out about great sites.
+- Net neutrality is the principle forbidding huge telecommunications companies from treating users, websites, or apps differently - say, by letting some work better than others over their pipes.
+- The first-sale doctrine reflects basic common sense - and follows from the logic of treating copyrights and other 'intellectual property' with no more protection than regular property.
+- 'Bush v. Gore' gave us a president who lost the popular vote, eventually appointed two more justices, and led us into a war of choice while failing to regulate a financial system dependent on toxic mortgage-backed derivatives.
+- Without network neutrality, cable and phone companies could stifle innovation.
+- The Supreme Court has crafted doctrines such as 'fair use,' which permits copying materials for criticism, parody, and transformative uses, and has ruled that abstract ideas are not subject to copyright, because courts will not punish people for merely using an abstract concept in speech.
+- Ever since the end of Medieval feudalism, and the writings of John Locke, we have understood the importance of being able to buy and sell one's own property, including books and watches, both for reasons of economics and liberty.
+- To me, freedom of speech and debate are necessary inputs in solving any of our nation's problems, from homelessness and economic inequality to banking, the environment, and national security. Freedom of speech is what Larry Lessig would call a 'root' issue; working on free speech is striking at a root issue.

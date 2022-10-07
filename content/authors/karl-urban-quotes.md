@@ -1,0 +1,26 @@
++++
+author = "Karl Urban"
+title = "Karl Urban Quotes"
+quotes_len = "20"
+description = "the best 20 Karl Urban Quotes"
++++
+- That's always an interesting concept when you try to make your dream into a reality and you come up against the facts of exactly what it is you're attempting to do.
+- It was always something I knew I was capable of and from an early age my mother was involved in the film industry. She used to work at a production company. So I was exposed to a renaissance period of films in New Zealand back in the early 80's.
+- I'm high energy.
+- There's only so much you can do until you get on set and see the aesthetics of what you're dealing with. Then you see what the other players are giving to you. It's all about the transfer of energy between different actors.
+- Nothing beats a great smile.
+- I don't believe I could work as effectively at what I do without the support of my wife.
+- If I read a script and find it engaging and I start making choices in my mind on how to approach the work, than that's a good indication that it is something worth pursuing.
+- That is a big danger, losing your inspiration. When I work in film and television I try to do each take a little differently. I never want to do the same thing twice, because then you're not being spontaneous, you're just recreating something.
+- My philosophy is whatever you do, you've got to invest in yourself. If you don't, there are a lot of people out there who will get the job because they're more prepared than you.
+- I love fishing and surfing, and I work out every day.
+- It's such a small industry here you inevitably end up working with the same people over and over again. There are only so many actors to go around, which is good for us.
+- I like the timeframe involved in being an actor.
+- I don't see a benefit in accepting every single little morsel of work that comes along because I think, in essence, what you're doing is you're raping yourself really.
+- Now I'm this far up the ladder and I've got so much farther to go with what I want to achieve with it.
+- I did a little theatre work after that and the following year I got another part in a television series. Then it was almost to the end of the year before I got more work. That was coming to terms with the reality of the vocation I had chosen.
+- When you work so hard on making a film, it's all worthwhile when you get to experience seeing that film with an audience who thoroughly enjoy it and react to the movie.
+- I was a fan of the 'Dredd' comics when I was a teenager.
+- I never envisioned when I was reading that comic as a 17-year-old that I would have the opportunity to actually play the character.
+- When I work, I try to eat as much vegetarian as possible. When I do Cupid, I eat vegetarian because I need the energy. I've got those wings on my back.
+- I'll need every ounce that I have to drive it through. Film and TV require that energy. Sometimes fight scenes can be pretty intense. When I was shooting 'Heaven' it was truly guerrilla film-making.

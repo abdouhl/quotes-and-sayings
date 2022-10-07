@@ -1,0 +1,60 @@
++++
+author = "Manolo Blahnik"
+title = "Manolo Blahnik Quotes"
+quotes_len = "54"
+description = "the best 54 Manolo Blahnik Quotes"
++++
+- I eat a lot of chocolate.
+- What is fashion? It's discipline. Discipline and a credo to do only the best, down to the smallest detail.
+- I'm like an old vampire, so it's important to talk to young people.
+- Most of the people nowadays send their things by internet. But I cannot work that way. I like to do it myself.
+- I think I am one of the smallest surviving brands.
+- I'm very painful to deal with when I create a shoe.
+- I've never been tempted to do these hideous furniture shoes.
+- I think of each new season as an evolution, not a change in style.
+- I'm OK: I don't need money.
+- Everything is global now. It's not London, it's not Spain, it's not Italy - everything is everywhere. So you have to be everywhere, I guess.
+- I just don't get death at all. Yes, it's there. But I don't get it.
+- I never wanted to be the most famous, the most beautiful, the most extravagant.
+- I hate celebrities.
+- Some people just use beautiful things to just shop or to have a tribal feeling - 'Oh, blah, blah, blah, I'm wearing Hermes; blah, blah, blah, I'm wearing Saint Laurent; blah-blah blah' - because it's like a need, a tribe, recognition: 'Ahh, my Rolex.' But I run away from anything which is too recognizable - it's my nature.
+- I get more tired by travelling than anything.
+- My mother is incredible. I mean, still is today.
+- I am insecure. Everyone's insecure.
+- I'm mad for satin.
+- I am not a movie star or a football player, I just do my thing.
+- My mother has an incredible rigidity, which is very Catholic.
+- I don't belong to anyone.
+- My whole life has been a huge mistake, but what a divine mistake - doing something that I adore.
+- You put high heels on and you change.
+- I'm very self-critical.
+- People walk differently in high heels. Your body sways to a different kind of tempo.
+- There is nothing charming about a woman who cannot walk in her shoes.
+- I hate to travel with stuff.
+- About half my designs are controlled fantasy, 15 percent are total madness and the rest are bread-and-butter designs.
+- I always love China, especially the old China.
+- I do think one should have clean feet.
+- Men tell me that I've saved their marriages. It costs them a fortune in shoes, but it's cheaper than a divorce. So I'm still useful, you see.
+- I couldn't care less about business.
+- Papa died when he was 77.
+- If I was a woman, I would be dressed in the same thing for a month and just change my hat and gloves. Maybe my shoes too; yes, I see what you mean but, really, it's jewels that change an outfit.
+- I don't consider myself a fashion designer.
+- If I look back I feel frightened, not happy, because my life is a bit of a mystery to me.
+- Paris is paramount for fashion, always was - always will be.
+- I never thought that I would sell to young people, but now girls who are 14 and 15 buy my shoes.
+- My shoes are special shoes for discerning feet.
+- In London I feel free; nobody bothers anyone and everyone is free to express themselves.
+- The greatest shoemaker in England for many, many decades; he used to be the royal shoe-maker for the Queen Mother. This is where I learnt my trade.
+- I do and re-do things that I used to do in a flash, because I want to be more perfectionist about these things. Maybe it sounds pompous and pretentious, but that's the way I feel.
+- I don't know why my shoes are so popular - I am always surprised and mystified by it.
+- The gimmicky thing I'm not very keen on.
+- Trends don't interest me.
+- The greatest luxury is being free.
+- I like women with style to wear my shoes.
+- I put everything I think is sexy into my shoes.
+- Maintenance is terribly important.
+- I hate these platforms that are all over the place today; they are all about grabbing attention. They are suburban! I never do a platform. Well, I did, in the 1970s, but that was a bad experience.
+- Really, the '70s and '80s were a blur.
+- Sometimes I hate a shoe in seconds.
+- A lot of things trigger my inspiration. It can be the most banal things.
+- I was possessed by London.

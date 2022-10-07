@@ -1,0 +1,79 @@
++++
+author = "Tim Kennedy"
+title = "Tim Kennedy Quotes"
+quotes_len = "73"
+description = "the best 73 Tim Kennedy Quotes"
++++
+- I am a nice guy. I love having a good time. I love cooking. I love hanging out with my friends.
+- There are some parallels between 'Zombieland' and 'Range 15,' except 'Zombieland,' with Woody Harrelson, there's this pleasurable fun in every scene.
+- I was deployed in Afghanistan and Iraq with British Special Forces Units. I have great respect for the British military and the country as a whole, so I don't have anything negative to say about that.
+- The people that are close to me, the people that I spend most of my time with, they're all really like-minded people.
+- Michael Bisping, we had a five round battle. I beat him for five rounds and tripled the amount of strikes landed. I landed more take-downs in that fight than had been landed on him in his entire career.
+- I know I'm not a marquee name, and I'm looked past by most guys.
+- Fighting is a very independent thing, and it's not a team sport, and it's not the NFL, you know, because we don't have to look the same.
+- I wish that everyone that's complaining about how things are here would shut their mouth for a little bit, go around the world and see how it is everywhere else.
+- I'm a Christian, and I give the glory to God.
+- I really want to demonstrate I'm not to be overlooked anymore.
+- When you're in Ranger School, it sucks. You're not eating; you're not sleeping. You're marching miles - for months at a time. It's horrible.
+- What's the definition of terrorism? It's to achieve an objective through the use of force and fear. These are just nasty, evil, disgusting human beings who disrespect human life.
+- That's part of my military character, I think. You back one of us into a corner, and you can only expect one thing: us coming at you like wild, rabid dogs.
+- Peacetime Special Forces are different than wartime Special Forces. And I'm just not sure I was born to be in peace time.
+- MMA in an individual sport, and you're just pushing yourself to be as dangerous as you can be in 15 minutes.
+- I will always have that, 'I want to be the best fighter on the planet' thing in me.
+- I remember every moment of every gunfight I've ever been in.
+- I hate it when anyone in the gym can deadlift more than me.
+- I got my hand slapped for talking about fighter pay. That was a big one. I had Dana White yell at me in front of, like, 20 other fighters.
+- I'm not perfect - I'm human, and I can make mistakes - but I'm always going to fight clean; I'm always going to go out there and try to put on a good show.
+- I love to deadlift, and it's a huge part of my training because it works every muscle in the body.
+- Carlos Condit does the best job of being the counterstriking guy that is very elusive.
+- Everyone knows who I am; everyone respects me as a shooter, as an operator, as a soldier... I'm always truthful, I'm always honest, and I'm always trying to do the right thing.
+- MMA has a referee, and you're wearing gloves. I'm in there with another volunteering participant that's out there to win some prize money.
+- You should be falling asleep before your head hits the pillow because you worked so hard every moment of the day.
+- My military service has nothing to do with what I do in the ring.
+- Watching everybody have such a fantastic time, loving life, loving America - I wish that was the feeling year-round, that it didn't take the Fourth of July for us to be like, 'Yeah, America is awesome.'
+- I have a pretty amazing life. Even back-to-back deployments - Afghanistan, Iraq, Pakistan, Turkey - it's still pretty rewarding.
+- When 9/11 happened, I was like, 'I gotta do something.' I went and talked to the recruiters, and I found out about the Special Forces 18X program. They take qualified people off the street, and they give them a shot at Special Forces. I was like, 'So I could go try out for Special Forces?'
+- I think the most rewarding thing is going over and being deployed and having done meaningful things.
+- I'm very disciplined in the approach I take for my training.
+- I'm an eight-year Green Beret, Ranger, sniper.
+- It's a good thing I have another job because the UFC doesn't pay very well.
+- I've fought guys that I like. When you're fighting a guy that you don't like, you have to be able to separate certain aspects of it.
+- I'm not hard to find unless you're ISIS - then, it's a rough night.
+- I will always be fighting in one form or another until the day I die.
+- I've been to Afghanistan and Iraq a few times, and then I've done deployments elsewhere - with Special Forces, we go all over the place.
+- I love fighting and will always have the heart of a fighter.
+- I want to thank the military community for their support. I'll never be able to explain how much you motivated me and how much I always tried to make you proud.
+- Fighting is a lonely thing. You train with your team. You bleed with them. You trust your coaches, but ultimately, you are in the cage alone.
+- Cold and fire has a way of creeping into the tiniest crack in your courage and finding that coward.
+- Who would I be to be cowering to a bunch of gutless cowards acting like a bunch of tough guys online?
+- I love the idea of what America is. America is a bunch of people that do these incredible, thankless, selfless jobs that nobody really knows about that makes that American dream possible.
+- I'm the guy that is always in shape.
+- If you've been hit, if you've been put down, if you've lost, that next time you come out, you have to make a testament: you have to make a demonstration, a showing, that it's not going to happen again.
+- I freaking hate liars.
+- I'm the guy that once graduated Ranger School - a place that starves you and denies you sleep for over two months - and took a fight six days later in the IFL and won.
+- Leaving active duty was so I could become the best fighter in the world at my weight class.
+- I hit hard, and I'm hard to take down.
+- I want to thank all of my opponents. Iron sharpens iron, and every great victory or crushing defeat occurred because there was someone who trained hard and had the courage to meet me across the cage.
+- My adult life is filled with the things horror movies are made of.
+- I'm endorsing Col. Maness for United States Senate because of his deeply held commitment to the constitutional rights and principles our nation was founded upon.
+- I'm against torture. I'm also against terrorism.
+- I don't need MMA, but I love fighting. Those are very different things.
+- I want to earn a top-contender status in the UFC, so I have to fight the best.
+- Find something bigger than yourself and pour every ounce of who you are into it. If that's your family, be the best father on Earth. If you are a cop, firefighter, or a trash man, be the best.
+- I have no problem putting on a kit, carrying a big sniper rifle, and running a few thousand meters.
+- I make, like, three or four times more when I don't fight than when I do fight. And, I'm one of the higher-paid guys in the UFC, which is remarkably tragic and pathetic.
+- I always have that nagging feeling of wanting to go back and getting my long gun back and be a sniper on a Special Forces ODA, which is the greatest job in the world, but I have some goals in MMA that I set out to do, and I'm not going to stop until I get them.
+- You're always going to get an honest, straightforward response from me. Honest to a fault.
+- I dominated Michael Bisping.
+- You could waterboard me for days - for years - and I would still be cracking jokes about how bad Rachel Maddow is.
+- I'm asked daily about how and why I don't have PTSD. I'm probably the last person on Earth you should ask about this stuff.
+- I'm competitive when I fight, but I don't get emotionally involved.
+- People want to hear what I do with Special Forces, as a ranger, as a sniper. And I'm like 'What does that have to do with fighting?' Let's talk about fighting. They couldn't be more different; there's nothing similar about them.
+- Kettlebells are the best for everything. We do snatches and swings with them for explosiveness and hamstring and lower back strength, and we'll also throw them into conditioning circuits where I'll do a burpee holding the kettlebells and transition into a 2-handed snatch.
+- If Katie Couric or Anderson Cooper asked me to come on to their shows and give them content every single day, I would do it because that gives me access to a huge population of people that I can hopefully, in some way, plant seeds in fertile soil, and those seeds would grow into oak trees of freedom.
+- No matter what I do, it's all about the workouts. When I travel, I make sure I get my workout in first. When I'm in camp for a fight, I don't travel at all, and I train three times a day. The secret is to just keep working.
+- I think obstacle courses in general are a blast, and I love the Green Beret one; I've done it - I don't know - 20, 30, 40 times. I'm always trying to break my time from the last one or use a new technique to get through a certain obstacle.
+- When people refer to a cage fight as war, I think it's kinda cute... A war, huh? You know what a war is? They, evidently, don't. It's not maybe their place to know what it is, but I do.
+- I've been part of task forces hunting the most evil humans to walk the face of this planet. I believe all of that was for a reason, because I love America.
+- I understand what justice is, and I understand what freedom is, and all of my friends do. It's always been that way. I love freedom of speech. I love freedom of religion. I want my neighbor to be totally fine, for him to be a completely flaming gay guy with his new husband.
+- If we are ever going to rescue our nation from selfish entitlement, political correctness, and collectivism, we must start sending citizen-statesman warriors to fight for us in Washington, and I believe Col. Maness will do just that.

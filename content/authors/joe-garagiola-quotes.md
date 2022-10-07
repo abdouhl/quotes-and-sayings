@@ -1,0 +1,25 @@
++++
+author = "Joe Garagiola"
+title = "Joe Garagiola Quotes"
+quotes_len = "19"
+description = "the best 19 Joe Garagiola Quotes"
++++
+- All the 'Today show' viewer wants, I think, is a friendly face.
+- You have to retire before you can make the Hall of Fame.
+- I always loved the signs on the outfield walls, and I'll never forget the one in Philadelphia. It said, 'The Phillies use Lifebuoy soap,' and underneath was scrawled, 'And they still stink.'
+- I know nothing about dogs except that I love them.
+- Baseball is a game of race, creed, and color. The race is to first base. The creed is the rules of the game. The color? Well, the home team wears white uniforms, and the visiting team wears gray.
+- One thing you learned as a Cubs fan: when you bought you ticket, you could bank on seeing the bottom of the ninth.
+- I think that baseball is still the most entertaining game because it's the simplest to watch.
+- You can call anything a sport if you want.
+- As a catcher, you can't be afraid. You gotta make fast decisions.
+- The Orioles' Dick Hall comes off the mound like a drunk kangaroo on roller skates.
+- The catcher is a groundhog. He's a guy squatting down, digging for the ball in the dirt, and sweating under a pile of uncomfortable protective gear while his knees creak.
+- I'm a small dog guy. I don't want to be pattin' with the big Rottweiler or Great Dane. I like those little guys that jump on your lap and don't knock you over when they do.
+- Catchers just aren't glamorous.
+- Nolan Ryan is pitching much better now that he has his curve ball straightened out.
+- I went through baseball as 'a player to be named later.'
+- Baseball is drama with an endless run and an ever-changing cast.
+- I only wear two rings: a wedding ring and my World Series ring.
+- I know a baseball star who wouldn't report the theft of his wife's credit cards because the thief spends less than she does.
+- It's pitching, hitting and defense that wins. Any two can win. All three make you unbeatable.

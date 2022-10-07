@@ -1,0 +1,139 @@
++++
+author = "Jesmyn Ward"
+title = "Jesmyn Ward Quotes"
+quotes_len = "133"
+description = "the best 133 Jesmyn Ward Quotes"
++++
+- I would encounter W. E. B. Du Bois and the term double consciousness. When I read it, I thought about sitting in my mother's employer's family room, watching my mother clean while I waited for her to finish so we could go home.
+- There are moments from childhood that attract heat in our memories, some for their sublime brilliance, some for their malignancy. The first time that I was treated differently because of my race is one such memory.
+- One of the most important things that I want for my kids is I want them to live. You know, I want them to live to see 21 and beyond.
+- Even though I read voraciously as a child, I never saw myself in books. Without narratives to expand my ideas of who I could be, I accepted the stories others told me about myself, stories which diminished and belittled me and people like me. I want to write against that.
+- The first writer that I think of immediately that I studied with at Michigan is Peter Ho Davies. He was really important to me, tackling that first novel. Just writing it.
+- Part of me is stuck in my childhood in the Eighties. I actually watch 'The Neverending Story,' 'Labyrinth,' and 'Legend' over and over again. Also, 'Willow' and 'The Goonies.'
+- We salvage the bones of our lives every day, through small tragedies and big tragedies.
+- We're all about pulling ourselves up by our bootstraps, et cetera - I think that's a harmful mythology, that the choices that we make and the things that we do in our lives are not connected to anything else. So I'd like to help to debunk that.
+- Confidence definitely did not get me here! More of, like, desperation.
+- There was nothing postracial about my experience, and there still isn't.
+- One of the ways my first novel failed was that I was too in love with my characters.
+- At every turn, Molly Antopol's gorgeous debut story collection, 'The UnAmericans,' is firing on multiple cylinders.
+- It infuriates me that the work of white American writers can be universal and lay claim to classic texts, while black and female authors are ghetto-ized as 'other.'
+- My time in New York really clarified things for me. I thought, 'What could I do with my life that would give it meaning?' And writing was that for me.
+- I think art, especially literature, has the particular power to immerse the viewer or reader into another world. This is especially powerful in literature, when a reader lives the experience of the characters. So if the characters are human and real enough, then readers will feel empathy for them.
+- That's why I write fiction, because I want to write these stories that people will read and find universal.
+- There was something so empowering about having President Obama in office because I know that for many of us, that's something that we never thought that we'd see in our lifetime.
+- I think that fiction has a certain power.
+- I read everything. When I say everything, I read everything: children's literature, Y.A., science fiction, fantasy, romance - I read it all. Each genre fulfills a different need I have. Each book teaches me something.
+- Before Hurricane Katrina, I always felt like I could come back home. And home was a real place, and also it had this mythical weight for me. Because of the way that Hurricane Katrina ripped everything away, it cast that idea in doubt.
+- I try to treat writing as part of my daily routine: I write for at least two hours, five days per week. I tend to write at home, in a room I've set aside for the task. I don't work well in cafes or busy, loud spaces, although I wish I could. It would mean greater flexibility for me.
+- Young people have a right to optimism, and rightly so; human beings have grown and developed and accomplished wonderful feats in the world. But what mires me in pessimism is the fact that so much of life is pain and sorrow and willful ignorance and violence, and pushing back against that tide takes so much effort, so much steady fight. It's tiring.
+- My mother helped to integrate the local elementary school in the nineteen-sixties.
+- I hope people who read my books feel empathy for us and really see us as complicated people.
+- 'The UnAmericans' is a compassionate and brilliantly rendered debut - and for a book set largely in the past, these stories feel essential to understanding the contemporary world in which we live.
+- On one hand, I can say, you know, I had many family members - I had many people in my extended family who left right after Katrina, who relocated to different cities, right? Houston, Atlanta. Right? Most of them have come back.
+- I think that often in the United States we're very blind to the ways that history lives in the present.
+- My mom worked as a housekeeper, and I saw her relationship with her employers - how on the one hand she spent more time with these women than with a lot of her friends, and how in certain ways they were friends. But then they weren't.
+- People are not afraid to be activists, to be vocal. And I think back to my years in college, and that wasn't the case.
+- I think, when I write, one of the things that I'm really attempting to do is I'm attempting to humanize my characters.
+- On one hand, I am very pessimistic, but on the other hand, if I didn't believe that speaking up would do something, I wouldn't have spoken.
+- I love my community. I love always being able to come back and have a home.
+- I love where I'm from. I love the landscape because it is so beautiful, and I also love the people of my community, the people whose stories I'm trying to tell.
+- If I could chat with anyone, it would be Claire Messud, because I think she could tell me how to get better as a writer as I age.
+- I feel like the kind of people I write about are the kind of people I grew up with, the families that I know in my community. Most everyone is working-class, and there are some intact families, but a lot of families aren't.
+- If I can get a page out in a day, I am celebrating.
+- There's so much I love about home, but then there's a lot that I can acknowledge that I dislike about home. And acknowledging that to myself helps me see that place more clearly and to bring readers to that place.
+- People ask me about staying here. I think they assume that I wouldn't want to come back to a place like Mississippi, which is so backward and which frustrates me a lot. The responsibility that I feel to tell these stories about the people and the place that I'm from is what pulls me back.
+- Writing 'Men We Reaped' broke me in different ways at different spots in the drafting process. The first draft was hard because I was just getting it out. In some ways, that draft failed. I was really just telling the story, not making assessments - this happened, then this. Just putting those facts down on paper was really painful.
+- If I'm honest about the people that I love, then I need my characters to live through the same things that the people I love and care about are living with and struggling with.
+- I've always used Southern rappers in epigraphs for my novels. For 'Sing, Unburied, Sing,' I wanted to use Big K.R.I.T. - because I have so much respect for the lyrical depth of their music.
+- There is power in naming racism for what it is, in shining a bright light on it, brighter than any torch or flashlight. A thing as simple as naming it allows us to root it out of the darkness and hushed conversation where it likes to breed like roaches. It makes us acknowledge it. Confront it.
+- 'As I Lay Dying,' I reread that often. That's the first work of Faulkner's that I read that so amazed me and that I responded to emotionally and viscerally. I admired it so much, and I think that's why I keep rereading it.
+- Great trouble breeds great art, I think.
+- In American culture at large, but especially in African American culture, it's a sign of weakness to ask for help.
+- That larger story in 'Salvage the Bones' is just about survival, and I think that, in the end, there are things about this novel and about these characters' experiences that make their stories universal stories.
+- The ugly heart of the South still beats with this idea that one group of people is worth less.
+- When I was a teenager, I was the only black girl at a small, private Episcopal school, where my tuition was paid by the family my mother worked for. It was hard being the only one, and I faced a fair amount of racist and classist bullying there.
+- Because everyone grows up together in my small hometown, everyone knows everyone else. And there are such large extended families that a lot of people are related to each other.
+- I wanted to write about the experiences of the poor and the black and the rural people of the South.
+- I need the lightness of children's lit.
+- At one time, when I was eight years old, my mother and father, my brother and my sisters - we had to move back in with my grandmother, and there were 13 of us living in one house.
+- My brother died when he was 19, so a part of me indulges and thinks that some part of him that made him uniquely him is out there, on another plane. So inventing the fictional afterlife in 'Sing, Unburied, Sing' was a way of making that wish real.
+- The reason that I like to use classical myths as models is because African American writers and African American stories are usually understood as occurring in some kind of vacuum - because of slavery.
+- I feel like in the reading I did when I was growing up, and also in the way that people talk and tell stories here in the South, they use a lot of figurative language. The stories that I heard when I was growing up, and the stories that I read, taught me to use the kind of language that I do. It's hard for me to work against that when I am writing.
+- History and socio-economic inequality and all those things had, like, borne down upon my family and my community and really sort of narrowed our choices.
+- I grew up in a lot of different homes when I was younger: my parents rented trailers and small, boxy houses set high on cement block pillars.
+- I knew it would be painful to write a memoir.
+- It really bothers me when people say we live in a postracial America.
+- I couldn't run from that desire to tell stories, that desire to tell stories about us, and about the people I loved.
+- I do think that people will claim a certain fatigue about talking about race. But I think that even though they do, it's still necessary - completely necessary.
+- I'm from a small town on the bottom edge of Mississippi, very near New Orleans and the Louisiana border. My family has lived there for generations.
+- My people are still poor. They're still working class. All of the characters that I write about are inspired by the community that I'm from.
+- Faulkner is a really important figure in southern literature. I wrestle with him and his legacy every time I sit down and write a piece of fiction.
+- I'm a failed poet. Reading poetry helps me to see the world differently, and I try to infuse my prose with figurative language, which goes against the trend in fiction.
+- I dabbled in writing, wrote really bad poetry in high school. I also took a few writing classes when I was an undergrad at Stanford. I was so intimidated.
+- After I finished my first draft of 'Salvage the Bones,' I felt that I wasn't political enough. I had to be more honest about the realities of the community I was writing about.
+- I worked with several writers at the University of Michigan: Nicholas Delbanco, Peter Ho Davies, Eileen Pollack, Laura Kasischke, and Thomas Lynch, who told me the same thing over and over again: Persist. Read, write, and improve: tell your stories.
+- Throughout my career, when I have been rejected, there was sometimes subtext, and it was this: People will not read your work because these are not universal stories.
+- My father owned pit bulls when I was young. He sometimes fought them. My brother and a lot of the men in my community owned pit bulls as well: sometimes they fought them for honor, never for money.
+- I've been in so many writing workshops where someone hands in a story, and when the other writers in the workshop are giving feedback, they say, 'This is unbelievable.' And the writer says, 'Well, actually, the events are based in real life. This actually happened.'
+- One of the things that is so striking to me about the South, especially living here now as an adult, is that I see a lot more mixed-race couples than I saw when I was growing up in the 1980s and the 1990s. I feel like living across the color lines has become something that's more expected.
+- Hip-hop, which is my generation's blues, is important to the characters that I write about. They use hip-hop to understand the world through language.
+- It's very hard to deal with true subject matter, especially when you're writing about such weighty issues.
+- I think that being a parent has expanded my writing, expanded my understanding of my characters, and has added a depth and richness to my work. Having kids deepened my idea of parenting and all the anxieties that come along with it.
+- I recently read a collection of stories called 'Boondock Kollage,' by Regina Bradley. The stories follow multiple characters through the South, through the past and present. I loved reading that book: the first time I read the opening story, I was breathless and incoherent.
+- My family has been poor and working-class for generations. And we live - I live in this really small community in Southern Mississippi where you don't evacuate, and you have never evacuated because there are too many people in your family to evacuate.
+- While I admire writers who are able to write with a vitality based on order and action, I work in a different vein. I often feel that if I can get the language just right, the language hypnotizes the reader.
+- People give the South a bad rap. It's often stereotyped as backwards and close-minded and dogmatic, and all of those things have been true. But I think that the South is changing, slowly but surely.
+- People don't read me and say, 'Oh, it's so clean and elegant.'
+- When I read 'Absalom, Absalom!,' I remember being really excited about it and telling all my friends they had to read it, especially my writer friends.
+- I feel a lot of pressure when I'm writing because I know, you know, if they looked at a synopsis of the book, what they read could only confirm all the stereotypes that they have about us and about people like us.
+- I don't really base any of my characters on specific people that I know, although my characters are informed by the kind of people who live in my community.
+- I was raised in Mississippi, in a family and a community that identified as black, and I have the stories and the experiences to go with it. One of my great-great grandfathers was killed by a gang of white Prohibition patrollers.
+- It's impossible for most black Americans to construct full family trees. Official census records, used by so many genealogy enthusiasts to piece together their families' pasts, don't include our non-European ancestors.
+- Physical books are still my favorite, but I own an e-book reader. They're convenient for travel.
+- When I look back on my reading habits when I was really young, I was really drawn to stories about strong girls who in some ways are outsiders.
+- A lot of times, real life is more surreal than writing.
+- While I've said that there are plenty of things I dislike about the South, I can be clear that there are things I love about the South.
+- I love creating that community and writing about that place, because I think, in some ways, Bois Sauvage is like the DeLisle of my past; it's like the DeLisle of the '80s that I can never return to. So in some ways, when I write about Bois Sauvage, I'm writing about a home that I've lost.
+- I hope that I never have to work in a place that sells large quantities of jeans ever again. Jeans are rough! It used to kill my hands. I know that sounds prissy - I'm not prissy at all. But it did; it killed my hands. It was awful.
+- In my family and in my community, I see people struggling with drug addiction, with poverty and the effects of generational poverty; I see people struggling with lack of access to healthcare.
+- The women here are the ones that hold the families together. So if my mom were to be unhappy with me, in a way, it would be like I would have lost my entire family.
+- I am grateful to the activists and women who created the Black Lives Matter movement because I feel like they let me know I wasn't crazy.
+- Biblical myth is as integral to the spirit of the South as the heat and humidity.
+- In the South, there is more overt racism. It's more willfully ignorant and brazen. But it's not as if by moving I'm going to be able to escape institutionalized racism. It's not as though my life won't be twisted and impacted by racism anymore. It will.
+- As an artist, I feel a certain responsibility to write about difficult subject matter.
+- I live in the South; there are Confederate flags everywhere.
+- I always think about Faulkner, and I would argue that there can be a difference between the way that characters express themselves internally and externally.
+- When I was writing my first novel, 'Where the Line Bleeds,' which had young black men as its main characters, I was very invested in telling the story and also very worried about the effects the story would have.
+- I was a freshman at Stanford University the first time someone called me a 'bama.' One of my new friends from D.C. said it, laughing, and even though I didn't know what it meant, exactly, I got that it was some kind of insult. I must have smirked or shrugged, which made him laugh harder, and then he called me 'country,' too.
+- I thought about all those people whose suffering had been erased, and I thought, 'Why can't they speak? Why can't I undo some of that erasure?'
+- I lived in San Francisco and did the Stegner fellowship for two years, and it was amazing. From fall 2008 to spring 2010, I was there.
+- I'm always curious about other writers' routines.
+- I celebrate my blackness. I love the artistic vibrancy of the culture I was born to.
+- In the past, I travelled with 'The Hero and the Crown' by Robin McKinley: I suffer from a fear of flying, and I felt a bit safer knowing I carried the book and characters with me.
+- My family and I survived Hurricane Katrina in 2005; we left my grandmother's flooding house, were refused shelter by a white family, and took refuge in trucks in an open field during a Category Five hurricane. I saw an entire town demolished, people fighting over water, breaking open caskets searching for something that could help them survive.
+- By the time I wrote my memoir, 'Men We Reaped,' I had been running from writing it for a long time. When the events in the book were happening, I knew I'd probably write about them one day. I didn't want to. I'd studied fiction, and I was committed to establishing myself as a fiction writer first.
+- I read the last Harry Potter, and I cried for at least the last 70 pages. Awful! I was curled into a ball and I just kept sobbing. It was embarrassing. I was loud, and I just kept wiping tears away so I could see the page.
+- I'm always thinking about time. That's one of themes I return to in my work, the way the past bears on the present, the way that time is not linear, and how that expresses itself in people's everyday lives.
+- As a reader, sometimes, I just want to not think. You know, I want to read something that is purely enjoyable: that is, like, escapist.
+- As a parent, you want to protect your children, but the fact of racism in this country, of inequality, that is still a lesson my children are going to have to learn. I can't protect my kids from that.
+- I wrote the first draft of my first novel at Michigan, and then I wrote the first draft of 'Salvage the Bones' at Stanford. So I workshopped the entire thing.
+- My mother worked for a white family that lived in one of the mansions on the beach. The husband in the family was a lawyer; he worked for a firm in New Orleans.
+- I didn't start really focusing on writing until I was 24.
+- It's always hard for a writer to make herself into a character; I had to figure out what my defining characteristics were, and that's something I had to work through multiple drafts to figure out.
+- I always understood my ancestry, like that of so many others in the Gulf Coast, to be a tangle of African slaves, free men of color, French and Spanish immigrants, British colonists, Native Americans - but in what proportion, and what might that proportion tell me about who I thought I was?
+- I've heard some writers say that they are obsessed with certain ideas and that they find themselves writing around the same obsession again and again, but telling different stories to get at that same idea. I'm beginning to think that I suffer from this syndrome, too.
+- With all the main characters that I write, it's always very important to me that they have good and bad aspects of their personality. It's important to me that they're complicated and that they're human.
+- Katrina silenced me for two years. I wrote a 12-page essay on my experience in Katrina, and that's it. I didn't write anything for, like, two, two and a half years after Katrina hit because it was so traumatic.
+- It took me a long time to write again because Katrina destroyed the home I loved, and that robbed me of hope.
+- I can't stop thinking about the devaluation of black life, and I find it seeping into everything I write.
+- Sometimes, you get tired of fighting. I think you just sort of come to this realization that yes, that you will get tired, but that doesn't mean that you can give up the fight.
+- I think that the first book that made me think that I could try to be a writer - or that made me aware that a young black woman from the South could write about the South - was Alice Walker's 'The Color Purple,' which I read for the first time when I was in junior high.
+- My mom is the kind of mom, when we would go to a friend of the family's house, and they would offer us something to drink or offer us something to eat, my mother would always say, 'Tell them no.' You could be starving - you could be dehydrated - but as kids, we were supposed to tell the host, 'No.'
+- I could stifle my voice, or strip it. I know that I could, because we can do anything we put our minds to. I know that I could, but it feels very unnatural for me to strip my prose like that, in part because place is so important to me.
+- I was pleasantly surprised with 'Salvage.' I went to Australia and New Zealand for the novel and met a lot of people who had experienced the earthquakes in Christchurch. They responded very strongly to the book because they had been through these natural disasters and were trying to figure out how to rebuild.
+- I think people make certain assumptions about what they're interested in reading or what others would be interested in reading, and when they think of poor black people in the South, they don't think people are interested in reading about those people.
+- I'm still a bit of a reading glutton, I think, because I browse, read a bit of the back copy, flip through the book, read a bit of the text, and if it still seems fascinating, I read it. That's why my bedside table is so cluttered: I want to imbibe it all.
+- Faulkner's characters, too, were uneducated. They were deprived, but they were allowed to have very rich inner lives. I want to advocate for that, for inner lives that are much more complicated and more poetic than we think.
+- Without the library, I would have been lost.
+- People ask me all the time, 'Why did I move home?' As well as I can articulate it, that's why. I moved home because I love the community that I come from.
+- I've found that in fiction - and this is just the kind of writer I am - I can't really work from an outline. I have a vague idea of the characters at the beginning of the book, and then I have a vague idea of whatever the end of the book will be, but I can't approach creative nonfiction like that.

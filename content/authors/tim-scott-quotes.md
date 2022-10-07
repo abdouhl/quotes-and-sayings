@@ -1,0 +1,54 @@
++++
+author = "Tim Scott"
+title = "Tim Scott Quotes"
+quotes_len = "48"
+description = "the best 48 Tim Scott Quotes"
++++
+- If the small government concept grows, we have fewer dollars leaving our pockets, we have more folks motivated to make a profit.
+- Our position should not be on how to eliminate the competition at all expenses, but we should focus on what we're going to do in order to make sure that Americans turn to the road of prosperity with the trajectory of capitalism, because making a profit is not an evil.
+- If Strom Thurmond could get 30% of the black vote, any Republican can.
+- I think the question is who am I? That's what we all should be asking ourselves. Who am I? Well, if I am first a Christian conservative then that dictates my response to all questions so my response first as a Christian conservative is to vote consistent with my value system.
+- As a small business owner for the last 15 years, when I think of what truly changed my life, it was my faith, a strong family, my mom did a really, really good job of encouraging me in very clear and discernible ways.
+- People ask me about if, being a Republican, you guys want to cut everything and stop everything and not help people. I find that patently false.
+- There is nothing special about Tim Scott. I'm an ordinary guy serving an extraordinary God and that makes the difference.
+- I failed world geography, civics, Spanish and English. And when you fail Spanish and English, they do not consider you bilingual. They may call you bi-ignorant because you can't speak any language.
+- I was warmly embraced by the Tea Party. They openly seek more minorities.
+- The future of the Republican Party and the future of America is based on a values system and the issues that drive those values are on our side.
+- I'm going to be a Republican who happens to be black - who will talk about issues that I'm passionate about.
+- I have campaigned all over the state of South Carolina. It is the friendliest state in the country. And truly here people judge you by the content of your character not the color of your skin.
+- One thing without any question that is true today and that is that the winner of the 28-minute commercial is President Barack Obama.
+- Starting and feeding into the cultural war is absolutely unequivocally wrong for us as a nation and bad for the conservative movement.
+- Is Romney a tea party candidate? I'd probably say that he's the least of the candidates running for president right now that would be considered a tea party candidate.
+- I think when you look to the future what you'll find is that the Republican Party is building a bigger party base on stronger values.
+- We have to attack those things which stand in the way of America progress. And what stands in the way of American progress right now is the federal government.
+- But in my life, the vast majority of people that have really afforded me the opportunity to succeed were white folks.
+- I see myself as a person who wants to serve the constituents within my district and find a way to move those who are not in our position philosophically to our position.
+- I believe Americans have a strong work ethic.
+- I think you hear, at least as an undertone, and it's going to grow louder, is that we believe that capitalism is the mantra of the day and anything that creeps towards socialism is a problem.
+- I just dove into the Scriptures and started memorizing different scriptures and started becoming as much as possible a part of the scripture. I wanted it to be grafted into my heart.
+- Obamacare. Get rid of it. Period.
+- I remember walking down the aisle, and I got down on my knees as a person who is so selfish, but when I rose back up the Lord had become the Master of my life.
+- As I have traveled throughout my Congressional district, the one thing I heard loud and clear was simply please stop spending money you do not have, rein in spending, live within a budget.
+- South Carolina is a great place to be from.
+- Certainly I feel like I'm the tip of the arrow at times because certainly the national media wants to talk about the fact that I'm a black Republican and some people think of that as zany that a black person would be a conservative but to me what is zany is any person black, white, red, brown or yellow not being a conservative.
+- Thousands of Americans are forced to join unions as a condition of employment, with little to no chance of ever having their voices heard.
+- Part of the challenge of being a black Republican anywhere is that you start off with people walking in with chips on their shoulder trying to figure out what is wrong with you.
+- I think about my grandfather who's 89 years old, and the last thing he needs is more money out of his pocket.
+- I think one of the most threatening places to be in politics is a black conservative because there are so many liberals who want to continue to reinforce a stereotype that doesn't exist about America.
+- Success is created in studio apartments and garages, at kitchen tables, and in classrooms across the nation, not in government conference rooms in Washington.
+- I think it's very clear that the American people are frustrated with this move toward socialism. And so whether you're back or white, if you believe that the conservative construct is in the best interest of our future, than you too would be voting with Republicans, and if you had the opportunity to run you'd join us as well.
+- There is nothing special about Tim Scott.
+- I'm an ordinary guy serving an extraordinary God - and that makes the difference.
+- If you look at the fact that the best chance we have for a good economy is the private sector. The government cannot create jobs. If the government could create jobs, then Communism would have worked. But didn't work. So what we have to do is allow the private sector and the entrepreneurial spirit to lead us back to a job-filled recovery.
+- When I was in the 9th grade I was flunking out of high school. And that's why I'm so encouraged by the fact that America is the place where opportunity and American exceptionalism is alive and well.
+- If our message reaches the kitchen tables, we are in good shape.
+- And the Tea Party represents many of us who believe that we are taxed enough already. We believe in free markets.
+- There are good people and bad people in all organizations fundamentally however, when you look at the basis of the Tea Party it has nothing to do with race. It has to do with an economic recovery. It has to do with limiting the role of our government in our lives. It has to do with free markets.
+- We do not have a revenue problem in D.C. or this county. We have a prioritization problem. When you create the priorities you fund the priorities of the country and you stop spending money when you get to zero.
+- I know that my grandfather is 92 years old. And he has seen this country evolve in amazing ways. He looks at South Carolina and he says, wow, what an amazing state that we have the blessing to live within because of the evolution.
+- I don't necessarily believe there's a message in the fact that I'm an African-American Republican. I think there is a message that America as a whole, we are now awake. We are looking at a political construct and we're fairly disappointed. I think the message is no matter where you come from in this country, there is great potential.
+- Ensuring fairness in the American workplace should be a cornerstone of our economic policy.
+- The first time that I was elected I was called the Judas Iscariot of the black community because I took a stand that was inconsistent of cutting across the grain.
+- But the question we should ask ourselves is, who is the next visionary leader of America? How do we have the aspiration and inspire Americans to reach their highest level? We need a president that does so.
+- We need the private sector to create jobs. If the government could create jobs Communism would have worked, but it didn't.
+- I'm not looking to be dominating all the media outlets ... to talk about any issue just to be on TV, I'm not your guy. I'm not going to be 'the black Republican'. I'm going to be a Republican who happens to be black who will talk about issues that I'm passionate about that are specific to the agenda that I want to accomplish.

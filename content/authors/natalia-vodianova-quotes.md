@@ -1,0 +1,33 @@
++++
+author = "Natalia Vodianova"
+title = "Natalia Vodianova Quotes"
+quotes_len = "27"
+description = "the best 27 Natalia Vodianova Quotes"
++++
+- Because of my childhood where I was constantly by myself, I always feel lonely. I have a lot of people that I absolutely love and I know love me but I can't get rid of that feeling of loneliness no matter who I'm with - even with my children.
+- I missed quite a lot of school because I was working from the age of 11.
+- I live a very different life now, with incredible privileges, but looking back I realise that growing up in Russia gave me tools that other people don't necessarily have - such as the will to push that bit further, to make things happen, to succeed.
+- If you never know hardship, you can't really support people around you.
+- I believe in reincarnation of the soul.
+- I was born in Nizhny Novgorod to a very poor family and unfortunately my father and mother separated when I was very little.
+- I love Yves Saint Laurent and Giambattista Valli and Givenchy, and I get given quite a lot, but perhaps nothing is as wonderful as the white fake leather trench coat I got when I was 15.
+- I raised my sister. I was six when she was born. My mother had to make a living for herself and it was very hard, so I was looking after my sister, cooking and cleaning, and she had four jobs.
+- When you become a mother, you think less about yourself and care more about the world.
+- When you are at the bottom, you find beauty in such little things, and goodness in such little gestures. When I compare any struggle today to ones that I may have had in my childhood, there is nothing that can bring me down.
+- The people that live in my hometown do not walk along the street with smiles on their faces. It is a desperate place, but I got out.
+- It's better to be skinny than to be fat.
+- I don't mind being called 'Supernova.' If one nickname is going to stick, that's not a bad one!
+- My childhood gave me resilience - and there's little that can surprise me in life.
+- We all have our own purpose in life and I feel very strongly that I have a bigger purpose than giving to just my immediate family and friends.
+- As a child I really didn't like men at all, in fact.
+- Moscow is a huge inspiration for me. I love what I find here, I love being here.
+- Before I left Russia in 1999, I was living in a very poor factory town with my family and friends, and nothing was ever going to change.
+- Finding out I was pretty was a very nice realisation.
+- I think protecting your family and giving to them is so important. It's the most important achievement.
+- I have made enough money to secure my family and that is all I care about.
+- If you are ambitious you can have a moment of glory but it will most likely be temporary. But talent always finds its way out.
+- I learnt early to have little expectation so I protected myself from ever feeling greatly disappointed.
+- I completely admire my mother for raising a child with cerebral palsy at home.
+- My appearance gave me access to a particular kind of world and I'm really grateful for it.
+- I know what it's like not to have food in the fridge or money to buy more.
+- When I remember my life in Russia it is in totally dark colours.

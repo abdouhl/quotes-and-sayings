@@ -1,0 +1,13 @@
++++
+author = "Torsten Wiesel"
+title = "Torsten Wiesel Quotes"
+quotes_len = "7"
+description = "the best 7 Torsten Wiesel Quotes"
++++
+- In the early Sixties, having begun to describe the physiology of cells in the adult cat visual cortex, David Hubel and I decided to investigate how the highly specific response properties of cortical cells emerged during postnatal development.
+- It takes a long time for a country to build a strong base in science, but only a short time to destroy it. Germany was a sad example. It was a world leader in the sciences for more than a century, until its science base was demolished during the Nazi era, and the country ceded its position to the United States.
+- After forty years in the lab, I was asked in 1991 to become president of The Rockefeller University. Unlike a working scientist, being president for seven years provided an opportunity to interact with scientists in many different fields and broadened my scope of the natural sciences.
+- Aside from my work, my interests lie in the arts and in world affairs.
+- Innate mechanisms endow the visual system with highly specific connections, but visual experience early in life is necessary for their maintenance and full development. Deprivation experiments demonstrate that neural connections can be modulated by environmental influences during a critical period of postnatal development.
+- I cannot think of a greater symbol of human resistance and courage than our Nobel laureate colleague Andrei Sakharov.
+- In 1983, I became the Vincent and Brook Astor Professor at The Rockefeller University, where I established a new Laboratory of Neurobiology and continued my close collaboration with Charles Gilbert on the circuitry of primary visual cortex.

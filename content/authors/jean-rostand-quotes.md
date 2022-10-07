@@ -1,0 +1,59 @@
++++
+author = "Jean Rostand"
+title = "Jean Rostand Quotes"
+quotes_len = "53"
+description = "the best 53 Jean Rostand Quotes"
++++
+- There are certain moments when we might wish the future were built by men of the past.
+- To say of men that they are bad is to say they are worse than we think we are, or worse than the ideal man whose image we have built up on the basis of a certain few.
+- There are moments when very little truth would be enough to shape opinion. One might be hated at extremely low cost.
+- Somebody told me I should put a pebble in my mouth to cure my stuttering. Well, I tried it, and during a scene I swallowed the pebble. That was the end of that.
+- One must either take an interest in the human situation or else parade before the void.
+- Stupidity, outrage, vanity, cruelty, iniquity, bad faith, falsehood - we fail to see the whole array when it is facing in the same direction as we.
+- It takes a very deep-rooted opinion to survive unexpressed.
+- Beauty in art is often nothing but ugliness subdued.
+- Nothing is more admirable than the fortitude with which millionaires tolerate the disadvantages of their wealth.
+- It is sometimes important for science to know how to forget the things she is surest of.
+- Falsity cannot keep an idea from being beautiful; there are certain errors of such ingenuity that one could regret their not ranking among the achievements of the human mind.
+- When a scientist is ahead of his times, it is often through misunderstanding of current, rather than intuition of future truth. In science there is never any error so gross that it won't one day, from some perspective, appear prophetic.
+- Certain brief sentences are peerless in their ability to give one the feeling that nothing remains to be said.
+- Science has made us gods even before we are worthy of being men.
+- To be adult is to be alone.
+- Theories pass. The frog remains.
+- A few great minds are enough to endow humanity with monstrous power, but a few great hearts are not enough to make us worthy of using it.
+- Far too often the choices reality proposes are such as to take away one's taste for choosing.
+- I think I am one of those who can manage not to take on a completely different appearance under their own glance.
+- Already at the origin of the species man was equal to what he was destined to become.
+- It may offend us to hear our own thoughts expressed by others: we are not sure enough of their souls.
+- Never feel remorse for what you have thought about your wife; she has thought much worse things about you.
+- A man is not old as long as he is seeking something.
+- Take heed of critics even when they are not fair; resist them even when they are.
+- Think? Why think! We have computers to do that for us.
+- The ideal, without doubt, varies, but its enemies, alas, are always the same.
+- A married couple are well suited when both partners usually feel the need for a quarrel at the same time.
+- Truth is always served by great minds, even if they fight it.
+- We spend our time envying people whom we wouldn't wish to be.
+- Renown? I've already got more of it than those I respect, and will never have as much as those for whom I feel contempt.
+- In order to remain true to oneself one ought to renounce one's party three times a day.
+- To love an idea is to love it a little more than one should.
+- One kills a man, one is an assassin; one kills millions, one is a conqueror; one kills everybody, one is a god.
+- I should have no use for a paradise in which I should be deprived of the right to prefer hell.
+- The least one can say of power is that a vocation for it is suspicious.
+- I still understand a few words in life, but I no longer think they make a sentence.
+- It is not easy to imagine how little interested a scientist usually is in the work of any other, with the possible exception of the teacher who backs him or the student who honors him.
+- Hatred, for the man who is not engaged in it, is a little like the odor of garlic for one who hasn't eaten any.
+- To reflect is to disturb one's thoughts.
+- Nothing leads the scientist so astray as a premature truth.
+- Greatness, in order to gain recognition, must all too often consent to ape greatness.
+- It is sometimes well for a blatant error to draw attention to overmodest truths.
+- The nobility of a human being is strictly independent of that of his convictions.
+- In politics, yesterday's lie is attacked only to flatter today's.
+- I prefer the honest jargon of reality to the outright lies of books.
+- My pessimism extends to the point of even suspecting the sincerity of other pessimists.
+- The divine is perhaps that quality in man which permits him to endure the lack of God.
+- God, that dumping ground of our dreams.
+- A body of work such as Pasteur's is inconceivable in our time: no man would be given a chance to create a whole science. Nowadays a path is scarcely opened up when the crowd begins to pour in.
+- One must credit an hypothesis with all that has had to be discovered in order to demolish it.
+- The books one has written in the past have two surprises in store: one couldn't write them again, and wouldn't want to.
+- I don't judge a regime by the damning criticism of the opposition, but by the ingenuous praise of the partisan.
+- We must watch over our modesty in the presence of those who cannot understand its grounds.

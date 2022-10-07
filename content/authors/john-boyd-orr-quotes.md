@@ -1,0 +1,32 @@
++++
+author = "John Boyd Orr"
+title = "John Boyd Orr Quotes"
+quotes_len = "26"
+description = "the best 26 John Boyd Orr Quotes"
++++
+- After the First World War the economic problem was no longer one of production. It was the problem of finding markets to get the output of industry and agriculture dispersed and consumed.
+- Some think the worst horrors of war might be avoided by an international agreement not to use atomic bombs. This is a vain hope.
+- We are now physically, politically, and economically one world and nations so interdependent that the absolute national sovereignty of nations is no longer possible.
+- In recent times, European nations, with the use of gunpowder and other technical improvements in warfare, controlled practically the whole world. One, the British Empire, brought under one government a quarter of the earth and its inhabitants.
+- Our civilization is now in the transition stage between the age of warring empires and a new age of world unity and peace.
+- However difficult it may be to bring it about, some form of world government, with agreed international law and means of enforcing the law, is inevitable.
+- The increase of territory and power of empires by force of arms has been the policy of all great powers, and it has always been possible to get the approval of their state religion.
+- Science has produced such powerful weapons that in a war between great powers there would be neither victor nor vanquished. Both would be overwhelmed in destruction.
+- When the Industrial Revolution of the nineteenth century brought a rapid increase in wealth, the demand of workers for a fair share of the wealth they were creating was conceded only after riots and strikes.
+- The real evil of the Russian communist state is not communism. It is the secret police and the concentration camp.
+- Some wars have been due to the lust of rulers for power and glory, or to revenge to wipe out the humiliation of a former defeat.
+- During the last war when there was a market for everything that could be produced, the production capacity of Canada and the United States, which were outside the battle area, increased one hundred percent.
+- Empires won by conquest have always fallen either by revolt within or by defeat by a rival.
+- The history of our civilization has been one of intermittent war.
+- It is said that those whom the gods wish to destroy they first make mad. It may well be that a war neurosis stirred up by propaganda of fear and hatred is the prelude to destruction.
+- In the last five or six thousand years, empires one after another have arisen, waxed powerful by wars of conquest, and fallen by internal revolution or attack from without.
+- Measured in time of transport and communication, the whole round globe is now smaller than a small European country was a hundred years ago.
+- In the last fifty years science has advanced more than in the 2,000 previous years and given mankind greater powers over the forces of nature than the ancients ascribed to their gods.
+- As I have tried to show, science, in producing the airplane and the wireless, has created a new international political environment to which governments must adjust their foreign policies.
+- As we have seen, the wireless and the airplane have made the world so small and nations so dependent on each other that the only alternative to war is the United States of the World.
+- If the views I have expressed be right, we can think of our civilization evolving with the growth of knowledge from small wandering tribes to large settled law.
+- Nearly every country in the world is now becoming industrialized as rapidly as it can.
+- Though the general principles of statecraft have survived the rise and fall of empires, every increase in knowledge has brought about changes in the political, economic, and social structure.
+- When the fabric of society is so rigid that it cannot change quickly enough, adjustments are achieved by social unrest and revolutions.
+- Our civilization has evolved through the continuous adjustment of society to the stimulus of new knowledge.
+- There can be no peace in the world so long as a large proportion of the population lack the necessities of life and believe that a change of the political and economic system will make them available. World peace must be based on world plenty.

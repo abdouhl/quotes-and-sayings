@@ -1,0 +1,48 @@
++++
+author = "Marquis De Sade"
+title = "Marquis De Sade Quotes"
+quotes_len = "42"
+description = "the best 42 Marquis De Sade Quotes"
++++
+- Religions are the cradles of despotism.
+- The imagination is the spur of delights... all depends upon it, it is the mainspring of everything; now, is it not by means of the imagination one knows joy? Is it not of the imagination that the sharpest pleasures arise?
+- No lover, if he be of good faith, and sincere, will deny he would prefer to see his mistress dead than unfaithful.
+- Lust is to the other passions what the nervous fluid is to life; it supports them all, lends strength to them all ambition, cruelty, avarice, revenge, are all founded on lust.
+- I've already told you: the only way to a woman's heart is along the path of torment. I know none other as sure.
+- In order to know virtue, we must first acquaint ourselves with vice.
+- They declaim against the passions without bothering to think that it is from their flame philosophy lights its torch.
+- Lust's passion will be served; it demands, it militates, it tyrannizes.
+- Sensual excess drives out pity in man.
+- The primary and most beautiful of Nature's qualities is motion, which agitates her at all times, but this motion is simply a perpetual consequence of crimes, she conserves it by means of crimes only.
+- All, all is theft, all is unceasing and rigorous competition in nature; the desire to make off with the substance of others is the foremost - the most legitimate - passion nature has bred into us and, without doubt, the most agreeable one.
+- Variety, multiplicity are the two most powerful vehicles of lust.
+- My manner of thinking, so you say, cannot be approved. Do you suppose I care? A poor fool indeed is he who adopts a manner of thinking for others!
+- Destruction, hence, like creation, is one of Nature's mandates.
+- Are not laws dangerous which inhibit the passions? Compare the centuries of anarchy with those of the strongest legalism in any country you like and you will see that it is only when the laws are silent that the greatest actions appear.
+- Nature has not got two voices, you know, one of them condemning all day what the other commands.
+- Are wars anything but the means whereby a nation is nourished, whereby it is strengthened, whereby it is buttressed?
+- One is never so dangerous when one has no shame, than when one has grown too old to blush.
+- The more defects a man may have, the older he is, the less lovable, the more resounding his success.
+- Truth titillates the imagination far less than fiction.
+- She had already allowed her delectable lover to pluck that flower which, so different from the rose to which it is nevertheless sometimes compared, has not the same faculty of being reborn each spring.
+- Man's natural character is to imitate; that of the sensitive man is to resemble as closely as possible the person whom he loves. It is only by imitating the vices of others that I have earned my misfortunes.
+- Nature, who for the perfect maintenance of the laws of her general equilibrium, has sometimes need of vices and sometimes of virtues, inspires now this impulse, now that one, in accordance with what she requires.
+- The ultimate triumph of philosophy would be to cast light upon the mysterious ways in which Providence moves to achieve the designs it has for man.
+- One weeps not save when one is afraid, and that is why kings are tyrants.
+- Your body is the church where Nature asks to be reverenced.
+- What is more immoral than war?
+- 'Til the infallibility of human judgements shall have been proved to me, I shall demand the abolition of the penalty of death.
+- There is no more lively sensation than that of pain; its impressions are certain and dependable, they never deceive as may those of the pleasure women perpetually feign and almost never experience.
+- Happiness is ideal, it is the work of the imagination.
+- Between understanding and faith immediate connections must subsist.
+- Happiness lies neither in vice nor in virtue; but in the manner we appreciate the one and the other, and the choice we make pursuant to our individual organization.
+- There is no God, Nature sufficeth unto herself; in no wise hath she need of an author.
+- All universal moral principles are idle fancies.
+- So long as the laws remain such as they are today, employ some discretion: loud opinion forces us to do so; but in privacy and silence let us compensate ourselves for that cruel chastity we are obliged to display in public.
+- Never lose sight of the fact that all human felicity lies in man's imagination, and that he cannot think to attain it unless he heeds all his caprices. The most fortunate of persons is he who has the most means to satisfy his vagaries.
+- Social order at the expense of liberty is hardly a bargain.
+- It is always by way of pain one arrives at pleasure.
+- The idea of God is the sole wrong for which I cannot forgive mankind.
+- To judge from the notions expounded by theologians, one must conclude that God created most men simply with a view to crowding hell.
+- 'Sex' is as important as eating or drinking and we ought to allow the one appetite to be satisfied with as little restraint or false modesty as the other.
+- It is not my mode of thought that has caused my misfortunes, but the mode of thought of others.

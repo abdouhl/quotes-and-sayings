@@ -1,0 +1,53 @@
++++
+author = "Jain"
+title = "Jain Quotes"
+quotes_len = "47"
+description = "the best 47 Jain Quotes"
++++
+- I always write about something that moves me.
+- The thing is: Yes, I'm white and yes, I love African music, and I can't do anything about it.
+- I'm from the Southwest, and in the Southwest of France, you're not supposed to love Paris.
+- Music is like my secret garden. It's where I heal myself from every pain that I feel. It's like a therapy.
+- It's really important because it's how you present yourself to people, and for me it's an act of respect, you know? To get dressed for the people who came to the show.
+- I just wanna write about what I am living as a citizen. That's all.
+- I could not have asked for a better childhood.
+- My music was about travelling a lot and connecting with other people, and English is the voice of travelling.
+- I want to have Congolese influences but also influences from Dubai and Abu Dhabi and France. To mix everything up.
+- Since I was a child, I was yearning to learn about percussion because that's what I loved.
+- I've been to India, Jordan, South Africa, Namibia, Senegal, Australia, Madagascar, Oman, The States, and a lot of countries in Europe, just to visit... I wanted to make music to connect all of these influences, and make a multicultural music with these experiences.
+- I quietly work with my computer on the tour bus, and then I wait to make my more natural rhythms when I get home.
+- When I was very young, I just loved the idea of tapping on stuff, so I was always making a lot of noise.
+- I thought it was beautiful to be able to forgive and give love and to fight only with flowers. So I created the idea of a 'Souldier,' which is like an army guy but fights for love.
+- I was always playing with whatever I could get under my hands, making rhythm with it, which was natural for me, because my parents were listening to a lot of African music.
+- You may hear from my fabulous accent that I'm French!
+- I grew up in a family where, when we listened to music everybody would dance, so for me that's a very natural thing to do.
+- I could never imagine ever in my life that I'd be on the side of The Louvre.
+- At 16 I was living in the Congo, and, you know, it's your teenage time. I really wanted to find a way to express myself, so I started to write songs in the Congo, and I think that's why my music is quite open, with a lot of different influences.
+- When I was little, I was listening to the Beatles, Bob Marley, Janis Joplin, and stuff. I had a big soul music culture, and not so much a French one.
+- My favourite place was in The Congo. It's where I began to write songs and build myself as an adult.
+- My music would be very, very different if I haven't traveled.
+- I think it's hard when you're a woman because the music industry is way more masculine than feminine, so you have to make your own space and fight for it.
+- Going to the U.A.E. for the first time was a real cultural shock. Everything was different. People didn't speak my language, it was all new, a huge change. But I loved it.
+- I started to write my songs when I was 15 and living in the Congo.
+- When I travel I always try to see shows from a local group, and with the Internet it's important to have a global vision of music.
+- I've never been inspired by a politician in France, and I think a lot of my own generation think that way.
+- Cultural appropriation is a big problem, but the thing is, I didn't invent my life. I really lived in Africa.
+- Making music you can dance to is very important to me.
+- I just write about what makes me sad, and then when I write, I hear myself. It's like therapy, where I write something sad and then I make it happier or hopeful.
+- We shouldn't be scared of love.
+- I realised that I really liked to be on stage, and that I wanted to pursue it.
+- For me to have the opportunity to learn the darbuka and the tabla in Dubai, it created my own thoughts for music.
+- When I like an artist, especially a female artist, I really try to support.
+- Sometimes people stop me on the street and they say 'when are you going to make the next 'Zanaka' and it's what I really didn't want to do.
+- I'm from a little town from the south tip of France, to be able to play in Coachella and meet other artists from all over the world and to connect with people that I love from my hometown is something amazing.
+- Moving from Dubai to the Congo was one of the best things that happened to me, it's a shock to be confronted by the contrast in wealth and culture, and it's hard, but I loved it and it influenced me a lot.
+- Well, the thing is I always listened to American music way more than French music.
+- When I started making music, I wanted to enjoy it and make others enjoy it. But it's just music. I am not saving the world.
+- What I want to tell people is that you can mix the culture a little bit and it's not always appropriation.
+- Moving to Dubai at age 9 and then the Congo, they were two completely opposite countries. But that brought me to music and taught me things that I never would have learned otherwise. And it was always about the rhythm in those two countries - that's why I love them.
+- I'm someone who is quite shy, and onstage I'm quite... extrovert.
+- My mother is half-French, half-Malagasy, so I've been listening to African music, like Malian and Congolese music, since I was a child.
+- I am French. I was born here, I live here and France is my cultural identity.
+- Sometimes you meet people that try to explain to you your work, and how to write a song and how to sing it, and they explain that you are doing it the wrong way. And yeah, it's always super frustrating.
+- When I was nine, I was passing by a drum class and saw them playing and I was moved. That's why I started making music.
+- Music is open-minded and has always travelled, every country takes something from another, and that's what makes the richness of music.

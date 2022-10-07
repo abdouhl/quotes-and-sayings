@@ -1,0 +1,94 @@
++++
+author = "Tia Mowry"
+title = "Tia Mowry Quotes"
+quotes_len = "88"
+description = "the best 88 Tia Mowry Quotes"
++++
+- After my pregnancy, I discovered I have an allergy to yeast. Problem is, all the food I love has yeast in it. So I have to relearn how to cook.
+- I come from a mixed background - my mom's black, my dad's white - and I traveled around the world.
+- People want to know how we do it as moms. I want to inspire moms to get back in the kitchen. I want to show moms that not only is it great to have your kids eat healthy foods as opposed to McDonald's, but it's great to bring the family back together.
+- My house is completely organized from my closets to my drawers.
+- The meat that I choose to feed my family, it's healthy meats such as lamb, which is very low in cholesterol and saturated fat. And then turkey - we eat a lot of turkey. We don't eat loads of beef.
+- I think it's something that needs to be said - that there are interracial marriages out there, and the couples live happy lives, and there's nothing wrong with it.
+- I have a lot of gay friends, and some have not come out, and... it just hurts me that there are some people who can't feel like they can be themselves because society is not accepting to them. I literally see their happiness deprived.
+- Exploring is one of my favorite things to do, but I don't really want to be in a tour group. I like doing it alone or with whomever I'm traveling with.
+- I'm so obsessed and involved with my son.
+- I loved getting tutored and having that one-on-one attention that you sometimes do not get in regular school.
+- I'm very structured. I like planning things out. I get frustrated when they don't go according to plan.
+- I've never been discriminated against, but I have witnessed discrimination. I was talking to a director and asked why one of my friends didn't get a particular part, and he specifically told me it was because she just had a baby and it was hard to see her as sexy.
+- I'm passionate about cooking. I'm passionate about healthy eating. I'm passionate about inspiring other women.
+- Before becoming a mom, I never knew how good I had it to just spend time at a spa for a few hours. Now, those days are far and between. So when I have an hour, it's all about the mani and pedi.
+- I remember when I was like, 'I want to get another shot.' And some of the other actors on 'Sister, Sister' were like, 'Do you know that's like a 1%, 2% chance for you to get another successful show? That just doesn't happen.' But whenever I hear, 'No,' or 'You can't,' something inside of me just goes, 'Oh no, yes I can!'
+- There's a stigma about being vegan. Some people say it doesn't taste great. Don't knock it until you try it!
+- Being a mom is hard, but I don't want people to feel like they always have to go straight to the TV dinner or go to the fast food because you have a busy, hectic life.
+- To keep my son healthy, I throw secret veggies into his favorite dishes.
+- I think that you may find that Tamera's a little more vibrant and energetic, but I'm much more likely to go up to a person and say, 'Hi, I'm Tia, nice to meet you.' Whereas Tamera is like... well... she's a little shy. She's down to earth. I'm more extroverted and she's more introverted when meeting people.
+- I saw how changing my diet really benefitted my health. After I changed my diet, I was able to get pregnant, and then my eczema went away, and then my migraines went away.
+- I feel like life imitates art, or art imitates life. I always take on roles that I'm passionate about.
+- I have these brownies that I make that are just a home run with my family. I make them with almond butter, prune puree, walnuts, cocoa powder and whole-wheat flour, and I like them because they're delicious, but they're also guilt-free.
+- Society tends to always make multiples - whether it's twins or triplets or whatever - one person. And it's not always fair. I encourage multiples to embrace their individual uniqueness because, just as you are an amazing unit together, that can only happen when you are strong individually.
+- I don't allow Hollywood to define my joy, my happiness, and my peace because you'll be screwed. You have to be very careful.
+- I love a good miso soup: it's fermented. It really helps with the immune system. I'll add tofu, carrots and seaweed.
+- I always say that I would go poor eating my way through New York because I like to try everything.
+- Health is really important to me and my family. It's something that we value and that I strive for on a daily basis. MedImmune, the makers of Flumist Quadrivalent, knew about that and knew how important health is for me, so it was a no brainer for me to collaborate with them.
+- Growing up, dinner was when we would sit down, the whole family, and we would talk about our days and just create memories with one another. Now some of my favorite memories are eating and making food with my son.
+- In terms of flu prevention, for my son I'll do a quick smoothie, usually with spinach, avocado or broccoli. And then throw in strawberries and blueberries to hide the greens.
+- We need to be more supportive with everything. With body images, especially with women, showing that all sizes are beautiful. And I'm talking about in magazines, advertisement in regard to what's sexy and what's not sexy. We all need to be a little more supportive of each other.
+- In Budapest, I always had questions. What is your signature dish? They, of course, said goulash. I loved it so much and now have to figure out a way to make it at home.
+- When I grew up I always wanted to act. Also, I wanted to be either a lawyer or a doctor. However, when I got to college and realized what those occupations entailed, I changed my mind real quick.
+- How I thrive is very simple. My son brought my perspective back to focusing on and appreciating the simple things in life. It's about just being with my family - whether that's waking up in bed next to my husband under the comforter and just hugging or walking down the street and holding my son's hand.
+- I like to embrace natural beauty. I try to get at least 8 hours of sleep, drinking a lot of water and exercising.
+- Girls are hard. They're very hard. I love my son. I hear the relationship between mommy and son is the best. Who knows? My husband wants a girl, he really does.
+- My mom and dad will look at me and my husband, and they're like 'I feel so sorry for this child! He's not eating fish sticks and pizza!' I'm like, 'We try to give it to him, but he doesn't wanna eat it!'
+- I was so used to seeing so many women in the media flaunting their bodies 4 weeks after having a baby - and kudos to those who have genes that they can get right back into shape 2 weeks, 4 weeks after having a baby. But that never happened to me, and I remember going to my doctor asking why.
+- The worst part about pregnancy would definitely have to be my nausea. I don't know why it's just called morning sickness because morning sickness never just happened in the morning for me and it's not happening just in the morning for my sister.
+- I have my 'Whole New You' cookbook I'm currently working on.
+- I love yoga because not only is it a workout for your body, but also your breathing, which helps release a lot of stress. It really prepares you for the day.
+- I really enjoy making breakfast and dinner. But breakfast is a good excuse to have some dessert before dinner.
+- Sleep is very precious to me. I love to sleep.
+- It's a twin type of telepathy. My sister and I, we share the same DNA, so on paper, we're the same person. I knew she was pregnant, like, right away - it's so crazy - but I asked her, and she said yes.
+- Going vegan, I feel great!
+- People always say you never know love until you have your own child and all of that is true.
+- I feel the sexiest in my husband's t-shirts, especially after he's worn it all day.
+- We don't put gender roles on our marriage and our relationship. If I'm working a lot and Cory's home, he will put Cree to bed, and if dishes need to be washed, he will wash them. So it's not like, 'Oh, I'm going to wait until my wife gets home, and she's going to be doing all that.'
+- What I think is key is everybody has to approach a relationship from a realistic standpoint. Everybody has stuff in the back of a trunk. The key is what kind of stuff can you deal with. There are some women who can deal with a relationship that I can't.
+- We try to be conscious of the amount of trash we have. Having a water filter allows us to be aware of not using too many water bottles. Since I am not able to hand wash due to my schedule, I use Seventh Generation laundry detergent, and I feel less guilty.
+- I really, really like Nicole Richie, and the only reason why I always bring her up is because I'm impressed with her style evolution. This is someone that came onto the scene that people didn't necessarily view as a style icon, and she completely switched up the game. And I like how she takes risks with fashion.
+- I would have to say I was an excellent student. I was the type to always do my homework and study when I needed to. I never really partied or did anything like that.
+- The coolest thing is that my sister and I, you know, we've done what a lot of people have not been able to do. Which is to have our own careers, together.
+- When you're younger, it's all about conformity and being easily influenced - especially in terms of fashion. You just follow the trends. Whatever is hot at the moment, you want to get it. You basically just want to be doing what everyone else is doing. But as you get older, those things aren't as important.
+- Garlic is an essential, and so is this thing called Bragg's Liquid Aminos. It's like a soy sauce, but it's gluten-free and healthier. It's a great condiment and something I always keep in my pantry.
+- I dream about food.
+- My love for cooking began when I was young. Because my parents were in the army, they were both really busy. A lot of times I'd have to cook for the family; I'd rotate with my siblings. It started out as a chore, but as I got older, my mom started to see that I was really good at it. I became her sous chef.
+- I partnered with AstraZeneca to help launch the 'Mom Nose Best' campaign, where I provide tips for flu season.
+- I'm a mom. I'm a wife. I'm an actress. I'm an executive producer. I'm an author. I'm an entrepreneur, and I'm a sister and a best friend.
+- I feel, you know, empowered because I gave life. I have a son now. I feel like I'm stronger.
+- I was a vegan for about a year, and it was a great experience. And I became vegan not because of animal rights. I became vegan for a year for health purposes... It was just kind of a detox that I was going through.
+- Sardinia is beautiful. The people were so friendly, and the food was incredible! I also loved Florence. I spent two months there as part of a school study-abroad program. On the weekends, we would get to travel wherever we wanted, so I would explore. That was a magical time.
+- On Mother's Day, I like to feel pampered. I like to feel celebrated. I like to feel honored. I like to feel glamorous.
+- When I got on set, and these huge, big lights come on, it brings on a smell - it's almost like the smell of a light burning a little bit - and I said, 'This reminds me of my childhood,' because I grew up onstage.
+- There's nobody in the world that knows me better than my sister.
+- I'll go grocery shopping at the farmer's market on a Sunday and already know what I'm going to cook for the next two, three or four days.
+- I've always known what I've wanted, but I used to be shy about expressing that in regards to my career. So I've become a lioness. If something's happening that I don't necessarily feel comfortable about, I will speak my mind. Or if I want to do something, I go for it.
+- I lived in Italy for two months when I was in college. And I traveled to Paris. I traveled to Egypt. I traveled to Spain. I just would travel a lot. I remember going to Paris and saying, speaking French, 'I would like some chicken and some fries.' And just the chicken and fries was, oh my gosh, just so amazing. I became intrigued and inspired.
+- The one advice that I would give just to moms who have a child or a newborn is definitely sleep while the baby sleeps. I've heard that so many times. I never realized how true it really is. If you don't, you'll be walking around like a zombie.
+- I became a vegan, and I was getting bullied on Twitter about it.
+- I found this deer toy that poops out candy. And so if I say, 'Cree, you have to go to bed right now. You will get a candy.' We've named the pooping deer 'Gus.'... He gets a jelly bean. And it works. Positive reinforcement is the way to go. I'm learning things like that which help me be a better parent.
+- I cheat every now and then, but the foundation of my eating habits is organic. I don't like to eat a lot of processed foods. So it's fresh vegetables, fresh herbs and meat without all of the antibiotics and preservatives.
+- With any free time I have, I'd take a high energy work out class at Soul Cycle, grab an outdoor bite somewhere by the beach and then finish it off by lounging at my pool.
+- I gained 60 pounds during my pregnancy, but I didn't say, 'I want to lost 10 pounds every month!' Instead, I said, 'I will lose two to three pounds.' I eventually saw progress, and that made me work harder.
+- I have something called endometriosis, and I was told by my gynecologist that I needed to go on a specific diet if I didn't want to have any more surgery.
+- I am so happy that I decided to cut my hair. It literally takes me three minutes to do my hair. I get out of the shower, put some conditioner in it, and it's just, 'Let's go,' and I love that! I think it's very, very important to find products that allow us to be able to have more time to do things like that.
+- At times, I feel sorry for kids who have succumbed in some kind of way to being a child actor.
+- I have goals and aspirations, and I believe that you can go after your dreams, and it can work if you have someone there that's supporting you.
+- The older you get, the more you fight for your own identity and start to live your own life.
+- Money comes and goes. When you pass away it's about what you've done to make this world a better place.
+- People say child stars have a hard time 'because of the entertainment business,' but I think there's a dysfunction before all that. I use the analogy, 'If you're a fool without money, you'll be a fool with money.'
+- Having a second chance makes you want to work even harder.
+- I'm a huge fan of Morris Chestnut. I grew up with Morris, and I know him personally.
+- There's a lot of focus on kids like Macaulay Culkin or others who had bad situations at some point in their careers and not enough focus on the people who do good like Natalie Portman or Claire Danes. It's hard for children to have these full-time jobs with all this responsibility.
+- I think the best thing about being pregnant would definitely have to be seeing just my belly grow and seeing, like, wow, there is, you know, something inside of me.
+- Men are men. I've been married to my husband for eight years now; we've been together for 16 years. And I've found that all I have to do is keep him fed and loved, and he's the happiest person. Men just want to be full, watching their basketball game and enjoy some hugs and kisses.
+- I became a vegetarian for about maybe a year. It was more of a little detox for me. I tend to do a lot of detoxes. I was on the Body Ecology Diet before I got pregnant, which I believe is one of the reasons I was able to get pregnant.
+- I love a good goatee. I'm actually obsessed with goatees. I do like my men smooth, though. I like him to smell really good, so a great cologne is always hot.
+- With every role that I do, I always see a little bit of me, a little bit of art and life.

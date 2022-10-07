@@ -1,0 +1,120 @@
++++
+author = "James Mcbride"
+title = "James Mcbride Quotes"
+quotes_len = "114"
+description = "the best 114 James Mcbride Quotes"
++++
+- There is a lot wrong with the church.
+- You can't live for literature. You can't live for the job.
+- I used to walk through the Old Times Square fearing for my life. Now I wouldn't be caught dead there.
+- The James Brown story is not about James Brown. It's about who's getting paid, whose interest is involved, who can squeeze the estate and black history for more.
+- It would be nice if we redefined what we meant by 'war story.' If you're making $15,000 a year living in a certain area of Portland, trying to make it with three kids and no husband, that's a kind of war.
+- As a writer, you have to be near people and hear stuff. I'm a hamburger and cheese kind of fellow; I'm not Henry David Thoreau.
+- We're learning a tremendous amount of propaganda from television and the Internet.
+- I read more history books than anything else.
+- When I was coming up, a lot of serious jazz players couldn't stand funk.
+- I don't do any art to please any people.
+- Caring is beyond race. Either people care about you, or they don't.
+- Be a member of the human race. Love somebody. Change the world.
+- James Brown was the Monday-to-Friday guy. He was the hardest man in show business. He was like your dad and your uncle: He showed up, and he hit hard.
+- First person narrative is a very effective tool but you have to know as a writer how to make it work.
+- I'm not interested in food. It's just fuel.
+- Atticus Finch is, you know, he was just his whole - the business of his modesty and his ability to see tomorrow and to try to buttress his knowledge of what was coming for his kids was something that I'll never - as a father I'm not able to do.
+- I think heroes who are not flawed are not believable.
+- I go through periods listening to specific types of music. Because I'm a musician, listening to music is... it's a bit like work for me. A little bit.
+- The abolitionists were not like the rugged people out West, and they were not like John Brown, either. They were people who made speeches and did politics.
+- I don't come from Lake Wobegon, and that world is not mine. It's not that funny to me. It's funny to other people, and I'm not judging it, but the world that I come from is not considered funny by other people as well. There's so much pain in it.
+- Historical novels are hard to do for the general public for commercial writers like myself.
+- I just love music, and I love what music does for people.
+- I thank God I was a reporter before I became a writer.
+- My family is my career.
+- I think what makes his story unique from others is there is not really one piece of American pop music you hear today that does not have some James Brown in it.
+- If you can whistle the melody, then the song will stick. But if you need a bunch of machines to make it sound good, you're probably not writing anything that's going to last a long time.
+- Essentially, I'm a storyteller, and I make my living by telling stories, be they music or nonfiction or fiction.
+- I have cousins in North Carolina who talk in that old Southern style of 'yakking,' if you will. All the black men in my life when I was a boy talked that way, and I love that kind of talk.
+- I split my time between a small town in New Jersey and New York City.
+- John Brown was clearly flawed in real life. He did some terrible things, but he did some things none of us would have had the heart to do. His moral leanings were unquestionably admirable.
+- Newt Gingrich wrote a novel, and he's a short story. Bill Clinton wrote a biography, and he's a novel.
+- Anyone can write your own life story.
+- Writing for me is cutting out the fat and getting to the meaning.
+- When my mother left home, her family sat shivah for her, more because my father was not Jewish than because he was black.
+- Every time I see something about the Wild West, I'm reminded that our version of history may not be what really happened.
+- I can't be a creative person if I'm a celebrity.
+- A lot of mixed-race stories are these navel-gazing, horrible accounts of mulatto tragedy.
+- James Brown's life was really a metaphor for our inability to talk about matters like race and class in America.
+- Historians will tell you that they deal with fact and empirical evidence. But that doesn't really help me understand a person.
+- You can play Mozart all you want and pretend that it gives you class, but what is class, you know? Class is a bus driver on the M103 who gets off the bus to help somebody on board even though he's tired, he's exhausted, and he's two months behind on his mortgage. That's real class.
+- I don't like living around too many fancy-pantsy folks. That ain't my thing. I'm not into phony people.
+- Fiction makes your dreams come true, and, as a writer, fiction allows you to delve into the area of miracles.
+- Don't get me started on Americans and war. One of the things I learnt over in Italy is how they mythologised the war so that it's all good old gung-ho guys from Omaha and ignored everyone else's role.
+- My main problem with fiction is that once my characters get moving, you just have to follow them along and get out of the way of the story, but sometimes they pull me in too many directions, and I need to focus.
+- People process pain differently. My family, we were pretty humorous about things that went on.
+- As far as making a living, if plumbing earned more, I'd probably do it. At least you can leave the job at home once the tools are put away. A writer works in his mind 24/7.
+- I understand it's great to read a great book, but it's better to live your life. It just helps me. It's uncomfortable at times, but you have to live outside the circle.
+- I don't live for my work. My life is my life. That's more important, and I think that helps my work.
+- I don't like a bunch of writers sitting around, puffing smoke, they like this book, he wrote this - tell me a dirty joke, you know. It's just not my style, I've never been that kind of person.
+- If I grew up in a truly color-blind society, I would not be a black American.
+- Being a best-selling author doesn't make you a millionaire. It's not like Stephen King.
+- When I was younger, I was ambitious. Now I'm not ambitious anymore. I just want to be happy. Does that make sense?
+- I just don't see the point in sitting around hollering the blues over things you have no control over. It's all in God's hands.
+- If you don't have humor, you're not going to make it. You're going to be one of those people who walks around with your head about to explode.
+- You make your own luck by working hard, you know?
+- It's the same old story. Nothing in this world happens unless white folks says it happens. And therein lies the problem of being a professional black storyteller - writer, musician, filmmaker.
+- The whole notion of owning a person is so ludicrous, there's plenty of room to make fun.
+- When you tell them you're a writer, they say, 'What have you written?' And then you've got to tell them what you've done. I don't ask a plumber what he does. Then I have to explain what I've done, and I haven't really, you know. I've just told some stories.
+- I'd like to do something involving jazz. But books are how I earn my living, and I'd like to stay with the horse I rode in on.
+- Most of my work is done when everyone else is asleep.
+- James Brown's music still sounds as fresh and as good and as new as it did when he first created it.
+- When you're interviewing someone, even your mother - you have to sort of deal with you have to get some objective space from yourself and the person but you also have to find what's the best way to get the information from that person.
+- I'm proud of 'Miracle at St. Anna' and I loved it; there's no question in my mind it's as good as any movie that came out in 2007.
+- I wish all critics, no matter their color, were more sophisticated when it comes to the moral questions a film like 'St. Anna' is trying to raise.
+- You can't write just anything. Your story needs structure.
+- I hate to sound blase about it, but literary status is not important to me. Being happy is important to me.
+- A band is not a democracy: It's show business.
+- I think only now am I at the age where I've forgiven the past enough to say, 'You know what? Slavery was there. Let's talk about it in ways that will help us face tomorrow.
+- I don't want to read a book that's depressing.
+- The hard part about writing about a guy like John Brown is that he was so serious, and his cause was so serious, that most of what's been written about him is really serious and, in my opinion, a little bit boring.
+- I'm hot on the Jewish book club circuit. How many black authors do you know who can say that?
+- John Brown was the abolitionist to end all abolitionists. People thought he was crazy. He was like John Coltrane playing free jazz, exhausting all possibilities in his approach to harmony and improvisation.
+- You have to be able to toss the thing out. You can't fall in love with your characters, and you have to know when to fight - and when to quit.
+- Be kind to the living.
+- Spike Lee listens a lot. He's one of the quietest creative people I've ever met.
+- People don't realize you're blowing over changes, time changes, harmony, different keys. I mark a point in my solo where it's got to peak at point D I go to A, B, C D then I'm home.
+- I type most of my books for the first chapter or two - I use a manual typewriter for the first 50 pages or so - and then I move to the computer. It helps me keep the work lean so I don't end up spending 10 pages describing a leaf.
+- I write stories that are already in the air, and I think it's important to have the correct listening device to tune in to that frequency.
+- People call him a terrorist, but you can use language to do many things and say many things about people, but John Brown was a hero.
+- I grew up in a house with a lot of kids, brothers and sisters. So I don't mind a lot of talking, yelling, playing. I can tune most of that out.
+- My father died in 1957, just before I was born. My mother went to her Jewish aunt, who slammed the door in her face.
+- The question of religion in black America is something filmmakers don't want to touch.
+- Until you expose the cancer, you can't fix it.
+- When you glorify violence, then it comes back to bite you.
+- Writing teaches writing.
+- I like stories where normal people are in abnormal situations, and that's what appeals to me about history.
+- My wife and kids like the quiet and the countryside - I still find that kind of quiet hard to listen to.
+- The black church will accept anybody.
+- We don't know who John Brown was, and in many ways, his work shaped where we are today. He was a Pennsylvanian. He was the prototypical Yankee who fought back and suffered in doing so.
+- If you meet your heroes, you're always going to be disappointed. Frederick Douglass was a great man, but would I want my daughter to marry him? Probably not. That doesn't mean that I don't think he's a great man.
+- I wasn't a guy built to write about entertainment.
+- Everybody knew James Brown. Every musician dreamed of being in his band.
+- I'm not one of those deeper, ethereal writers. I'm just trying to get it done.
+- A daily dose of Nietzsche goes a long way.
+- My mother tried her best to give us a sense of self-esteem.
+- All of us want to be Superman when we grow up, fighting for truth and justice. That's part of what drives me as a writer.
+- I was in a special class in high school for truants. They made us stay together all day. Once a week, they would send us to a guidance counselor. He would sit me in his office and he would try to talk to me.
+- Some writers like to go around talking about what they do all the time. I don't.
+- As a journalist, the details always tell the story.
+- I'm trying to get Americans to see that we're all pretty much the same. I believe it; I was taught God doesn't have a color. I want to better the planet a little bit.
+- A typewriter forces you to keep going, to march forward.
+- We would not have been a successful family without my father and stepfather, who were working-class men with better dreams for their children. We just wore them out.
+- My goal is to be able to fill out one of those forms that asks 'Who are you?' and be able to just put 'Human being,' you know?
+- I put headlights in Ford vans. I still drive a Ford.
+- The starting point of all great jazz has got to be format, a language that you can work within that, in some ways, is much tighter than the blues or even gospel. It's all working towards the same destination - the difference being that Miles Davis flew there, and I'm still taking the subway.
+- If you have the material it will form itself as a kind of connective tissue.
+- When the great jazz and blues clubs closed - joints where the cash register rang loudly and there wasn't ESPN on TV over the bandstand, and people smoked cigarettes and drank whiskey and hollered 'Play on!' - When those places closed, I was pretty much done.
+- When we're talking about slavery... we're really talking about the web of relationships that exists between whites and blacks from 1619 to 1865 to now.
+- I'm not one of those who can listen to music and write. I need the door closed. Windows shut. Facing the wall. No birds tweeting, views of nature, and so forth.
+- The media's image of us is as animals, and we were never that to me. I knew love from black folks.
+- A lot of people are not interested in stories in which they don't see themselves.
+- I cannot recall any moment of clarity about becoming a writer. I always liked to read. That's what did it.
+- When you study history in American schools, very rarely is the name John Brown mentioned. We know who Kanye West is or Twyla Tharp or Shania Twain.
+- I love the language of, you know, the old black country man with a blues guitar and... boots and the quick banter.

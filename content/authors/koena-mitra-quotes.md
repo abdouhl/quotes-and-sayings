@@ -1,0 +1,106 @@
++++
+author = "Koena Mitra"
+title = "Koena Mitra Quotes"
+quotes_len = "100"
+description = "the best 100 Koena Mitra Quotes"
++++
+- Respect all faiths.
+- It's not about what you do in the gym for an hour, it's about what you don't do outside the gym in those 23 hours!
+- Once you are trained in the international martial arts, your body and mind become toned permanently. You can take on any action role.
+- Messy females talk noise!
+- We must love everything we do.
+- In my life, I only kept learning different dance forms, yoga forms. From my gurus, I have learned how to be disciplined and consistency. Do a particular thing continuously, you will get the results.
+- I love it when people call me a bombshell. While many women in the industry aspire to be sexy, I am naturally so.
+- I call myself a very sincere and responsible person.
+- The most interesting thing about movies is that with every role you get to play a different person.
+- The rich and the poor cannot connect with each other 'cause they live completely different lives.
+- People assume that if you are an actress, you must not be very educated.
+- Men just want women they can rescue. And I refuse to be one of them.
+- As humans, we make a lot of mistakes and take a lot of chances in one lifetime.
+- In Kolkata, I had two bikes till I had an accident and had to give them up.
+- Trust me, never devote 100 per cent of your time and space to a man.
+- Working in Bollywood is like gambling, you cannot plan in advance.
+- Unfortunately Bollywood goes ga-ga over thin not fit bodies.
+- Among my hobbies are riding motorbikes and dancing.
+- In Bollywood they think if a leading lady can do one free-falling kick she's achieved the unthinkable.
+- India and Indian film industry is very generous, they embrace people from all over the world and make them into stars, give them awards, and huge recognition.
+- Apart from being a trained dancer, I love exploring new styles of dancing.
+- Universal Love can take on many forms. It can be considered acceptance of yourself, or of others. Love is unconditional and it doesn't set terms. It is freedom. Love is freedom for you to be who you truly are inside, not what others think you should be. Love is never to force anything on anyone.
+- I do not look like a traditional Indian, which works for me.
+- I can't be filmi.
+- I am a hardcore tech-savvy person.
+- A simple lifestyle can make you happy and high expectations can disappoint a lot.
+- It's good to see people experimenting with their looks.
+- I am a simple girl and do not like partying. Whatever parties I attend are small ones, with my own friends.
+- Love is, above all, the gift of oneself. It's a never ending study, once we have learned to love, we will learn to live. Love creates an 'us' without destroying a 'me!'
+- I think everyone has his or her own style. So, I try to maintain what people have liked about me.
+- Not all actors get dream roles. We have to choose from whatever we are offered.
+- It is necessary to look glamorous if your role demands it in Bollywood, but in Hollywood they like more of a natural look - clean skin, clean face and nicely done hair, but you still look glamorous.
+- I want to do films where the heroines get to perform.
+- Fans see you on hoardings, posters, on the screen with perfect makeup, perfect hair, perfect clothes etc. Perfection is such a hunger! Especially when it comes to actors and stars, they always expect perfection.
+- Love is stillness, peace of mind. The universe is Love.
+- There are many Universal laws some of which need to be a centre of our attention if we wish living the life of a prosperous creator.
+- My style mantra is to keep it simple and comfortable.
+- If a script demands a lot of stars we can't avoid it. Instead of complaining about getting a meaty role, I'd rather be glad that I am getting recognised for my work.
+- Men want to know everything about the woman they are interested in. They kind of believe that a woman can't have her private space.
+- I am growing up with experience.
+- Fighting in the name of god is the biggest paradox ever.
+- You can't attain anything without investing time.
+- I may wear sizzling costumes on screen or on the ramp, but back home, I love to be in my torn jeans and sneakers.
+- Heal your mind and the body will follow.
+- Housework is no challenge for me.
+- Life is a series of hellos and goodbyes.
+- I think all women in Hollywood are known as sex symbols. You're merchandised, you're a product.
+- Best meals are always at home in Kolkata with my parents.
+- I think growth happens with experience.
+- In Mumbai people never mob you. They might come and talk to you, but they never make you uncomfortable.
+- All my male friends are into fitness and though I go gymming and swimming, I find yoga and spinning at the gym very boring.
+- As I am a Bengali and am used to conversing in Bengali and English, I thought my Hindi would show an accent.
+- In Hollywood, one doesn't get typecast. You can play a mother in one film and take up the role of a high school teenager in the next.
+- People will sell you out for profit, that's just how people are.
+- Life is too short to be unhappy.
+- Just because you're inclined to do something one way doesn't mean that's the 'right' way.
+- I am glad I did my Masters.
+- If not an actress, I would have been a designer. I like to work on my own clothes and make-up.
+- Unfortunately, you cannot find honest people everywhere and thusly, really have to watch what you reveal to certain people before you have really gotten to know their character.
+- A lot of people don't watch cinema. They can't afford movie tickets, they can't go to theatres to watch cinema, they are not on social media. How do you reach out to those people as an artist?
+- There are many star kids who are amazing actors like Ranbir Kapoor.
+- I don't give my 100 per cent to any man.There should be an element of mystery left in the relationship to make it more fun.
+- God is good and very kind.
+- I'm very comfortable in my skin. Yet, I won't do anything that's indecent, cheap or vulgar.
+- At the age of 18, I had participated in a beauty pageant. I represented India and won the title. That was my last competition. First and last.
+- Good times or bad, my mom is always there for me, this makes her the best. My mom is everything.
+- I have already spoken about it many times. I have done a nose correction. But the way people have created waves around it at times I feel there is no point being bold in India. Rather than appreciating it, they will call you names.
+- In my childhood, I was very fond of western music and dance forms like Hip Hop, Salsa, Tango, etc.
+- Women talk their way through problems; men think their way through.
+- I love bikes.
+- I have always played strong, sexy and glamorous roles.
+- No one has the license to decide someone's fate.
+- Religion has been the most effective weapon, which if used properly can help facilitate the uniting of the world.
+- No mother is perfect and every good mom makes mistakes. What matters most is her heart.
+- If the public has given us stature, we must also be answerable to them.
+- I will do a dance number only if I'm convinced about how the director would present me. I'd do something only if the script demands.
+- A lot of people fear failures, struggling, they want overnight success and they live in their fake imaginary world.
+- Being a mother must be the most difficult task in the world.
+- There's no point in doing a dozen films per year, which come and go.
+- In Hollywood, one doesn't bag a project over phone calls. You have to work hard, find a manager, give screen tests, attend workshops and take up voice training.
+- I am who I am and that's all I'll ever be. Not perfect, nobody is.
+- All my achievements - even if they may seem small - are mine. No one has contributed to them.
+- Everything we do is for the purpose of altering consciousness.
+- I have studied psychology and practised as well, that helps me read auras, minds and silence too at times.
+- I want to get married and live a normal life. Not a celebrity life.
+- I am an absolute lover of Indian food.
+- If you are working long hours make sure you get enough sleep.
+- Working out should be a part of your lifestyle not a style statement!
+- Anyone who ever gave me confidence, I owe them a lot.
+- I am thankful for moms who try their best, give their all and bless their children with something priceless.
+- I am not in a hurry, I don't want to become a star overnight.
+- A woman's mind focuses on feelings, while a man's mind focuses on problem-solving.
+- We form friendships so that we can feel certain emotions, like love, want, magic - of missing people, avoid others - like loneliness.
+- There are only two kinds of roles that work in Bollywood, the sexy and the glamorous kind.
+- In Bollywood, once an actor becomes a fairly established name, he or she usually starts taking things for granted.
+- I don't think any star kid should be banned. There are many star kids who also struggle.
+- One can't plan marriage or dating.
+- In 'Karna' I've to do the kind of action only male actors have been seen doing in the movies.
+- I am partial to Halle Berry's 'Catwoman.'
+- I am prepared to work hard and will wait for the best.

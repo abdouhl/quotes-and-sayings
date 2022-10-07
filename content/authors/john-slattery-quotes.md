@@ -1,0 +1,33 @@
++++
+author = "John Slattery"
+title = "John Slattery Quotes"
+quotes_len = "27"
+description = "the best 27 John Slattery Quotes"
++++
+- You put a movie star or a bunch of movie stars in a movie, it doesn't mean people are gonna go see it. It's been proven time and time again.
+- You learn pretty quickly: if you fall in love with your edit, you're bound to be heartbroken because it will all be re-cut.
+- As an actor, you see a sliver of how the show is made, but to see the actual writing process and the re-writing process and the casting process and art direction and set design - all of this is happening in a very intense period.
+- On 'Mad Men,' I have a bit of an advantage because I know who gets better as they repeat a scene and who's best at the beginning.
+- Memories are just stories we tell ourselves about our past; and that's often why they don't match when we've shared the same experiences with someone.
+- Let's face it, making movies is all risk. Most of the time, batting average-wise, the reward does not outweigh the risk.
+- Characters can become boring. That's what's tricky about television. It goes on and on - you're playing this same character for five seasons and it gets easy to fall into just walking on the set and assuming you know how to play a scene.
+- When I was growing up, the top movies dealt with grown-up, complex emotions.
+- But the path you end up on means that you have to close a lot of doors, too.
+- The rule of surfing is never tell anyone where you go.
+- My wife tells me I need to learn to be more patient with my son.
+- I've done a lot of pilots. A lot of shows. You're young and you do a job just because you know someone gave you a job.
+- I like to try the scene over and over, but given the confines of television, I don't have that option.
+- For some reason surfing... I'm not scared of the ocean so the risk doesn't seem as great to me.
+- I think the ongoing discussion of the world of advertising is, 'Where is the soul in advertising?'
+- Viewers can hate a character and at the same time can't take their eyes off of him.
+- I think the moments that are difficult for anybody are when you see what your life could be, if only you had the courage to take the steps needed.
+- I have met Tom Hanks. Several times. And he's been very nice.
+- I was a horrible limo driver: I ran out of gas with passengers in the back and I used to get lost on a regular basis.
+- When I was coming up, everybody wanted to be Tom Hanks. There was always Robert De Niro and Al Pacino - they were the heavily dramatic stuff. I always had a foot in both camps. The hardest thing was to resist the advice to be like someone else. It took me a while to figure that out.
+- I've dyed my hair a million times and it looks terrible, always. It just looks fake. And it doesn't make me look that much younger.
+- I don't have to worry about how my movies sell because I'm not the guy in front.
+- I think I gravitate towards people who express themselves in a simple and funny way.
+- I've never directed anything before 'Mad Men,' so I don't feel I have any advice for the other directors.
+- And I don't want to jump out of an airplane - I've done that.
+- When I first started, I was kind of surprised that anyone would ever hire me at all. So I took everything that I was offered.
+- I guess, you make a big studio film, you spend a lot of money on it and you hope people go see it. It's really risky.

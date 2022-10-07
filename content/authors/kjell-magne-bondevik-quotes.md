@@ -1,0 +1,23 @@
++++
+author = "Kjell Magne Bondevik"
+title = "Kjell Magne Bondevik Quotes"
+quotes_len = "17"
+description = "the best 17 Kjell Magne Bondevik Quotes"
++++
+- We have to find compromises. That's the way it is in Norway.
+- There is a need for more effective dialogue... between the government and the international community.
+- We have a good life when we manage to live with both satisfied and unsatisfied needs, when we are not obsessed by what is beyond our reach.
+- If we dare to come closer to our fellow human beings, we will be able to see and understand them better.
+- We must never relinquish the vision of a humane society and a humane world.
+- A person's worth is quite independent of their usefulness to society.
+- The burden of proof is now on the Palestinians... They must fight terrorism and dismantle its infrastructures in order to make possible progress on the roadmap.
+- Knowledge of other people's beliefs and ways of thinking must be used to build bridges, not to create conflicts.
+- Extremists and populist movements are exploiting people's fear of those who are not like us. We can see the consequences in the form of terrorism and racially motivated violence.
+- Human dignity is independent of national borders. We must always defend the interests of the poor and the persecuted in other countries.
+- We must remember that politics is more than a power game. The core of politics in my view is to serve our citizens, to serve our fellow human beings.
+- Don't believe those who claim that only left wing parties really care about employment.
+- Villa Grande has in many ways symbolized an important, but less than pleasant, part of our history.
+- Each individual is unique. We all have equal worth. Young and old, those who can cope and those who need help.
+- Terrorism is contempt for human dignity.
+- If each of us is to feel that he or she is valued, this calls for more than public funding.
+- Unfortunately, religion, like patriotism, is easy to misuse for political purposes.

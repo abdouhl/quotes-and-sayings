@@ -1,0 +1,25 @@
++++
+author = "Taissa Farmiga"
+title = "Taissa Farmiga Quotes"
+quotes_len = "19"
+description = "the best 19 Taissa Farmiga Quotes"
++++
+- First off, I could never become a doctor. Blood? Even the fake blood on 'American Horror Story,' I'm kind of ready to hurl.
+- It's a crazy world, stardom. I don't even think of myself as a star. I just like to go to work.
+- The horror aspect, the scary parts, are easy for me. I mean, I can get into that pretty easy, because I get scared. You have to invest yourself in these characters.
+- I didn't even want to start acting when I started. At least, I never thought about it.
+- I try to stay far away from anything creepy and supernatural. I'd rather not think about it.
+- I'm actually pretty afraid of scary movies, so I can't watch them at night, but I am a fan during the daytime!
+- Part of what made 'The Bling Ring' such a fun, freeing experience was that we got to wear these really over-the-top clothes we'd never pick in real life - like for the nightclub scenes, we'd have on these really short, really tight dresses. But you know what - I actually learned how to walk in heels on that set!
+- I'm on Twitter. I created my account for my fans, and I do respond back once in a while, because they're so great.
+- Norma Bates is insanely crazy, but you can't help but love her.
+- Admiration is great, but there is a line not to cross.
+- I have a rebellious teenage thing. If my mom says I can't do it, I'm gonna do it. But I'm pretty good. That's why it was fun to play Sam in 'The Bling Ring.' I got to be someone crazy and wild to the extreme, then go home and relax and get rid of the burden.
+- All my friends are like, 'Can you be on my side in the zombie apocalypse?' and I'm like, 'I got this.'
+- I do make a good ragu pasta, which everyone seems to like. Or that could be just me talking; who knows what they really think. I actually stole the recipe from my older sister Vera, who also loves to cook. I took all my recipes from her.
+- I was hoping, actually, that being on the other side of the camera in a scary movie, see how it's filmed and maybe you won't be as scared next time you watch one... didn't really work out! Because I know it's fake, but I just get so into it.
+- 'American Horror Story' is dark, so you shouldn't be expecting too much happiness.
+- I'm not the biggest horror fan. I get scared so easily. If I'm just walking on set, and someone taps me on the shoulder, I scream and jump and freak out.
+- I get scared easily, so I'm not one for just sitting down with a bowl of popcorn and watching horror stories. But, I mean, I'm learning more. Maybe one day I'd like to be able to watch them.
+- I can't say that I fully relate to things that I play. Sometimes it's nice to spend half the day crying; then you don't have to do it in real life.
+- If you don't have a Facebook, like, you're nobody. There's all of these sort of requirements now, and if you don't have all of these things - Facebook, Twitter, etc. - you're made fun of. And Twitter for celebrities... everything is just getting so personal. Pictures of yourself, of what you're eating for breakfast.

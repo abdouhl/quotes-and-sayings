@@ -1,0 +1,88 @@
++++
+author = "Gilbert O'Sullivan"
+title = "Gilbert O'Sullivan Quotes"
+quotes_len = "82"
+description = "the best 82 Gilbert O'Sullivan Quotes"
++++
+- The perception that if you're not on 'Top Of The Pops' you're dead and buried is a good one for pop music, because 'TOTP' is a catalyst or barometer for pop success.
+- Lennon and McCartney became great songwriters because they were prepared to listen to and learn from all types of music.
+- When it comes to my songs I'm confident. Back in 1967, I would go to a publisher's office, and tell them they just had to listen to my music.
+- I was one of six children, brought up by my mother in Swindon after my father died. We had all we needed - food on the table, clothes to wear. When I wanted a drum kit, my mother got me one. When I got into playing guitar, I came down one Christmas or birthday and there was a guitar for me. It amazes me how Mum managed to do it.
+- It's very easy to think about rhymes and just usage of words that sound good but don't mean anything. Basically, I try to put into song the way people actually talk.
+- I thought my singing and songwriting were good, but nothing different. Then you're presented with this picture image that contradicts the impression you get from listening to the record.
+- I'm basically as shy a person as I was when I once worked in an office in London in the late Sixties. I like my own company. I didn't need a lot of friends.
+- The quality of my songs will get through to people. They are good songs. Lyrically, some of them are interesting: there's stories, a bit of humour. I'm very confident about the music I play, you know.
+- When I started out I thought just hearing one of my records on the radio would be magical. Fortunately, that naivety has always stayed with me. Because when you've had massive success and it tapers off people lose interest in you. So you have to work even harder to generate interest.
+- I see myself in competition with Blur and Oasis. But everyone else just sees me as this guy with a history.
+- I'd go to meetings with record companies - CBS, Decca, EMI. They'd tell me to wear a pair of jeans and grow my hair and look normal. And I'd say, 'Sod that,' and storm out. And I do think that belligerence is important when you're young.
+- I work in the studio all day, and then I go for a walk with my dog, listening to music on headphones. And Saturday and Sundays, work is strictly out of bounds. It has to be.
+- My Norwegian wife Aase was a Pan Am stewardess back in the Seventies when we met. She was very attractive, and we became good friends, but I was travelling a lot and she was jetting back and forth across the Atlantic, so it was a while before we got together.
+- I used to get these reviews in American newspapers saying that they didn't understand what my lyrics were about. I saw that as a compliment. That's exactly what English songwriters should be doing!
+- I do like to write about dark subjects.
+- I wanted to look different. I liked being original.
+- I was a big fan of Buster Keaton and Charlie Chaplin.
+- I quite like the idea of performing in front of people that don't like me.
+- I like conflict in songs.
+- I think if every song I had was, 'I love you, you love me,' there would be a problem.
+- Just because you sell millions of records it doesn't guarantee bums on seats.
+- Some artists say 'Don't categorize me.' I'm saying 'You can't categorize me.'
+- What I would hate to go through is what happened in the mid-90s playing in front of a half-empty theatre, which prompted me to say 'never again' when it came to Waterford. To go through that again in any of the places I call home would destroy me.
+- I feel every time I have 12 good songs for a new album, I am in with a chance to compete with the big boys. As long as I have that attitude, it's healthy.
+- Success for me is to write what I think is a good song. When I'm pleased with it, that, for me, is a magical moment. I never lost that buzz.
+- I only think in the following terms: writing, recording, releasing. That's what I have control of. What I don't have control is whether critics or the public like what I do.
+- Nothing Rhymed,' my first single in England, was a nice ballad, which I thought would sound like a songwriter typical of the day - denim, jeans, long hair, early 20s.
+- When the magazines talk about artists they talk about the Paul McCartneys, the Paul Simons, they never talk about me. So their readers and contemporary artists are never going to check me out because they're not reading about me.
+- Nobody likes going to court.
+- It's ridiculous that people would judge my songs based on what I wore, but that's how it is... superficial. I don't really care, though - I am confident in the quality of my own work.
+- The Beatles changed everything . I knew I couldn't compete, couldn't be as cool, so I went completely the other way.
+- I'm very much a home bird. I sometimes think I should have been a domestic. I like sweeping up, getting everything tidy. I'm obsessive compulsive. I don't mind admitting it.
+- What I can't understand is why people still won't give me the credibility that I look for. If Mojo or any other of those magazines would give me the credit for only ever performing my own songs rather than someone like Rod Stewart singing other people's songs looking for success.
+- I have learned to avoid the coverage, good or bad - and it's mostly bad.
+- I'm not a great socialiser. Nor am I a red carpet person.
+- I never complete a song until I'm actually going to make a record.
+- As you get older you lose interest in what you hear on the radio. But you can't be like that, you have to enjoy what's going on.
+- As long as I can write songs, make a record and do concerts, I'm really quite happy.
+- My motto is, 'You may not be as good as you think you are, but thinking you are is good.'
+- I always tell people that I went through long hair. I was a typical art school scruff. It was good then.
+- I bought my mum a new house when the money started to come in; it's that old cliche.
+- There are two types of session guitar players. One reads and only plays what the 'dots' say. The other adds that something special and plays notes and solos you dream of. Big Jim Sullivan was such a player.
+- I've never had writer's block.
+- Whenever I write lyrics and an Americanism slips in, I always cut it straight out. I can't use the word 'babe,' for instance. It makes me cringe.
+- I have quite a strong self-belief.
+- I know I can cut it with any songwriters in the world.
+- I don't like people who make records and then don't ever perform. If you are going to make a record it's important you get out there so people can see you if they want to and get to hear you if they want to.
+- I never wanted global fame you know.
+- The music is the thing. I am not writing for critics; I don't want to become a personality.
+- We all try to increase our length of life, but we all have to pass. It's highly interesting as a lyricist.
+- I must be the only artist whose image was hated by everybody.
+- The measure of success was writing a song, recording it and for it being in the hit parade in England. Success was about the postman walking up the garden whistling my song. I wasn't trying to conquer the world.
+- I used to play music all night and sleep during the day. I was very career-minded. The music dominated everything and anything that interfered with that, I put a stop to it.
+- I couldn't live without Radio 1. They condemned me to oblivion, but they're what I grew up with.
+- I couldn't live without tea. I have two cups in the morning, one at lunch, two in the afternoon and one in the evening - Assam with milk and sugar. It has to be leaf tea - no bags - and drunk from a china cup.
+- Doing the Best I Can' is a sure fire hit. Incredibly commercial. But what could you say about it? Catchy and good to dance to. But 'Nothing Rhymes' is different. A much bigger risk but it was lyrics people could talk about. So that was the one to launch me on.
+- I've only recorded my own songs. I don't consider myself a great singer, so I wouldn't be comfortable interpreting other people's songs.
+- I don't trust anybody.
+- I've always been a bit of a loner.
+- Technology has very little to do with what I do. I have a purpose built studio but all I need for writing is my piano and a cassette recorder as I still use cassettes.
+- I do believe that any conflict has a better chance of being resolved if two people can come face to face.
+- Success isn't dependent on the market place, because I can't control that. It's about completing a good song.
+- I've never recorded anyone else's songs. I'm not interested. If you gave me a song by Bono and Edge and promised me a number one hit with it I'd still say no. That, for me, is not the kind of success I want.
+- I've always been interested in relationships and the break-up of relationships.
+- It's all very well making records, but the joy of performing is that you get to meet people who give you instant feedback.
+- Song writing is very serious; it is hard.
+- You see, I read reviews of people like Paul Simon, and they don't talk about the fact that he's looking old or whether he is fashionable; they talk about the music, which is how it should be.
+- I do pick up on contemporary issues.
+- The writing is everything of course but you can't be making records and not be willing to go out there and perform.
+- I always want to keep moving musically and trying new things.
+- I didn't come into the music business to make money. I came into it to be a success. Of course, if you're successful, you'll earn money and I was happy to receive it.
+- To be successful to me meant to have a hit record in England. I never looked outside England.
+- The way I do that is to keep coming up with good songs and when I do a concert, I make sure I give a good performance. It's not rocket science.
+- It is ironic that losing makes you more liked than winning.
+- I always take a teapot with me on tour. I suppose it's only natural that I've just written a song called 'Where Would We Be Without Tea?'
+- I love writing and I just sit at my keyboard and write.
+- I'd love to see myself on sale in shops. It tickles me, does the idea of me being marketed.
+- At school, I was basically a loner, it was hard until I was 15 or so. Then I went to art school and was gifted with freedom to do the things I really wanted to do.
+- I am immensely proud of my Irish roots.
+- The basis of everything I do is down to the song. If I don't have the song I don't sing, and if I don't sing I don't perform.
+- I think I'm a good lyricist.
+- I often meet people who say, 'I thought you were dead.'

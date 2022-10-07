@@ -1,0 +1,87 @@
++++
+author = "James Taylor"
+title = "James Taylor Quotes"
+quotes_len = "81"
+description = "the best 81 James Taylor Quotes"
++++
+- I find it a lot healthier for me to be someplace where I can go outside in my bare feet.
+- When I cleaned up some 17 odd years ago, I felt terrible for about six months. The only thing that gave me any real relief was strenuous physical activity.
+- It's a real wrenching thing to go from being a private person to being a public person, especially when you're being autobiographical. But it's what everyone wants - to get everyone's attention, to have your music make a living for you, to be validated in that way.
+- I don't read music. I don't write or read music.
+- I started being a songwriter pretending I could do it, and it turned out I could.
+- I don't know much about God. But if everything does originate with God, then certainly songs do as well.
+- That's the motivation of an artist - to seek attention of some kind.
+- Time will take your money, but money won't buy time.
+- The secret of life is enjoying the passage of time.
+- I don't read music. I don't write it. So I wander around on the guitar until something starts to present itself.
+- I think it surprises a lot of people that I'm still around, you know, still - that I'm not pushing up daisies, as they say.
+- I collect hats. That's what you do when you're bald.
+- Music is like a huge release of tension.
+- I played the cello from when I was ten, and then I bought a guitar from the father of some friends of mine and played that for a while. And then when I was fourteen or so, I bought a guitar - a real nice one - in Durham, North Carolina, that I worked with up until I was about twenty-five.
+- Television news is now entertainment, and the stories are being written by the people that have a special interest in them.
+- If you think my music is sentimental and self-absorbed, I agree with you.
+- Things started to get out of control when I began reading that I was a superstar.
+- If the gig's going really well, I'm incredibly happy on stage and really feel good about my life and things.
+- I am myself for a living. I don't animate a character.
+- If you feel like singing along, don't.
+- People have used my songs and guitar style to teach guitar for a long time.
+- Knowing when to quit is probably a very important thing, but I just am not ready.
+- Photographers and reporters are mostly after me. They want to know what I read and what I'm like and I don't really know myself, so how can I tell them?
+- It's probably foolish to expect relationships to go on forever and to say that because something only lasts 10 years, it's a failure.
+- I can take criticisms but not compliments.
+- Certain things in life are more important than the usual crap that everyone strives for.
+- I have a love-hate relationship with the Grammys because I don't see the music world as a competitive sport.
+- You have to choose whether to love yourself or not.
+- What I've always done as an entertainer is try to come up with things that people will find interesting, or compelling, or humorous.
+- When you write a song, it may come from a personal space, but it very seldom actually represents you. It comes out of a sort of mood of melancholy, somehow. It's almost theatrical.
+- I'm very unstable; there's no stability in a musician's life at all. You live on a bus or on the road hand to mouth and you don't know where your money's coming from.
+- I know there are people who don't like their audience or like the experience of being recognized or celebrated, but my audience has been very good - they don't bother me and when they do contact me it's usually on the nicest possible terms.
+- I enjoy selling my music. I don't enjoy selling myself.
+- I tend to write out the first iteration of a lyric here and then go over here and make variations on it, on the page opposite.
+- I don't reinvent myself in any major way. It seems to be a slow evolution. I go back and visit certain themes that I feel strongly about and resonate with me emotionally.
+- To me, very much of what is artistic is people's very creative and inventive ways out of impossible situations.
+- Music is my living. I enjoy selling my music.
+- Americans work a long away ahead of themselves because of the size of the place. To make any impact at all you have to promote yourself with live performances ages before a release.
+- Though 'Fire and Rain' is very personal, for other people it resonates as a sort of commonly held experience... And that's what happens with me. I write things for personal reasons, and then in some cases it... can be a shared experience.
+- It is a process of discovery. It's being quiet enough and undisturbed enough for a period of time so that the songs can begin to sort of peek out, and you begin to have emotional experiences in a musical way.
+- Bruce Springsteen's a rock star. Elton John is a rock star. I'm a folk musician. Honestly, I think that's true.
+- Being on a boat that's moving through the water, it's so clear. Everything falls into place in terms of what's important and what's not.
+- I was a functional addict.
+- I think that American music, for me, it's a synthesis of a lot of different things. But for me growing up in North Carolina, the stuff that I was listening to, the things that I was hearing, it was all about black music, about soul music.
+- We all have to face pain, and pain makes us grow.
+- I think people are isolated because of the nature of human consciousness, and they like it when they feel the connection between themselves and someone else.
+- Songwriting is too mysterious and uncontrolled a process for me to direct it towards any one thing.
+- I don't play the kind of music that works in a football stadium.
+- The best thing is when you hear somebody take your song and make something great of it.
+- Ireland, Italy and Brazil are the most musical places for me. They're extremely musical cultures and anything you pitch they basically catch.
+- A concert is always like a feast day to me.
+- I believe musicians have a duty, a responsibility to reach out, to share your love or pain with others.
+- There'll come a writing phase where you have to defend the time, unplug the phone and put in the hours to get it done.
+- I had a very moral upbringing, and spiritual in a sort of not very specific way.
+- I think that we're all totally isolated beings and always will be.
+- It's a real wrenching thing to go from being a private person to being a public person, especially when you're being autobiographical.
+- It is the most delightful thing that ever happens to me, when I hear something coming out of my guitar and out of my mouth that wasn't there before.
+- I don't think anyone really says anything new.
+- If I were to try to identify a turning point I'd say that was it - getting clean.
+- I believe 100 percent in the power and importance of music.
+- I'm glad about what's happening to the music business. This last crop of people we had in the 90s, who are going away now, they didn't like music. They didn't trust musicians. They wanted something else from it.
+- I sometimes wonder how many of these lifetime achievement awards you can accept before you have to do the decent thing and die.
+- People should watch out for three things: avoid a major addiction, don't get so deeply into debt that it controls your life, and don't start a family before you're ready to settle down.
+- The Beatles were a phenomenon, but they were also ordinary blokes like anyone else. I was lucky enough to see that side.
+- I don't take compliments very easily. I think most musicians suffer from low self-esteem to some extent.
+- Fortunately, it doesn't seem to have made a lot of difference to my audience that I'm as bald as a billiard ball!
+- I was a huge Beatles fan. We could talk about who I listened to growing up and what my sources were, but certainly the Beatles were a late, important resource for me, and I just took my guitar and a handful of songs, and I decided, well, I'll just go over and travel around Europe and see what comes of it.
+- I'm glad that I still have the ability to tour in Europe. I do love it.
+- If you're an addict, it controls your life and your life becomes uncontrollable. It's boring and painful, filling your system with something that makes you stare at your shoes for six hours.
+- I'm looking forward to being able to retire from being a public figure and being able to afford to be myself!
+- Sobering up was responsible for breaking up my marriage. That's what it couldn't stand.
+- Performing is a profound experience, at least for me. It's not as if I sit down and play 'Fire and Rain' by myself, just to hear it again. But to offer it up... the energy that it somehow summons live takes me right back, and I do get a reconnection to the emotions.
+- One of my earliest memories was me singing 'Oh, What A Beautiful Mornin' at the top of my voice when I was seven. I got totally carried away. My grandmother, Sarah, was in the next room. I didn't even realise she was there. I was terribly embarrassed.
+- I'm trying to look at my blessings and how amazingly well against all odds things have turned out for me.
+- I don't get into heavy political numbers because I don't find them lyrical.
+- I have a studio in a barn at home - we rehearse there, we film there and we record there. It's fun to hang out with my guys and see what comes out next.
+- Performing is a profound experience, at least for me.
+- I was in chemical jail.
+- Once you get that two-way energy thing going, everyone benefits hugely.
+- Somehow it helps just to take something that's internal and externalize it, to see it in front of you.
+- It's hard to find a way forward. When you're 18 it happens in huge chunks every day, but after 20 years, growth is much more costly.

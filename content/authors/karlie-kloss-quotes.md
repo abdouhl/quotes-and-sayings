@@ -1,0 +1,50 @@
++++
+author = "Karlie Kloss"
+title = "Karlie Kloss Quotes"
+quotes_len = "44"
+description = "the best 44 Karlie Kloss Quotes"
++++
+- Because I'm so tall, clothes look different on me than they do on others.
+- I have a necklace with a golden key, given to me by my sisters, which I always wear.
+- If you believe in yourself and feel confident in yourself, you can do anything. I really believe that.
+- By the end of Fashion Week my apartment is covered with makeup and clothes and shoes. Everything you can think of.
+- I still get butterflies when I'm doing a runway show. The music starts, you're wearing these gorgeous clothes and your nervous about your high heels, if your shoes are going to break, if your going to slip or do something wrong.
+- I did every sport under the sun while growing up.
+- Whenever I have even a spare second, I'm in the kitchen whipping up a batch of cookies. I make a mean batch of chocolate chippers.
+- Ballet really taught me so much about the power of movement.
+- I'm one of those tall, lanky, awkward kids.
+- I loved everything about Spain - the people, the language, and the food!
+- My entire high school career - my entire school career - I've been like three feet taller than everyone in my grade.
+- I'm not graceful.
+- My school in St. Louis is great. They basically created a program where I can do online classes and independent studies when I'm traveling. But then I still get to go home and take classes in a normal school environment.
+- Today, models are able to share industry news, trends, and communicate with fans through Twitter, Instagram and blogs. So in a way, our position as models is way more personable and relatable.
+- You are physically up for scrutiny by everyone and you hear everyone's opinion.
+- Whether running, biking, swimming, or dancing, I just like to always be on the move.
+- I am very lucky to be surrounded and guided by an incredible support team comprised of my family and agents.
+- Christy Turlington is my idol. She really is. She's a gorgeous woman inside and out. I admire her work in the charity field. She's just been able to balance it all - and gracefully, as well.
+- My favourite place to eat is my grandma's kitchen. She makes a mean crab cake.
+- I'm learning Spanish - I got Rosetta Stone for Christmas.
+- What I enjoy most is that every day I get to play a new character.
+- I think to have the skill set and the ability to physically help others in matters of life and death must be incredibly empowering.
+- I think that taking ballet is one of the best things a girl can do. Period.
+- I grew six inches in a year.
+- It's nice to just be a kid and hang out with your friends at lunch.
+- I wish I could fly. Or speak fluent Chinese. Both I think are equally impossible.
+- I love kids, so two things that I have thought about are being a pediatrician or a kindergarten teacher.
+- There's no time for boys in my life right now.
+- I have gotten to travel the world and experience all these incredible things thanks to my career.
+- I have a notebook that is filled to the brim with my dreams and ideas and goals and aspirations.
+- Growing up in a house of five girls, I couldn't help but glance at a fashion magazine or two.
+- I am very blessed.
+- I would love to rent a little cottage or cabin in Colorado and learn to ski or snowboard. And on the warmer side, I also want to rent a house in Hawaii and learn to surf!
+- You learn to control every aspect of your muscles, your face, your toes, your fingernails. And that is how you tell a story, through movement.
+- Holy cow, in the course of one week I feel like I've lived about a year!
+- Doors opened for me and I ran for it.
+- I love being a part of something so many people can relate to and enjoy.
+- Every single day I'm shocked.
+- You have to grow thick skin and that only comes with time and learning.
+- I work strategically with my management team to make all decisions.
+- I just keep thinking how lucky I am that I haven't had to sacrifice anything.
+- MTV in general is involved with so many artists - musicians, actors, people in the fashion industry, and art world.
+- My dreams came true while wearing the opening look from the spring/summer 2010 Dior ready-to-wear collection. I will never forget how special I felt opening John Galliano's show, like I was living a dream.
+- I'm somewhat in my own cloud.

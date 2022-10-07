@@ -1,0 +1,48 @@
++++
+author = "Torrey Devitto"
+title = "Torrey Devitto Quotes"
+quotes_len = "42"
+description = "the best 42 Torrey Devitto Quotes"
++++
+- I actually have my first iPhone deformity because it sits on my pinky, and now my bone actually dips in where my cellphone sits.
+- I bargain-shop all the time, but then I started learning about how those products are made and about how if you spend a little bit more money on ethical clothing that are using recycled materials - like, my favorite dresses are by Christy Dawn... the carbon footprint that they're leaving is so minimal, and it's really worth the extra money.
+- I have so much respect for people in the service. The mental strength it takes to do what they do is unbelievable.
+- The way I eat is a heavy statement on my belief system. I eat cruelty-free. It is my way of being able to take a stand against doing harm to any living creature.
+- Before anyone learns my last name, they always assume I have some type of Latin background in me somewhere. I love it! I think the Latin culture is sexy. It's one of my goals to learn to speak Spanish one day; then I will really be able to fool people!
+- I was worried for a while that it was some sort of reflection of me that all I seemed to be getting were these characters that were a tad bit loony. But I love it. Those are the most fun characters to play!
+- I feel like - and maybe you're going to think I'm crazy for saying this - 'Vampire Diaries' has crazy fans, 'Pretty Little Liars' has crazy fans, but I swear to you, I have never met crazier fans than 'One Tree Hill's.
+- Fernanda Andrade and Daphne Zuniga are two beautiful, inspiring women I met and became very close with while living in L.A. Daphne's father is from Central America, and Fernanda is originally from Brazil.
+- My mom actually would not allow me to watch 'Dawson's Creek!'
+- Obviously I ask my family and loved ones for advice here and there, but I kind of have a rule with the people I love that surround me - close family and close friends - that unless I ask for it, I don't really want advice thrown out.
+- I was always a performer.
+- I work out as much as I can.
+- When I became aware of how inhumane it is to test on animals, I made a commitment not to buy anything that was.
+- I enjoy eating so much. I eat for happiness, fuel, and nourishment.
+- There were a lot of kids from Puerto Rico at my high school in Florida; people always assumed I was Puerto Rican. Even now in California, I get talked to on the street in Spanish constantly!
+- For me, calling my mom really helps soothe me when I'm spiraling. Having someone to talk to, whether it's a therapist, your brother, or a friend, can be such a positive thing.
+- I do have the most adorable little Chihuahua mix. I adopted him about 3 1/2 years ago from Much Love pet adoption, and he has been the love of my life ever since. His name is Beau, or as my sister and I like to call him ' mushy mush' because he truly is just a pile of loving mush that just melts in your arms.
+- I don't buy any leather goods or anything made from animal products - no down, nothing. It's something people should be mindful of.
+- When you cry out in pain from a broken wrist, no one questions it. You just go to the hospital and take the necessary steps. Mental illness is just as real, even if it can't be seen.
+- I love the dancing and the music from Latin cultures. I went to a Flamenco show in Spain once, and it completely took my breath away!
+- It's okay to talk about mental health issues. It's okay to admit that you have anxiety. It doesn't take away from your power. It's totally normal.
+- I have no upper arm strength!
+- I have realized sometimes I do better working under a crazy schedule. It gives me less time to overthink things and forces me to be present.
+- I think that's the biggest misconception when people want to live a more clean, cruelty-free life is, 'I can't do that. It's going to be so hard.' But I say do some research. You'd be surprised!
+- I've always said I would want to be a funeral director if I wasn't an actor.
+- I'm vegan in my fashion and vegetarian in my food.
+- Most Billy Joel songs make me want to cry a little.
+- I love wraps and shawls.
+- Going to Africa was being able to take my volunteering and my passion for hospice one step further.
+- I have sat in with the Burbank Philharmonic and the Topanga Orchestra when they need someone if someone gets sick or something.
+- If I could adopt any zoo animal, it would be a giraffe. I have always loved giraffes. They are so graceful and beautiful to watch.
+- No one deserves to die alone. No matter who you are, you deserve to have someone by your side. And as a volunteer with hospice, we provide that love, comfort, and respect.
+- Hospice has brought such a light in my life. It is something I will be involved with until I need hospice myself.
+- I love salads and vegetable sandwiches.
+- Not only does virtual dissection save animals, it also saves schools money and helps the environment by sparing the use of toxic chemicals typically used to embalm animals.
+- I grew up wanting to entertain.
+- I started playing violin when I was six, so I thought I could be a professional. It wasn't until I was 15 when I got into acting classes and realized this was what I wanted to do.
+- Having a mental illness does not mean you're weak or can't handle life. You can have a mental illness and deal with it and still be a powerful, confident woman.
+- I just think people are so used to seeing me on shows like 'Vampire Diaries' and 'Pretty Little Liars,' which are more geared toward teens. But in reality, I could have a 12-year-old kid.
+- There's a lot more people out there than you would think who cannot differentiate between TV and reality. I do think there's a lot of people out there who think I'm a nasty human being.
+- I got followed by the paparazzi because they thought I was Shannyn Sossamon.
+- With my family as my audience, I used to sing, dance, and reenact every scene from 'Grease,' 'Newsies' and 'Les Miserables' as many times as they would let me.

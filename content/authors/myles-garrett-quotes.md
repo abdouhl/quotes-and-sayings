@@ -1,0 +1,105 @@
++++
+author = "Myles Garrett"
+title = "Myles Garrett Quotes"
+quotes_len = "99"
+description = "the best 99 Myles Garrett Quotes"
++++
+- It does not matter if I have 10, 12 sacks: I want better, and I want more.
+- I'm not really a swagger guy.
+- I won't take bullcrap from anybody.
+- I'm going to love whatever team and organization that I'm a part of.
+- I'm not really a numbers guy, but I always have a goal in mind.
+- You have to have some fun playing this game.
+- You want to get the sack, but you want to get the forced fumble and the fumble recovery. And if you get the touchdown, that's the cherry on top. But you're looking for those three always.
+- I want to be the greatest. The greatest that ever played, regardless of position or era.
+- Whatever happens, if I don't make any plays that game, hopefully I can have an effect where I'm distracting two or three blockers, or I'm getting my hands up so I can bat down balls.
+- I want to be the best. The only thing holding me back is me.
+- You played 'Snake' on it. That's what we had a cell phone for, when my mother would let us use it. When you had it, you set it down at the table, you set it down in the other room, we ate, and you enjoyed your time with your family.
+- I gotta win. Winning is just not enough. I have to do my best.
+- I can never get tired of helping people.
+- I love my teammates. I'm never going to try and let them down.
+- I like to speak to my family in person. I get a bad rap because I don't use my phone enough to talk to them, but I do love talking in person, and I don't mind FaceTime, but actually, like, calling and texting, not too big on that.
+- It doesn't matter if it's preseason or a scrimmage. I'm trying to have a dominant performance, whether it's preseason first series or whenever I get out there.
+- Sometimes you have to stutter step; sometimes you have to spin inside. You have to run some games.
+- More people should stand up and not be afraid to do things that mean something to them.
+- If I can get some time off and still be productive and go 85-90 percent of the plays, that's fine with me.
+- One person can't win games.
+- You play because you love it, not because you can make money from it.
+- I'm not satisfied with doing well or doing good.
+- As soon as I step on the field, totally different person. As soon as I step off, I go back to who I've always been.
+- That's my goal: to be on the field as much as possible so I can make as big of an impact as possible.
+- If I hope for four or five sacks, and I only get two or three, that's still a good week for me, so I gotta go out there with those high hopes, those high expectations, and try to achieve them.
+- When I'm doing sports, I don't feel anything at all. I enjoy the moment. It's a safe haven. But once you try to let someone inside your soul, you become vulnerable. You have to be comfortable in your own skin. I don't open myself up like that to a lot of people. It takes courage.
+- A great team versus another great team, your performance is going to go down. But my job is to improve my consistency where, when I dominate against the lesser teams, go and do well and do the same amount of work when I'm going against the Alabamas and the LSUs, and it will come.
+- My goal is to be the best player on the field every down and every game. If I achieve that, then I will achieve any goal I set forth.
+- I'm trying to be better every single day.
+- I've already said I like the Cowboys because that's my hometown team. Everybody knows you're going to like your hometown team.
+- I think I was born in the right era. But I missed out on some great music.
+- People might say, 'They're this; they're that,' or I made a comment on cold weather, and they kind of pointed towards Cleveland with that. It doesn't matter to me. I'll play wherever they put me.
+- I want to be the greatest player who has ever been at my position, the greatest player who has ever played.
+- I love making the big play. I love being out there with my teammates. I love the camaraderie. I can't say I always love practice. But it's a means to an end.
+- I'm a Peyton Manning fan.
+- Some athletes take what we have for granted. They kind of feel, 'I'm here, and I earned this, so people who are not on this level should just give me what I want and move out the way.'
+- I go back to, like, Ella Fitzgerald, Billie Holliday, Elvis. I listen to everything.
+- Nobody is 100 percent every play, you know - eight, nine plays down the drive. Sometimes you do look back at it and say, 'Dang, I could have gave more effort there, or I loafed it a little.' But you work on those things.
+- I feel I'm athletically superior to most of the guys I go against.
+- I didn't know how this would play out when I was a kid. I knew I wanted to play ball, be a paleontologist, and write poetry. I thought, 'Heck, where will I find the time? Well, football comes first, and I'll just find some time for poetry, and paleontology can come at the end.' I made this plan at 14, and dang, it's all coming together.
+- I like to take long drives.I like to just enjoy the world and know what it is.
+- I'm just gonna make plays and bring a good atmosphere to your organization.
+- Whoever picks me up, I'm going to try and play my best for, to be the best player on the field at any given time.
+- I want the single-season sack record.
+- If I have to play every snap for us to have a chance to win, I'm going to do that.
+- I grew up loving dinosaurs, digging up things.
+- You just gotta back up your words. Don't be scared from it, or don't shy from it.
+- I want to be a paleontologist, whether it's amateur or professional. And I want to be a humanitarian.
+- I'm just a person that played a game in the spotlight.
+- I want to be great, and that's holding myself to my standards, not anybody else's.
+- Regardless of whether I'm sitting on the bench or out there participating, I'm going to give my all whatever I'm doing.
+- 'Faithfully' speaks to me. It's about a guy who's busy with his work, always on the road, but I'm still completely into you. If you just hold on, I'll completely give myself to you. Just stick along for the ride.
+- I'm too competitive to try and ride on somebody's coattails to get a W.
+- Accidents happen on the field.
+- I grew up with Ray Charles playing in the car all the time or playing in the house.
+- From the very beginning, I wanted to be the best, whether it was sports or poetry.
+- Boxing is kind of like football in that you test each other's desire to be there.
+- If you go in there with a mindset that you're gonna turn things around and make that contagious, and people start to believe in it, you can turn into a winning program wherever you go.
+- I have to live up to my expectations - which is to break all the records that I can, dominate by a wide margin.
+- You want to be Defensive Player of the Year.
+- I like to go and take pictures.
+- I've just been competitive all my life. That draws from a competitive family. We're all athletes, and we're all trying to win no matter what it is, whether it's Scrabble or basketball.
+- I can't go out there and be gassed and trying to go out there and make a play just for individual stats. Got to do the best thing for the team, which is to put myself out there when it's most productive for us.
+- Don't let anyone be close to how good you are, no matter what the division is - one, two or three. It doesn't matter, everyone plays football. It doesn't matter who the competition is.
+- I can always do better. I can always find a way to make more plays and be more effective.
+- I just like to have fun on the field and make plays and have fun with my teammates.
+- It's nice to have a record, but it's even better to have a win. But it's team before self every time.
+- When I'm sitting in my hotel room, I'm reading. If I've got some time after class, I'm reading. If I can get away with it while I'm doing treatment, I'm reading.
+- I want to go around the world just helping people.
+- Every play I give max effort because it can make the game.
+- I want to take care of my family for generations. I want to have my head turned into a bust in the Hall of Fame.
+- I don't want anybody to be like me. By the end of my career, I don't want to hear talk of another Myles Garrett.
+- You'll see me everywhere, inside, outside. Only place you won't see me is maybe safety.
+- I can't be a savior. But I can be the best I can be.
+- If there's the opportunity to turn things around, that's what great players do. They don't complain or become complacent with losing. They just go back to work every day and try to turn things around and make wherever they are a great place to be.
+- When I'm traveling for away games, I'm reading.
+- I don't want to have to be taken out because I'm tired or I need a breather.
+- It's kind of hard with two moves. I feel like you can't always be so predictable. You can be as strong or fast as you want, but speed-chop and power move aren't always going to work.
+- I'm going to stay respectful. The team comes first. I'm not going to do anything to jeopardize them or myself, so I'll just make sure I speak lightly and carry a big stick.
+- I didn't have a cell phone for awhile, until I was, like, 13 or 14, and before then, even if I did have one, it didn't work.
+- Make sure, if you're willing to say something, that you worked hard enough and prepared well enough to back those things up.
+- I want to be more than prepared for the game, for the preseason, for the season.
+- You have to know what you're doing to help people and have an important stance in life. You can only do that by staying focused, and I can't lose focus for a second.
+- I'll be a difference maker from Day 1.
+- I'm not great until I'm the best.
+- I feel like everybody's on the same level. Nobody's done anything more important than any other. People have gifts in other areas. You weren't blessed with them; they were blessed with them.
+- I can give it my all and make plays and dominate my side of the field, but it takes all 11 guys with a certain thought process that we're going to go out there, and we're going to win.
+- Can't force anything. Can't try and make a play that somebody else is supposed to make.
+- I think everybody enjoys a little bit of Drake.
+- I want to be dominant from day one.
+- I'm a regular person. I'm a regular guy. As a kid, I played games. As a kid, I liked poetry. As a kid, I liked drawing. And I never felt the need to stop doing anything. I never lost interest in them.
+- It doesn't matter who picks me up, I'm going to try and be a franchise player for them.
+- I'm always going to be passionate about the guys we have in the locker room because they've always been OK with me - they've always done right by me - so I have no problem playing with them, going out there and sweating, bleeding, and winning with them.
+- My dad gives me goals, and then I kind of go even farther beyond those.
+- Knowing that guys are out there improving and trying to take it to that next level, that gives me fire to improve my play and work on these little things that can keep me from dominating a game.
+- If I'm not the best D-lineman, it's not good enough for me.
+- After the whistle, during the whistle. Guys try to sneak stuff in. I just have to be uncompliant with stuff like that. Guys feel they can get away with stuff. I have to just try to not get back at him but make sure I finish through him during the whistle and not do anything that can jeopardize the team or that series of downs.
+- Just to see how much time is consumed looking down at your phone when you could be reading, becoming better at your own language, or learning a new language - you could be doing so many productive things. You could becoming a better student-athlete.
+- Everything has a right to live.

@@ -1,0 +1,51 @@
++++
+author = "John C. Mcginley"
+title = "John C. Mcginley Quotes"
+quotes_len = "45"
+description = "the best 45 John C. Mcginley Quotes"
++++
+- I just can't afford to get bored, because if you've been blessed with a generous imagination, which a lot of actors have, to be engaged, to be stimulated, is to liberate your imagination.
+- I have no issue with being a character actor. If you've been around enough that people are able to segregate you into that category, it means you're working. So that's good!
+- I'm the wrong person to not be professional around. When someone calls 'action' and we're in the frame together, I'm gonna run you over. You're gonna get eaten alive.
+- I don't want to be the guy who goes, 'Oh yeah, blah blah blah... everyone freaking well knows me.' Because that's not the case. Once in a while, someone will remember some silly thing I did and then they feel good. And they go, 'Oh, hey, Michael Bolton, I celebrate your whole catalog.' And I'm like, 'Great, great, I totally get it.'
+- I would love to have a photographic memory. It would come in handy with the rants I'm given on Scrubs... often on short notice!
+- The idea for actors is to make a living telling stories, so if you can do that, then you're way ahead of the game.
+- 'Learn your lines.' I want that on my gravestone.
+- The learning curve on soaps is through the roof because it's a three-camera setup. There's a master and then there's two singles. And the great thing about soaps, and soap actors will tell you, is that when you get your line wrong, they don't re-shoot it. They just cut to the person listening.
+- I wanted to be Red Barber, Mel Allen or Howard Cosell. I loved their personalities and all of their sounds.
+- I got my Equity card from an audition out of Backstage. We did 'Guys and Dolls' and 'Kismet.'
+- Kanan is a big road through the Santa Monica Mountains. Between mid-March and mid-April, when you get over to the western side of the mountains, it's populated by Spanish broom - this beautiful, yellow, flowering weed that smells the way I imagine it smells along the Yellow Brick Road.
+- With Shakespeare, if you're not going to do the iambic pentameter, do some other play.
+- I built a baseball field in the lower part of our property and I'm always working on that. I got a wheelbarrow, a pick and a shovel, and I started to build a baseball field during writers' strike. We have boys and girls come over and we have clinics in the spring. It's called The Strike because it's named for the writers' strike.
+- I am a father. My son's name is Max and my daughter's name is Billie Grace. Twelve years ago Max was born with Down Syndrome. His journey has been complicated by infantile seizures, sleep apnea, dietary challenges and now, puberty!
+- I like to be in waiting rooms with people as they're auditioning, because their terror calms me.
+- A lot of things went incredibly well for 'Scrubs': from a ridiculous number of downloads on the iPods, to whenever they issue a new season on DVD it kinda sells out, and we got nominated for an Emmy. To be picked up for six years is all gravy, man.
+- When your child stops breathing 60 times a night, you don't worry about what's going on next year or even next week. You put aside thoughts about which preschool you're going to enroll him in and focus on how he's doing right now. It's not the Norman Rockwell relationship that you sign on for when becoming a parent.
+- TV tends to look for the living equivalents of squeaky-clean Kens and Barbies, but with my dial I'm more like Ken's dirty old uncle.
+- What's so interesting about 'Point Break' to me is that it's a study of testosterone and adrenaline by a woman. That's why it's little more interesting than it should be.
+- Freedom of speech is, to all Americans, as oxygen is to the human condition. It is a right that has been irreversibly programmed into our hard drive. We are free to speak our minds. An artist's right to express him or herself as best suits their art, is the artist's prerogative and it is guaranteed.
+- I went to see Alison Krauss and Union Station at Disney Hall and I would say it was one of the most astonishing sonic experiences I have had. It's an enormous room that's acoustically perfect. My interpretation of receiving music as a layman is that the way the music kind of settled on me in that room was perfection.
+- I have mixed feelings about 'Car 54, Where Are You?' Because we shot it as a musical and whoever the studio head was at Orion, or whoever the powers that be were, cut all but, like, two musical numbers out of it. That is the same as cutting the musical numbers out of 'The Wizard Of Oz'; it wouldn't be that interesting.
+- My son walked up to Nicole on the beach and I was throwing the ball for the dogs in the ocean. I was like, 'Max, you get the dogs. I'll talk to the hot blondes.'
+- If you can figure out where you fit into any particular story, you'll be okay. When you're not quite sure where you fit in, you try to be too many parts of the story. You gild the lily. I see it all the time.
+- You go see 'Timothy Green,' and tell me if it doesn't rock your world. I loved it. I loved every frame of it.
+- On 'Platoon' I was offered in 1984 a very tiny part that Ivan Kane would go on to play. Then the financing fell out, and the film was scuttled for two years.
+- I worked on the floor of the New York Stock Exchange back when they used to write tickets. And I was just a runner. So a guy would write a ticket and I would run it, and it was endless. That was a hard job. And I dug tungsten... for a coal company in Wyoming one summer, and that was pretty miserable.
+- I'm just really proud of 'Dead Head Fred.'
+- I did an episode of 'Frasier' with my friend Kelsey Grammer once.
+- Groups like the NAACP, The Anti-Defamation League, NOW and GLAAD, will respond to derisive language directed at their constituents. The price paid by those who cavalierly chose to verbally disrespect the dignity of African Americans, Jews, women and homosexuals is steep.
+- I'm very proud of 'Platoon,' but at the end of it I was done. I was done.
+- What helps writers, and ultimately, obviously, helps the actors - who should serve the words that the writer puts on the page - is if the character has damages, because then the writers can cultivate and excavate, like a dentist going into a tooth.
+- I got the pilot for 'Scrubs' sent to me, and in the margin for Dr. Cox, it said 'a John McGinley type.' So when I went in to audition, I said to Billy Lawrence, who's a dear friend of mine, I said, 'Well, I'm John McGinley.'
+- You know, post-production is a bit of a grind to me. If I'm producing a film, I really... I mean I like editing, but all the other crap, the color mixing and... it's all a grind. And so as a result I cut back producing the number of films I was producing.
+- I knew I wanted to play 'Dr Cox' really bad, which is always a huge mistake because as soon as you want something really bad, maybe you rip up a little bit.
+- I felt (a) it was a great role and (b) I wanted to stay in town. I wanted to stop going to these four month and five month gigs up in Toronto or Montreal or Vancouver or down in Mexico. I wanted to be around my son, Max. This came along and I was like, 'I really want to play this guy!'
+- The conventional wisdom with David Mamet is, you do not change a word. And that agrees with me. If you want to change any of David's words, it's like wanting to change the iambic pentameter in Shakespeare - you should do something else.
+- My son, Max, was born the day Princess Di died.
+- I've always thought Ed Burns was a profoundly underrated actor. He's a great director, obviously. A great director/writer. But I think he's a stunning actor, too.
+- If you watch 'E.T.' and say that there are holes in the story because this alien lands, then don't go to the movie! It drives me insane.
+- I'm a homebody. If I'm not working I'm with my family being a dad.
+- Turns out, Down syndrome is the most common genetic disorder, occurring once in every 800 births, and no one really knows why it happens. It just does.
+- As an actor, it's great to play a strong leader with a heart of gold.
+- I always wanted to be Gene Hackman and I always wanted to be, you know... I wanted to be one of these guys. I always wanted to be Bob Duvall.
+- Dr. Cox mentors the rookie doctors with a spoonful of dirt and then a cup of sugar. I see him as an archetypal descendent of two of my favorite curmudgeonly characters: Lou Grant and Louie De Palma.

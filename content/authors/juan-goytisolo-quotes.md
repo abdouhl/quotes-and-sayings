@@ -1,0 +1,22 @@
++++
+author = "Juan Goytisolo"
+title = "Juan Goytisolo Quotes"
+quotes_len = "16"
+description = "the best 16 Juan Goytisolo Quotes"
++++
+- In the Europe which was created by the Second World War, divided into two blocks, each in need of a revolution that would end the abuses and injustices of capitalism and the privileges of a bureaucratic caste, collective faith does not exist.
+- In my opinion, the most significant works of the twentieth century are those that rise beyond the conceptual tyranny of genre; they are, at the same time, poetry, criticism, narrative, drama, etc.
+- But the Spain which emerged around 1960, beginning with its economic miracle, created by the invasion of tourists, can no longer result in impassioned dedication on the part of its intellectuals, and even less on the part of foreign intellectuals.
+- My exile was not only a physical one, motivated exclusively by political reasons; it was also a moral, social, ideological and sexual exile.
+- And with each day that passed, the gulf broadened and my isolation became more accentuated. In such a situation, the discovery that my experience was not unique, that it had also been that of other Spanish intellectuals, became very important for me.
+- In times when religious or political faith or hope predominates, the writer functions totally in unison with society, and expresses society's feelings, beliefs, and hopes in perfect harmony.
+- When I write now I do not invent situation, characters, or actions, but rather structures and discursive forms, textual groupings which are combined according to secret affinities among themselves, as in architecture or the plastic arts.
+- Marks of Identity is, among other things, the expression of the process of alienation in a contemporary intellectual with respect to his own country.
+- As I began to discover my own truth and endeavored to possess it with clarity, I became more and more alienated from that which my companions held, or professed to hold.
+- The writer cannot abandon himself simply to inspiration, and feign innocence vis a vis language, because language is never innocent.
+- In Count Julian I simply proposed to create a text which would allow for diverse levels of reading.
+- The fundamental purpose of a novel like Count Julian is to achieve the unity of object and means of representation, the fusion of treason as scheme and treason as language.
+- And it is because a series of elements in Spanish life which operate today the same way as they did in the times of Blanco White made obvious my relationship with him, based on a similarity in Spain's condition.
+- A contemporary artist can use the findings of all epochs and all styles, from the most primitive literary expressions up to the most refined products of the baroque.
+- For a country is not merely a piece of earth; it is, above all, a compendium of social, cultural, and historical factors which begin to acquire sense and order through the process of writing.
+- I not only lived physically away from my native land, but the values and critical judgments of those closest to me became stranger and stranger.

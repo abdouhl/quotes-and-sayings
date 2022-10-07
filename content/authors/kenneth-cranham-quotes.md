@@ -1,0 +1,24 @@
++++
+author = "Kenneth Cranham"
+title = "Kenneth Cranham Quotes"
+quotes_len = "18"
+description = "the best 18 Kenneth Cranham Quotes"
++++
+- When you act for a living, you are lucky enough to get to say things you really want to say. You get lines that you look forward to, lines that jump out like a jack-in-the-box; you're thinking: 'Wait till you hear this.'
+- I had a whole Scottish existence until we moved to London when I was four.
+- Great wine is always enhanced by great food.
+- Buying a particular vintage because everyone tips it and then waiting for it to mature is like gambling. The thrill is in placing the bet. Once the race is run or the match is played, you'll either win or lose. Until that happens, you're caught in this wonderful, agonising sense of expectation.
+- The thing about theatre is that when it is actually occurring, when you have the audience on your side, you absolutely think you can will them to do anything. It's exhilarating.
+- The only acting I knew when I was a boy came from Lochgelly. With a double bill, people would live their lives in the cinema. You would even see babies being breastfed in the audience.
+- When I was in Lochgelly as a boy, I went to the cinema every night - and on Sundays, I used to go to Cowdenbeath and see something there.
+- The first thing I wanted to do, as a boy, was to be a skier, because I had seen film footage of somebody skiing.
+- I was fantastically well versed by the time I left school. I had a teacher who put 'A Clockwork Orange' my way, and 'Catcher in the Rye.'
+- I've always liked texts that you immediately understand. I suppose the playwrights who really speak to me are Edward Bond, Joe Orton and Harold Pinter. I've been in six different Pinter productions - I love the clarity of his language. He has this way of using words - there's a thrill to them.
+- I feel at home in Scotland and go back whenever I can. I've played the Edinburgh Festival twice, and I get the train across the Forth Bridge to Lochgelly, just to see it.
+- If you swap it about, do television, theatre, film, you can go on surprising yourself. The problem is you get employed to do something you've already done. They want something from that sheep pen of performances they've seen you do.
+- You create a blueprint of your best performance, and you're happiest the night you surpass that blueprint. That won't happen that often, but it will happen. It's like sculpting: you keep refining. When you have a piece that is yours, that is just you, that becomes obsessive; you think about it all the time.
+- Christopher Plummer once told me that he never orders a wine without first confirming that the restaurant has a second bottle in case he loves it.
+- My grandfather, Harry Ferguson, was a butcher in Hill of Beath; so even though my grandparents lived in some poverty, we got loads of beef. My grandmother, Meg, was a fine Scottish cook who did slow cooking.
+- Cinema dominated the Fife coalfield towns. We lived in Lochgelly, but my mum was caught up in Hollywood. She was in love with the style and glamour. Sometimes she would come with me to the cinema in the afternoons, and she would say things like, 'I wouldn't mind a peck with Gregory.'
+- You have to succeed as a young actor, then as a dad actor, those would be my 'Harvey Moon' years, then as an old actor.
+- The great thing about stage is that you have more control. The stage is yours. The time is yours. Film is really the editor's medium.

@@ -1,0 +1,116 @@
++++
+author = "Tim Cook"
+title = "Tim Cook Quotes"
+quotes_len = "110"
+description = "the best 110 Tim Cook Quotes"
++++
+- Companies that get confused, that think their goal is revenue or stock price or something. You have to focus on the things that lead to those.
+- We don't really look at the stock, you know? Because for us, it's about the long term. And so we're very much focused on long-term shareholder value but not the short-term kind of stuff.
+- People love our products. They love using our services. All of this, to me, equals great opportunity.
+- We could build just about anything that you could dream of. But that's not the question. The thing that Beats provides us is a head start. They provide us with incredible people that don't grow on trees.
+- It's hard to edit. It's hard to stay focused. And yet, we know we'll only do our best work if we stay focused. And so, you know, the hardest decisions we made are all the things not to work on, frankly.
+- I've been thinking about 'The Jetsons' since I was a kid. But occasionally, you want 'The Jetsons' to come to reality. That's what Apple is so great at: Productizing things and bringing them to you so you can be a part of it.
+- We generally acquire a company every three to four weeks on average. And so it's a rare month that there's not a company being bought. We typically buy for technology and really great people.
+- We didn't make the first mp3, smartphone, or tablet. But you can say we made the first modern mp3, smartphone, and tablet. And I think now we're making the first modern smartwatch.
+- This is Steve's company. This is still Steve's company. It was born that way; it's still that way. And so his spirit, I think, will always be the DNA of this company.
+- If you look at iPod, iPod wasn't viewed as a success, but today it's viewed as an overnight success. The iPhone was the same way. People were writing about there's no physical keyboard. Obviously nobody would want it.
+- We try to continually push ourselves to do more and more, not just on the hardware side but also in terms of developers' tools so they can take advantage of the hardware that's there, in the best way.
+- At one point in time, you had to choose, 'Do you want to do consumer or enterprise?' But the reality today is a bit different: Enterprises are a collection of consumers.
+- A back door is a nonstarter. It means we are all not safe... I don't support a back door for any government, ever.
+- To whom much is given, much is expected. I do believe this. It's embedded in me.
+- We shouldn't all be fixated just on what's not available. We should take a step back and look at the total that's available, because there's a mountain of information about us.
+- Our whole role in life is to give you something you didn't know you wanted. And then once you get it, you can't imagine your life without it. And you can count on Apple doing that.
+- Virtual reality sort of encloses and immerses the person into an experience that can be really cool but probably has a lower commercial interest over time. Less people will be interested in that, but there are some really cool areas there for education and gaming that we have a lot of interest in.
+- In my view the tablet and the PC are different. You can do things with the tablet if you are not encumbered by the legacy of the PC.
+- I don't really think anything Microsoft does puts pressure on Apple.
+- I love museums but I don't want to live in one.
+- Music's always been at the heart of Apple. It's deep in our DNA. We've sold Macs to musicians since the beginning of Macs.
+- I'd rather Apple cannibalize Apple than somebody else cannibalize Apple.
+- People like things they can do now, not just think about.
+- You can only do so many things great, and you should cast aside everything else.
+- I think the iPhone is the best consumer product ever. That's what I feel about it. And it's become so integrated and integral to our lives, you wouldn't think about leaving home without it.
+- You know, this iPhone, as a matter of fact, the engine in here is made in America. And not only are the engines in here made in America, but engines are made in America and are exported. The glass on this phone is made in Kentucky. And so we've been working for years on doing more and more in the United States.
+- That has always been the objective of Apple: to do things that really enrich people's lives. That you look back on and you wonder, 'How did I live without this?'
+- We have to make sure, at Apple, that we stay true to focus, laser focus - we know we can only do great things a few times, only on a few products.
+- I hope people remember me as a good and decent man. And if they do, then that's success.
+- I am very bullish on India because of its people, its culture, and the leadership. I love the culture and warmth of people.
+- Every time I meet Prime Minister Modi and listen to him and then see his actions, including GST, I see bold things that I don't see in any other place. I am super impressed and optimistic.
+- It turns out that people - in every country in the world, there's a segment of buyer that wants the best product and the best experience. And that's what we're about providing.
+- The way we look at manufacturing is this: the U.S.'s strategy should be to skate where the puck is going, not where it is.
+- We are constantly auditing our supply chain. Making sure that safety standards are - are, you know, are the highest. We're making sure that working conditions are the highest.
+- What Beats brings to Apple are guys with very rare skills. People like this aren't born every day. They're very rare. They really get music deeply.
+- People should have values, so by extension, a company should. And one of the things you do is give back. So how do you give back? We give back through our work in the environment, in running the company on renewable energy. We give back in job creation.
+- I don't view Apple or myself as an activist. What we do is for some things where we think we have deep knowledge, or think we do, or a strong point of view, we're not shy. We'll stand up, speak out - even when our voice shakes.
+- I'm excited about Augmented Reality because unlike Virtual Reality, which closes the world out, AR allows individuals to be present in the world but hopefully allows an improvement on what's happening presently.
+- If you embrace that the things that you can do are limitless, you can put your ding in the universe. You can change the world.
+- We see that in the top problems in the world between haves and have-nots, generally we find that the root cause is education.
+- Augmented reality will take some time to get right, but I do think that it's profound.
+- When Apple looks at what categories to enter, we ask these kinds of questions: What are the primary technologies behind this? What do we bring? Can we make a significant contribution to society with this? If we can't, and if we can't own the key technologies, we don't do it.
+- You can focus on things that are barriers or you can focus on scaling the wall or redefining the problem.
+- Our values are that we do think that people have a right to privacy. And that our customers are not our products.
+- I think that some people will never buy a computer because I think now we're at the point where the iPad does what some people want to do with their PCs.
+- We collectively, to get things done, work together as a team. Because the work really happens horizontally in our company, not vertically. Products are horizontal. It takes hardware plus software plus services to make a killer product.
+- We typically don't talk about something until we are about to ship. Not just for AI, but for anything: the comparison is generally what we are shipping compared to what someone else is talking about that is going to happen sometime in the future. A lot of people sell futures, I guess, is the way to think about it.
+- I've always hated litigation, and I continue to hate it.
+- Hopefully, people will look at our stance on privacy in general and know that we're not trying to operate outside of a fairly distinct line that we're drawing. I hope that people trust us to do the right thing there.
+- We think the government should be pushing for more encryption. That it's a great thing. You know, it's like the sun and the air and the water.
+- All of us technology companies need to create some tools that help diminish the volume of fake news. We must try to squeeze this without stepping on freedom of speech and of the press, but we must also help the reader.
+- My view on working with any government in the world is that there are things that you will agree upon and things that you will not. And you don't want to let the things you don't mean that you don't have any interface.
+- The reality is, is that we love competition, at Apple. We think it makes us all better. But we want people to invent their own stuff.
+- I personally think 3D Touch is a game changer. I find that my efficiency is way up with 3D touch because I can go through so many emails so quickly.
+- France has always had a special place for Apple. This is the best place to discover and chat with all musicians, graphic designers, designers, or photographers who use our products. There is such creative energy.
+- For us, the most important thing we can do is raise people up - that is, either by giving the ability to do things they could not otherwise do, allow them to create things they couldn't otherwise create. It's about giving them tools; it is about empowering people.
+- Anything can change, because the smartphone revolution is still in the early stages.
+- I think each person, if you're a CEO, the most important thing is to have - to me, is to pick people around you that aren't like you, that complement you. Because you want to build a puzzle; you don't want to stack Chiclets up and have everyone be the same. And so I believe in diversity with a capital D.
+- The North Star has always been the same, which for us, is about making insanely great products that really change the world in some way - enrich people's lives.
+- Apple is the only company that can take hardware, software, and services and integrate those into an experience that's an 'aha' for the customer. You can take that and apply to markets that we're not in today.
+- The right focus for the U.S. is on advanced manufacturing - something that requires innovation.
+- If hearing that the CEO of Apple is gay can help someone struggling to come to terms with who he or she is, or bring comfort to anyone who feels alone, or inspire people to insist on their equality, then it's worth the trade-off with my own privacy.
+- National security always matters, obviously. But the reality is that if you have an open door in your software for the good guys, the bad guys get in there, too.
+- If you look at the automobile in many countries, there is a certified pre-owned market for Lexus, BMW, and many other brands. When you buy a high-end smartphone, you can expect the same kind of a situation there.
+- To me, this is the perfect marriage. There's no friction. There's just, we have what they need, they have what we need. And so IBM is in the process, with our help, of designing many different apps for many different verticals.
+- You want to be the pebble in the pond that creates the ripple for change.
+- Prior to the App Store, the chances of that happening, of somebody really young forming a company and in a period of no time really becoming a global provider of a game or something else, it really didn't happen. Now there are these success stories popping up everywhere.
+- I am who I am, and I'm focused on that, and being a great CEO of Apple.
+- We think coding should be required in every school because it's as important as any kind of second language.
+- Apple doesn't do hobbies as a general rule.
+- We're very simple people at Apple. We focus on making the world's best products and enriching people's lives.
+- When we launch a product, we're already working on the next one. And possibly even the next, next one.
+- Let your joy be in your journey - not in some distant goal.
+- The worst thing in the world that can happen to you if you're an engineer that has given his life to something is for someone to rip it off and put their name to it.
+- When technological advancement can go up so exponentially, I do think there's a risk of losing sight of the fact that tech should serve humanity, not the other way around.
+- There have been people that suggest that we should have a back door. But the reality is if you put a back door in, that back door's for everybody - for good guys and bad guys.
+- It gives me a lot of energy to talk to developers or meet students in classrooms who are using our technology to help learn faster and better. Watching them pursue their passion.
+- I think the most diverse group will produce the best product; I firmly believe that.
+- Price is rarely the most important thing. A cheap product might sell some units. Somebody gets it home and they feel great when they pay the money, but then they get it home and use it and the joy is gone.
+- When you care about people's happiness and productivity, you give them what brings out the best in them and their creativity. And if you give them a choice, they'll say, 'I want an iPhone,' or 'I want a Mac.' We think we can win a lot of corporate decisions at that level.
+- Market in India is big enough for several brands. For us, it's about innovation, making best product, and making the ecosystem better and better. If we do that well, then more people will switch from Android to iOS.
+- When you're an engineer, you want to analyze things a lot. But if you believe that the most important data points are people, then you have to make conclusions in relatively short order. Because you want to push the people who are doing great. And you want to either develop the people who are not or, in a worst case, they need to be somewhere else.
+- The most important thing is, Do you have the courage to admit that you're wrong? And do you change? The most important thing to me as a CEO is that we keep the courage.
+- I don't think Apple has to own a content business.
+- You have to find the intersection of doing something you're passionate about and that, at the same time, is in the service of other people. I would argue if you don't find that intersection, you're not going to be very happy.
+- I see the Mac being a key part of Apple for the long term, and I see growth in the Mac for the long term.
+- We don't collect a lot of your data and understand every detail about your life. That's just not the business that we are in.
+- We have never said that we're perfect. We've said that we seek that. But we sometimes fall short.
+- Apple has a culture of excellence that is, I think, so unique and so special. I'm not going to witness or permit the change of it.
+- Work takes on new meaning when you feel you are pointed in the right direction. Otherwise, it's just a job, and life is too short for that.
+- Our goal has never been to make the most. It's always been to make the best.
+- You don't have to choose between doing good and doing well. It's a false choice, today more than ever.
+- What all of us have to do is to make sure we are using AI in a way that is for the benefit of humanity, not to the detriment of humanity.
+- From an app point of view, if you looked at innovation on the PC, you'd be hard pressed to find companies innovating. The list is small.
+- If you believe, as we believe, that diversity leads to better products, and we're all about making products that enrich people's lives, then you obviously put a ton of energy behind diversity the same way you would put a ton of energy behind anything else that is truly important.
+- I think it's smart for the United States to have some kind of tax revenue for international earnings - if that tax were reasonable.
+- The pre-owned market allows us to reach customers who really want an Apple device but can't really reach that point. I think it is great for people, or otherwise, we wouldn't we doing it. If we were not proud of the product, we wouldn't be doing it.
+- I don't subscribe to the view some people have in the industry that you should purposefully design products that do not last that long. I don't think it is good for anyone.
+- Think about what you're passionate about. I did not learn something early enough: if I could go back, I'd tell the younger me that there's a big difference between loving to work and loving the work.
+- Everybody in technology seems to want big numbers. Steve never got carried away with that. He focused on making the best.
+- Life is fragile. We're not guaranteed a tomorrow so give it everything you've got.
+- You can converge a toaster and a refrigerator, but those things are probably not going to be pleasing to the user.
+- While infusing technology with humanity, we are trying to make sure it's used for good and also trying to foresee some of the ways it can be used in a bad way and eliminate those.
+- It wasn't very long ago when you wouldn't even think about there being health information on the smartphone. There's financial information. There's your conversations; there's business secrets. There's probably more information about you on here than exists in your home.
+- I learned that focus is key. Not just in your running a company, but in your personal life as well.
+- I think two people with strong points of view can appreciate each other even more.
+- The kind of investors we seek are long term because that's how we make our decisions.
+- I think of a traditional CEO as being divorced from customers. A lot of consumer company CEOs - they're not really interacting with consumers.
+- It's not what Apple and Beats are doing today. It's what we believe pairing the two together can produce for the future.
+- I have to feel myself doing what's right. If I'm the arbiter of that instead of letting the guy on TV be that or someone who doesn't know me at all, then I think that's a much better way to live.

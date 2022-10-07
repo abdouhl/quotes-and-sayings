@@ -1,0 +1,67 @@
++++
+author = "Jane Pauley"
+title = "Jane Pauley Quotes"
+quotes_len = "61"
+description = "the best 61 Jane Pauley Quotes"
++++
+- I think the success of a talk show depends on how true it is to the personality of the person hosting it. The shows I really admire, like 'Oprah' and 'Ellen,' are distinctively like their hosts, so I think my show will be successful only if we try to stay consistent to my own sense of myself.
+- I was an unusually private person - in a way, kind of insufferably so. I think I thought the celebrity thing when it happened was a temporary phenomenon, and I was above it.
+- Nobody calls me silly. That is not a word that applies to me.
+- I had had some months of depression. Not serious enough to keep me from work. So, I guess you'd call that a mild depression. It was becoming worse. And I was being treated for it with anti-depressants.
+- I love working with an audience. I love working with actual people who, you know, if they're moved, you see it. If you say something they're stunned by, you see their jaws drop. If they're amused, they laugh - that kind of reinforcement, I totally adore.
+- Kids learn more from example than from anything you say; I'm convinced they learn very early not to hear anything you say, but to watch what you do.
+- 'Your Life Calling' is the first thing in my long career I've ever actually invented. It is my entrepreneurial debut.
+- I have been fiercely private, in part because I could never understand how a journalist could be otherwise. I was also the mother of small children, and security concerns were paramount.
+- This may sound funny, but as much as the 'Today' show matured me, it also was something of a cocoon. I'd been happy there. I never went into the boss's office and pounded my fist on the desk, saying, 'Give me more money! Give me a prime-time show!'
+- My parents had an experience of life that is as opposite to mine as you can imagine.
+- I'm excited about going back to 'Today,' but, at odd moments, I'll grit my teeth in anxiety. I feel like a student before the start of school. I've got my new shoes and my book bag, but I'm not sure I'll remember how to do trigonometry. During my maternity leave, I haven't used many words of more than one syllable.
+- We're going to live longer than our parents' generation, and there comes a point when you ask yourself, 'What am I going do?' You can only play so much golf.
+- You can't look at a sleeping cat and be tense.
+- Most of us in the baby-boom generation were raised by full-time mothers. Even as recently as 14 years ago, 6 out of 10 mothers with babies were staying at home. Today that is totally reversed. Does that mean we love our children less than our mothers loved us? No, but it certainly causes a lot of guilt trips.
+- Many people come to reinvention when life changes around them, but people come in all different stripes. I'm oriented to change.
+- I envy people with dreams and passions, but I don't think that way. I still don't have a 'bliss' to follow. For people like me - I suspect that's most people - holding out for a 'dream' or a 'passion' is paralyzing. I just like having work I enjoy that feels meaningful. That's hard enough... but it's enough.
+- I see myself as life-sized, certainly not a supersized personality, and apparently after 30 years of television, that's what the audience thinks of me as well. I know this because for the first time in my career, I've just seen market research, and the thing I am known for is being authentic.
+- I've always been profoundly ambivalent about fame. I think it just eats the reality out of you and it can be intoxicating because I like some of it.
+- I have a very good sense of tone, and it's possible to talk about very personal things and maintain a level of dignity and even privacy - to go to the place, to talk about it, but not get icky.
+- A mood disorder is dangerous. You've got to get those dramatic waves of highs and lows stabilized. It's dangerous if you don't.
+- Well, every now and then I would hear the preposterous notion that that Jane Pauley sounds like Barbara Walters. Like I could if I tried?
+- 'Good Morning America' exploited Joan Lunden's pregnancy, but you won't see me bringing my babies on the air. The only reason I'm talking about the babies at all is that they've been with me on the show since I became pregnant. After a while, I had to acknowledge this pumpkin tummy.
+- I think women think a lot about cycles, biological and personal. This year another cycle came around: my contract was up. It seemed an opportunity to take a life audit.
+- No baby boomer has a completely original idea, but after 13 years on 'Today' and another 11 on 'Dateline,' almost 30 years total at NBC, I felt the urge to find out what was 'behind the camera.' I had the feeling there was 'something more,' though 'more' might be less.
+- My father was so good-natured and had such a happy disposition. I've always confused him with Jimmy Stewart. So, think Jimmy Stewart. That's my dad.
+- I hate my picture being taken. A photograph by definition captures one mood. And I have a million facets to my personality; I never use just one. That's why I like TV more.
+- I can cook; but not well. I figure I have six years until my children discover what their friends' mothers make for dinner.
+- When I was diagnosed with bipolar disorder the year I turned 50, it was certainly a shock. But as a journalist, knowing a little bit about a lot of things, I didn't suffer the misconception that depression was all in my head or a mark of poor character. I knew it was a disease, and, like all diseases, was treatable.
+- AARP knows the future is bright for a generation that's going to remain healthy and vital for 10, 20, 30, 40 more years. AARP has the information and resources people need throughout their process of reinvention.
+- My guess is that people look at me and project their own values - importance of family, ego is healthy but not the biggest thing. I don't know. I can't explain my popularity.
+- I do like some of the perks, like being, recognized, especially if I've had my makeup done and I'm going to be photographed and people admire me. Who wouldn't like that?
+- My parents were terrific - mother was a church organist and my father was probably the most respected person in our church outside of the minister and sometimes maybe that much. The neighbors all called him - a gentleman.
+- I think my children know that Mother's priority is to be with them first. But I don't think it has to be an either/or situation. Work is very important to me, and it wouldn't be in the best interest of my children for me to stay home seven days a week.
+- I would like to prove that on TV, everyday lives can be as compelling as the life-styles of the rich and famous. Especially lives that we catch at extraordinary moments.
+- I would not take for granted that my personal life - because I knew better than anybody - that it was just a life. It was surprisingly an ordinary life.
+- I had had some months of depression. Not serious enough to keep me from work. So, I guess you'd call that a mild depression.
+- I'm sorry, but I can't imagine being an American icon! It would be pretty difficult to look at your face in the mirror and think of yourself as that without laughing and spitting toothpaste all over!
+- I probably am more shy than people realize. But I'm shy when I leave a studio and I am just myself.
+- It's like if people don't see you on TV every day, they think you're in cryogenics somewhere.
+- What I've discovered is that my kids weren't watching the 'Today' show... they watch 'Gumby' and 'Bugs Bunny!'
+- I've always had a lot of ambivalence about fame and celebrity.
+- New Yorkers, by reputation, are fast-talking, assertive and easily annoyed; I fit right in.
+- Twins are a high-risk pregnancy, by definition. The quieter I am, the longer I can keep them growing.
+- My goal is to see that mental illness is treated like cancer.
+- In the beginning when I sat next to Tom Brokaw on the 'Today' show, the stories I was interested in were those having to do with women and children and learning and health. In those days, 25 to 30 years ago, that was called soft news, and not in a nice way.
+- About the time I turned 50, I experienced the profound biological change that often accompanies women at that age. Also, I put two kids in college and lost both of my parents, so I'm no longer somebody's daughter.
+- My tides were fluctuating, too - back and forth, back and forth - sometimes so fast they seemed to be spinning. They call this 'rapid cycling.' It's a marvel that a person can appear to be standing still when the mood tides are sloshing back and forth, sometimes sweeping in both directions at once. They call that a 'mixed state.'
+- At midlife, I think a woman has more in common with her teenage children than anybody else. We all are kind of uncertain. We realize for the first time in either our lives or decades that we're in charge now.
+- I came back to work when my children were two months old. At that early age, they seem to have little awareness of anybody but their Raggedy Ann dolls, so it wasn't a matter of them missing me. I was missing them.
+- I'm not driven by killer ambition. I'm not a workaholic. I'm a good team player. I don't have to be captain, but I do want to play on a winning team.
+- The years after 50 can be a time of great productivity, meaningful work, pleasure, creativity, and innovation. It's a huge opportunity.
+- I am not one of the great journalists of my time.
+- Your 40s are a major trough. About the age of 50, feelings of satisfaction begin to rebound and keep rising into your 50s, 60s and 70s, with health being a major factor.
+- When I grew up, there were common patterns to people's lives. Now everybody is just making it up as they go along.
+- I spent an awful lot of my life underestimating myself and, as a result, not exceeding my own expectations.
+- It may feel like the more you know about depression and the many forms it can take, the more questions you have. That's how I feel.
+- I'm very sensitive about being held up as some sort of example. I don't consider myself any sort of role model at all. I have great advantages over many other working women, and my schedule allows me more time with my kids than many working women have.
+- A diagnosis is burden enough without being burdened by secrecy and shame.
+- Because our generation has waited so long to have babies, we feel we've 'discovered' something that women have been doing for thousands of years. I have no illusions that I will be in the same situation as the average working mother. I'm not trying to prove anything - I just want to have kids.
+- My son has been known to throw a book at the television set when he called for me to come play and I was obviously busy in the box. But I'm told that children of television performers grow up thinking that all mommies or daddies work on TV and that it's no big deal.
+- I've come to recognize what I call my 'inside interests.' Telling stories. And helping people tell their stories is a sort of interpersonal gardening. My work at NBC News was to report the news, but in hindsight, I often tried to look for some insight to share that might spark a moment of recognition in a viewer.

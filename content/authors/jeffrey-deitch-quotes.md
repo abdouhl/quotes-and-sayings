@@ -1,0 +1,27 @@
++++
+author = "Jeffrey Deitch"
+title = "Jeffrey Deitch Quotes"
+quotes_len = "21"
+description = "the best 21 Jeffrey Deitch Quotes"
++++
+- Part of my agenda has been to support art that engages life with people.
+- I want to use whatever connections to get a super-outstanding Basquiat in the White House. It could be one of mine. It could be something that a friend owns.
+- In the 1970s when I started in the art world, no self-respecting artist would have stood in line to try to get on a television show. It never would have happened.
+- Every day you run into artists on the streets in SoHo or other creative people you want to do something with. There's nothing to match that chance encounter.
+- Overall, I think any opportunity to expose people to art on a mass level - to have some kid in Oklahoma say to his mother, 'I want to be an artist' - is a good thing.
+- One of the biggest things happening in the art world is this idea of expansion. No one embodies this aspect of what art is becoming better than James Franco.
+- Effective fund-raising is based on relationships.
+- From 1940 to the present, the art world - and particularly Los Angeles - has undergone a transformation not unlike the Italian Renaissance.
+- Sometimes you do a sound installation, and the first day or two it is very exciting. Then you are hearing this every day for a month, and it becomes like a torture.
+- Dennis Hopper is one of the great American lives.
+- Andy Warhol defined Pop Art.
+- We're in a post-conceptual era where it's really the artist's idea and vision that are prized rather than the ability to master the crafts that support the work. Today, our understanding of an artist is closer to a philosopher than to a craftsman.
+- Disney is our contemporary landscape. The best art will reflect that and challenge you. Disney comforts you, whereas the best art shakes up your comfort level and perception.
+- I believe that an art exhibition can be engaging, fun and deeply intellectually satisfying and serious. These are not contradictory concepts in art.
+- Art dealing is when you're doing it as a business.
+- Art, film, fashion, music are all going on and interacting simultaneously. And L.A. is very receptive to that fusion.
+- What I hope is I'll eventually be seen as an actual individual, not as some abstraction - an art dealer running a museum.
+- There is a constant ebb and flow in art historical reputations. The reputation of even the greatest figures like Picasso are in flux.
+- After pop art, graffiti is probably the biggest art movement in recent history to have such an impact on culture.
+- Many of the museum directors who make an impact personally curate exhibitions.
+- Celebrity has become, for better or worse, an art form. An artist can use themselves as a medium to become a celebrity as a walking work of art.

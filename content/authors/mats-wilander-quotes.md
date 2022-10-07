@@ -1,0 +1,106 @@
++++
+author = "Mats Wilander"
+title = "Mats Wilander Quotes"
+quotes_len = "100"
+description = "the best 100 Mats Wilander Quotes"
++++
+- At Wimbledon if it is slightly wet you don't even play the match. At the French Open you need to just get on with it and somehow adjust.
+- Nadal is going to break all the records.
+- We've never had a hungrier player than Federer and Nadal and I would say that Nadal is probably much hungrier than Federer.
+- Andy Murray's already done what is needed for British tennis, which is ignite it. There's a person, there's a player that kids want to be like.
+- If it doesn't mean more to a normal human being like Dan Evans, who could change his life and career by winning not a gold but a bronze medal for Great Britain, if he doesn't want to take that chance, I would say something is wrong with the Olympics in what it's worth in tennis.
+- I think it's bad in a way for junior players and college players to feel they must be number one.
+- I play a lot of golf and I'm in a little ice hockey league at home in Idaho.
+- You have to hate to lose.
+- I have a better backhand than forehand.
+- I've gone past the stage where I feel pressure.
+- To me, there are only a few tournaments that are important. The Grand Slams, Davis Cup, the Swedish Open; that's about it.
+- Del Potro is one of these miracle men he can come up with these matches where you least expect it and he pulls something out of the bag. I have no idea what it is but he becomes a magician.
+- Wimbledon is not the easiest tournament in which to make a comeback.
+- He didn't have the best shots but the intensity of the match and the positive energy you got from playing Yannick Noah was something I didn't get from anyone else.
+- My genetic makeup is a little bit crazy.
+- I think people expect me to be around at the end of a tournament.
+- The slide is tennis.
+- I started with the two-handed backand before Borg was famous.
+- If an athlete like Michael Jordan played tennis, he would be the best - he's flexible, not too bulky, and has unbelievable hand-to-eye coordination.
+- Nick Kyrgios, physically, is a monster. When he is on the court and he runs, he flies. And he has got a massive arm.
+- I have fun playing tennis and I understand that the good things from tennis go hand in hand with attention. But it's not important to me.
+- I'm a useless guitar-player. When I put myself in a band I immediately became its weakest part. I was like my forehand volley at tennis.
+- I was No 1 in the world but too much is made of it.
+- The really top guys play within themselves 99 percent of the time.
+- I decided to work really hard in 1987. I hired Matt Doyle, a former pro player, and he helped me with my physical training. Lendl was the first to focus on that. He used to be weak, physically and mentally.
+- If you don't get tired or bored then there is something wrong with you - you are not human. People maybe don't realize that. Players try to hide it and try to be the perfect role model, but it is not always so easy.
+- I couldn't ever be a better player than I was in 1988.
+- Everyone has a temper, but in Sweden, no one throws a racquet or screams. We show more manners and common sense. This is a game, not war.
+- I hardly ever watch TV and when I do it's sports. I'll occasionally stick on some old episode of 'Fawlty Towers' or something.
+- I really enjoyed playing Yannick Noah - he was and still is my favourite. In the heat of the moment he was very fair and very physical. He was strong, big and he moved unbelievably well. He was also mentally tough.
+- I'm not Borg Two, I'm Wilander One.
+- When I was 14 I wasn't even thinking of playing professional tennis. I was thinking of going to high school in Sweden then getting a job.
+- I love camping out, I love teaching tennis.
+- I'm not actually a musician.
+- Sure, it comes with a lot of bonus rewards, whatever it may be, some of it may be financial. And it is great to have been No 1 in the world, when you get a bit older you can reflect on it. But I was No 1 in the world before I actually was No 1 in the world, in my mind at least.
+- I always want to win when I play, but sometimes I just can't get that interested all the time.
+- The more happy you are off the court, the more you will get out of yourself on the court.
+- Maybe we can see more men's and women's combined events so the young players can be marketed better.
+- I think every human being has good intentions in one aspect of life and some in every.
+- The point in tennis is to take the ball as early as possible and take time away from your opponent.
+- Myself and Cameron Lickle travel around North America in an RV and we conduct tennis clinics in clubs.
+- I still rate my first victory in the French Open at Roland Garros as my best win ever.
+- Mladenovic knows how to use the power of the crowd.
+- Federer can be off for six months but knows how to win matches.
+- There's definitely a lack of self-belief in many players, which is the only complaint I have about men's tennis.
+- I am really impressed with Dominic Thiem's patience at times.
+- I was 7 years old and my dad gave me a wooden tennis racket.
+- Miloslav Mecir - best anticipation of any player in our generation for sure. The most flexible... and then crazy good hands. He is the best player in the world to not have won a slam, for sure. No question in my mind. He should have won three or four.
+- I am disappointed when I lose and don't play well, for example. But it is not so disappointing to lose when you play good. And I never feel I want to put the racquet down and walk away because of losing.
+- Usually if you haven't figured out how you want to play tennis yourself, it is hard to accept the failures of playing five sets.
+- Maybe being number one has got to me, because from there you can only go down.
+- Rafael Nadal, I see no demons in him. None. Unless he picks up the racket with his right hand.
+- That's why the tactics are so hard against Kyrgios because no one knows what he is going to do.
+- Nadal tries his best all the time, every point. But Kyrgios can spend 10 minutes looking like he would rather be walking down the King's Road.
+- There is no such thing as bad luck in tennis. Just bad technique.
+- In 2015, there was no chance Djokovic would have an off day.
+- Nadal is just more at home on clay. It looks like he feels safer on clay courts. He can get to a few more balls, he can play a bit further behind the baseline when he defends, and he's also able to get the ball to bounce higher. It's unbelievable.
+- The biggest mistake we usually tend to make with young players is over-coaching.
+- The Davis Cup should be home and away from the semi-finals as a minimum, I would say even the quarters.
+- I think when you can beat Novak Djokovic in the final of a Masters tournament, you are going to be OK.
+- I never contemplated retiring but when I was a teenager I never thought I'd play past 30 years old. I thought I'd win a few tournaments and then have a family.
+- Power is not tennis to me. I'd rather lose playing my game.
+- Some tournaments wouldn't work as men's and women's event but others would.
+- Ninety five percent of the field is not competitive when Nadal is playing.
+- The point is to win the biggest tournaments and beat the biggest guys head to head. Then, if the computer ranking works out that you are No 1 in the world so be it.
+- When I first retired from the game, I had times in my life when the days just wouldn't move.
+- People talk about the drama of the set that goes on and on. But it leaves one guy exhausted for the next round, it's horrible for the players waiting to come on court, and it has the potential to mess up the schedule for everyone.
+- In Sun Valley, people play tennis and then go for a hike. You should be too tired to go for a hike!
+- I am willing to take chances. I miss more, but I am going for it.
+- Every player, they should sit down and have a meeting. They should agree, 'this is how we play Nadal, this is how we play Federer, this is how we play Djokovic.' Then, all try to play them the same way. The right way. First you have to play the right way, then you need to play well.
+- The goals become harder to focus on when there isn't a specific number in mind, or a title that you haven't won.
+- No absolutely not, I don't have any regrets about anything I've done in my life I learn from my mistakes and without mistakes I wouldn't be where I am today.
+- I play the guitar.
+- We need more honesty out there, but it is hard when you see what the media does to someone who is trying to be honest.
+- There is no added pressure to play a Swede.
+- I think someone like Denis Shapovalov on a fast court and being left-handed is a massive, massive danger to everybody.
+- I like to camp and to not have to check in to airports and hotels and I love to just drive, man.
+- Hockey is the dream of all Swedes. They get the girls.
+- Your game stalls when you assume you're the finished product.
+- Guys like Roger Federer and Rafa Nadal know how to win matches, they don't need to have as much confidence as other players.
+- Tennis has always been at the forefront of equality between men and women's prize money.
+- The conditions change so much at the French Open, you know, you have to be prepared for something you really don't know what it is. You can practice in the morning and it's fine, and the weather is great then you come to play in the afternoon and it is drizzly and the conditions are totally different.
+- I was a really good ice hockey player when I was a kid. Now in the aftermath I think I wasn't maybe big enough, and I couldn't have put on enough muscle to actually be able to play with the better guys, but I was a really good skater.
+- I love the freedom of the road.
+- Everybody gets bored or rather emotionally flat sometimes, but most players are not so honest as Tomic. They have sponsors that need to be happy, and they want to keep the tour happy.
+- More than half of the matches are won in the dressing room for him. The guy he's playing against is sitting in the locker-room thinking 'oh my God, I'm going to play Rafa Nadal on clay in five sets, that's going to be painful.'
+- There's no way you can go out there and have a killer instinct on court, be selfish on the court, when there are more important things going on in your life, or in your heart.
+- Tennis is a running game, not a hitting game - it's not golf.
+- I'm a private person and being recognized makes me uncomfortable.
+- Ivan Lendl was the best player I ever played. He was the first guy to bring the game to more of a power level and you could know that if he played really well you could get blown off court and that wouldn't happen against John McEnroe, Jimmy Connors or even Bjorn Borg or Guillermo Vilas.
+- It is basic, serve at the weak point of your opponent.
+- Svitolina moves a little bit better than Ostapenko but Ostapenko goes for it a little earlier in the rallies. The way she plays she can take you out of the equation.
+- I'm never really aware of mistakes I've made when I'm commentating or on TV, I'm sure they happen sometimes and I guess it makes for a more interesting experience!
+- I love my life. I commentate for Eurosport, so you could say I've reached the final of every grand slam since 2002 when I started that. I love what I do, and I love playing tennis with amateurs, regular guys, helping to teach them to enjoy tennis more.
+- I always feel that if you were the best in any generation, you most likely would have been close to the best in any other generation too.
+- To me, Dan Evans is an example of somebody that puts the clock back a little bit and tells everybody: 'Listen, tennis is not a freak sport where you need to have rich parents, who sit in your players' box for every single week of the whole year, and you need to talk to your coaches' box between every shot.'
+- I don't think there is anything missing from Tsitsipas.
+- Borg had an American attitude, which I think is not so good. He only enjoyed winning and he was out of tennis when he was 26.
+- You should play all the slams you physically can.
+- Only so many can succeed. Only one can be number one.

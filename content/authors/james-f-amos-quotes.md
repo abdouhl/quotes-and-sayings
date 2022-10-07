@@ -1,0 +1,22 @@
++++
+author = "James F. Amos"
+title = "James F. Amos Quotes"
+quotes_len = "16"
+description = "the best 16 James F. Amos Quotes"
++++
+- There's not really a ban on the KIA bracelet specifically. There are regulations for wearing the uniform and specifically jewelry, and Marines are not allowed to wear bracelets. This falls under that spectrum. Now, the KIA bracelet will be lumped into the same category as the POW/MIA bracelets, which are approved for wear.
+- You just look at the world, and you see things unraveling, and you say, 'I wonder what we ought to do?' Things are seldom crystal clear.
+- The Marine Corps has been, and will continue to be, America's Expeditionary Force in Readiness - ready to respond to today's crisis, with today's Marine forces, today.
+- We are acknowledging the close personal nature of our 10 years at war and the strong bonds of fidelity that Marines have for one another, especially for those fellow Marines who we have lost.
+- We're all concerned about the budget. We're all concerned about what's happening financially in our country. There's no question about it. Congress is working day and night. In fact, every time I go home the lights are on at the top of the Capitol.
+- I felt that justice had been served and that the world was, in some way, a better place for all of us.
+- Our nation will have 50 percent less ability to do whatever our bidding is because the joint strike fighter program was canceled. There is nothing that is going to be a replacement besides the Joint Strike Fighter.
+- I'm not out for quotas. I'm out to attract the best young men and women of our nation.
+- All Marines, sailors and civilian Marines, regardless of sexual orientation, are Marines first. Every Marine is a valued member of our war-fighting team.
+- The Marine Corps has to ask itself, 'What does our nation need from its premier crisis response force?' We are America's shock troops in war and peace. I know it sounds corny, but it's not.
+- Memorial bracelets memorializing prisoners of war, missing in action, killed in action, and those who died of wounds or injuries sustained in a combat theater are authorized.
+- If you're not ready the moment things happen, then you're irrelevant, you might as well not go.
+- Whatever the job is, we can do it. That's why the nation has a Marine Corps.
+- There's a mindset of flexibility and adaptability that comes with us. We don't mind hardship. We don't mind somebody saying, 'Go in and do this nasty job.' Whatever the job is, we can do it. That's why the nation has a Marine Corps.
+- Spread the gospel that the Marine Corps is a force that has changed. We're not in 1942 anymore.
+- We can't stay in Afghanistan forever.

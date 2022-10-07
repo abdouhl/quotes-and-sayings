@@ -1,0 +1,91 @@
++++
+author = "Monica Crowley"
+title = "Monica Crowley Quotes"
+quotes_len = "85"
+description = "the best 85 Monica Crowley Quotes"
++++
+- In several short years, Obama has fundamentally shifted the balance away from the individual and toward government, and has altered the national psyche from self-reliance to ever-growing reliance on government.
+- I developed the concept of the Happy Warrior as a rallying cry for those of us who want to restore America to its great foundational principles: individual freedom, personal responsibility, fiscal restraint, and economic liberty.
+- Germany was beaten after World War I, but it didn't take long for it to rise again as a much more malignant threat. The end of World War II was not to be a compromise; it was to come about from the total annihilation of the enemies' ability and will to make war.
+- The point of a presidential campaign is to put the candidate through the ringer: to force him to get banged up by his opponents and the press, and to have to answer the difficult and uncomfortable questions, be investigated, and learn the thrust and parry of political swordplay.
+- If there were a bunch of Buddhist or Hindus or Roman Catholics carrying out grotesque acts of international terror, I would expect to see their faces on the side of bus.
+- American presidential leadership never goes out of style.
+- Weak presidents are neither respected nor electorally rewarded by their publics.
+- When government gets out of the way, the people achieve great things because of the promise of great rewards.
+- The Democrats handle dissent by isolating it, smearing it and delegitimizing it in order to crush it.
+- When the Left agitates over government policies, it's considered righteous anger. When the Right - and much of the center - agitate, it's painted as the rantings of the criminally and violently insane.
+- The left controls academia, the culture, and the news media.
+- During his public life, Barack Obama has often referred to his biracial background and itinerant childhood and has said, 'In no other country on Earth is my story even possible.' True.
+- Barack Obama is not Harry Truman, who dropped the A-bomb on Japan to stop World War II. Barack Obama is not John F. Kennedy, who lowered marginal tax rates to get economic growth and job creation. Barack Obama and the far left, they are a completely different ball of wax.
+- President George W. Bush's aggressive war on Islamic terrorism produced a 100 percent perfect track record of keeping the United States safe from another attack. The result has been increased security for the American people, who, in turn, have become complacent about the true nature of the threat.
+- We need the ability to buy healthcare insurance across state lines that would increase competition and drive down cost.
+- Not once since becoming president has Mr. Obama linked terror aimed at the United States with Islam.
+- Messrs. Washington and Lincoln faced enormous difficulties, but they both gave their lives to make sure America survived.
+- Either a war has to be fought, or it doesn't.
+- Earth to Democrats: Displaying contempt for the American people when you are being paid by those people to serve their interests is generally not a good political move.
+- American exceptionalism is grounded in the founding of the United States upon an idea, rather than upon the ambitions of men.
+- The man who was known as 'no drama Obama' during the campaign has given us nothing but depleting and infuriating drama since he arrived in office.
+- Nothing for the Left, nothing the government does is ever about its superficial reason; it's only and always about expanding government power and control over you.
+- According to Mr. Obama, exceptionalism is so yesterday, an uncool, antiquated and ultimately destructive notion.
+- I think the American people believe in stopping and preventing terrorism pretty much at any cost.
+- Trillions of dollars are being spent in the name of 'saving' the economy: bailouts, 'stimulus,' omnibus spending bills, budgets, government takeovers of the auto, health care and energy industries, all of which require ever more spending.
+- Voting is as much an emotional act as it is an intellectual one.
+- It took a catastrophe of socialized medicine to wake a lot of people up because it affects every single person in America, either directly or indirectly. That's when you get people's attention - when it directly affects them.
+- Some political spouses are much more comfortable on the campaign trail than others, and they take to it a lot more naturally.
+- Obama doesn't run around wearing a Carrie Bradshaw-esque nameplate necklace that says 'Socialist.' But his policies, actions, words, background and associations speak louder than any ID necklace ever could.
+- The tactics of Saul Alinsky and Barack Obama are geared toward wealth redistribution.
+- For Republicans, accepting responsibility means accepting punishment; for Democrats, it means only an admission of error and a suggestion they'll do better in the future. This double standard must end.
+- During the 2008 presidential campaign, Senate Majority Leader Harry Reid marveled at the electability of Barack Obama because, unlike previous black candidates, Mr. Obama was 'light-skinned' and lacked a 'Negro dialect.'
+- Presidents Truman and Nixon left office under dark clouds of scandal and with abysmal levels of support, but with the passage of time, both have been reassessed far more positively.
+- Once the tentacles of redistributionism wrap themselves tightly around every part of the economy - and around our psyches - they can never be unwound.
+- Ann Romney has been front-and-center. She's held a lot of town halls, a lot of campaign rallies, on her own, separate from her husband. And she is dynamite out on the campaign trail.
+- Article II of the articles of impeachment against Richard Nixon was just the simple fact that he talked about and suggested the potential use of the IRS against one or two political opponents.
+- From 2002 to the end of his presidency, George W. Bush routinely was accused by the Left of 'creating chaos:' chaos in Iraq, chaos in Afghanistan, chaos in the Muslim world, chaos among our allies.
+- The Left can play the race card incessantly without consequence or punishment, but woe to anyone else who even breathes valid opposition to their policies: Thou shall be deemed a racist.
+- A president is supposed to calm the American people with sober decision-making in the national interest.
+- Conservatives are always right about everything. We are. We are.
+- Unlike President Obama, President Nixon was a capitalist who did not believe in 'remaking' the very character of America.
+- Just when you think you've heard it all from Team Obama, the next day brings another jaw-dropper.
+- Blowing terrorists to smithereens is gratifying.
+- I'm thrilled to be working with Goldline, the very best in the gold business.
+- Bill Clinton is a classic, old-school Southern pragmatic Democrat.
+- Michelle Obama is a major asset for the president.
+- It is an abuse of power, when you are President of the United States, to use the White House to single out a single news organization, and castigate them and try to delegitimize them.
+- President Reagan was the quintessential Happy Warrior, and no one loves, respects, and admires Reagan more than I do.
+- If the government controls your health care, the government controls you. Obamacare was never about health care. It was about government power, dependency, and control.
+- Bill Clinton wanted to survive. And Bill Clinton wanted to thrive, not just for himself, although that's primarily what drives Bill Clinton. He's a classic narcissist. So of course he wanted to thrive and succeed. But he also wanted America to thrive and succeed, which is why he worked with a Republican Congress.
+- Two famous happy warriors - Reagan and his political soulmate, British Prime Minister Margaret Thatcher - knew they were fighting their own ideological and external wars. But they did so with the sunny dispositions and positive outlooks of those who knew they were on the right side of history.
+- In many ways, Nixon started the modern notion of 'compassionate conservatism,' which as we all know is neither 'compassionate' nor 'conservative.'
+- Give the enemy an inch, he'll take a yard.
+- Does every Muslim commit terror? Of course not.
+- In the Hillary Clinton model, the wife chooses to support the straying husband while wearing a distressed and presumably pained expression in public. She stays in the marriage as a way to serve both her personal ambition as well as their shared ambition to achieve ever-greater positions of power and influence.
+- When the world lacks muscular and wise American leadership, it devolves into total chaos, which, in turn, produces unspeakable evils.
+- One day in 1984, at the height of his fame, Michael Jackson made a visit to the White House. President and Nancy Reagan may not have dug his music, but they understood the power Mr. Jackson commanded as a common pop-cultural touchstone for just about everyone else.
+- True equality means holding everyone accountable in the same way, regardless of race, gender, faith, ethnicity - or political ideology.
+- The Islamic terror threat is so fierce, unrelenting and barbaric that we tell ourselves fairy tales about how these ruthless acts are anything but what they are: acts of war.
+- There are plenty of Muslims who live faithfully in the United States.
+- Barack Obama is Occupy Wall Street. Barrack Obama is plugged into that world. That's what he believes.
+- For years, Suzanne Somers has been a pioneer when it comes to alternative medical treatments.
+- During President George W. Bush's two terms, you couldn't drive far without seeing a particular bumper sticker: 'Dissent is the highest form of patriotism.'
+- There were no dead bodies in Watergate.
+- Mr. Obama seeks to federalize large portions of education, beginning with his attempt to nationalize college student loans.
+- Nixon has enough to overcome in terms of his legacy and his political history. Now he has to overcome the in-fighting between his daughters. It's so sad. There's another obstacle for him to clear.
+- The United States of America - once great, grand and free - is on the path to becoming just another country.
+- One thing about liberals: It doesn't even occur to them that there is another side to an argument. They are so convinced of the righteousness of their own position that it doesn't dawn on them that a reasonable person might have a different viewpoint.
+- Occupy Wall Street didn't just spring from the earth organically, out of thin air. This was all part of the global socialist movement.
+- I think the Republican Party is supposed to be the party of less government intrusion.
+- Newt Gingrich would cream Barack Obama in a debate.
+- Working for President Nixon was the most extraordinary professional experience of my life. He was endlessly fascinating: brilliant, visionary, kind, generous, warm, funny - and yes, a good man.
+- A people fatigued by bad presidential judgment aren't inclined to reward him or his party.
+- Messrs. Washington and Lincoln would be appalled and saddened by what their successor, President Obama, and the modern Democratic Party are doing to the nation they dedicated their lives to keep alive.
+- Mr. Obama's choices show how fundamentally unserious he is about deficit reduction and spending restraint.
+- We need a direct repudiation of Barack Obama and everything for which he stands.
+- When I'm debating others, whether it's Eleanor Clift or Bob Beckel, you're still in a fierce debate mode, but you're also on best behavior.
+- Each day of the Obama presidency seems to bring a new, perversely delicious irony.
+- Healthcare is the cornerstone of the socialist state. It is the crown jewel of the welfare state.
+- Leftism in all its forms must be halted and turned back resoundingly.
+- If you have small-government, traditional values, you may be considered by your own leadership to be an enemy of the state.
+- We need to reform the health code so that people are incentivized to buy their own health insurance rather than have to get it through an employer.
+- Many Muslims may not seek to kill the infidel, but they don't want to condemn those carrying out the holy book command.
+- A president is always cosseted by his staff.
+- When I visited Guantanamo Bay several years ago, I met a team of psychiatrists treating the detainees. When I asked how they distinguished between, say, schizophrenia or bipolarity and a bedrock religious commitment to holy war, they couldn't answer.

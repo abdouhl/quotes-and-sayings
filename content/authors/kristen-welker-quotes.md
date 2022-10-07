@@ -1,0 +1,37 @@
++++
+author = "Kristen Welker"
+title = "Kristen Welker Quotes"
+quotes_len = "31"
+description = "the best 31 Kristen Welker Quotes"
++++
+- I think that as reporters we certainly bring to bear our own set of experiences, our backgrounds, to our reporting.
+- I think it's incredibly important that we think about diversity in the context of the White House press corps, because it's important that the group of people there is representative of the diversity that we see throughout the country.
+- You can't be too far away from your BlackBerry because if there's a development anywhere around the world, it impacts the White House.
+- My big challenge, I will say, is contouring. God help us all with contouring.
+- You have to be essentially ready to interview the President every day that you walk in, at any moment.
+- It's not unusual for me to find that I'm the only female journalist of color in the front row during some of the briefings.
+- If I'm going to the White House, my alarm goes off at 5:00 A. M. Typically there is no snoozing; jump out of bed, text my producer, often start texting with sources if there's breaking news that's happened overnight, and I'm off and running from that moment on.
+- But when my mother ran for City Council, that was the moment when I knew I wanted to be a political reporter. Some reporters asked her about being married to my father - they have an interracial relationship - as if that was somehow a negative thing.
+- Every time I walk through the White House gates, if you don't stop and take it in and recognize that you are a witness to history, it's time for you, frankly, to get a new job.
+- I get so paranoid about the makeup build-up.
+- Whether I'm traveling or not, I lay out my outfit and jewelry the night before so I don't have to think about it.
+- To have come here as an intern for the 'Today' show, to shoot that reel - I looked so serious. To be terrified like that and then to come and sit at this desk, to sit next to my friend Peter Alexander every Saturday, it is the honor of a lifetime.
+- It's important to always put family first.
+- I know the words to almost every '80s song.
+- I typically set at least three alarms. I have two alarms set on my iPhone, I still use a Blackberry for work, so I set my alarm on that, and then if I'm staying in a hotel, I request a wake-up call. I've never overslept - knock on wood. But I have had an instance where one of my four alarms has failed, so that's why I stand by the multiple alarms.
+- Dresses that don't wrinkle are key. They don't take up a whole lot of space and you can throw four into a suitcase.
+- I do think people would be surprised to know that journalists from various news outlets are in this together in many ways in terms of these long hours and in terms of really sharing a desire to get information to the American people.
+- I always have a pair of heels and flats for my back-to-back hours of live shots. I'm happiest and most comfortable wearing my boots.
+- I got such a bad series of sinus infections while covering President Obama's 2012 reelection campaign, I lost my sense of smell!
+- I feel like I've grown up, not only at NBC, but also at 'Today.'
+- I've recently explored the beauty of doing sit-ups on those endurance balls. It adds a whole new dimension of difficult.
+- I am not afraid to ask for feedback on my work or appearance, and try to never take that advice personally.
+- Why is it appropriate for the President to use a racial slur in any context?
+- I try to have a balanced diet. I try to write down everything that I eat.
+- It is fair to say there is a lot of pressure placed on female reporters.
+- Fashion is not my strongest suit.
+- It's so important for me to unplug for a little bit, to have dinner with my husband. He's a great cook. I'm very fortunate.
+- A couple of years ago, I went to dinner with a very high-profile source, and out of respect, I put my phone down for, say, an hour and a half. And during this dinner there was a major breaking story related to the Secret Service. When I picked my phone back up, I had missed about 50 emails and seven phone calls from the network.
+- You're constantly asking yourself, 'Am I doing enough? Am I living up to this moment? Am I asking the toughest questions of the president to make sure we're continuing to do our job to hold him accountable for his words and his promises?'
+- Journalists like to talk and write and produce, but the most important part of that process is learning how to listen. And that's what makes you a good journalist.
+- I was in sixth grade. I loved TV news. I acknowledge that I was also in awe of Barbara Walters interviewing Patrick Swayze and dancing with him.

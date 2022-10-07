@@ -1,0 +1,106 @@
++++
+author = "George Hill"
+title = "George Hill Quotes"
+quotes_len = "100"
+description = "the best 100 George Hill Quotes"
++++
+- If we have more guys that are willing to help others and not have hatred in their hearts, this world could be 10 times better.
+- The world is bigger than just NBA fans.
+- No matter how many I score or what I do, I just want to win.
+- I'm not here to say vote for one side of the other. But I'm here to say use your voice and vote. Our ancestors, our fathers and things like that fought for this right. You should take advantage of it and get out and vote and use it.
+- That's what I normally pride myself on, being a solid defender and giving all my energy on the defensive end.
+- When I was a rookie, it was pretty much my first time outside of the city that I grew up in.
+- Everything that allowed me to come here to Utah has been great.
+- I try to instill in the guys to work hard, be humble, be blessed, stay in the gym, be a sponge and soak as much intelligence as a young player and embrace it.
+- That's what I try to base my life on is being a positive impact for the community... and everything I put my hands on.
+- Everyone has a dog or a cat... I just choose other animals.
+- When I grew up, it was tough for my mom to take care of me, it was tough for my dad to take care of me.
+- Treat everyone with the same respect that you want to be treated with. That's going to take a collective group of people to do it. There's not one individual that's going to change it. It's going to take multiple people getting out, learning who each other are and loving each other no matter what their political views or what their background is.
+- I didn't grow up with money and I don't define my life by money.
+- I never thought I'd be anything, coming from a rough neighborhood. So my character was built on the street. I had to know how to carry myself; I had to act like I was older than I was.
+- Basketball is something we're blessed to do, but it's not who we are.
+- No one wants to take a vacation on April 15 or 16.
+- You need the point guard to be vocal.
+- Every day we have to live our lives with greater respect and purpose.
+- Basketball's just something temporary that we do and we're blessed to do, but life is way more precious than this ball that we play.
+- When the ball goes up in the air, I'm ready to play, I love the competitive side of it, but that's not who I am.
+- I have a voice and I have a platform for a reason.
+- LeBron is a great player, he's the MVP for a reason, he's one of the best to ever play this game.
+- To be able to look a young man in his eyes and believe in him and trust him and push him to be better, I get more out of that than scoring 3-pointers in general.
+- I just love to be outdoors.
+- I just do my job.
+- I'm an Indianapolis boy to the core.
+- It was always a dream to be a Pacer, and I got to fulfill that dream, but my family and friends are still there, so it's always a great place to go back to.
+- If you're sitting for more of the majority of the game and you really don't get a lot of touches, maybe every once in a while your confidence and your rhythm is probably out of sync.
+- In high school I was that athlete that was pretty good.
+- You know, the fans, the city have embraced me. The Jazz culture and family have welcomed me with open arms. Any time you have those things clicking on all cylinders, it just makes for a great place to raise your family and be a part of.
+- It's always a big accomplishment to graduate from a university.
+- Going to Haiti and delivering food or helping kids into AAU programs or to get into schools - anything I just try to do I just try to impact lives.
+- I love to just be on the ranch and experience life.
+- Sometimes it hurts to hear the truth, but you need it.
+- I have a son and daughter and wife that need me not in basketball mode when I'm home.
+- I always have time to help out the community and just do the best I can.
+- When I was a kid, you know, the Playskool plastic courts that were white backboard, blue base that you put water in and the rim was dunk breakaway. That was one of the first gifts that I actually remember - only because I broke it the first day I got it. So that sticks out in my head a lot. It's one of the best gifts I ever got as a child.
+- We can't promise wins or losses and things like that but we can promise that we can play hard night in and night out and impact the community and that's the biggest thing.
+- Sometimes it takes guys time to get acclimated, especially to a good team. You try to find out what's going to be your role on the team that's already good.
+- I like to play 'Rock Band' - a lot.
+- People say, 'Well, you've been sent to different places.' To be sent to different places it means you're wanted in different places at the same time.
+- I'm not perfect and no one else is perfect.
+- Most people that always have something against hunting are the same ones that go out to a restaurant to eat a steak or order a burger.
+- You can always make an imprint on the game no matter what you do.
+- I've been in some fights in my neighborhood before.
+- I think putting your fingerprints on life in general speaks more value than this game of basketball can speak.
+- Life itself is bigger than the money aspect of the game.
+- I'm not the All-Star point guard that everybody's dreaming about right now. I'm not that. I wish I was, but I'm a work in progress and I'm not scared to admit that. But what I am is a good citizen and a guy who's not scared to put his neck on the line for his community or for his state. And I'm always going to do that.
+- As a kid, I think every kid grew up watching Jordan, that was every kid's idol... you just wanted to be like Mike.
+- I was always taught that no matter where you are, you leave your fingerprints on that city and an impression on children and parents. That's what kind of drives me, to see the kids look up to you and want to be like you - just be something special.
+- God just blessed me with a talent to play basketball. If I didn't have that talent, I possibly would've been that George Floyd.
+- The more I'm aggressive, the better off we're going to be. I have to take that into consideration every game to make it a point to be aggressive.
+- At the end of the day, it's basketball. You've got to put the ball in the basket.
+- I'm a grown man. I'm gonna do what I want to do. If I want to go see my family, I'm going to go see my family.
+- I'm a lead-by-example guy but also vocal because I'm the point guard.
+- I never knew how tough it was to play that 14-second shot clock mentality.
+- Don't be afraid to take risks. Create a vision for you life. Be a leader in your own life. Give of yourself selflessly to make a positive change in another human being.
+- I'm not the fastest, not the most athletic, but I learned how to play the right way. I learned how to be a professional. I learned how to win and how to be a team-first guy.
+- I tell my AAU kids all the time how important it is to get good grades, go to college, get your degree to make your life easier.
+- At the end of the day, you're only going to be allowed to play basketball for a short period of time. You're a human other than that for the rest of your life. So it's safe to say that basketball doesn't define me. It's just a sport that I was blessed to play.
+- My kids wake up at 7 o'clock every morning, so I'm normally up around 7.
+- We always say when a guy is down, the next guy has to step up.
+- The only thing I hunt on my land is wild hogs and coyotes, because they cause so many problems.
+- I've learned, after my first trade in San Antonio, that you don't put all your eggs in one basket in a place.
+- I feel like every teacher out there has a teacher that impacted them in their life.
+- Indiana is always home to me. It holds a special place in my heart.
+- If you're able to put your knee on someone's neck for 8 minutes and 46 seconds, you have no heart. You have no pulse. If you can smile and put your hands in your pocket and the ones that are around you that didn't do anything, are not human either.
+- You can win a championship, but the amount of fulfillment that I get knowing I've impacted a whole community is bigger than a championship for me. It's what I stand for. It's how I live. And I think that's how the world should try to see itself to impact other people's lives.
+- I've got one house and it's in Texas. Everything else is rentals for more.
+- It's just my nature to make sure everyone is happy.
+- It's not about scoring, it's having that presence out there and managing the game and getting everyone involved.
+- There's a lot of negative things going on. I just try to do my job to make the world a better place.
+- Sometimes in life, you can't do things that you really want to do.
+- I've seen the police brutality.
+- I am not going to sacrifice that for something that doesn't mean as much to me as kids mean to me. The kids mean the world to me. If I have to make a decision to cancel some things, I will do it as a man.
+- Going to an organization where winning means something, where you're held accountable and you have goals and things like that I think that molds you early as a player and gives you that platform and foundation to be a professional.
+- Anytime you can feel the ball a bit more and you feel like you're a little bit more involved, it's all about confidence.
+- I didn't know basketball was going to be the outcome for me after school.
+- Humanity is something we're lacking, and I will continue to do my job to bring back those attributes that we lack today in every community.
+- I'm big on education.
+- If all of us were trying to handle the ball at the same time, then we'd have a problem.
+- I don't watch ESPN.
+- I didn't have that growing up as a kid, people who gave back to the community and things like that. It was a dream of mine when I made it to always give back and be a positive impact and great role model.
+- I just try to go out there and win, and play good basketball.
+- I didn't have any money. I used to try to take out people's trash and sweep the floor to make ends meet.
+- That's what pretty much drives me is just to see people happy and to spread the love.
+- No, I'm not going to shut up and dribble. I don't care if you take my contract, I don't care if you say that I'm this or that, I'm human. I have a heart. I have a pulse. I have emotions. I'm a man. I have kids. I'm a father. I have a wife. I have friends. I have loved ones.
+- I just go out and try to do my job the best I can. If that's playing defense as hard as I can or if that's taking the opportunity to score I'll do that, but it's all about just winning the game no matter what happens.
+- I'm super impressed with Maxey. I love the kid. I love his heart, I love what he brings to the table. He's a sponge, and he's always trying to get better.
+- Our African American kids need to know what Black Wall Street was all about.
+- I broke my foot in college.
+- Anytime you come in and you have a player like Tony go down, it's always different. You can't be a Tony Parker, but I think it's just staying focused and doing what got me here.
+- We can't worry about this person or that person, how many shots people are getting or minutes. We just got to try to win a game.
+- I'm not a big fan of moving from city to city.
+- I really don't care if I start, if I come off the bench, if I'm playing long minutes or short minutes.
+- It's all about what I can do to help the team win.
+- Some may be different to others based off of situations that they experienced in their life, but there's no amount of money that can get me to just shut up and dribble. No, I'm not going to do that.
+- I define my life around happiness, being safe, being able to enjoy life and live this life for a long time.
+- Everything could be taken away at the snap of a finger.
+- Sometimes you have to stand up for what's right, and sometimes that may be ruffling feathers and may be frowned upon by everyone else, but at the end of the day in your heart, knowing you're on the right side of history and knowing that you did the right thing, good or bad, you have to live with that.

@@ -1,0 +1,106 @@
++++
+author = "Aljamain Sterling"
+title = "Aljamain Sterling Quotes"
+quotes_len = "100"
+description = "the best 100 Aljamain Sterling Quotes"
++++
+- I'm about fighting the best guys.
+- If we're just going to have contenders fighting just to fight, that doesn't make a whole lot of sense. Then I might as well just start jumping around divisions too because there's a lot of fun fights for myself in other divisions that I think I would love to entertain.
+- This is the weirdest thing. I've been told one thing, that all these guys turned me down, x,y, z. I take to Twitter and some of these guys are like, 'Yeah, I'll take the fight,' then you don't hear anything of it for the next few weeks.
+- If you're a sports fan and you're home and you're washing dishes, usually your TV is on ESPN and you're just getting the highlights and keeping up-to-date with all of the sports going around, all of the news.
+- We're all fighting for a reason. We're not fighting to just fight. There's got to be some type of reward at the end of the rainbow and that reward is a big, shiny, UFC gold belt. That changes every fighter's life dramatically for the better.
+- What many fans don't realize with fighters, this is our job. But at the same time outside of this, we have regular lives where we do the same things that everybody else does. We have the problems. We get speeding tickets, we get pulled over, we have family issues, we have girlfriend issues, we have issues amongst ourselves, self doubt.
+- Unfortunately, we don't have the luxury of being paid like NBA, NFL and soccer and baseball athletes. They have that cushion where they can kind of hang out. Even the guys on the bench. But for us, we don't fight, we don't get paid and that's the scary reality to it all.
+- You change the mind and world of one individual and that's huge, man. You reach one person and that starts a spiral effect and starts to snowball. I think that's the one thing as an athlete we should all focus on doing and that's striving to give back in a positive manner.
+- A lot of guys man, they are dull and dry.
+- I've never been one to shy away from a challenge and I've never been one to shay away from talking a big game.
+- MMA is not one of those up and down basketball seasons where you have a ton of games and you can still make the playoffs. It doesn't work like that in MMA. You get a couple losses, you get washed up, you get the door slammed behind you and they bring in the next person behind you who is here to take your place.
+- Just like any other job, you want a raise you've got to put in the work and you've got to show that you're deserving and what you bring to the table and all kinds of other stuff to show that you're worthy of so and so pay scale.
+- You gotta do what you gotta do to win, so I don't really get to play around as much.
+- I'm like, 'Man, if I'm going to have this idle time, I might as well be in school, do something positive where I'm not just wasting my prime years and not getting something else in return.' If I'm in school and training, that's OK. I did that in college. It worked.
+- I'm in this sport to change my life. I'm in this sport to change my parents' lives and the loved ones around me. That's really what I care about. And I can't do that if they keep putting me on these prelims.
+- You might be an elite-level athlete in the room, but if no one gets to see you display your craft it doesn't matter.
+- My whole thing is I can't wait to inspire the next young fighters from my hometown.
+- At the end of the day, I feel like I've never had an easy break in terms of opponents.
+- I've been the captain of my wrestling team, my college team, so to me, I've been in that leadership role for a very long time.
+- I always felt like the UFC brass kind of had it out for me.
+- I like to think I defied the odds my entire life, definitely my entire athletic career.
+- I'm in this to change my life, to change my fortunes. I'm not in there to just fight for free.
+- Ideally, I want to get out of the sport at least when I'm 30-31. I don't want to be one of those guys who stays around too long, so I want to get as many fights in as I can.
+- I'm a lot bigger than Faber, I'm pretty sure I'm a lot stronger than Faber and I'm pretty sure I'm a lot faster than Faber.
+- It's all about brand exposure, building your brand, building your image and just getting to that next level as an athlete.
+- I lost as amateur, I lost a bunch of times as a wrestler, and you always come back.
+- I'm from a family of 20, so I'm one of the oldest guys, I grew up a lot having my brothers and sisters walk with me to school when I had to be the guy to watch them and all these things, so I kinda learned how to develop those leadership skills at a very early age.
+- Fighters don't just fight. Not the good ones who have long, long success. The guys who make championship runs. The guys who fight for world titles. They get fizzled out, chewed up and spit out like a revolving door and then the next guy or the next female comes in to take their spot.
+- I want to have a bank account that represents me being a pro athlete.
+- Even when I teach my MMA classes in the gym, it's hard to teach what I do. It's more of state of flow, a state of feel. It's not a robotic thing like one, two, three, kick, one, two, three, switch, jab, cross. It's completely unorthodox. Everything is about rhythm, tempo and pace. It's a different style, man.
+- I got to the pinnacle of the sport for a reason and that's to make money. I didn't come here just to give handouts.
+- I think it's huge to set a good example. Whether you like it or not, as a professional athlete you are always going to be projected out into that spotlight of judgement. People are always going to judge every single thing we do and I think it's cool to just be real with yourself.
+- I would never want to sell a fight based on stuff about race. That's not the type of person that I am. I would never go that route to push a fight.
+- At the end of the day, I know I'm not Superman.
+- If you go into a negotiating room and are like, 'Well I was on the same card as Conor McGregor, so maybe I should get a little bit more money,' they'll probably just look at you like, 'What? In what universe does that even make sense?' So I don't see how anyone could possibly think it's going to be a trickle-down effect.
+- I've had negative experiences with cops. I've had positive experiences with cops.
+- A lot of guys think you're almost supposed to just get stuff but you've got to put in the work, you've got to lay the foundations.
+- I've got personality. And I can actually fight. I think that combination alone sells.
+- At the end of the day, I know what I bring to the table.
+- You cant really put a value on the UFC name. That alone has value in itself.
+- People can say the media stuff drains you and everything, but you set everything up accordingly to the schedule.
+- If you don't know what the hell the martial arts are, why are you a judge?
+- Do you think the UFC is going to owe you a favor when you step up on short notice when nobody else is doing it? There's a reason a whole bunch of us aren't doing it. If you want to be that scapegoat, and think that the UFC's going to owe you one, good luck with that. Let me know how that goes.
+- I want to be in my prime making the big money, enough money to put away so I can do something.
+- My comfortability is always going favor the grappling side, that's the path of least resistance. But, I don't need necessarily need to force the takedowns like I used to before.
+- Whether it's Bellator, OneFC, World Series, whatever, the door's open for me. Financial stability is the most important thing for me.
+- I'm a hard guy to hit and take down, and once I get you on the ground I'm going to choke you out. Even if you resist a few of the other attempts I'm going to get you one way or the other. I'm like the Boogeyman... I'm gonna get you.
+- Being a wrestler, it can get rough in terms of your mindset, just having that mentality embedded in you where you just wanna go, go, go, 100 miles per hour, always redlining your body and never actually taking the time out to let your body recover the right way. As I got older, I started to realized that less sometimes is more.
+- Every time you step in there with a guy who is not ranked where you're at, it's always a big stepping stone for them - if they're able to get the job done.
+- If you're a UFC guy, if you're a company guy, if the company likes you, they're gonna do the right thing, in terms of promoting you. They're gonna promote who they want, they're not going to promote the people they think can't get to that next level and can't help bring the company a lot more money and bring them into other avenues.
+- It doesn't bother me to have people looking up to me, because I don't think I say anything too crazy or over the top where people can't look at me as a role model.
+- It's the fight game. I'm ready for everything.
+- The mind has to be right and the work has to match the mind.
+- You only get 15 minutes to work and show your art and everything can you do. At the end of the day, it's a fight.
+- I want to exit from this sport with my head intact.
+- It's a little bit of a shame when I see some fans saying, 'Can you do me a favor and not ask questions to the fighters or the athletes about political stuff, cause we don't care about their opinions, we don't want to hear that, this is not that platform, if we wanted to hear that we would turn to CNN or FOX or ABC,' or whatever the case may be.
+- I'm too long, I'm too rangy, I can box, I can kick, I can wrestle, I can do jiu-jitsu.
+- I can never complain about the situation that I'm in. I try to put everything into perspective.
+- You just take your hits on the chin and move on, that's life.
+- It's almost out of sight out of mind because there's so many cards. One great fight could happens one weekend and another great fight happens next weekend, you kind of get swallowed up in that pack. So you have to find a way to separate yourself and what better way to do that than on ESPN?
+- You show your teeth more when you show what you're made of and your heart.
+- Petr Yan's a tough dude.
+- It's MMA, man, the wild, wild west. You can just expect that anything can happen, and that's just where I'm at with things.
+- If I'm only fighting once or twice a year, that's just not going to be enough to make a dent in the sport or enough financially for me to get myself to where I want to be and position myself.
+- At the end of the day, Cejudo's a tough competitor but I think he's a flyweight.
+- Jose Aldo's a legend. He accomplished many great things in his lifetime.
+- I almost want to ask the judges, 'If you don't count leg kicks, if you don't count body kicks, why not?' So if you don't think they're effective in the scoring criteria, they're not effective striking, effective grappling, so how about I kick you in the body, I kick you in the leg, and you tell me how that feels?
+- If you don't stick out then how do you expect to be remembered? I want to be one of those guys who is actually remembered.
+- I tell myself, 'You're too fast, you're too strong, you're too quick. You can't be broken, you can't be beat. If you can't be broken, you can't be beat.' And I just beat it into my head.
+- At the end of the day, when you get a sponsor, it's a working relationship. So anyone I get involved with, I want it to be a working relationship where I'm generally trying to help them and they're generally trying to help me.
+- When you look at the U.S., it's a little weird, man because we have so many other sports and other things that we can watch and support that it's hard to get the support of an entire country around you.
+- As history has shown, I don't think the UFC is in the business of doing favors for other people.
+- I think they need to start doing cageside weigh-ins again. I think that's the best way to go if you really want to see some difference. Cageside weigh-ins; I guarantee you won't see people cutting more than five to eight pounds, and they'll be fighting closer to their natural weight class.
+- I bring the funk. It's a different style.
+- It's interesting to see all these guys keep calling me out after they win. I don't know whether it's a slap in the face or just respect. I don't know. I have no idea. I can't tell what to make of it.
+- You go out there and say I fight for the UFC, people know exactly what that is.
+- You put me in there with anybody at '35 or '45, I get on your back, I take you down, it's going to be a long night and it's a dangerous situation to be in.
+- People can forget about you so quickly and that's not what I want. I want to keep people talking because at the end of the day that's what is going to get you paid. People have to want to care to watch you fight and you have to be relevant.
+- I think everyone is kind of an immigrant somehow, and I wasn't raised in an American society at home. My household was a Jamaican household, so I got all my traditions, all my roots and culture intact, so I'm able to support both countries.
+- I had to learn to toughen up and fend for myself. You'd think when you have a lot of brothers and sisters, they'd come to your aid and rescue you a lot of times, but for us it wasn't really like that. It was tough love.
+- Obviously, I rep Jamaica. I'm a first generation born Jamaican-American. My parents are born and raised in Jamaica, my grandparents are born and raised in Jamaica, my other family still lives in Jamaica, and I still go back there.
+- I know some people count me out, but that's the one thing about myself, I never count myself out.
+- I'm always a guy that looks at every situation as glass half full.
+- I'm not about trying to hand pick my fights and tip toe around the competition.
+- I like to put my money where my mouth is and go out there and perform and do what I gotta do.
+- If you're a top 10 guy you should pay a top 10 guy or even a top 5 guy what he deserves, whether it's a lightweight or a heavyweight.
+- I don't want to be resentful to the sport. I want to be able to leave the sport on a high note.
+- I got a different persona than a lot of these other guys.
+- I think I bring a different flavor to the game, both inside and outside the Octagon.
+- You can't keep a star from shining and my star's going to shine bright.
+- About this sport, you gotta kind of stay active. If you're not active, you're easily forgotten. It's like out of sight, out of mind.
+- I never wish ill will saying 'I wish this guy won or this guy lost.' I really don't care. The best guy, let them have their night.
+- I mean, I've had fights with random guys, I drove to fights by myself cutting weight, no corners whatsoever. So I've had a very interesting MMA journey.
+- To be in the UFC and have the name but not the earnings, good for you, you get a hand clasp and a shake and a don't let the door hit you on the way out sort of thing.
+- I think flyweight has always been exciting.
+- You don't have to get into, 'I'm a leftist or a rightist, I'm Democrat or Republican.' You don't have to get into that kind of nitty gritty type of detail, but at the same time to show that you do have a stance is very, very important. To preach the good word of just being a good human being, being a humanitarian.
+- I hope we can figure out the reforms, educate and really retrain our police officers. Getting people to understand that just because I grew up a different way and my lifestyle's different, doesn't mean that you need to be afraid of me.
+- I realize judges don't understand what the hell kicks are doing.
+- I fight for people's entertainment, but at the same time that entertainment comes at a cost.
+- There's a lot of American citizens out there that do jobs that they hate, day in and day out. For me to do what I love to do, with people that I like and enjoy being around who are chasing the same dream, same passions, to have that around you day in and day out, I think it says a lot.

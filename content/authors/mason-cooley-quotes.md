@@ -1,0 +1,219 @@
++++
+author = "Mason Cooley"
+title = "Mason Cooley Quotes"
+quotes_len = "213"
+description = "the best 213 Mason Cooley Quotes"
++++
+- Reality is the name we give to our disappointments.
+- Magic trick: to make people disappear, ask them to fulfill their promises.
+- Self-reform is the only kind that works.
+- Eternity eludes us, even as a thought.
+- While we are reading, we are all Don Quixote.
+- Fail, and your friends feel superior. Succeed, and they feel resentful.
+- If you are going to break a Law of Art, make the crime interesting.
+- Office politics are bloody-minded, but weak on content.
+- The passion for money is never fickle.
+- Middle age went by while I was mourning for my lost youth.
+- Lying just for the fun of it is either art or pathology.
+- Reputation runs behind the current state of affairs.
+- To understand someone, find out how he spends his money.
+- Without civilization, we would not turn into animals, but vegetables.
+- Critic's delight: scolding the Mighty Dead.
+- In psychoanalysis, only the fee is exactly what it seems to be.
+- Cats are inquisitive, but hate to admit it.
+- If the world would apologize, I might consider a reconciliation.
+- My mind is led astray by every faint rustle.
+- The power of lying is much less than the power of what is not to be discussed.
+- Totem poles and wooden masks no longer suggest tribal villages but fashionable drawing rooms in New York and Paris.
+- As equality increases, so does the number of people struggling for predominance.
+- Think carefully before asking for justice. Mercy might be safer.
+- Creativity makes a leap, then looks to see where it is.
+- Three meals plus bedtime make four sure blessings a day.
+- Friends are sometimes boring, but enemies never.
+- The aim of literary ambition is to demonstrate one's greatness of soul.
+- Most people regard getting their way as a matter of simple justice.
+- Often, when I want to consult my impulses, I cannot find them.
+- Opportunity knocks, but doesn't always answer to its name.
+- Even boredom has its crises.
+- Hypocrisy is the outside of cynicism.
+- Complainers change their complaints, but they never reduce the amount of time spent in complaining.
+- Expensive advertising courts us with hints and images. The ordinary kind merely says, Buy.
+- Flattery and insults raise the same question: What do you want?
+- Folly always knows the answer.
+- Innocence: I am only stepping on your face because it lies in my path.
+- If you call failures experiments, you can put them in your resume and claim them as achievements.
+- I know that I am what I am. But I am not sure what I am.
+- At sixty, I know little more about wisdom than I did at thirty, but I know a great deal more about folly.
+- Don't stare into a mirror when you are trying to solve a problem.
+- Mistakes are the only universal form of originality.
+- Preserving tradition has become a nice hobby, like stamp collecting.
+- The doctrine of the immortality of the soul has more threat than comfort.
+- If modesty disappeared, so would exhibitionism.
+- Rereading, we find a new book.
+- The beginning of self-knowledge: recognizing that your motives are the same as other people's.
+- The ravaged face in the mirror hides the enchanting youth that is the real me.
+- Logic teaches rules for presentation, not thinking.
+- Seeing my malevolent face in the mirror, my benevolent soul shrinks back.
+- Hatred observes with more care than love does.
+- After an argument, silence may mean acceptance or the continuation of resistance by other means.
+- Old age: I fall asleep during the funerals of my friends.
+- Well-behaved: he always speaks as if his mother might be listening.
+- Staid middle age loves the hurricane passions of opera.
+- To be successful be ahead of your time, but only a little.
+- Many gloat over their own troubles.
+- A blocked path also offers guidance.
+- Philosophy likes to keen common sense on the run.
+- Bad faith likes discourse on friendship and loyalty.
+- In every death, a busy world comes to an end.
+- Travelers never think that they are the foreigners.
+- Talk about yourself as much as you like, but do not expect others to listen.
+- Most reputations are not ruined but forgotten.
+- Self-hatred and self-love are equally self-centered.
+- Sincerity: willingness to spend one's own money.
+- For many, immaturity is an ideal, not a defect.
+- The man in the street is always a stranger.
+- Cruelty is softened by fear, not pity.
+- Old and young disbelieve one another's truths.
+- Every day begins with an act of courage and hope: getting out of bed.
+- Every literary critic believes he will outwit history and have the last word.
+- A real idea keeps changing and appears in many places.
+- In bridge clubs and in councils of state, the passions are the same.
+- Journalism never admits that nothing much is happening.
+- The discontented believe that their regrets are about the past.
+- Money: power at its most liquid.
+- Ultimately, blind faith is the only kind.
+- Consciousness is our only reprieve from Time.
+- My passions have never jumped out of the fireplace and set fire to the carpet.
+- Women encourage men to be childish, then scold them.
+- Cynicism is full of naive disappointments.
+- Dancing and running shake up the chemistry of happiness.
+- Poor but happy is not a phrase invented by a poor person.
+- I have learned to keep to myself how exceptional I am.
+- Money is to my social existence what health is to my body.
+- Fastidious taste makes enjoyment a struggle.
+- A sense of blessedness comes from a change of heart, not from more blessings.
+- Young men preen. Old men scheme.
+- To understand a literary style, consider what it omits.
+- Mind and body obstruct one another's pleasures.
+- I did not know I was in my prime until afterwards.
+- Rage is exciting, but leaves me confused and exhausted.
+- Excuses change nothing, but make everyone feel better.
+- Thinking about the universe has now been handed over to specialists. The rest of us merely read about it.
+- The educated do not share a common body of information, but a common state of mind.
+- Language is the friendliest of the things from which we cannot escape.
+- Kafka: cries of helplessness in twenty powerful volumes.
+- Procrastination makes easy things hard, hard things harder.
+- Affection reproaches, but does not denounce.
+- Observe decorum, and it will open a path to morality.
+- The body has a mind of its own.
+- 'Be faithful to your roots' is the liberal version of 'Stay in your ghetto.'
+- My thought has been shaped by books; my desires by pictures.
+- After my spectacular failures, I could not be satisfied with an ordinary success.
+- Documents create a paper reality we call proof.
+- The man of sensibility is too busy talking about his feelings to have time for good deeds.
+- Melancholy is as seductive as Ecstasy.
+- Minds will wander even during the Last Judgment.
+- Sloth, not ill-will, makes me unjust.
+- The novel avoids the sublime and seeks out the interesting.
+- Imagination has rules, but we can only guess what they are.
+- Fulfillment is often more trouble than it is worth.
+- In the street, the gaze of desire is furtive or menacing.
+- Never try to leap from a standstill.
+- The higher the moral tone, the more suspect the speaker.
+- I love you is the inscription on Pandora's box.
+- Love begins with an image; lust with a sensation.
+- Listening to people keeps them entertained.
+- While there's life, there's fear.
+- The lonely become either thoughtful or empty.
+- What lies behind appearance is usually another appearance.
+- If we think about the obvious long enough, it dissolves.
+- Even the most fickle are faithful to a few bad habits.
+- I see what you mean, but I do not think what you think.
+- Taste refers to the past, imagination to the future.
+- The beloved is the ultimate fetish.
+- Moo may represent an idea, but only the cow knows.
+- My parents wanted me to solace them for sorrows they denied having had.
+- Human society sustains itself by transforming nature into garbage.
+- Death is frightening, and so is Eternal Life.
+- Writers mean more than they say and say more than they mean.
+- When I prayed for success, I forgot to ask for sound sleep and good digestion.
+- Romantics consider common sense vulgar.
+- Kindness eases everything almost as much as money does.
+- Lust and greed are more gullible than innocence.
+- People believe that photographs are true and therefore cannot be art.
+- The laughter of the aphorism is sometimes triumphant, but seldom carefree.
+- Forgiveness is like faith. You have to keep reviving it.
+- We are more tied to our faults than to our virtues.
+- Promiscuity is like never reading past the first page. Monogamy is like reading the same book over and over.
+- The gods are watching, but idly, yawning.
+- Worried about being a dull fellow? You might develop your talent for being irritating.
+- I'm being treated like a sex object, cried the lady. No matter. I will take care of it, said Time soothingly.
+- The sage belongs to the same obsolete repertory as the virtuous maiden and the enlightened monarch.
+- Few friendships could survive the moodiness of love affairs.
+- When sages commend excess, Desire is sick.
+- An omnipotent God is the only being with no reason to lie.
+- Reason enables us to get around in the world of ideas, but cannot prescribe our thoughts.
+- Why do we never expect dull people to be rascals?
+- Rescue someone unwilling to look after himself, and he will cling to you like a dangerous illness.
+- If success is a habit, it is a hard one to acquire.
+- Fantasy mirrors desire. Imagination reshapes it.
+- No chaos, no creation. Evidence: the kitchen at mealtime.
+- The only peace is being out of earshot.
+- If I play hard to get, soon the phone stops ringing altogether.
+- City people make most of the fuss about the charms of country life.
+- Young poets bewail the passing of love; old poets, the passing of time. There is surprisingly little difference.
+- Few artists can afford artistic temperament.
+- There are different rules for reading, for thinking, and for talking. Writing blends all three of them.
+- Never ask a bore a question.
+- Innocence is thought charming because it offers delightful possibilities for exploitation.
+- If beggars do not hate the rest of us, they are even more abject than I had imagined.
+- The horse stares at its captor, barely remembering the free kicks of youth.
+- Fears and lies intensify consciousness.
+- The passions are the same in every conflict, large or small.
+- When a man bores a woman, she complains. When a woman bores a man, he ignores her.
+- Families in which nothing is ever discussed usually have a lot not to discuss.
+- Hatred of the mother is familiar, but the mother's hatred still comes as a surprise.
+- Cure for an obsession: get another one.
+- Living alone makes it harder to find someone to blame.
+- Compassion brings us to a stop, and for a moment we rise above ourselves.
+- A blunt statement can be as false as any other.
+- To confer dignity, forgive. To express contempt, forget.
+- Malice is always authentic and sincere.
+- Some loves are like a vice that has ceased to give pleasure.
+- An academic dialect is perfected when its terms are hard to understand and refer only to one another.
+- It is possible to interpret without observing, but not to observe without interpreting.
+- First literature came to refer only to itself, the literary theory.
+- Faith moves mountains, but you have to keep pushing while you are praying.
+- Unlike the actual, the fictional explains itself.
+- Who would not give up wit for power and beauty?
+- Children use all their wiles to get their way with adults. Adults do the same with children.
+- People who abhor solitude may abhor company almost as much.
+- A happy arrangement: many people prefer cats to other people, and many cats prefer people to other cats.
+- Outside books, we avoid colorful characters.
+- The real secrets are not the ones I tell.
+- Art seduces, but does not exploit.
+- Only the broken-hearted know the truth about love.
+- Stated clearly enough, an idea may cancel itself out.
+- Conscious thought is the tidying up at the end.
+- Romance is tempestuous. Love is calm.
+- Irony regards every simple truth as a challenge.
+- General statements omit what we really want to know. Example: some horses run faster than others.
+- Art begins in imitation and ends in innovation.
+- Other people's beliefs may be myths, but not mine.
+- Humor does not rescue us from unhappiness, but enables us to move back from it a little.
+- In the game of love, the losers are more celebrated than the winners.
+- I read less and less. I have not forgiven books for their failure to tell me the truth and make me happy.
+- Amazing that the human race has taken enough time out from thinking about food or sex to create the arts and sciences.
+- The shades of respectability begin to close about the greying head.
+- Good parties create a temporary youthfulness.
+- We are prepared for insults, but compliments leave us baffled.
+- In love, we worry more about the meaning of silences than the meaning of words.
+- The time I kill is killing me.
+- Even cats grow lonely and anxious.
+- Events are called inevitable only after they have occurred.
+- The wisdom of age: don't stop walking.
+- Logic and fact keep interfering with the easy flow of conversation.
+- A great reader seldom recognizes his solitude.
+- Psychology keeps trying to vindicate human nature. History keeps undermining the effort.
+- Ideology has shaped the very sofa on which I sit.
+- Children now expect their parents to audition for approval.

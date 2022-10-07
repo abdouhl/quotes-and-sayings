@@ -1,0 +1,22 @@
++++
+author = "Mary Pope Osborne"
+title = "Mary Pope Osborne Quotes"
+quotes_len = "16"
+description = "the best 16 Mary Pope Osborne Quotes"
++++
+- I love reading all kinds of books. I usually have about ten books going at any one time - books about the past, the present, novels, non-fiction, poetry, mythology, religion, etc. Reading is my favorite thing to do.
+- I would love to live in 'The Lord of the Rings.' J. R. R. Tolkien's world is so vivid and rich and sensual. I love the country setting and the routine of the hobbits. Of course, I would like to be a hobbit who goes on small adventures - not huge, horrifying ones like Frodo's quest.
+- I get ideas from my own personal experiences, from my imagination, and from my research and from old stories.
+- I love using my imagination. I love writing about animals.
+- When I was five, we moved to Virginia and lived inside an old fort that was surrounded by a moat. So when I heard stories of American history, I felt as if those dramas were taking place right in my own backyard.
+- When I was four years old, my father, who was a colonel in the army, was stationed in Salzburg, Austria. Across the street from our house was an ancient castle on a cliff. So when I first heard fairy tales, I felt as if the magic of 'Cinderella' or 'Sleeping Beauty' was taking place right in my own neighborhood.
+- Sometimes when I go out on the road, I feel almost embarrassed or dismayed because I can't be the image of what kids want me to be. So I just try to be myself, and usually that works out OK.
+- A military childhood in the 1950s was very much informed by WWII. My brothers and I often heard stories from our dad - and from other kids - about things that had happened to their dads. We constantly played war games and, nearly every Saturday, saw a different WWII movie at the post theater.
+- When I was growing up, kids would go outside and play all day and invent things. And my brothers and I pretended our picnic table was a ship one summer. Our bikes were horses, and our trees were forts. We turned everything in the world into make-believe.
+- A vacation for me is when I'm home and I'm writing.
+- My imagination is closer to a child's imagination than to a grown-up's.
+- I wanted to be a cowboy in cowboy movies.
+- I discovered writing children's books was a way to keep living in my imagination like a child. So I wrote a number of books before I started 'Magic Tree House.' Then, once I got that, I never looked back because I could be somewhere different in every single book.
+- With my writing, I can still play inside an enchanted castle or live inside an old fort. I can run from ghosts or ride dolphins any day of the week.
+- When I was a teenager, I continued to visit imaginary places by spending all my free time at our local community theater. Whether I acted in a play or worked backstage, the world of Tennessee Williams or Shakespeare always seemed more real to me than the dreary life of high school.
+- I loved Frances Hodgson Burnett, who wrote 'The Little Princess' and 'The Secret Garden.' And I loved the 'Little House on the Prairie' books by Laura Ingalls Wilder.

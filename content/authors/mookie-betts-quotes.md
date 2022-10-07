@@ -1,0 +1,106 @@
++++
+author = "Mookie Betts"
+title = "Mookie Betts Quotes"
+quotes_len = "100"
+description = "the best 100 Mookie Betts Quotes"
++++
+- I'm playing for the Red Sox, and I don't think there's anybody out here who's going to intentionally hurt you. So you listen to information, and you kind of filter what you like and take out what you don't.
+- The great hitters use the whole field, and that's a goal of mine.
+- I'm a confident person in knowing my abilities, but also know, I'm kind of a realist, I know when I suck.
+- It's an honor and a blessing to be part of 'R.B.I. Baseball.'
+- There wasn't a favorite team or player in the Betts household. I played baseball, day in, day out, and learned the game my own way alongside my parents - Willie and Diana.
+- The pitcher is in trouble, not me. He has to throw it over the plate and I have to put a good swing on it.
+- You don't criticize or critique your teammates if they're having a hard time. You try to encourage them just like you hope that they'll encourage you.
+- I don't want to put any pressure on myself. I just do what I do and have fun.
+- Orange is the New Black' - oh my gosh. That is a great TV show.
+- I've been blessed with everything I have, and I might as well share it.
+- You don't get to where you are by just sitting on your butt and expecting it to come.
+- You see all the greats, people who were idols of mine growing up. You see those guys on the cover of video games.
+- You weigh your pros and cons and what's real. You want to play baseball? Yeah. You want to go to school? If that's the best option, than that is what it is.
+- Sports is just something I have a knack to figure out how to play.
+- Even in the minor leagues, I just said I'll get my little bit of time in here and then get out of here. I was going to try, though. I wasn't going to just give up. I was always going to try. I'm here. I figured I might as well try.
+- I think when you're stressing, or worried about your performance, worrying about this and worrying about that, that's when things start to get tough and you're not enjoying it anymore and it becomes a job. Although it is our job to play, still you have to understand that it's a game and you have to enjoy it.
+- When you're down, are you going to be mentally down and make it last longer, or are you going to stay positive, keep an even keel?
+- Contract things are kind of tough to come up with, especially with both sides and kind of how the economics and all those things work.
+- Whatever the team takes, whatever it needs, I try to fill that role.
+- I just try to be the same guy each and every day and just do something when we're hitting or make a nice defensive play or run the bases. Just trying to be consistent in that way.
+- Everything I played, I kind of found a way to be pretty good at. My mom always said, 'If you're not good at something, then don't do it.'
+- This game is obviously about failure. You're going to fail most of the time. It's how you handle it.
+- Just because you go to free agency doesn't mean you don't want to be somewhere. It's just a part of the business.
+- I just want to be that role model that the kids can look up to, and say, 'I want to be like him. I want to be just like Mookie Betts.'
+- Even though this is a business you do have people here that you're with every day, like your family. You want to go play for them and you want to win with them. You have to find a way to do that but understand that there is a business side to it. You have to find a way to understand.
+- Obviously, I'm coordinated and whatnot.
+- I don't want to try and be something I'm not.
+- The more Opening Days the better. It never gets old. It's one of those things where as it comes you embrace it, get ready, you still get those butterflies, which means you care.
+- Every game I'm out there, we're all trying to affect the game in some way.
+- I don't hit home runs in BP.
+- My favorite TV show is probably 'Power.'
+- It's OK for two sides to disagree. It's perfectly fine. It's normal.
+- I don't care about the home runs as much as just being consistent and RBIs.
+- I'm just trying to affect the game in some way whenever I get an opportunity. If that's stealing a base, making a catch, beating out a double play, whatever it may be.
+- My Mom and Dad always told me to not act on emotion, act on what is real. When you're mad don't do something wrong because you're mad.
+- I think my senior year in high school was when I started wearing Jordans. It was our team rule that we had to play in them so that's when I got - not introduced to them, but got into it. Through the minors I started collecting some, just to wear, and that's when I told myself I want to become a Jordan athlete and did all I could to do it.
+- I'm not a huge vocal guy.
+- I grew up in bowling alleys.
+- I think people don't enjoy it as much as they used to. People say, 'Make baseball fun again.' Well, I'm trying.
+- Just to be able to put on the uniform in general is a blessing, and when it says Red Sox on it, it makes it that much better.
+- I want to be a great role model to let the kids, especially black kids, that it's possible to make it in this sport. I think we, as a black community, quit playing the game because we think it's a white man's sport. Or we think that since other black people don't play it, so why should I play it.
+- I'm going to be someone who smiles and brings joy to the locker room and to the field.
+- It's kind of tough as you're playing you kind of wonder what is going to happen to you as you go through arbitration or as you go through free agency.
+- I just try to do whatever I can to win the game.
+- Not every year is going to be the same and you just kind of have to just roll with the punches.
+- My No. 1 thing is to win a World Series. The rest comes as it comes.
+- I just go out and do what I can to help the team win, try and be consistent in having some good at-bats and getting some timely hits and whatnot.
+- I wouldn't say I'm a commodity. I try not to think about it too much.
+- I guess bowling is pretty mechanical. It's kind of a natural motion, but you have to stick within those mechanics.
+- I think I've tried to have a platform to speak and to help kids understand learning about baseball.
+- I think the most important thing is that World Series.
+- However it is I get on base, or whatever happens, happens.
+- Every year you go in and you obviously want to win a World Series, at least make the playoffs.
+- I just kind of want to be me.
+- Obviously, you're going to have your ups and your downs, but the more ups I can have and the quicker the downs are, the better I'll be.
+- Some people kind of get lost in what everyone else is doing and not pay attention to themselves, and I think I'm one where I pay attention to myself and can set the example for the people coming up.
+- R.B.I.' is such a playable game. You can pick the game up and play right away without a crazy long learning curve, and that's important for the casual fan and gamer.
+- When you just stand for something, you kind of stand for it.
+- No matter what I say, people are going to have their opinions and there is nothing I can do about that.
+- In order to be great you have to continue to put in the work.
+- You make a 2-10 split pretty often when you bowl as much as I do.
+- I was born into wearing hats - it's a family thing - and I wear hats all the time.
+- I can pull off a range of outfits from nice, edgy suits to more rugged, casual looks. Your look one day can be totally different than the next day, and for me, it's all about owning that.
+- I care about runs scored and RBIs. Those are the most important things for me.
+- I can't speak on anybody else's free agencies, how that's going, but for myself, it helps to kind of be patient and let it happen.
+- Precision matters, breh.
+- You score runs to win games. That's how you do it.
+- I think a lot of times you start to second-guess yourself, especially as a young player, but you've got to have confidence that everything will be all right.
+- I want to play every day and help the team get to where we want to be.
+- She's always been there for me through anything, I can think of many school projects I had to do and I would say, 'Mom, can you help me.' She would help me write a paper or make a poster. She's just been that kind of mom. No matter what, she makes sure I'm alright and I thank her for that.
+- As I continue to learn, I'll continue to do different things.
+- I've been playing golf for a little while and I can't get over the 85 hump. It doesn't matter how good or bad I shoot on one side, I'm going to end up around 85.
+- When you start rushing into things, that's when you get some deals that may not be the right ones.
+- I'm 5-foot-9, 180 pounds. I don't have much else to work with, so I just try to use my bat speed and get the most out of what I've got.
+- I listen to R&B and Hip Hop.
+- I've been bowling for so long, and I really, really enjoy it.
+- I learned from my dad and my mom somebody should only have to tell you once. Whether it's me getting in trouble, they said I should only have to tell you once. I've kind of took that and made that for all aspects.
+- Pretty much all bowlers are nice dudes.
+- Yeah, there's always room for improvement.
+- I'm not a big country guy even though I'm from Nashville. I like some songs, but I wouldn't turn on a country radio station or anything.
+- You just have to be able to stand up for yourself. And that's OK.
+- I have no idea what it is about bowling. It's just a love I have for it. I can't even explain why. Bowling is just fun for me.
+- I'm constantly trying to become the best. That's kind of how I'm driven. Sometimes I'm not. I kind of focus on when I'm not than when I am. That's probably something I need to switch.
+- Five World Series rings, 3000-plus hits, the fame, the fortune and playing for the second most historic franchise in baseball... These are just some of the reasons kids would always say they want to grow up to be just like Derek Jeter.
+- I always listen to music.
+- You don't want to sell yourself short.
+- I like leading by example.
+- I'm confident in my abilities and confident to know what kind of player I am. I've also been educated on the business side of it, getting your value.
+- Fastball middle-middle. You can't miss that pitch.
+- As a whole, when it comes to business in general, whether it's buying a building or contract negotiations or whatever it is, you have to take emotions out of it. That's what people forget.
+- You can put me on a plane now and I can go anywhere and just by talking having one or two conversations I can have an idea where I am in the U.S. or whatever.
+- My personal style definitely developed over time. I thought I used to look good in a T-shirt and jeans and a decent pair of shoes. Now versatility is key for me.
+- I just want to put on a uniform - whoever it is.
+- Having fun is definitely how you're going to keep yourself loose, and be at your best.
+- I love Boston.
+- You never want to lose a strength, but I've also got to try and be a complete hitter.
+- I see myself as the product of hard work.
+- You have to have sound mechanics to repeat the same delivery each time. That's the hard part. Since I don't bowl all the time I'm not consistent with my mechanics.
+- We play to win the World Series, and that's our goal.
+- I try and affect the game in every way.

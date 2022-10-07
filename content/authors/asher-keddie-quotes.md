@@ -1,0 +1,98 @@
++++
+author = "Asher Keddie"
+title = "Asher Keddie Quotes"
+quotes_len = "92"
+description = "the best 92 Asher Keddie Quotes"
++++
+- I'm constantly trying to educate myself with new material on raising children as opposed to the rule book from 20 years ago.
+- There are certain vulnerabilities as a mother that you sometimes try to tackle privately and don't find as much strength as you quote 'like.'
+- I have as many foibles, challenges, shortcomings and struggles as anybody else.
+- People have said for years 'never work with children or animals' but I couldn't disagree more.
+- We have a producer who is incredibly supportive and 'wants' us to have babies, if that is our choice, so that is all due to our show's producer, Imogen Banks. I don't really feel like I have lot of challenges as a female actor in that kind of way.
+- I like the thrill of not knowing what's happening.
+- I truly love the challenges of being a mother, co-parenting and finding the space to allow myself to work rigorously.
+- As an actor you have to be vulnerable or you're just not going to cut it.
+- I've really loved being pregnant on set - it's been terrific.
+- Once I hit my 30s, I realized I needed to make changes, so I moved to the country to spend time with my horses.
+- I certainly didn't grow up feeling there were brick walls in front of me.
+- Because of the experience of a long-running series like 'Offspring,' the beauty of that was that I was working on that so rigorously for seven to eight years that I got to a point where I literally had to clock off at the end of the day and go and invest in my family and my own life.
+- I try to live my life boldly, making my choices without fear and with the faith that if I am brave, I will find myself in the challenging, inspiring situations I want to be a part of.
+- Awards nights are a part of our modern culture; they're part of what we do.
+- I'm quite a physical, active person and I'd be really keen to see what that would be like, a big action flick.
+- I spend time reminding myself of all the many blessings in my life. It's not hard for me to re-focus positively. I also acknowledge the difficult times in my life and how, with courage, I have moved through them.
+- You do change when you have the responsibility of caring for children.
+- I think when your confidence is still growing as a young artist, your capacity for generosity and partnership can be hindered, probably in large part due to self-involvement.
+- We shouldn't expect women to have it all and manage it all and I certainly don't want to be portrayed in that way - I think it's a very negative message to send women.
+- We really just fit our work in and around the family's needs. I'm not juggling it all brilliantly, I'm doing my best.
+- I was a happy woman before I was married with children in my life, and had many great challenges.
+- I'm mortified when I see 20-year-old girls changing the shapes of their faces or plumping their lips out or their cheeks.
+- I've always loved fashion and was dressing up in my mum's clothes when I was four.
+- I have 10 pairs of these jeans in different colors, and I've worn the same Isabel Marant boots for seven years. I've looked the same forever and ever.
+- I love the opportunity to clown.
+- I don't think, 'Oh gosh, I won't be quite there and I won't be as successful as I want to be unless I'm juggling a couple of kids, a marriage and a career.'
+- I was shy and struggling with it.
+- If you feel good, you will look good. That's all it takes.
+- I have four and nine-year-old sons, and the world that they are navigating is vastly different to the one I grew up in. So 'The Hunting,' and the conversations it will inevitably ignite are really necessary, for us to stay on the front foot and to raise emotionally intelligent, respectful human beings.
+- It's been a little bit more of an internal struggle to find the confidence to own my ideas.
+- But 'Love My Way,' it would be incredibly difficult to resist jumping back in all these years later. I think it would be a very interesting thing to do. We have all moved on with different things. It was such a long time ago but, because the drama was so beautifully written and crafted, it would be irresistible probably.
+- I won't demonstrate how I yell 'Go Pies!' because my children nearly have a heart-attack when it comes out. It's the one time that I'm really noisy! I've never said that to anyone before - no one even knows I'm a Pies supporter.
+- Vincent and I are entwined creatively every day of our lives. That is a really big part of the relationship for us and what binds us really.
+- Where I live, I am surrounded by fresh, organic food, so I eat really well.
+- It's interesting the whole Kardashian thing with 'Offspring' because really my choices - with my costume designer - for every single episode are based on the emotional journey of that episode for the character.
+- I certainly have respect for the Logies.
+- And I think 'Offspring' has given me that opportunity to really appreciate the audience and want to entertain them and make it the best drama I can.
+- When things come to an end in drama, I'm usually ready to walk away and keep walking.
+- I don't feel like I need or want to apologize for feeling ambitious.
+- I didn't train to be an actor.
+- Channel Ten is extremely proud of 'Offspring' and could not be more supportive of us.
+- Why are we only considered successful if we can juggle family with a demanding career?
+- I love the really deep, rip-your-soul-to-shreds stuff, but I also love the romantic comedy.
+- I'm not second-guessing myself as much as I used to, and I'm not second-guessing the people in my life as much as I used to.
+- You don't know what a baby is going to be like from day to day, what each new stage will bring.
+- No matter what the time of day, I always make time to be with my horses. They ground me and insist I keep it real.
+- I'm probably infuriating to work with, particularly in 'Offspring,' because I'm in pretty much every scene so I need the other actors around me to be able to pull of the spontaneity of that character.
+- I've had the most fantastic time working with a baby on set because you just never know what you're going to get. The challenge of that is wonderful as an actress.
+- I have a wonderful husband and a very supportive family life.
+- If I were to do something here in Australia that did travel overseas, for sure, I would like to work anywhere in the world.
+- My sister and I were very adventurous. We'd play in the park across the road in our imaginary tree house for hours on end and come home on our bikes when it was dark.
+- I would like to work anywhere, whether it is the U.S., the U.K., Canada, or Europe.
+- There is no shaming in my house, we don't parent like that. We don't shame or punish, they're communicated with with as much compassion and lack of frustration as we can muster.
+- Maybe it's becoming a mum and beginning a family. I feel like a different kind of confidence is starting to come.
+- I used to watch 'Sex and the City' to see what they were wearing, I loved Carrie's fashion.
+- And I love non-actors. Just like I love working with children. They have spontaneity and a great energy. You're just not sure what you're going to get.
+- Kids experience hormonal changes from birth, I'm trying to be as woke as I can with my kids.
+- I am conscious now of the little boys I am raising, there are things that are important to me so that they grow up as healthy, responsible and respectful men.
+- At the time I became a parent, I was taking on a more active creative role in my industry.
+- I don't wear anything that I don't like.
+- I'm really proud of the roles that I've played and pushing myself to be brave enough to play them.
+- I think there's been a big psychological shift in people my age raising children. The world that they are growing into requires a different style of parenting.
+- There are so many hard-wired ideas we've grown up with that we're now realizing are unacceptable.
+- I just don't like closing doors. I can't do it psychologically.
+- There are some stories I really want to tell. I feel ready now to develop some projects that I feel particularly passionate about as opposed to saying yes to someone else's.
+- When you are lacking in confidence, the last thing you want to do is perform.
+- Who needs a gym? It doesn't appeal to me to exercise in a room.
+- I often have 15 to 16 hour days and I have two young children, both with different needs at seven years and 16 months.
+- For a lot of people looking at a 19-year-old model, there's a feeling that 'I can't pull that off.' But there's so much you can pull off if you can find the confidence to look at fashion in a different way and make it unique for yourself.
+- I think I was very much a late bloomer.
+- I love the dressing up, I love the fashion, I think that's all part of it. Particularly Australian designers are really exciting and all of that's really fun.
+- I've never been quite sure what the Gold Logie means - and I'm not being facetious about that. I hope it means people have been enjoying my work in the projects that I have been committed to in the past two years.
+- It's vital that my partner and I are in constant discussion with each other and with our sons about how they're developing emotionally and physically within their peer groups.
+- I must admit that as I get older I certainly don't feel as afraid as I used to be of what people think.
+- It's been fantastic with the baby, I love it. He is going to come with me, so I'm going to have him while at work.
+- I am physically fit and I have a lot of stamina. It's because on the farm I am up at 6 A. M. doing chores. You will find me out in the paddocks, feeding the animals and picking up poo.
+- We're seeing more of the female psyche on screen than we used to.
+- I am always hoping for drama that is as engaging and as challenging as 'Love My Way' was to make and to watch.
+- Is that what we think of women when they have a baby? That they're nurturing and warm, but if they haven't got children they aren't? I find that really offensive.
+- I love babies and children.
+- I have a beautiful stepson in my life who lives with us and I am eternally grateful that he's come into my life, I just adore him.
+- There are a lot of grey areas in 'The Cry' and the grey is what I'm interested in as an actor.
+- It's not lost on me just how fortunate I am to have such generous, supportive people around me, including the wonderful 'Offspring' family.
+- There's a lot of levity to 'Offspring' and I just love that the costumes reflect that.
+- I feel a really strong sense of responsibility to encourage young women in my industry to embrace strength and vulnerability alike, and to develop their own ideas as courageously as possible.
+- With my acting career, everything always seems to just fall into place, so it's not about having to try really hard to get work.
+- Through my 20s, acting was the be all and end all, and I ended up feeling strung out.
+- Life when I'm not shooting is always about the kids, there's no doubt.
+- Although I'd spent many years of dreaming of being applauded for my work and recognized... once it happened I didn't quite know how to sit in it comfortably. I almost lamented it for a little while.
+- Confidence is vital to pushing creativity and creating a point of difference.
+- We're getting bolder with our drama and we're allowing women to be unapologetic about their ambitions in a professional sense, and also about their vulnerability as mothers and lovers.
+- There are two sides to every story and I think it has been easy for us culturally to persecute the scorned woman and the actions she takes in response to being betrayed.

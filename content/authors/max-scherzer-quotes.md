@@ -1,0 +1,106 @@
++++
+author = "Max Scherzer"
+title = "Max Scherzer Quotes"
+quotes_len = "100"
+description = "the best 100 Max Scherzer Quotes"
++++
+- When I was 18, graduating high school, I was going to the University of Missouri.
+- My slider's been very, very good to me.
+- You have to find a way to improve yourself.
+- Having a pitch clock, if you have ball-strike implications, that's messing with the fabric of the game. There's no clock in baseball, and there's no clock in baseball for a reason.
+- Push yourself every single day to continue to work at yourself. And I feel like that's the reason why I made it.
+- I take a great deal of pride in pitching deep into ballgames.
+- There's so much information now, and that even goes down to the college game. You have so much video, you can watch every YouTube video of guys and mechanics, and so I just feel like the younger generation's more educated than ever before.
+- It's my goal every single year. That's the only goal I really set for myself is to make sure I'm better every single year.
+- I really wanted to go to college.
+- I don't know what my record's going to be. I can't dictate it. I mean, obviously I have to pitch well, but it also takes the guys at the plate to show up as well.
+- For me, I'm not going to be hitting the ball out of the ballpark. I know that.
+- When you can celebrate with your teammates on just a major accomplishment, there's nothing better.
+- Celebrating with your team after wins, that's the best.
+- When you give your team five innings, you don't really feel good about five innings.
+- Being in the clubhouse, talking to the veterans, talking to guys who have been here, getting to know everybody, getting the personalities, you can actually learn a lot from the other players in the league.
+- Who would people rather see, a real hitter hitting home runs or a pitcher swinging a wet newspaper?
+- For me, it's all about winning.
+- The advanced stats are great to look at for my long-term goals and what I'm trying to accomplish. It shows me there is an inherent failure in pitching. The luck involved, the factors you can't control. You just have to let go of those and focus on the next batter, the next game.
+- For me, I really enjoy helping out the Youth Baseball Academy. That's something that any time you're helping out the game of baseball with at risk children, that puts a smile on my face.
+- When you allow stolen bases, that changes the game.
+- There's so many great things I learned at Mizzou. I took a sports psychology class. It was kind of eye-opening on certain different ways to look at things.
+- That's why you went to school, because you realize that, being a professional athlete, there's a good chance you're not going to make it. You need an education, that's why for me, it was such an important decision to go to college and further my education to provide me a safety net in case this didn't work out.
+- I've had a better 2017 than I've had 2016, just like a better '16 than '15 and '14.
+- You can't get too caught up in trying to pitch a complete game, because that's hard to do.
+- That's when I'm at my best. When I can throw a fastball over in the count, just throw strikes both in and away, it just sets up all my stuff.
+- Put as much pressure on me as possible. I have no qualms handling that, because I expect that out of myself.
+- When there's too many teams that are not trying to win, that poisons the game, poisons the fan experience, and it creates bandwagon fans.
+- If you look at it long-term, I think eventually there will be a DH in the National League.
+- I expect to pitch well and pitch efficiently.
+- You have to be able to analyze yourself and critique yourself from every which way.
+- Look, the umpires behind the plate? They're human. They're doing the best they can to try to call balls and strikes. I understand that there's a lot of calls that kinda are 50-50. They can go either way. And as a starting pitcher, you try to manage, 'Alright, if you didn't get that call, maybe you'll get it again here a few innings later.'
+- Your pitches have to be sharp every time out.
+- Everyone wants to criticize my mechanics, but maybe I've got good mechanics that make the ball go up.
+- I think every facet of running has its benefits towards a starting pitcher. I mean, you're explosive off the mound and yet you've got to have endurance.
+- I know how to pitch.
+- I pitch to win.
+- Perfectionist is sometimes the wrong word... It means like you're never satisfied, or you're upset by every single failure - any type of failure. And so for me, I don't look at failure as necessarily a bad thing as long as I'm able to learn from it and take something from it, so that next time I'm in that situation I know how to succeed.
+- I'm trying to make sure that I get to my 0-2, 1-2 counts. That's really how I would rather phrase it: I'm trying to make sure that I can drive the count into my favor.
+- I've got a high-school swing. I know that. But you know what? It's good enough to get a ball in play.
+- I've gotten to visit all the parks and put my name inside the Fenway wall.
+- I don't get caught up in the hoopla, worry about where I'm pitching or if I'm pitching Game 1 or Game 5.
+- I beat the odds, and I beat the odds so many times.
+- When Jim Leyland calls - and I have so much respect for Jim Leyland - when he asked me to play, you don't say no.
+- Any time I've put extra work in, I see results.
+- You have to look back on everything that you've done and critique yourself and find the holes in your game that you can continue to get better.
+- You've got to get better every single year, it doesn't matter.
+- Every single pitcher is making changes every single start. You can talk to any pitcher about this.
+- You want to create the fans that are following the team year in, year out.
+- All of the off-field stuff, I can promise you, it doesn't even register with me.
+- I'm a fly-ball pitcher, guys.
+- I grew up with dogs. My wife really loves dogs.
+- Any type of discomfort is going to alter the way I throw the ball. If I alter the way I throw the ball, I run the risk of major injury to my arm.
+- Fenway Park is a fun place to pitch in. You've got 38,000 fans all cheering against you. It's an intense atmosphere.
+- I've seen so many of my friends get cut and released and all taken advantage of because at the end of the day, we say it's the business part of the game.
+- Turning 30, life has definitely changed - it's changed for the better.
+- I need to eat a large meal before I play, and the one thing that was kind of consistent in every single clubhouse at least in the minors was a roast beef sandwich. So that kind of stuck there, and it just kind of stuck in the big leagues as well.
+- I'm looking to generate strikeouts in every way I can.
+- I understand why there is a push for an automated strike zone. However, I do think there would be some unintended consequences of having it that I think need to be addressed first before we would go down that road.
+- For me, I'm always willing to help young guys, because veterans have helped me out.
+- I know when I get to 0-2, 1-2, when I'm ahead in the count, that I hold a distinct advantage over every single hitter. I have so many options because I don't have to work within the strike zone anymore.
+- I'm not trying to strike them out, but there are certain situations, when it's an 0-2 count or a 1-2 count, when I want to have a pitch where I want to strike you out.
+- I'm not trying to throw six or seven pitches just to be able to strike you out. I'm trying to do it in three or four. It's the homework and the process between starts that I really focus on to help me do that.
+- The game can come down to one pitch. But when you're actually out there on the mound and when you're pitching, you can't be worrying about the margin of error or whatnot. You have to go with your strengths and what you believe is the right pitch and keep executing pitches.
+- Sometimes you have to look at a start and say, 'Nothing is wrong.' Even when you get lit up, you still have to say 'Nothing is wrong.'
+- The expectations and pressure doesn't mean you change. That's something that's always been instilled in me, and doesn't matter what the situation or what the game means, I'm always going to approach the game the same way.
+- Sometimes I have to try to remind myself that I don't try to strike out hitters.
+- In previous experiences of being in the All-Star Games, you know, seeing the hometown players and how the fans get behind the hometown players, it's always been a special moment just watching that from afar and being on the other side.
+- I've said it, I'll keep saying it, I want to be in Detroit. I've really enjoyed my time here. I really enjoy the clubhouse and everyone that's involved.
+- There's more to pitching than just striking guys out, but also it is a big reason why you can have success.
+- Strikeouts are important. Anytime you can generate an out without the ball being put in play, there's nothing that can be done in those situations.
+- I relish pitching underneath pressure.
+- There's really no secret to this; that everybody's - they are going to have a game plan against me and I'm going to have a game plan against them. It just comes down to execution.
+- I don't worry about infield shifts at all - you play where you're gonna play. I'm just gonna pitch my game.
+- That's been kinda my secret. You use everything off the field to help make you better on the field.
+- I love competing against the best.
+- When I can buy strikes with that curveball, that just lets everything else play up.
+- You always have to get better.
+- Strikeouts are part of my game.
+- Yeah, I've always been very straightforward when you start dealing with injuries. You always have to communicate with the trainers and the manager and the pitching coach exactly where you're at.
+- I never want the ball above my shoulders until I'm really firing. I feel like I can generate more velocity with my arm path. The way my arm works, there's so many benefits to it - from a health standpoint, as well.
+- I understand what sabermetrics get across, and what they're getting across is to keep it simple. Especially for me, as a pitcher, that's something that helps me - finding ways to keep it simple. Numbers can only tell so much.
+- Sometimes you have to throw 120 pitches to figure yourself out.
+- If I can execute pitches and keep the ball out of the middle of the plate, I know I can have success.
+- If you're constantly just trying to go in this win-loss cycle that MLB is pushing, you are creating bandwagon fans, and that's not the type of fans you want to create.
+- The business part of the game is ugly.
+- Sometimes in this game, you get punched in the face. And you've got to be able to take it and learn from it.
+- Pitching is both an art and a science.
+- I just continue to keep getting better.
+- When you look at starting pitchers, once they make it through year four, then - knock on wood - you see a lot of injury risk go down.
+- You worry about how you're throwing the ball, how you're executing your pitches.
+- You're just trying to go out there and give seven innings. Seven innings, 105 pitches, that's a good outing.
+- You either get better or you get worse. Those are the only two options.
+- You never stay the same - as a pitcher, as an athlete. It doesn't matter what you do, you never stay the same.
+- You have to have the ultimate faith and belief in what you do.
+- If I got hurt or anything, I was going to need a college degree. Nothing was going to stop me from getting that.
+- A lot of times, I've always looked at pitching in the All-Star Game as a prelude to how you pitch in the postseason, sometimes how you might have to pitch on two days' rest out of the pen, only throw one inning and then you have to go face the best hitters. That's what you do in the All-Star Game.
+- That's sometimes the hardest thing to do as a professional athlete, because when you get lit up, you wear it, especially as a starting pitcher.
+- I'm not throwing a no-hitter Opening Day. It's just not going to happen.
+- I'm not worried about good numbers or bad numbers. You worry about the process.
+- It's always, 'No matter what the outing is, you can always find a way to be a better pitcher.' No matter what you do.

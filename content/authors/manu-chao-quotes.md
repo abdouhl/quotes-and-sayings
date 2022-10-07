@@ -1,0 +1,28 @@
++++
+author = "Manu Chao"
+title = "Manu Chao Quotes"
+quotes_len = "22"
+description = "the best 22 Manu Chao Quotes"
++++
+- I was raised in France, and the American culture was present everywhere. On TV, on the radio.
+- I write new lyrics as I'm traveling and I like to record in the place where I had the original idea. Sometimes I rerecord when I get back to Barcelona because I have more-power studio there.
+- You never know what little idea or joke, what flame flickering really quickly, will become a song. That first idea, it can come any time. If it's in Spanish, you go on in Spanish. If it's in French, French. If it's in English, English. Or Portuguese. I'll try to do my best. I like Italian, though I don't speak it much.
+- A lot of people say my songs are political, but that's not by plan. It's because I never found a place where everything is OK, so I just write about what my reality is, follow my instinct.
+- The capitalist system is out of control. Everybody should be their own leader. In our own lives and families and neighbourhoods, we can find solutions to live together in a more soulful way. Everybody can do it. That's what I try to do in my neighbourhood.
+- It's stupid, just because I was born with a French passport, I have the right to travel all around the world, but if I was born in Mali, or Venezuela or Bolivia I couldn't.
+- Every time I met any of my heroes I was disappointed - the exception was Joe Strummer, who was like an uncle to me.
+- My best capacity is to edit. If anything, I am a specialist at editing: my usual approach is to record a song very long. In the beginning just jam, jam on and on. Then break the song and play with it.
+- What 'Clandestino' is talking about is problems of borders, and more and more hermetic borders all around the world.
+- Success is something good, and something bad. I don't know if it's good to always go after success.
+- A CD is only a snapshot of the songs at a given time.
+- I'm not a real producer, so if someone asks me to produce, it's only because they like my sound. I'm not a professional, all I have is my own way of doing things, my little tricks.
+- I love going to sleep in one city and waking in another.
+- I never really work on just one CD - I'm recording, recording.
+- Everyone always said you have to make it in the States. But I always thought the best way was to make it in South America first.
+- Immigration of people has been important for the story of this planet, to make what is today.
+- For me, the more I think about the problems of the world, I feel I have to be positive. I wouldn't like to fall into cynicism or nihilism. That's not in my nature.
+- I was in a bar in Rio and a cow walked in, I looked into its eyes, and I saw such tranquillidad, serenity. Then I started seeing cows everywhere. I realise why the Indians worship them.
+- I can spend hours and hours and days and days in the studio changing the music, because I love that.
+- I was born in France, but I would have been happy to have been born in Senegal or in Romania or Japan. I don't care. This planet is both so small and so big, but I'm part of it.
+- I learnt in South America and in Africa that people who have really big problems in the ghetto always keep a sense of humour and remain positive. If not, you go down.
+- Imagine thousands and thousands of years ago, when the human race was born in Africa, if we'd not allowed them to get out of Africa then we wouldn't exist.

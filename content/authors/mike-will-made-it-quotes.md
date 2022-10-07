@@ -1,0 +1,106 @@
++++
+author = "Mike Will Made It"
+title = "Mike Will Made It Quotes"
+quotes_len = "100"
+description = "the best 100 Mike Will Made It Quotes"
++++
+- When I do music I don't think about urban music, pop or country, I just think about a good song.
+- Me and Miley just clicked. She has good ideas. She's real creative.
+- I wanted 'Formation' to be a woman empowerment song, but Beyonce made it into a culture empowerment song.
+- Miley Cyrus is the new Madonna.
+- If you're a super-producer, you can produce whatever you want to produce. That's where I'm at.
+- With Yo Gotti 'Rack It Up,' that was him hitting me like, bro, I'm about to put out a single next month, I want you to produce it.
+- At the beginning of my career before anything started propelling, I used to blow up everybody. I was trying to work with whoever got next.
+- I did 'We Can't Stop' for Rihanna, but it never worked. Every time I would play 'We Can't Stop' I was like 'this is the new 'Party in the U.S.A.'' I was like OK if I keep saying this is the new 'Party in the U.S.A.,' why don't I go to the girl who did 'Party in the U.S.A.?'
+- I don't spend a bunch of money on jewelry or sunglasses, because I lose them a lot.
+- No teacher ever skipped the student process... if you want to be a leader, you have to be a follower first.
+- I used to be with Gucci every day. School nights, I was with Gucci going to all the different clubs, going to his video shoots. Just moving around with him is how I met a lot of different artists like 2 Chainz and Shawty Lo and other people I work with now.
+- Putting together a hit record is like putting together a puzzle.
+- For 'Black Beatles' to be so true to us and our sound - we weren't chasing a sound - it solidifies that the world is ready for us and what we have to come.
+- A lot of times, older people don't get the new generation.
+- We Can't Stop' has so many different vibes to it. She sounds country; the beat has these live, knocking drums; and then it has these pop melodies. It's a feel-good record.
+- I didn't have no college friends. All the artists the college folks were listening to were my homies. I was leaving class, literally, to record with them.
+- That's what music is all about, vibes. That's what makes people react and relate to a song, what makes it soulful.
+- I have a 200-song catalogue in the streets and I never got any money off that.
+- I wanted to find raw talent and help build it from scratch. I wanted to build from rags to riches. That's the way Ear Drummers did it. We took over the music industry from my mom's basement. That's why my first album is going to be called 'Made It Out the Basement.'
+- In 2011, a lot of people didn't even know I did 'Tupac Back.'
+- A Red camera is the best. When I started shooting videos, I had to pay ten thousand dollars just to rent one. I was like, 'I do all these music videos, and I still don't own a Red camera?' So I spent about a hundred thousand dollars to buy one. My own bread. Boom!
+- I want to make sure that I sign dope artists, old and new, just to make sure that we come up with something new and creative.
+- I can work with all these different kinds of artists and still be able to come up with huge records. Not just cool records, but game-changing records.
+- It started off with me being all the way influenced by Atlanta and southern music but I knew my sound had to grow - I started learning melodies.
+- I feel like when I came in the game, I was more focused on like, 'yo how many times can I get on the radio?'
+- I'm not really the type that likes to put out a project just to say I've put it out - I like to make them count.
+- Whoever has a next-level ear needs to be an Eardrummer.
+- With 'HUMBLE.,' I knew that beat was going to capture a moment. It just felt real urgent.
+- 2 Chainz and I have a history. It's always an honor and pleasure working with him, because it seems like everything we do is dope. We just have that organic chemistry.
+- I feel like Rae Sremmurd is just a whole new sound culturally. People don't understand, but they learn to understand. The melody choice is different and everything.
+- I love Atlanta.
+- I wouldn't say money can buy happiness. Happiness starts with yourself. Money can buy a smile, though.
+- I'm just expanding my sound and making it bigger.
+- Drake is damn near the best with melodies.
+- If I get a Grammy, that would be dope.
+- People told me that Miley's '23' wasn't hip-hop. Let me tell you, she went in and owned that track.
+- I'm so into making music and being behind the scenes. I'm such a visionary person that I don't see myself being the person in front of the camera or the person in front of the mic.
+- At the end of the day, I was listening to the big homies and they were saying, 'Yo, man, you got talent, man, stay off the streets.'
+- It's like I have three different brains.
+- I like blessing others around me. When you work hard, it's just dope to give back to the people around you.
+- Future is my brother. He has no idea how big what he does is.
+- I don't put myself in any box or say that I can't work on any kind of music. I'm not just a producer that only makes urban music.
+- I do it all, man. I produce, I do my own wardrobe and my own ironing, too!
+- I used to grind. I be telling people, you don't grind, you don't sell. I was like 15, 16 getting dropped off in the city by myself, with my own beat CDs.
+- I'm just trying to follow the footsteps of God. I don't question him. Just keep moving. He never fails. He always amazes me. It's like, damn, the sky isn't the limit.
+- I like making dope music.
+- When people question me about whether something is hip-hop, I ask them, 'Does it sound hard? Does it hit home? Is it raw and real?' If it is, I did my job. And you can call it whatever you want.
+- That's the most important part of all the music I produce: making sure the artist is bringing themselves out in the music.
+- Matter fact, my girl complains about how much I'm in the studio working. But she sees the results as they roll out.
+- If you put your time and energy into developing creatively, that's where you'll go.
+- Juicy J was always one of my favorites. For one, he was a producer and I just used to love how he came on his verses every time.
+- The 'trap' sound is a sound from the city. We've always liked music with bass. We've always liked old schools with big speakers in the trunks. We like our music loud. We've always had a nightlife scene in Atlanta.
+- I really like coming across all types of different music, and hearing new things.
+- I love being in the studio.
+- I first heard Trouble in 2008. At that time I was on my grind, trying to work with all the next-up artists. I had sent him a couple beats; he had done a couple songs. We was always around the same age.
+- I'm a producer, not just a beatmaker but a producer.
+- You can't please everybody. As long as you make dope music, you're gonna have your fans.
+- I'm creative so I'm always gonna create.
+- Sometimes I feel like I represent for the misunderstood.
+- I like to listen to the Police, Sting, Queen, Pet Shop Boys.
+- Yeah, I co-directed '23.' Yeah, the whole concept of the video... Even with that video, I feel like it's not a video that you can get sick of. You can always go back and watch that and it's fresh.
+- Tupac Back' was the first single I had, but prior to that I already had 20-something songs in the street.
+- When you're on top, you're going to get flack for anything.
+- I like everything rare - cars, shoes, clothes.
+- This is the city of the underdog champion, so they want to see the next person out of their city blowing up and making I feel like, man, Atlanta's a big city, but it's so small.
+- If I tell you purple look good on you, and you ain't never wore purple, your favorite colors are red and green, and you're like, No man, these my colors. You won't know purple is your color until you try it on.
+- You wanna champion someone from your city and it blows it up.
+- Future was always the person to knock out multiple bangers in one night.
+- It doesn't matter if it's platinum or 10-times platinum - it's a certification that lets me know that I'm not wasting my time in the studio. That being said, I don't let those certifications run my life.
+- I love the grind. Gucci taught me to never stop working.
+- I feel like soccer brings another dynamic to the city, it makes it more eclectic... I feel like it opens doors for people who grew up playing soccer here their whole life. We've got some rings on the way, trophies on the way, and we're gonna win, and we're gonna stand behind Atlanta United just like we stand behind everything else out of Atlanta.
+- I used to listen to songs on the radio and play that junk back on that little keyboard.
+- I don't want to be on the mic, man. I want to stay producing.
+- Me and Future, we did 'Dirty Sprite,' 'Ain't No Way Around It,' 'Turn on the Lights.' Every time we record, we're setting bars.
+- With rapping, that's just another form of expressing your music. Whether you're going to rap, you're going to sing, it's whatever you want.
+- Pharrell is a legend.
+- You can scroll through my iTunes and I've got everything. I've got Ace Hood, Alt-J, Annie Lennox, Arctic Monkeys, Beanie Sigel, the Beatles, Beth Hart, Big Sean, Bob Dylan, Bon Iver, Chief Keef, Coldplay, the Flaming Lips, Mariah Carey, Miley Cyrus, Nicki Minaj, OutKast, Pet Shop Boys, Peter Gabriel, the Smiths, and the list goes on from there.
+- We Can't Stop' - everyone said that it wasn't going to work on pop radio, because it didn't have an EDM-type beat. But it went to No. 2 on Billboard and No. 1 on iTunes.
+- 2012, I feel like I was still grinding. It was a good year for me, but that was my year breaking down the barriers. It was like my introduction.
+- When I tried to send him beats in 2010, he told me I was too expensive for him. I told Future we had to work together, that it would be beneficial for both of us, that we didn't have to worry about the money.
+- When I was still at Interscope, I told them about Rae Sremmurd and we were talking about signing them. I was like, 'This is the hood Backstreet Boys, the black *NSYNC. This is the most ratchet pop is gonna get and this is the most pop hip-hop is gonna get.'
+- Those are two artists that I worked with real closely. Me and Miley are real close, me and Future are real close.
+- Jimmy Iovine has been telling me since 2012 that I needed to start my own label with my own artists. This was when he first met me and 'Bandz a Make Her Dance' was first taking off.
+- I just want to change the game.
+- Kanye is one of my favorite producers and artists.
+- Jimmy Iovine, he pretty much started off as an engineer and a producer, and then he started up a label. Then he built his label to have big artists like Dr. Dre and 50 Cent. Then he started up a headphone company and made it a billion dollar business. He's a genius to me.
+- I'm looking at EarDrummers like a boutique label, like an Interscope or a Def Jam.
+- I don't sleep.
+- It's important to show the new generation that soundtracks can be just as exciting as traditional albums if put in the hands of the right curator.
+- I want to work with anybody original.
+- A lot of people slept on Rae Sremmurd.
+- As far as rapping goes, as long as you are telling the truth and you have a good flow, then you win.
+- I was able to bring Gucci and Rae Sremmurd on a track together. It was crazy because it seemed like it was destined to be.
+- Once you start getting money, it relieves your stress of worrying about how you're going to pay your next bill. It's more like another stress of how many bills you have to pay.
+- I'm just trying to bring the sound from Atlanta over to the mainstream radio in a way that everybody can enjoy.
+- We Can't Stop' was the first song we did. We didn't try to reach and be too 'hood:' It's hip-hop-influenced, but Miley's a pop singer, and she's going to have country in there.
+- I've just got to keep a balanced head and stay focused.
+- I really believed in 2 Chainz, I really believed in Future, and I was going to the studio with them every single day.
+- God has blessed me with something. One day, I do see myself being like Jimmy Iovine. I'm trying to build an empire.
+- I'm always that dude that's looking for the next thing.

@@ -1,0 +1,67 @@
++++
+author = "Kayvan Novak"
+title = "Kayvan Novak Quotes"
+quotes_len = "61"
+description = "the best 61 Kayvan Novak Quotes"
++++
+- Zayn is a cool name.
+- The second series of 'Fonejacker' almost killed me. It was incredibly intense.
+- My signature dish is a khoresht fesenjan. It's a stew with pomegranate and walnuts.
+- The biggest mistake you can make with a prank show is remove the 'real' element, which is the funniest thing.
+- I think I've exhausted all my options in the U.K., unless I become a game show host.
+- As an ethnic actor, I still feel I can't be in 'Downton Abbey' or in period dramas.
+- Of course being in movies is very exciting, and it's a wonderful thing for an actor to do.
+- Thank God for my imagination. For my abilities to mimic.
+- From 'Fonejacker,' multiculturalism has been a big part of my repertoire.
+- I was born in London! I'm as Western as you get.
+- Doing a series of 'Facejacker' takes about nine months. It's pretty intense.
+- Stanley Tucci is a classy actor, and Ian Holm is very short but equally classy - and both are also amazing.
+- You don't read many positive things about Iran in the press, which is depressing, but when I go back to my grandparents' house in the hills, and I'm sitting by the pool, sipping a bootleg Turkish beer, watching a pirate DVD, eating my grandma's cooking... you realise there is a real bridge between politics and country and people.
+- Why did Barry Humphries play Dame Edna for so many years? Why is Steve Coogan still doing Alan Partridge? Because there are just one or two characters they love doing. I'm lucky enough to have six that I'm crazy about.
+- Paul Verhoeven is one of my favourite directors. I love his ability to mash extreme violence with humour and satire.
+- I just want to keep doing my comedy work because that's what I do. I made a name for myself playing other characters.
+- I'm Iranian, which means I feel that I have more right to take off other races and religions, being an 'ethnic' myself. But it's a mythical character, the Fonejacker, and it's all tongue in cheek.
+- My nickname at school was Caveman. When I tell people my name is Kayvan, some insist on going 'Caveman?'
+- Years ago, I was watching a debate on Fox News, when I thought, 'These guys are basically like pranksters, they bring the people in and wind them up.' I was like, 'That's what I do!'
+- I had a niche. And my niche was that I was brown. So it's like, 'Great, I get to go up for all these 'brown parts.'' I call them 'brown parts' because that's what they are. That's not to be resentful, because I loved playing those parts - I got to meet so many cool actors.
+- I miss watching TV and thinking they were all real. I used to feel like that about 'Neighbours.'
+- My pranks have never been about getting a negative reaction. They've always been a tolerance test for the person I'm engaging with.
+- When I do an impression of someone or when I am pretending to be someone else, something freaky happens: I feel the person I am mimicking behind my eyeballs. Their head is sitting perfectly inside mine, helping me project a false self out on to the world. And it's not always a choice.
+- I tick that cliched box of being the class clown. I've always done impressions and characters, so I'm very lucky that I get to do that as a career now.
+- I had to fool the world into accepting me. I didn't seem to fit the mould of my idols.
+- I want to be James Bond! I don't want to be Doctor Who.
+- My characters are much more famous than I am, so I don't crave attention; I just crave working and doing good work. Having a feeling of self-worth.
+- The more channels putting money into quality programming the better.
+- I enjoyed school until the age of 13 - I loved my teachers, my friends. Then, suddenly, you get thrown into a boys' school, and the ecosystem changed, and I wasn't sure where I fitted in. I was still always the clown, but I wasn't inspired, I guess.
+- I put my parents through mini hell with my laziness and poor grades, so I love making them laugh when they see me on television. When I work, I'm always thinking, 'Would my mother find this funny?' The belly-laugh jokes will hit her every time.
+- I have been 'absorbing' people - their voices, their mannerisms - all my life, to the point where I am a sort of Frankenstein of different people. My own speaking voice is, in fact, a mixture of how my two best mates speak, because they are cool, and I am not.
+- I don't worry about offending people - I think most people are a lot more robust than some other people give them credit for.
+- My first love is doing my own comedy stuff.
+- 'MasterChef' is pretty good.
+- I've never sat down and written jokes. I wouldn't know how to.
+- Being funny was something I was doing before I understood what that even was. Now I'm making a career out of it.
+- I'm good at winding up British people, but Americans are slightly different. A lot of them are more stoical. They're harder to get a reaction out of more of the time.
+- I'm quite lucky, really: I don't get recognised too much.
+- Just acting on someone else's set feels like a holiday, almost.
+- Generating comic material can sometimes get the better of you.
+- When I wind someone up, it's never to make them feel angry or aggressive; that doesn't make good telly. It's about uncovering a layer of themselves that is kind of sweet and nice.
+- There's a really geeky YouTube channel which I love. It's a guy called Oliver Harper. He makes documentaries about films. He's a real movie buff - there's loads of trivia and detail.
+- What I would say about the Trump travel ban is there goes my Hollywood career!
+- Getting expelled from secondary school and going to a more arty-farty college gave me the incentive to perform and opened some doors.
+- I think it's always difficult to get a show on telly, whether you're George Clooney or just starting out. But there's room. If you're into it, chase it. You'll get it.
+- I think a lot of comedians are desperate to show their serious side, but I got that off my chest early on in my career.
+- I've got to follow in the footsteps of Sacha Baron Cohen and do a prank show, or a film with real elements to it.
+- Character building is one of my favourite things to do.
+- When I was 18 years old, I had a Saturday job working in a clothing store on London's Bond Street. I would fold T-shirts for ten hours at a time and get paid £19 for the privilege.
+- I'm the guy that can play all the different races and get away with it.
+- I look at my early career, and you know, when I left drama school, for a young Asian actor, you could either play a doctor on 'Holby City,' or you could play a terrorist in 'Spooks' and get to wear a nice shiny suit.
+- I was born in London. In a lot of ways I'm English, but I have this Iranianness, this culture instilled by my parents, by my family.
+- I want to do a 'Facejacker' film. I want to explore the characters more, maybe do a Terry Tibbs chat show.
+- When a son tells a dad to trust him, it goes against every instinct in his body to do so.
+- I can't really walk down the street as Brian Badonde without someone going, 'Bwark.'
+- My dad was quite political in the Seventies. He has a definite opinion about politics and things going on in the world.
+- People say they don't want to call a call-centre in India. Why not? They're doing the same job - you just don't like Indians.
+- 'Cuban Fury' was a big production for a first time director to handle: I think it is very easy to become very stressful and for it to get the better of you.
+- I would very much like to direct, star, perform, and just be a general auteur.
+- Comedy is in my bones.
+- I met the Gallagher brothers, and Noel was quoting my 'Fonejacker' catchphrases. Hearing your heroes quote you is incredible.

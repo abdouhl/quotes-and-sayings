@@ -1,0 +1,36 @@
++++
+author = "Neil Macgregor"
+title = "Neil Macgregor Quotes"
+quotes_len = "30"
+description = "the best 30 Neil Macgregor Quotes"
++++
+- In a very literal way, of course, Shakespeare did change the course of history: when it didn't fit the plot he had in mind, he simply rewrote it. His English histories play fast and loose with chronology and fact to achieve the desired dramatic effect, re-ordering history even as it was then understood.
+- A collection that embraces the whole world allows you to consider the whole world. That is what an institution such as the British Museum is for.
+- London theatre is different: it is a commercial theatre that brings the whole of society into one place. And Shakespeare grasped, better than anyone else, what it means to engage the entire audience.
+- Creation stories, so central in the religions of the Middle East, play a surprisingly marginal part in Greek myth. The Greeks had nothing to set alongside the resounding 'In the beginning' in the book of Genesis, where one eternal God creates the universe out of nothing.
+- For the Greeks, there was no single canonical version of creation, but a number of overlapping stories.
+- The spread of Viking bling is a good indication of the spread of its culture.
+- Because of the long, long history of British shipping, immigration, trade, empire, missionaries, you can have a better shot at telling a worldwide story in the British Museum's collection than any other. Britain has been more connected with the rest of the world than any other country, for longer.
+- In 1600, when Shakespeare's audience at the Globe heard 'Hamlet' for the first time, every one of them knew very well what it meant to be handed a cup of wine by a figure of authority and told to drink.
+- The things we make have one supreme quality - they live longer than us. We perish, they survive; we have one life, they have many lives, and in each life they can mean different things. Which means that, while we all have one biography, they have many.
+- The collapse of the Tower of Babel is perhaps the central urban myth. It is certainly the most disquieting. In Babylon, the great city that fascinated and horrified the Biblical writers, people of different races and languages, drawn together in pursuit of wealth, tried for the first time to live together - and failed.
+- The distinction between a gallery and a museum is enormous. The gallery is about looking at a thing of beauty; the purpose of the activity is an aesthetic response. The museum is actually about the object that lets you get into somebody else's life.
+- Objects let you tell a narrative that encompasses everybody. Texts don't.
+- Our collective memories are welcoming places, and one image, that of Jesus, has absorbed and appropriated elements of other traditions and aspirations in order to shape our communal remembering.
+- The focus in the Western pictorial tradition is on the body of Christ, the bit you can paint, the Nativity and the infancy, but above all the Passion, where you can find images for every stage and every moment.
+- For many, the icon of the British Museum is the Rosetta Stone, that administrative by-product of the Greek imperial adventure in Africa.
+- Thanks to the unprecedented reach of British navigation, London in the early 18th century was not just the emporium of the world, it was the first place in which it was possible to assemble artifacts from around the world and allow people to study them.
+- Prometheus - trickster, rebel and hero - links the realm of the gods with the world of humanity, with which he had such close affinity. His act of stealing fire has been viewed as the foundation of all man's technologies.
+- If you are born in 1564, your dislocation from your parents' experience is very profound. You are the first generation who will have had all your religious experience in English, the first to have a countryman circumnavigate the globe. All the power and economic structures of the world are changing around you.
+- It is a standing source of astonishment and amusement to visitors that the British Museum has so few British things in it: that it is a museum about the world as seen from Britain rather than a history focused on these islands.
+- The deciphering of ancient scripts changed forever the way Europeans were able to imagine the story of humanity, destroying centuries of received authority about the past with repercussions as important for our understanding of time and history as the geological studies of the same period.
+- The Louvre stopped buying paintings in 1848, and neither the Metropolitan nor the Hermitage acquire contemporary material.
+- While there are few records of Viking women participating in battle, they certainly held positions of high status in society as human sorceresses known as 'volvas.'
+- As the Persians wrote very little about how they ran their affairs, the Greek propaganda of the 5th century B.C. has for centuries gone virtually unchallenged - indeed, for Edward Said, it was the beginning of Europe's long habit of misunderstanding and ill-informed contempt of the Middle East.
+- There's the constant concern with what happens to you when you die. Every society thinks about that and makes things to deal with that.
+- There is not much we can say with absolute confidence about the early church, but we can be fairly sure that the first Christians would not have dreamed of making a likeness of Jesus.
+- Hardest of all for Europeans to negotiate are traditional African religions, whose transactions with unseen powers are central to the running of life in many areas, the main weapon in the struggle against the forces of evil.
+- I feel I understand now why, whenever there are revolutions, Shakespeare is what people turn to. Because whenever a society is on the cusp, about to become something else, they find themselves in Shakespeare.
+- The British Museum was founded with a civic purpose: to allow the citizen, through reasoned inquiry and comparison, to resist the certainties that endanger free society and are still among the greatest threats to our liberty.
+- Saddam Hussein was fascinated by ancient Babylon and Assyria. He made money available to protect and develop the great archaeological sites. The great achievements of Mesopotamian civilisation were pressed into the service of the Ba'athist regime.
+- Google the name Prometheus, and see how often it has been given to innovations in many different fields, notably science, medicine and space exploration. The fire he stole can be seen, too, as the spark generating all artistic creativity.

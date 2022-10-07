@@ -1,0 +1,16 @@
++++
+author = "Trish Goff"
+title = "Trish Goff Quotes"
+quotes_len = "10"
+description = "the best 10 Trish Goff Quotes"
++++
+- The horrible thing is, as a model, it wasn't that unusual to be in a weird situation where a photographer or someone feels they have a right to your body.
+- The bubble bowl! Yes, that made my career, and I should be grateful. I was stomping my feet when Garren was giving me that haircut. It's hard to say to a 17-year-old girl in 1993 that a bowl haircut was cool.
+- Modeling will slow down no matter who you are.
+- Modeling wasn't necessarily what I was into. It's something that you're genetically qualified to do.
+- Having come from a working-class family in the rural South, the fashion industry opened my eyes to culture, arts, and the world.
+- When I started modeling at 15, there were no provisions for on-set tutors, and so I dropped out of school. Although I was one of the lucky ones who went on to a successful career as a model, as a child I should never have been forced to make that choice - between modeling and education.
+- When I started making money, I immediately began buying property and fixing it up. I was always searching for the next neighborhood. The first place I bought when I was 19. I found a huge loft on the Lower East Side, almost 3,500 square feet. I did it up, turned it over, and sold it.
+- Being able to walk in a room with people you don't know and be comfortable - I'm very used to that.
+- American 'Vogue' and the Versace campaign by Richard Avedon were huge for me. It put me on the map.
+- When I started modeling, all I really wanted to get was a Shabby Chic couch.

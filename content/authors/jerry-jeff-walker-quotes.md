@@ -1,0 +1,23 @@
++++
+author = "Jerry Jeff Walker"
+title = "Jerry Jeff Walker Quotes"
+quotes_len = "17"
+description = "the best 17 Jerry Jeff Walker Quotes"
++++
+- I'm a Texan. Some of me is still nestled up there in the Catskill Mountains: the summers I spent with my grandfather on the farm and the guys I played basketball with in high school. But then that was it.
+- New Yorkers have their own way of speaking, their own tempo, and Texans are a lot like that. As much as you think Texas is one thing and New York is another, they're very much the same.
+- There seems to be a great propensity in this business to write tear-jerkers, 'You-left-me' songs. I thought, 'Why don't I count my blessings by looking at what I have?' I'm pretty much an optimistic guy.
+- Nashville is the business center. They forget that the bottom line of it all is still the song.
+- Taking over our own business and running it ourselves has tied us even more to our fans.
+- Our audience is really upbeat. Likes to have a good time. They're not introverted or shy.
+- In the '80s I started running, staying in shape.
+- A lot of Texans go up to New York and stay there forever. If there are any two places with more individual characters, I don't know them.
+- I don't try to write songs that will further my career. I write about things that I care about. I don't have a career as much as I'm having an adventure with a guitar. I never liked the business way of doing it. You have to follow some sort of instinct.
+- In the '60s, I thought golf was bourgeois, so I didn't play at all for 20 years.
+- Texas is where I found my musical self.
+- I always liked having a good time. I got into this business because I got fired from any job I ever had because I stayed out late playing music.
+- You have to figure out ways to do things on your own. I do my own thing, and I don't pay much attention to what anyone else is doing.
+- Well, we play Country music; we're just not sure what country it is.
+- I think it's real easy to be famous these days; it's not real easy to sustain success.
+- 'Gonzo' means taking an unknown thing to an unknown place for a known purpose. But sometimes we're lost in an unknown place for no known purpose.
+- The only way to know how much is enough, is to do too much, and then back up.

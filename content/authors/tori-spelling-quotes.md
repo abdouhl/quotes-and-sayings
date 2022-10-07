@@ -1,0 +1,68 @@
++++
+author = "Tori Spelling"
+title = "Tori Spelling Quotes"
+quotes_len = "62"
+description = "the best 62 Tori Spelling Quotes"
++++
+- I know most people always thank people for believing in them - I actually want to thank people that didn't believe in me.
+- My mother is who she is. I've become who I am. At some point I realized those two just didn't go together.
+- I thought that once we were out of the baby stage, parenting would be a breeze.
+- I want to be a mom who listens.
+- I love my mother.
+- My whole life story is kind of a backhanded compliment.
+- Little boys are a ton of fun.
+- It was, you know, probably 80 degrees out in L.A., and my dad took me outside and there was snow. At the time, I thought, 'Every kid doesn't have snow in their backyard on Christmas?'
+- I'm never as happy as when I'm pregnant. I literally would have 10 babies if I could!
+- I want to be a positive role-model for my daughter. The last thing I want to put out there is that it's acceptable to be too thin or have an eating disorder because you're in Hollywood.
+- Sometimes I do envision just being a stay at home mom but not working isn't an option for me currently.
+- I'm scared of screwing up my kids.
+- People are always saying that Hollywood messes up kids. I'm like, 'No, families mess up kids!' I grew up in Hollywood, and I'm perfectly fine. If my children want to go into the entertainment business, I won't stop them, as long as they're passionate about it.
+- Audiences could never relate to me as anything other than Tori Spelling.
+- I often refer to myself as a gay man and all my friends are gay and I would like nothing more than for them to be able to be married.
+- I never care about myself out in public when I get the paparazzi swarming me.
+- Sometimes, when I'm alone, I put on six inch heels and wear nothing else and dance around in front of the mirror and do my little stripper dance.
+- With two kids it's hard to find down time to write so I often write during their nap time.
+- I just wanna thank all those amazing Internet bloggers out there that hate me day-to-day. I love you! You rock!
+- There are days when I struggle with wanting to be a full-time, stay-at-home mom, and feeling guilty about that because I work.
+- I love my mom. My mom loves me. We don't have an easy relationship. I don't think we ever will, but I'd rather have a complicated, misunderstood relationship than have no relationship at all.
+- I love crafting and cooking, doing all of that.
+- During my first pregnancy, I spent a lot of time worrying about how big I was getting and how I would lose it afterwards.
+- I love drag queens and they love me.
+- I'm lucky that I have such a hands on husband.
+- It's always when you think that you've lost a little of the baby weight that someone steps in grabs a handful of a now sans baby soft belly and asks the inevitable 'When are you due?'
+- I'm all for same-sex marriage.
+- My reality is the misconceptions about me.
+- I am proud of my kids, but I also want to make my mom proud of me. I'm still a momma's girl at the heart of the situation.
+- I want to be a cool mom.
+- Love is pure and true; love knows no gender.
+- I want to be a loving mom.
+- I need to work to support my family.
+- If I ever had the time to take on another job, being a party planner would be high on my list.
+- Everyone has their preferred stroller, their preferred crib, their preferred Moses basket. And they have advice on that too!
+- I would eat healthy at times and pig out at times. But I never had to go on a strict diet plan.
+- I am bundle of nerves riddled with irrational fears.
+- I'm not happy not doing anything. When positive things are rolling in, you've got to take them when you can get them.
+- I was always cast doing something athletic. I can't do a cartwheel.
+- I'm eating healthy, I just have a crazy lifestyle.
+- I've had the two procedures that probably every other woman in Hollywood has had done.
+- I look at Liv Tyler and think 'It's not fair', because I can't find a flaw on her. And on top of that she seems nice, so it's really not fair.
+- Bad shopping habits die hard.
+- I wasn't truly comfortable with myself until I was about 30. I spent so much time and energy wondering if I wasn't worthy, and trying to find people to validate me, instead of validating myself.
+- I just want to have a great relationship with my child and have a great family dynamic.
+- My kids will grow up in a house knowing that it's perfectly normal for two men to be in love, it's perfectly normal for two women to be in love. My kids will grow up knowing it's all about love. It doesn't matter who you're with and everyone should have that experience.
+- It would be pretty funny to see a Beverly Hills white girl with mad rap skills.
+- We are a very crafty family.
+- I love sharing my stories and experiences with people and connecting to them on both a humorous and emotional level.
+- Oh my God, I'm not anorexic. I acknowledge that I look thin in photos. I get it.
+- I make lots of casseroles that have protein, veggies, carbs and good fats all together.
+- I feel like the second child feels like they have to do everything faster.
+- You know, you only get one family, and you have to make it work.
+- I've been a target my entire life. At this point, there's nothing anyone can say that will faze me. Bring it on!
+- I do have odd habits. I check under my bed every night for the bogeyman. That's just a little thing, though.
+- I am now officially ordained. Yep, that's right - Reverend Tori Spelling!
+- I am a huge fan of gays. They love me, and I love them. They think of me as sort of a gay icon.
+- After I had my kids, I realized it's pretty much all about instinct - you have to do what's right for you. Everyone has an opinion, but it was all about what you do or don't do. I was so overloaded, so I let my children dictate the way things were supposed to go, and things fell into place.
+- I never thought I'd have a daughter.
+- Whenever something happens that makes me laugh or if I remember something in the middle of the night that I want to share, I jot the experience down.
+- I'm so blessed to have as many jobs that I have, but I do agree that there needs to be some downtime.
+- In all honesty, I grew up a certain way. I never had to worry about money... that was my reality.

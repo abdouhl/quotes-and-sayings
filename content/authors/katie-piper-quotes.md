@@ -1,0 +1,97 @@
++++
+author = "Katie Piper"
+title = "Katie Piper Quotes"
+quotes_len = "91"
+description = "the best 91 Katie Piper Quotes"
++++
+- There was a time when I'd resigned myself to never having my own family, so to fall pregnant with Belle was overwhelming.
+- I am so much more than what happened to me. I'm a mother and a businesswoman; I run a charity that supports others overcoming adversity; and, most importantly, I'm happy.
+- When you're on you're way into work, hit up the WhatsApp, find out what people want, and bring in a real coffee for everyone. Trust me when I say they will all really appreciate it.
+- If I'm not blessed with children of my own then I'd like to adopt one day - possibly a child from Pakistan.
+- My perfect night in would be lots of bad food like biscuits and chocolate, and possibly an ice cold fizzy drink.
+- I meet many inspiring individuals who have worked hard to rebuild their lives after an attack; however, it can be hard to stay motivated when the justice system does not always reflect the severity of these crimes.
+- I don't think many people stare at people in wheelchairs because we see it regularly. I suppose if you see more in the media it will take away the curiosity.
+- I was quite lonely because I didn't have a boyfriend or many friends, so I started spending my weekends doing races. Then I progressed to a half-marathon and I actually enjoyed it!
+- There's nothing worse than saying the past is in the past, then dragging it into your kid's life.
+- None of my ambitions were serious as a girl. One week I wanted to be a lawyer, the next a binman.
+- It's true that looks do matter, but they won't give you a long, successful career or a happy marriage.
+- I enjoy social media, but I don't take it as gospel. Yes, it can make me feel insecure if I see my peers doing more than me. You have to remind yourself it's a marketing tool, a facade, but that's easier when you are older.
+- If I'm feeling down or depressed, working up a sweat will make me feel like I can really do this - that, in fact, I can do anything. It's like a therapy for me.
+- It shouldn't be down to charities to be the sole help for those who fall through the cracks.
+- I see it as someone who's been burned doesn't have to be put in this box where they can't be glamorous - I try and live that vision all the time and push those stereotypes away. That's all you can do.
+- I have managed to conquer my fear of fire one fish at a time. I've gone from eating sushi to prawns, to baking sea bass fillets.
+- Not a day goes past when I don't think how grateful I am I survived, that I recovered and that I feel like a young woman again.
+- There are so many things that can happen to us in life where you think, 'I can't cope. I can't deal with it,' but you probably can.
+- At 24 I was a wannabe. I was not a 'former TV presenter' as everybody says - I was a young girl living on a wish, appearing on the roulette channel at 1 am and selling cordless kettles on Channel 953.
+- What is kindness? For me, it is about treating people how you would want to be treated – but, with so many of us living out our lives on social media, it can be harder and harder to show compassion to those around us.
+- I was the victim of a violent attack in March 2008. I had sulphuric acid thrown in my face and was severely injured leaving me with loss of site in my eye and full thickness burns on my neck, chest, face and hands.
+- I know how hard it is to be bullied about a part of yourself that you can't change, or just because of who you are. It can turn you into an angry and bitter person.
+- The main reason I started The Katie Piper Foundation was because I had treatment abroad that I wanted other burns survivors in this country to have access to.
+- My life is written about as though I've had this idyllic ending. But a marriage is something you have to work at.
+- You are always bigger than the problem, the problem can never be bigger than you.
+- Writing my first book, 'Beautiful,' was the time that I was able to write the truth of it - that I was despairing at times, that I got depressed and felt like I couldn't cope. Writing became about being honest.
+- It's one thing for your mum to tell you that you look OK, but she's your mum and she has to tell you you're beautiful. It's not the same as a stranger telling you.
+- I don't want to be an ambassador for too many charities, because it's a far stronger message to be a person with a disfigurement going about their life doing everyday things.
+- Another good rule for social media, I find, is to never type and post. Instead, be sure to type, pause, think, and then post.
+- I don't have to pretend to be someone I'm not and I think talking so openly about my story gave me acceptance that it's ok to be me.
+- I had such a nurturing team of midwives looking after me with my first little girl, and their support gave me so much confidence as a mother.
+- My biggest hope for the future is that we're successful in delivering the treatment to people through the charity and that burns just become something that happens in people's lives but doesn't make them a misfit in society and exclude them and stop all their dreams and ambitions.
+- The trial of Olympic athlete Oscar Pistorius has kept me fascinated and shocked in equal measure. But like many women, I was relieved this week when he was found guilty of culpable homicide after killing his girlfriend Reeva Steenkamp.
+- At home around my husband, I totally forget I'm burnt and how I look.
+- Of course, I'd like to fall in love and get married one day - my brother has just got engaged and I'm thrilled for him - but I'm not obsessing about meeting someone.
+- I would encourage anyone to keep a pad of post-it notes by their bed and write down small, achievable goals and celebrate those successes and that will give you confidence to create bigger ones and achieve them.
+- I've had lots of opportunities to do things I'm passionate about and the things I care about and I feel that I can live in a world that doesn't really accept people that are different happily.
+- The important things for me are stability, consistency and love, and I have that through my family, so that's a great place to be.
+- Since the attack I have undergone over 250 operations to improve my physical functioning.
+- I have been the beneficiary of donations in the form of human tissue and of a cornea which gave me sight when otherwise I would have none.
+- I never watch anything live, I record all my programmes and have a real binge on a Friday night and watch them all.
+- I have learnt from Simon Cowell that anything is possible if you work hard enough and also that acts of kindness or giving somebody a few minutes of your time can have a massive impact on their life and their future.
+- I've got a shadow on the lung as a result of being in intensive care, so I find running quite hard. I breathe mainly through my mouth because my nose is damaged, so I keep swallowing flies.
+- If I'm thinking or feeling something, I have to record it somewhere. If I don't, I worry the thought will be lost and I'll never get it back again. I never self-edit and I don't write in one place or in a special book.
+- I've come to the conclusion that we're all responsible for our own happiness and the happiness in your life depends on the quality of your thoughts. I'm a big believer in positive thinking.
+- My younger self wouldn't recognise me at all. She would think I was quite serious, organised and practical, but I've had to be to run the foundation.
+- I think the loveliest time in our house is probably a Sunday, because usually I don't work, my husband doesn't work, Belle's at home and we're all together enjoying each other's company.
+- I still have difficult days when I lose hours to anxiety, feeling my throat swell and my mind race with paranoid thoughts. But - thanks in part to ongoing therapy - they're happening less and less.
+- It makes me very happy that people's perceptions of what's beautiful and attractive are gradually changing.
+- There were times after the accident when I felt very lonely - burns survivors can feel terrible isolation. I wanted to create something that connects us all together, so that was the idea behind the Katie Piper Foundation.
+- I like to tell myself people look at me for all sorts of reasons. Maybe they're staring because they're shocked or maybe they recognise me from TV, or maybe they just like my shoes - especially women, because we all look at each other's clothes and hair.
+- I don't want people to feel sorry for me or pity me - I want people to know that what got me through was human spirit and everyone has that in them.
+- I really cherish my family life, because at one point I never thought I'd have it.
+- I think the most hectic time in my house is about six o'clock in the morning, our sausage dog starts howling and barking and scratching to wake us all up - no alarms needed.
+- I'm so lucky that I've always been able to laugh about things, even at my very lowest times.
+- Try to remember that every action you take in life will have a consequence and a reaction for other people, and that it's the same on social.
+- My book 'Things Get Better' has normalised the idea that it's OK to fail and it's OK to seek professional help from psychologists.
+- I don't have the answer to finding the balance because I think, well, maybe successful people don't switch off.
+- My dad and sister are vegetarian and I was brought up as one, but I ate a bit of fish and meat. After the attack my oesophagus melted and I had to have plastic stents put into my throat to rebuild it, so I couldn't swallow and I was fed via a high-calorie drip through my stomach.
+- Before I was attacked, I would write about the future - just goals, lists and plans. I'd scribble without depth or substance about the things I wanted to do with my life, whether short or long-term, and how I thought my future would be: a successful career in TV and modelling, marriage, a family.
+- What we put in our bodies can make us feel depressed or anxious, and it's the same for fitness, I think it all joins up in this big circle.
+- People always go on about me being an inspiration, which is nice. But it's an unrealistic pedestal to be put on. There are other people out there who have had things happen to them, not just me.
+- I did weightlifting and bodyweight-focused exercises such as chin-ups, pull-ups and press-ups with my personal trainer.
+- But if I go for a run somewhere, I feel the benefits of the endorphin release.
+- I was a torch carrier in the 2012 Paralympics and every time I thought 'I can't do this' I would look at the blade runners and the athletes and wheelchairs think, okay, I can run.
+- Once my sister was older, she and I would do lots of hobbies together. We took dance lessons and put on shows at home; tap dancing on the granite fireplace, which must have mortified my dad.
+- As well as being my doctor, Mohammad Jawad is so kind and caring and we have a father/daughter relationship. When I left hospital he found out about a revolutionary rehab centre in the south of France and spent his August bank holiday taking me there in 2008 to see it - such a happy time.
+- Everyone contacts me with the same questions: how can I be more confident? How can I get over my anxiety? And, without being preachy, I do believe that diet is so key.
+- It can be embarrassing paying someone a compliment, but, in the modern world, these don't even have to be done out loud. When you're scrolling in the morning on Instagram, don't just like someone's photo, but make a point of going into the comments section and write down one nice thing that you see or feel about that picture.
+- I've tried to stop reading comments online because if you believe everything, it makes you feel like rubbish.
+- I feel like I've lived two or three completely different lives. At 33, I'm quite reflective and have the perspective you get in your old age when you have been through the losses of life.
+- But like everyone else I've come to the sad realisation food banks are an all-too-common feature on the streets of Britain.
+- My feminist icon is Michelle Obama. To me she represents the definition of a strong and intelligent woman who has used her platform for so much good.
+- I always tell myself that nothing ever is worth holding onto if it hurt you, because the longer you hold onto anger and resentment, the longer you feed it and keep it alive.
+- I was living alone, so I'd get quite lonely and running became a way to combat my loneliness and de-stress.
+- I have an older brother and younger sister and for the first few years I was quite a tomboy. We lived in a small village in Hampshire and my brother and I would climb trees and make dens.
+- In March 2008, when I was 24 years old, a man I had been dating arranged for an accomplice to throw sulphuric acid in my face.
+- I was writing for myself, not to be published. I was writing diaries, even letters, to myself or to anyone I was angry at. Sometimes they weren't to a person, they were just to the universe - a bit like penning daydreams or isolated thoughts.
+- I will continue to need operations and therapy for life. For acid attack survivors, the aftermath is a life sentence.
+- The world is more competitive and social media drives this. It's woman against woman when it comes to appearance, possessions and friendship circles.
+- I'm self-sufficient, but it's brilliant to have people in your life that you love, who love you and are important to you.
+- I was standing in the street with people walking past me and I could feel my face evaporating. I thought I was on fire as the acid ate at my skin.
+- Have people like Kim Kardashian really fought their way to the top on their own? Or is that just the brand they want us to see. I don't buy it. I think we flourish by working together.
+- I enjoy looking good and love experimenting with my hair colour. I've just gone from blonde to brunette, and keep looking in the mirror and not recognising myself!
+- My biggest source of inspiration is my mum.
+- I am who I am and I don't pretend not to be single or burned. And men might not fancy me because I'm too short or too thin.
+- It's so easy to butt into a conversation and offer your own thoughts or opinions, but try not to interrupt. Instead, focus on what the other person is saying, think twice and be the person that listens. It's so much more valuable than constantly talking.
+- Always, always, always pass a good book along on to somebody else.
+- My recovery has been backwards, forwards, up and down - and still is.
+- But I like a challenge, anything I can't do it inspires me to learn it.
+- Anywhere, you're going to get people who are ignorant or rude but it's not the whole of society. I don't think my life is doomed because I look like this.

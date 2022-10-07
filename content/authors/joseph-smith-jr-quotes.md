@@ -1,0 +1,36 @@
++++
+author = "Joseph Smith, Jr."
+title = "Joseph Smith, Jr. Quotes"
+quotes_len = "30"
+description = "the best 30 Joseph Smith, Jr. Quotes"
++++
+- I told the brethren that the Book of Mormon was the most correct of any book on earth, and the keystone of our religion, and a man would get nearer to God by abiding by its precepts, than by any other book.
+- The greatest responsibility in this world that God has laid upon us is to seek after our dead.
+- No one can ever enter the celestial kingdom unless he is strictly honest.
+- Mormonism is the pure doctrine of Jesus Christ; of which I myself am not ashamed.
+- Truth is Mormonism. God is the author of it.
+- I could explain a hundred fold more than I ever have of the glories of the kingdoms manifested to me in the vision, were I permitted, and were the people prepared to receive them.
+- An angel of God never has wings.
+- We may come to Jesus and ask Him; He will know all about it; if He comes to a little child, he will adapt himself to the language and capacity of a little child.
+- If you do not accuse each other, God will not accuse you. If you have no accuser you will enter heaven. What many people call sin is not sin; I do many things to break down superstition, and I will break it down.
+- There is no such thing as immaterial matter. All spirit is matter, but is more fine or pure, and can only be discerned by purer eyes. We cannot see it, but when our bodies are purified, we shall see that it is all matter.
+- Take away the Book of Mormon and the revelations, and where is our religion? We have none.
+- If my life is of no value to my friends it is of none to myself.
+- All your losses will be made up to you in the resurrection, provided you continue faithful. By the vision of the Almighty I have seen it.
+- The best way to obtain truth and wisdom is not to ask from books, but to go to God in prayer, and obtain divine teaching.
+- If I revealed all that has been made known to me, scarcely a man on this stand would stay with me.' and 'Brethren, if I were to tell you all I know of the kingdom of God, I do know that you would rise up and kill me.
+- Salvation cannot come without revelation. Men of the present time testify of heaven and hell, and have never seen either; and I will say that no man knows these things without this.
+- If you will stay with the majority of the Twelve Apostles, and the records of the Church, you will never be led astray.
+- It is my meditation all the day, and more than my meat and drink, to know how I shall make the Saints of God comprehend the visions that roll like an overflowing surge before my mind.
+- Never be discouraged. If I were sunk in the lowest pits of Nova Scotia, with the Rocky Mountains piled on me, I would hang on, exercise faith, and keep up good courage, and I would come out on top.
+- One of the grand fundamental principles of Mormonism is to receive truth, let it come from whence it may.
+- Although I do wrong, I do not the wrongs that I am charged with doing; the wrong that I do is through the frailty of human nature, like other men. No man lives without fault.
+- I see no faults in the Church, and therefore let me be resurrected with the Saints, whether I ascend to heaven or descend to hell, or go to any other place. And if we go to hell, we will turn the devils out of doors and make a heaven of it.
+- Noah came before the flood. I have come before the fire.
+- A man filled with the love of God is not content with blessing his family alone, but ranges through the whole world, anxious to bless the whole human race.
+- In your hands or that of any other person, so much power would, no doubt, be dangerous. I am the only man in the world whom it would be safe to trust with it. Remember, I am a prophet!
+- What is the damnation of hell? To go with that society who have not obeyed His commands.
+- The secret of masonry is to keep a secret.
+- If I had not actually got into this work and been called of God, I would back out. But I cannot back out: I have no doubt of the truth.
+- I am not learned, but I have as good feelings as any man.
+- Every man who has a calling to minister to the inhabitants of the world was ordained to that very purpose in the Grand Council of heaven before this world was. I suppose I was ordained to this very office in that Grand Council.

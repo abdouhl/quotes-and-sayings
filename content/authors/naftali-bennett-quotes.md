@@ -1,0 +1,100 @@
++++
+author = "Naftali Bennett"
+title = "Naftali Bennett Quotes"
+quotes_len = "94"
+description = "the best 94 Naftali Bennett Quotes"
++++
+- I love the people of Israel. I love the land of Israel. I love the Torah of Israel. I love the Israel Defense Forces. I love our soldiers. If you feel the same way I do, you have a home.
+- Israel is not the safest place in the world for Jews. Melbourne in Australia is better. Teaneck, New Jersey, is safer.
+- I myself am a former commando fighter.
+- The West has demonstrated its ability in the past to project power and move troops to distant regions.
+- The reality is, if you were fortunate to be born to rich parents, you have a better chance of succeeding in life. And that's wrong.
+- The Land of Israel goes with the Torah of Israel under the sovereignty of the State of Israel.
+- I am often in contact with the hareidi public and politicians.
+- I don't believe in regime change, certainly not in the Middle East.
+- Israel never targets civilians deliberately, period.
+- I'm not going to tell the Palestinians how to arrange themselves. If they want to have their own entity and their own parliament as they do today, that's fine. If they want to connect to Jordan, which has a very big Palestinian population, and vote in the Jordanian government, that's fine.
+- In my previous career as a chief executive of high-tech companies, I experienced firsthand the endless possibilities when people from diverse backgrounds work together. They get to know one another and quickly learn that they share more in common than they originally thought.
+- No one wants peace more than me.
+- Conscientious objection is an intrinsic part of being a soldier.
+- I have one identity, and that's Israeli and Jewish. I don't view myself as an American citizen.
+- There is no one single solution to eradicate phishing.
+- Europe is especially vulnerable to terrorists who may hide among the refugees pouring across its borders.
+- Judaism doesn't recognize gay marriage, just as we don't recognize milk and meat together as kosher, and nothing will change it... I'm not a hypocrite; I state my positions.
+- I opened about a dozen employment centers for Arab women across Israel during my two years as minister of economy.
+- Jews have been living in Jerusalem way before British people were living in London.
+- It often takes time for the Israeli government to get things done.
+- Judea and Samaria can be a place of refuge for the nation.
+- You cannot force a state to be demilitarized. Even if a state enters a treaty where it commits to be demilitarized, there's no way to reverse statehood if it violates it.
+- No country in the world is going to recognize that Ariel and Maaleh Adumim and Beit El are a sovereign part of Israel.
+- Can you imagine what will happen to the global economy if Iran comes out with a nuclear weapon? The whole area will enter a nuclear race - Saudi Arabia, Turkey.
+- Historically, the National Religious Party, which my party - Jewish Home - is built upon, has aligned itself in consecutive Israeli governments with the ultra-Orthodox factions.
+- Factually, the Temple Mount is the precise location of the Temple. It's the holiest place in the world for Jews. It's the third holiest place for Muslims. And we need to respect each others' rights, freedom of religion.
+- The State of Israel must be at the forefront of global science - in physics, in mathematics, in medicine, in biology.
+- Israel will not divide its land. We're already too small.
+- I spent most of my career in hi tech, not in politics.
+- The Israeli public is frustrated with the way it is portrayed abroad.
+- When you negotiate with terrorists, you get more terror.
+- If you truly believe in a united Jerusalem, deeds have to be more than words. We need a real united Jerusalem. It takes determination, audacity, and money to provide full services and law enforcement in the entire city.
+- There's 2 million Palestinians that govern themselves. They have their own parliament, their own government, their own elections, their own tax system. I don't want to govern the Palestinians; no one does. They already govern themselves.
+- I think people appreciate honesty.
+- I don't see any difference between Judea and Samaria and the rest of the country.
+- We must continue building in all corners of the Land of Israel, with determination and without being confused.
+- I would never take my children and place them next to missile launchers.
+- The whole Land of Israel is a single bloc. There are those who say we can build inside the settlement blocs, and others who say we may not be able to hold onto the towns outside the blocs. I have come to tell you what the Arabs already know - that the Land of Israel is one bloc.
+- I have not one shred of anger in my heart against Netanyahu or his wife.
+- Jews can build in New York, Moscow and Paris, but in our own land, we can't build? That's nuts.
+- Things are expensive, very expensive in Israel for many reasons. One of the reasons is our ports. It's a monopoly. They run very poorly. And we have ships that are stuck in the ocean for three or four days or a week, and all that cost is transferred to the products and the consumer.
+- If you want to conduct terror against Israelis, which is unacceptable, send fighters to do it. Don't send your women and children.
+- You can't be a conqueror in your own home.
+- Any deal that allows Iran to enrich uranium, which allows them to ultimately break out within a few months with a nuclear weapon, is a disaster for the world.
+- The biggest danger for any organism is to not identify that it's being threatened. I want to hope that people realize that the source of danger and risk in the Middle East is not the Israeli-Palestinian conflict but the deep radical Islamic vision of forming a global caliphate.
+- I want every Israeli child, secular and religious, to know about Moses, about Maimonides, about Yoni Netanyahu, about Hannah Senesh and S. Y. Agnon. I want every child to know how to read the Bible, and know how to make Kiddush.
+- You can't build a society without law.
+- Israel is the vanguard of the free world against the Islamic terrorism of ISIS, Hezbollah, Hamas, and Iran.
+- I know that 'boots on the ground' is a scary phrase and that the Western world has gotten used to sterile attacks.
+- You don't talk to terror organizations!
+- What I'm working is for peace on ground between Israelis and Palestinians through business, through economy, through quality of life.
+- Israel now has a reputation around the world of being not just a place to develop products and technology but to develop ideas.
+- I very much admire Uri Ariel. I think he's a man of principles, and effective, and I love him.
+- The Palestinian Authority has become the biggest terror body in the world.
+- If you want to change things, it requires bravery.
+- I think Gadi Eizenkot is a very good commander.
+- I state in no uncertain terms: An order to uproot an Arab village or a Jewish settlement violates the most basic of human rights... It's a difficult dilemma.
+- The Israeli government has already established a fund to encourage young Arab women, specifically from the Bedouin community, to study engineering. We are funding their university studies and providing them with mentors who assist them with their studies and the job placement process.
+- I want to do good for Israel. My philosophy is let's do good stuff, and let's see what happens. And que sera, sera.
+- I want the world to understand that a Palestinian state means no Israeli state. That's the equation.
+- It's no secret that I wear a kippa.
+- In the Middle East, we don't have the luxury to indulge in fantasy.
+- Hamas has effectively kidnapped Gaza. Instead of turning it into the Singapore of the Middle East that was promised, they have turned it into a fortress of terror.
+- Israel, contrary to most of the West, has a high fertility rate, so there's a lot of young people in Israel. Most families have three kids as opposed to one or two, so a big proportion of the population is under 30.
+- I'm vehemently against population transfer. I'm against expelling anyone from his house, ever - whether it be a Jew or an Arab.
+- There will not be a billion-shekel cut to education on my watch.
+- Netanyahu's raison d'etre is to save Israel from Iran. That is it. That is his mission in the most profound sense. I have seen it up close.
+- People think that Israelis are mean, evil people who only want to hurt Arabs all day.
+- You don't start shooting rockets at Israel and expect that we'll just sit back supinely and die.
+- There's been a significant amount of Israelis who are joining my party because they think that Israel has to have a tough stance in this crazy environment called the Middle East.
+- For Israel to retain its amazing position as the largest concentration of high tech after Silicon Valley, we need more engineers and mathematicians. We have too many lawyers.
+- We know that 99.9% of Arab-Israelis are loyal to Israel.
+- Haredi youth are smart, and they are going to bring a big benefit to the high-tech industry.
+- Let's be honest: discrimination against Arabs exists in Israel.
+- Not everything can be solved quickly.
+- The term 'demilitarized Palestinian state' is an oxymoron.
+- In a perfect world, there would be freedom of religion and freedom for all religions to exercise their religion everywhere.
+- Sooner or later, Israel will have to defeat Hamas. There is no way around it.
+- I'm not prepared to give up the truth for popularity.
+- As soldiers in Israel's army, one of the most grueling training regimens we had to endure was a long march while carrying a comrade on a stretcher.
+- We need to do everything possible to save the Jewish state. We don't have another Jewish state.
+- Europe, the U.S., and their allies can defeat the terrorists of Islamic State, or ISIS. The first step is making the decision to fight back. The next step is understanding that drones and standoff missiles will not be enough. Ground troops will be needed.
+- It's totally viable to envisage a million Jews living in Judea and Samaria.
+- Israel is not Vegas, and it will not be.
+- I myself have felt the wrath of the media, but that's part of what a good democracy is.
+- I am proud of religious Zionism. I am proud of the members of religious Zionism because it is a true ideological public.
+- Israel is stronger than all those who curse it.
+- I come from the hi-tech world - you don't survive if you don't constantly reinvent yourself every few years.
+- There are roughly 22,000 Palestinians working side by side with what you call settlers in factories and malls in the West Bank. If you work together, you start understanding each other.
+- The prime minister is not a private individual, but the leader of the Jewish State and the Jewish world as a whole.
+- I'll remind you that the West signed a deal with North Korea, said it would make the world a safer place, and, of course, all the words evaporated, and North Korea acquired nuclear weapons.
+- Netanyahu supports - and he truly does support - building a Palestinian state within Israel.
+- There are no second chances in the volatile Middle East.
+- Iran doesn't need one centrifuge. Canada has nuclear energy. Spain has nuclear energy. Switzerland has nuclear energy, and they don't enrich uranium. You don't need to enrich uranium in order to use nuclear energy. You enrich uranium in order to produce a bomb.

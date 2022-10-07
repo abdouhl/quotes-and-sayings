@@ -1,0 +1,25 @@
++++
+author = "Jacquelyn Jablonski"
+title = "Jacquelyn Jablonski Quotes"
+quotes_len = "19"
+description = "the best 19 Jacquelyn Jablonski Quotes"
++++
+- When I was in Turks & Caicos, a bug jumped out of my room service menu. That kind of freaked me out.
+- Craig McDean was probably one of the first people I shot with. I shot with him for years with Tommy Hilfiger and a few other jobs. He's just so nice and just a super normal, funny guy.
+- My brother was diagnosed with autism at age 2. At the time, I was young, so I didn't really understand what it all meant. The doctors thought there was a possibility my brother wouldn't be able to speak - he was diagnosed on the severe end of the spectrum.
+- I like Pantene shampoo and conditioner because my hair is so straight, and I find it gives me a little lift.
+- Modeling was something I wanted to try from a really young age.
+- I love carrot cake - that's probably my favorite - and I'm obsessed with peanut butter. I eat anything with peanut butter - maybe not carrot cake with peanut butter - but, I think I got this from 'The Parent Trap': Oreos and peanut butter; I like that. And peanut butter and apples, peanut butter and chocolate.
+- Comfort is definitely important to me, especially when I'm running around.
+- As long as I'm not living out of a suitcase, I'm happy.
+- I was an athlete growing up. I did a lot of sports: soccer, basketball, so I was always so used to hardcore training, a lot of running. I got to a point where I felt like I just wanted to get toned; I didn't need to shed pounds, so now I do Pilates.
+- I remember hearing other models talk about going to castings for Givenchy, and I was like, 'What are they saying?' And then I realized and was like, 'Oh, the Give-in-chee one.' I had been calling it Give-in-chee the whole time. I was shocked.
+- I'm boyish with a feminine twist. I definitely gravitate toward oversized things like shirts and jackets. I like a good trouser, but then I might mix it up with something more feminine, like a pointy boot or pumps.
+- I do love editorials - you're free to do whatever you want and portray a different character.
+- Before I started modeling, I had never been out of the country, and now I feel like I'm out of the country at least a few times a month, if not once a week.
+- In the beginning, I thought it would be really glamorous, working in fashion. But it's actually quite hard. You don't even know half the stuff that goes on backstage.
+- I was always trying on clothes, always really into fashion, ever since probably kindergarten.
+- I also want to try acting - give it a shot - maybe take some lessons, I think that could be fun. I feel like that could even help me with modeling, because in a way you have to act.
+- No one from my town has ever become a model or an actor before.
+- I love Mexican food, and there's a really good restaurant called El Parador that I love.
+- I always love going to Paris, and now I feel like I know it really well.

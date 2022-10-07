@@ -1,0 +1,15 @@
++++
+author = "Tania Raymonde"
+title = "Tania Raymonde Quotes"
+quotes_len = "9"
+description = "the best 9 Tania Raymonde Quotes"
++++
+- I grew up on 'Lost.' I was 17 when I started, and I did it for four or five years, on and off.
+- I've always wanted to do action and action movies. I grew up on that.
+- I think 'The Walking Dead' is very interestingly paced. It's slow, almost like an old Western. It's also very stylised - visually, I think it's very pretty. It's more of a psychological drama than anything else.
+- People ask me, 'Is 3D a good medium for horror movies?' I think it's the perfect thing for horror movies because it really puts you into it.
+- The cool thing about working and meeting a lot of people through your acting is that you never know who you might work with, in the future.
+- I have a very high tolerance for gore and blood. I am, like, the perfect horror movie viewer because I do not get scared very easily. I can really stomach anything so, as a result, I have watched a lot of really disgusting stuff that I should probably never have seen.
+- I am a movie fan across the board, though, so if a movie is well done then I love it and it does not really matter what the genre is.
+- I am like the perfect horror movie viewer because I do not get scared very easily.
+- I would really like to do a straight action movie that's hardcore - heavy action, like 'The Expendables' or 'Fast Five.'

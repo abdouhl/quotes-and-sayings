@@ -1,0 +1,29 @@
++++
+author = "Jovan Adepo"
+title = "Jovan Adepo Quotes"
+quotes_len = "23"
+description = "the best 23 Jovan Adepo Quotes"
++++
+- I was raised in Maryland. My mom was born in London, and my dad was born in Chattanooga, Tennessee.
+- You may not understand your parents' interpretation of love and what they think is best for you, but you have to trust it.
+- For me, as an actor, it's always about getting out of my own way. I can put so much pressure on myself to keep up and make my director happy instead of being in the moment.
+- What happens off-screen definitely informs your performance on screen.
+- Denzel, one of the biggest stars in the world, comes into town, everybody knows about it, and they're ready. They got lawn chairs outside, sitting outside the gates when we're coming on set to work. They're always bringing food from their house to come feed you.
+- Denzel is the type of director that its more about working with him than working for him. He wants you to be thinking about everything.
+- I think, so often, people go quick to that nepotism: 'I should be OK; my cousin's a producer. I can get into the movie.' How about audition, earn the part, and feel confident in knowing that the director felt you were the right person for the job versus hiring you because you know somebody?
+- I want to have a lengthy career. I want to play interesting characters. I want to tell beautiful stories, complex stories, deep stories.
+- All young men can relate to that moment where they have to - or, rather, attempt to - stand up to their dads with their own ideas of what they want for their own lives.
+- I'd done plays in middle school, done some for the church in high school, but I had no intention of ever being a professional actor.
+- When you're younger, you're trying to understand and make sense of what your parents are trying to instill in you, which is ultimately life experience. I remember being 17 and my dad trying to teach me the importance of responsibility.
+- Denzel had made it apparent that he wanted me to bring my own interpretation of 'Cory'. I was definitely aware of Courtney B. Vance's performance in the original production, as well as that of Chris Chalk, who performed the role onstage with my cast back in 2010.
+- I've always been a fan of movies well before I got involved in the industry. The magic that it brings and being able to, I guess, escape your troubles, escape whatever is going on in life and getting to live in this moment and in the story and live in the lives of these characters.
+- I moved to California in 2011 to be a writer. A family friend told me to take acting classes so I could do commercials and actually make a little money.
+- The first time I mentioned publicly that I had known Viola for some time, many people took it like Viola got me the job in 'Fences'.
+- I felt that politics was one place where I could possibly have a career in arguing, debating, and getting to write papers. I almost considered working in law enforcement or something like that, but that didn't really last long.
+- When I first got to college, in my mind, I was going to end up playing professional football. When I tell people this story, they always end up laughing, and I chuckle about it at my own expense. I was a big fan of American football; I played in high school, and I ended up earning the opportunity to play in college.
+- I always felt that, when I saw Denzel or Viola do scenes in their past films or past projects, that if it's a heavy scene, and it's requiring a lot of emotional weight, that we would have nothing but silence and incense burning in between takes just to keep things quiet.
+- All I wanted to do was come into my own and find out my career path and what I wanted to do with my life - but, at the same time, showing respect to my father and mother and make them proud as well.
+- I'm drawn to opportunities that are going to challenge me and cause me to look outside of my own experiences.
+- My mom being raised in England, her father always wanted to pursue the arts and wanted to have a stage career in England. According to her, he never had the courage to actually pursue it full-time. I think that my grandfather's parents thought that it wasn't a formidable job to have.
+- I was really impressed with and excited about being immersed in this world and this time period with 'Fences,' being able to walk the neighborhood, and it looks exactly like the 1950s.
+- I've seen such great material, and now I'm more picky with the type of jobs that I take because it's gotta be there. There's an old theater saying: 'If it's not on the page, it's not on the stage'... You gotta have some type of standards as far as the jobs that you take and the roles that you take on.

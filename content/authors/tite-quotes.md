@@ -1,0 +1,106 @@
++++
+author = "Tite"
+title = "Tite Quotes"
+quotes_len = "100"
+description = "the best 100 Tite Quotes"
++++
+- Neymar reassures you, because he brings unpredictability to your game. Because he will offer you an individual or collective solution that others cannot, and with him, the potential of a team is not the same, because he will sparkle.
+- Diego Tardelli has a very good history with the national team, and left a legacy of his time in Dunga's squad.
+- I often joke that I've been fired from almost every job I've ever had.
+- Football is a transformation agent, both for good and for bad.
+- You must have a good structure, and not just change things based on pressure and need for a result.
+- A team has to be prepared for the various situations in the game.
+- I want to do my best in my daily job.
+- Yes, I would have wanted Messi to be born in Brazil.
+- I do not demand miracles from anyone.
+- I don't mind my team being less physically strong in exchange for more mobility and nimble, swift transitions.
+- I demand Casemiro play the same role he plays at his club, Real Madrid.
+- When you are captain, how to project yourself.
+- Allan is good in transition, going box to box, leading counter attacks and breaks. He's mobile and brings protection defensively.
+- As time goes by, people grow and mature.
+- I do not even know the limit of Neymar. His technical and creative ability is impressive. When we release him in the last third of the field, he's lethal.
+- Regardless of the great rivalry between Brazil and Argentina, one only rivals who he admires.
+- You have to create possibilities for the finish in the final third of the pitch, I'm not going to take that away from anybody.
+- Coaches are overvalued.
+- Coutinho, Willian, Gabriel Jesus, Neymar, Douglas Costa, Taison... they think fast and execute fast. The final third of the pitch requires that.
+- When you demand performance, players raise their game technically. But if you put all the emphasis on results, that brings their level down.
+- It is inhumane to put sole responsibility on one athlete.
+- I think the joy, the satisfaction and the pride of representing Brazil is a lot.
+- Coaches are always looking to evolve.
+- The collective strengthens the individual.
+- I just make sure to prepare myself for everything day-by-day.
+- There's no news on talking about Messi's talent.
+- All the players have this responsibility of playing for the collective and also being individuals with some specific characteristics.
+- Perhaps Argentina have been benefited by the talent of Messi.
+- Brazil needs the individual creativity of Neymar, Philippe Coutinho, Douglas Costa. But it needs the collective creativity that sometimes people don't pay attention to.
+- Pele is incomparable.
+- Alisson is an excellent goalkeeper.
+- Neymar is irreplaceable. Douglas Costa cannot replace him. He will play like Douglas Costa.
+- I would like to live in the country that wins less, but has more stability. Brazilian coaches remain, on average, in a job for three months.
+- The ability to deal with pressure is hugely important.
+- Sometimes people confuse that polite players aren't competitive.
+- We don't need any help - the athletes and the coach don't want any help to win.
+- A football match should never be settled with the horror of penalties. I don't see that as a valid result. For me, there has to be another way.
+- I've never had any problem with Neymar. It's so easy to work with him.
+- All of us are human beings and we evolve.
+- We are aware of the responsibility to win, but we have to take responsibility with joy.
+- I'm of the school of thought that it is all about pass and move, give and go, playing in triangles, interplay and creativity in the final third.
+- The greatest challenge of a World Cup is having mental fortitude. The pressure is immense.
+- I have to know my limits.
+- It's one thing to throw Rodrygo into a system that's already structured, like Real's. It's another thing to put him in a team that is being reassembled, even if he was doing the same job in the same position.
+- To play here and win here in Uruguay is a very difficult thing. Here you have a really strong atmosphere, energy. You have to have your highest focus. You have physical, technical, tactical and mental aspects.
+- I can't show false humility, nor be overly proud and ostentatious.
+- When you have three different coaches in the same qualifying competition, there are bound to be things that don't work smoothly.
+- I spoke with Zidane and he insisted that Casemiro is the player who gives Real Madrid balance. I decided to trust him and make him a starter.
+- Myself, and all coaches, need to have courage, because we are so exposed. When we win, we're the best. When we lose, we're stupid. We must find a middle ground.
+- There are moments when you have to have a cool head and keep a standard.
+- In truth, I never dreamed of being a manager. Like every other boy in Brazil who was marked by the '70 World Cup, I dreamed of wearing the yellow shirt for the national team. Unfortunately, that was not my fate. I had to undergo seven surgeries on my knee. At 27, my career was over, and I was still a young man.
+- We cannot erase what has happened, but we are building a new future.
+- The best way for me to help with my life principals of transparency, democratization, excellence and modernity. I think it has to be like that in every area.
+- You don't pay for winning like that - whether it's the World Cup, whether it's the Brazilian national team. Paying the price with someone's health or rushing someone's recovery, we don't do that.
+- I would go to a team where I always felt happy - as a person, as a human being and as a family, because there I will be professionally better.
+- Pele is out of normal patterns and I'm not saying this because I'm a Brazilian. You can't find a defect.
+- My thing is in the pitch, that's my concern.
+- Winning or losing is part of the game.
+- The World Cup is made up of human relationships, you have to feel how the dressing room is established, how the players interact, the responsibility, the joy, the pride, you try to balance things out. If you're hyper, you try to slow it down; if you're a bit low, you try to hype it up.
+- I'm a coach who demands performance of the highest level. Maybe that's the fuel the national team needs to keep on developing.
+- If Brazil depends only on Neymar there will be a problem with Brazil, not with Neymar.
+- I remember during the 1970 World Cup, the whole country stopped to focus on the matches. I was nine years old. I would sit in front of the radio with my father, and we would listen to the magic of football. It was like the matches were a dramatic story being told to us. It was a kind of art, in my opinion. It was like a painting or a great novel.
+- The coach is a human being and does not demand miracles from human beings. He has the humility to understand that there are other people with different ideas to his own, but he does not have to use those words.
+- Anybody who wants to compare Pele to any other athlete... do you know what I do? I hear but I don't listen.
+- I try to challenge the players. If they have reached a standard I challenge them to grow even more because you never know.
+- A team is strong because they have players who have different characteristics, but they are all important so sometimes the needs of the game impose themselves.
+- My job is to prepare the squad.
+- The message to all Brazilians is that talent alone does not win the World Cup, it's about working hard.
+- A manager's story, like the story of a player, is unpredictable.
+- Neymar has important and extraordinary records. And he also has a solidarity side that he will gradually show.
+- I don't have that intuition, of changing a defender for a midfielder, for example. I'm incompetent on that matter, to put a player on the pitch and hope that he magically finds a solution.
+- The biggest meaning and the most important thing is not to give opportunities to give the opponent an idea about how we are going to play.
+- In the 1958 World Cup final, Sweden scored against Brazil and Didi went to the back of the net and talked to all the players. And he was not the captain, but he behaved like one. Every player has to behave as if he was captain.
+- The Olympic Games provided players like Neymar, Marquinhos, Gabriel Jesus and Renato Augusto with some really valuable experience and ended up improving the performance of the Brazilian national team.
+- Having recognition is not a sin, growing up is no sin, be star is not a sin, have technical skills is not a sin. To evolve in what is wrong is also a process of maturing.
+- I'm not dumb enough to call up a bad player.
+- I want to evolve and keep evolving.
+- Ancelotti's teams are more balanced. It's a more Italian defense and creativity from the midfield forward. I admire his work and also his discreet profile. I am also like that.
+- I've learned that leadership requires a number of qualities. It's behavioural, tactical, technical, about communication... everyone has these to varying degrees. I try to encourage players to show theirs.
+- The overexposure of coaches is not a good thing, we appear too much in the media, we just want to work hard.
+- I want to be the best version of me, I want to improve, to give opportunities through my work.
+- My mother and father were farmers from very humble means, and when I was three years old they moved from the roca to the city to try to give us a better life. My father took a job at a winery and my mother worked as a seamstress.
+- We don't need referees in order to win the game; we just want it to be fair. You should look at all of the plays and then make a decision.
+- Rodrygo has an impressive lucidity.
+- After I was invited to take over the Selecao, one of the first things I did was to call Marcelo and Thiago Silva. I wanted to get a feel for the players and we did not mention what had gone on in the past, that is behind us.
+- The players are the essence of the game. It is their creativity, the technical capacity of the player - the players have to be free to explore their individual creativity in the last third of the field, the team able to attack with six players, without concern for the defence.
+- I don't have to have opinion about everything. I don't want to be a showman, to be talking about everything.
+- Neymar is essential, but not irreplaceable.
+- When we move things from what it's important, we make mistakes.
+- I make mistakes and I will continue to do so.
+- When the national team plays there shouldn't be club games going on.
+- We must understand the fans, they want to see goals. If I was in their place I'd want the same. It's understandable.
+- Messi is awesome. His creative ability is extraordinary, outside of normal patterns. He manages to see what others don't.
+- Cristiano is direct and forceful, and has this fascination with goals.
+- I respect opinions, I don't give opinions on them. I learnt to respect them. And I also have a very clear opinion on Rivaldo. He was a great player and the image that comes to me is of him controlling the ball on the chest and scoring in Barcelona. The most beautiful thing in this world. That's my opinion.
+- You don't cancel out Messi, no, you can slow his actions, but you cannot neutralise his actions.
+- Having been at big clubs, when you sometimes don't produce, then don't expect the fans to understand. They will boo.
+- In an individual sport you can always plan your ideal peak, but in a team sport the experience of playing in the qualifiers makes you stronger as a unit.
+- Neymar, I'm not going to take away his initiative in the last third of the pitch - his genius.
+- Whether we are winning, losing or drawing, we have to be ready to adapt and not sink into a comfort zone.

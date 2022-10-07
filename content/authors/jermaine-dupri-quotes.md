@@ -1,0 +1,46 @@
++++
+author = "Jermaine Dupri"
+title = "Jermaine Dupri Quotes"
+quotes_len = "40"
+description = "the best 40 Jermaine Dupri Quotes"
++++
+- DJing is how I got into So So Def.
+- I make music not to make money but because it's in me.
+- I'm very good at separating things, and one of the things that I've always separated is that my business from one artist to the next has nothing to do with each other.
+- My idol is Quincy Jones.
+- We haven't had a slew of artists, but the artists we do come out with have always had the same momentum.
+- People always ask me how long somebody can last as long as I've been lasting and continue to keep doing it, so I figured that people didn't really know how to do that.
+- I have the weirdest career in hip-hop, and I say that because I started so young. I started So So Def when I was 17 years old.
+- I'm the father that Bow Wow never had.
+- You make a record like 'Jump,' people are stuck in that world. They want you to keep making records like 'Jump.' People don't understand that you got to move on; you got to do something else. You have to evolve and go to something else. And most of the time, when it's time for you to move, other people are not prepared for that move.
+- I was the youngest producer to have a No. 1 record when Kris Kross first came out, and that was a record I held for I don't know how long.
+- I wanted to feel like an artist for once in my life. I wanted to use other producers for respect, to let them know that I listen to other people's music and that I'm just not out here on my own page.
+- A person like myself will keep challenging to see if I can keep doing it over and over again.
+- My life is crazy sometimes.
+- Following in the footsteps of Berry Gordy, I always admire what he did.
+- They keep the song as street as it needs to be. It's got a good catchy hook where it can do what it needs to do on the radio, but they keep the song street where it will keep credibility in the hood.
+- My life is incredible.
+- Things always work when I put my heart into it, and more brands need to do the same thing.
+- I'm one of those guys a lot of people watch, imitate, and then make it seem like they were the ones who did it first.
+- All the records I've made have pretty much been big club turntable records. You need to feel the rhythm.
+- We're just welcoming people to our city.
+- If you don't know by now, you're never going to know.
+- My father was a promoter of Fresh Fest, and they needed an opening act. He got me a slot as a dancer. We tried it out the first time in Atlanta and the crowd went crazy. I was the opening clown.
+- People know me, and want to know me, as a baller more than anything else.
+- I've been making beats since I was, like, 12.
+- Because I was in Atlanta, people didn't realize I'm one of the real forefathers in the game.
+- 'Welcome to Atlanta' was a song I wanted to do on my first album. The idea was for me and Outkast to do it, but I could never come up with a beat for us to do it. Outkast beats and my beats were very different.
+- I stopped writing lyrics down on paper after me and Jay-Z did 'Money In the Bank.' They're something I just hold in my mind.
+- The majority of my records that become big records are usually done in one day.
+- I've always wanted to be mentioned in the same sentence or at the same time that you say Quincy Jones or you say Stevie Wonder. I never thought that could possibly ever happen.
+- To be mentioned in the same breath as people I admire means everything to me.
+- I'm first-generation money in my family.
+- Some people see Jermaine Dupri as a producer, and they don't really know what the songwriting skills are.
+- When you stick to what you're doing, sometimes that road ain't as easy as the rest of them.
+- I go to clubs and if I notice the DJs are playing the records faster, then I'll push the beats a little on the next record I make. A lot of people don't know how to watch out for things like that.
+- I'm not afraid of taking long walks. A lot of people want to be great, but they want to cheat to get to the greatness. I'm cool with talking the walk around the block to get to where I want to go as opposed to the cheat, because the cheat has flaws.
+- Teach yourself from others' mistakes.
+- As an employee, you can't work for someone forever.
+- When I came out rapping on my record, a lot of people said, Oh, you just want to be like Puff.
+- So So Def has been one of the most successful and consistent labels in the game in the last 10 years.
+- I'd go dance at talent shows, and because I was young I had the upper hand on a lot of other crews. People thought it was cute. I used that to my advantage.

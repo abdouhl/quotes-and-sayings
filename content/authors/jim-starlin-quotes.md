@@ -1,0 +1,51 @@
++++
+author = "Jim Starlin"
+title = "Jim Starlin Quotes"
+quotes_len = "45"
+description = "the best 45 Jim Starlin Quotes"
++++
+- Very little other than Elmore Leonard's crime writing inspiring me on my Batman run.
+- When I was a kid, there was this neighborhood beer and wine store that sold old comics for a nickel a piece. I'd load up on old books whenever we went on vacation. Yeah, I have a lot of fond memories of riding in the back of the ol' station wagon and reading 'Mystery in Space' and 'Strange Adventures' as we headed up to Torch Lake.
+- Thanos came to me while I was taking a psychology class in college after coming out of the service; the ol' Thanos/Eros concept.
+- It's a real honor to have my stories up on the big silver screen, at a cost of hundreds of millions of dollars. It's great fun flying out to L.A. for premieres and meeting all the actors and directors.
+- Most times, life or death is the highest stake a person can play for.
+- Yes, Marvel Entertainment has treated me very well and generously. Them, I like.
+- I had worked on Thanos, created him back even before I started working at Marvel.
+- It has taken some time, but I know I've put my trust in the right team, and I'm excited to collaborate with Universal Cable Productions and Benderspink to bring 'Dreadstar''s unique brand of chaos to television.
+- Thanos was the first character I ever created professionally. He's always been the baby I return to whenever I work with Marvel.
+- When I started in the comic book business, 'Art Of' books were strictly the provenance of the greats, like Rembrandt and Da Vinci. But times change, and so do attitudes. Now the comic is considered an art form, and I hope 'A Life in Words and Pictures' contributes a little to that art form's history.
+- If you look back on my career with Marvel, you will see that I don't really return to the House of Ideas to do Captain Marvel, Adam Warlock, and Silver Surfer stories. I always come back to the fold to tell further adventures of everyone's favorite Mad Titan.
+- You don't have to be a religious person to be affected by religion or a religious movement.
+- Most of my work is science fiction, with many a spaceship but few cars.
+- If I hadn't had the outlet of writing and drawing comics, I guess there's a good chance I wouldn't be around today.
+- If you look closely, you'll see that Marvel basically has three Thanoses. There is the 1970s Thanos appearing in the movies. This is before he got the Infinity Gauntlet. Then there are the Thanos stories I'm telling. And finally, there is the Thanos that appears in the mainstream Marvel stories.
+- As time went on, Thanos just sort of grew organically on his own.
+- I'd grown up very Catholic, parochial school, and Warlock was a way of working a lot of things out.
+- When I started writing 'Batman,' I lobbied heavily to get rid of Robin - or at least not use him in the stories I wrote. Fighting crime with a teenager dressed in primary colors while you're sporting a gray-and-black outfit always struck me as child endangerment, if not abuse.
+- The founding fathers of the U.S. were right when they erected that wall between church and state.
+- I'd like to have had a bigger piece of Thanos than I do, but when the first 'Avengers' movie came out, Marvel and I - we renegotiated some things, so I get a taste out of this thing. I'm not becoming the next Bill Gates, but I'm getting a little something out of it.
+- There's a character, Eon, I did back in the 'Captain Marvel' story. Eon came from a greasy smudge on a paper bag inside my kitchen being used for garbage. I went and got a paper and pencil, drew it up, and he became a character in that story. Things come from everywhere.
+- Not exactly sure there can be a final chapter to Thanos, considering what he is and his relationship with Mistress Death. Might just be that as long as there is a Marvel, there will be a Thanos to plague that universe's heroes.
+- Vietnam affected everything in life while it went on. My time in the service made it clear to me that what we were being told in our newspapers and newscasts, back in the States, wasn't half the story of what was really going on.
+- I like my characters to go through some changes during a story arc.
+- It's hard to say, but I think Warlock is the closest thing Thanos has to a friend.
+- It's nice to see my work recognized as being worth something beyond the printed page, and it was very cool seeing Thanos up on the big screen.
+- I got rid of Warlock's lightning bolt because... it was a real pain to draw.
+- Thanos and Adam Warlock are two of a kind because they're both sort of out of the norm: out of the circle of life and death that falls on top of everyone else. Both have had multiple deaths and resurrections, and they always seem to get pulled in as key players for cosmic events.
+- Back in my high school years, the Hulk was my favorite Marvel character, and I always enjoy drawing him.
+- My well-meaning parents decided to send me to a Catholic grade school to get a better education than I probably would have received at the local public school. They had no way of knowing that the school nuns, who were the majority of the teachers at this particular parochial school, were right-wing, card-carrying John Birch Society members.
+- I didn't like characters that were one- or two-dimensional. I liked a guy to have a lot of different levels to him and layers, and I think I pretty well succeeded with Thanos.
+- I was just as crazy as everybody else post-Watergate, post-Vietnam.
+- I've been influenced by so many different writers along the way - from Charles Dickens, Roger Zelazny, Michael Moorcock, John D. McDonald, and so many others - that it would take a page or two to list them all.
+- Life itself is inspiration.
+- Whenever I come back to Marvel, it's to do a Thanos story for one reason or another.
+- The downside of word processing - it's quite possible to never end a work-in-progress.
+- My only surprise when I saw Thanos up on the screen was how violet he was. I always saw his exposed hide as being more grayish violet.
+- When folks are in desperate times - say, like being stuck in the middle of a long-running interplanetary war - they grasp onto anything that might keep them afloat.
+- Being an artist, you soak up imagery, and you put it back out in whatever form you do your own imagery.
+- Most of the time, I don't like planning out too far ahead. I like to be spontaneous, make decisions, and go, 'Hey! That inspired me! I want to do more with that!'
+- My father worked in Chrysler's drafting department and used to bring home tracing paper, No. 2 pencils, and masking tape from the office. With these, I used to trace off drawings from the 'Superman' and 'Batman' comics and put them up on my bedroom walls.
+- I never imagined people like Thanos and Warlock would be drawn into films. They're weird characters in weird stories. Luckily, the twisted kids who read those weird stories are now the twisted adults who are making movies.
+- I consider 'Dreadstar' to be an extension of my family, so it took me a while to feel comfortable letting anyone else take care of this project.
+- I found that the artist market was expanding in comics. Marvel was going from something like eight books a month to somewhere in the 20s. As a result of this expansion, Marvel, in particular, was hiring anyone who could hold a pencil. That's how I got my first job there.
+- We all - if we are honest with ourselves, we all have these dark spaces within our souls that we don't always want to talk about or acknowledge.

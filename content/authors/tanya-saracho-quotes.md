@@ -1,0 +1,83 @@
++++
+author = "Tanya Saracho"
+title = "Tanya Saracho Quotes"
+quotes_len = "77"
+description = "the best 77 Tanya Saracho Quotes"
++++
+- I hope to see more Latino stories on television - not just on a personal level, but for us in the industry. We shouldn't just exist when a show is attempting to be diverse. We have good stories, and we are worth it.
+- I know people seek me out to be their mentor, and I've chosen a few people I'm really invested in and nurturing their career and their aesthetic and just their person.
+- People in L.A. think I'm insane to go back to Chicago during the winter. It's because I love my apartment and fleece leggings and my friends.
+- Sometimes people of color walk into these spaces that are dominated by the dominant culture, and we have to be better, not make as much trouble.
+- I just wanted to put together the best Latinx writers. I didn't care about the level.They have a passion for 'Vida' in a different way, in a higher way.
+- You can't visit Guanajuato without going to the mummy museum.
+- Young men and women of color get told 'no' by so many people. But just listen to your inner voice. Amplify it. Make it strong!
+- I'm queer - and queer, to me, is not being stuck in a binary and being kind of fluid.
+- We don't have a lot of narrative on TV or film, mainstream film, of brown queers. Latina queers, I can't think of that many.
+- When I got to 'Looking,' I didn't know that you could write stuff and they would put it on TV. That was that experience. My boss was Andrew Haigh and he came from film; he had never done TV. It was his first TV show, and he was running it. And I think he was like, 'Write it, and we'll put it on.' It was lovely.
+- I was obsessed with everything about 'Outlander' - the stories, the way it looked. I thought, 'You know what? I'm going to go to Scotland, and I'm going to find my own 'Outlander.''
+- What I notice a lot about millennials is that they have agency over their sexuality.
+- I dress up cute sometimes to go to work, but TV writers don't! They just go however.
+- Nothing against resorts or Cancun or Carlos 'n Charlie's, but Guanajuato is different. If you want history, culture, and peace, it's perfect.
+- I get a lot of emails of scripts and pilots, and they want me to give feedback, and sometimes I can't because it's so many.
+- When you work in a writers room for a showrunner, you serve that story, and you serve that showrunner. I don't think it should be called writing; I think it should be called rendering content. Because you are there to render the content that is agreed upon in the room, and you're serving the voice of the main storyteller, which is the showrunner.
+- Other people started taking me seriously before I took myself seriously.
+- Spanglish is very natural. It's however it comes out. But there are a few patterns that all of us, especially Mexican-American writers, just noticed in how we utilized Spanglish. It comes out of necessity when you can't find the next word. You go to whatever language will serve you best.
+- The big, radical thing that I'm trying to do is to portray Latinas as complex human beings.
+- I feel like progress will be made in the landscape of Latino influence when we get to tell those murky, real, close-to-life narratives.
+- I am so homesick every day of the week.
+- For so long, the narrative - I'm speaking for Latinx - we've been invisible, the ones cleaning and taking care of your kids and doing your lawns.
+- I am not a quiet person.
+- I went in for a meeting with Marta Fernandez, and she said, 'We are looking for a female millennial show. Have you heard of the term 'chipster'?' And I was like, 'Of course - Chicana hipster.'
+- I am equally a writer and an actor and a director.
+- I have been watching male programming all my life. And I'm completely interested in it. Like, I love 'Breaking Bad' and I like 'Game of Thrones.'
+- I remember 'Resurrection Boulevard.' It was on for such a brief moment, but they were trying to do a good, Latino, Mexican-American family with a patriarch.
+- I don't think that 'Vida' is just for Latinos. I don't think 'One Day at a Time''s just for Latinos.
+- In lots of ways, I've been trying to tell stories this way since I started writing plays: a female-centered story with queer, Latinx gaze.
+- When you're a starving artist, you make do. It didn't matter that I didn't know where my rent was coming from.
+- I'm sad about my theatre career, but I've also fallen a bit in love with TV!
+- I always have something big enough to say as a playwright. It's storytelling.
+- I'm not literary, and I'm not academic, and I don't think like a poet, so my stuff will never be like that.
+- When I got to Scotland, I signed up on a site called Meetup. It's like these group things you can do - a poetry reading, a hike, whatever.
+- There is no 'generic' Latina.
+- Raul Castillo was my first high school boyfriend.
+- I never wanted to be married. That was never a thing for me.
+- I would like to do more millennial, Latina, complicated stories.
+- In TV, you're a 'writer for hire.' That means you're trying to guess what your boss wants and delivering that story. There's a lot of spitballing. The big thing is 'breaking story,' which means coming up with a story. You do it by episode and put it all up on a board.
+- To me, 'Kita y Fernanda' is very much an American story, and I know some people are going to think it's a Latina story, but it's about shifting people's paradigms and views of what it is to be American.
+- When I was in school, I didn't get exposed to Latino playwrights.
+- I'm always in the car in L.A., so I see the people I work with - and, thank God, I adore the people I work with - but it's a little lonely.
+- When you change media, perception is changed and then policy is changed.
+- Shouldn't you be able to tell your stories from your point of view? We're dealing with that with 'Looking' where some queers are like, 'These guys are so boring! They don't represent me!' But no show can represent everything, so is it OK for us, in 'Looking,' to write about these three men and their world?
+- Glutton things, those are things that are dangerous for me. My grandma and my aunt died of diabetes; I'm borderline diabetic.
+- A lot of the time, because we don't have many Latinx scenarios on the landscape, not just in television or film and other media, we haven't gotten the chance to tell our story from our point of view.
+- I'm obsessed with accents.
+- I want to stay in Chicago.
+- When 'Vida' got the green light, Starz sent me this picnic basket of Jamie Fraser red wine and all these 'Outlander' things that I'll never open because it's like my sacred thing.
+- The Latinas in this industry are really supportive and stick together. America Ferrera, Gina Rodriguez, Zoe Saldana, and Salma Hayek have all reached out and have helped promote 'Vida,' and it's because they get it. They really are about opening doors. The more there are of us, the more of a movement it will be, and it won't be just tokens.
+- No one guided me through it, but here is how it happened: I was in New York doing a play, and an agent got in touch with me and said he wanted to take me out for lunch. In the theatre, they never want to take you out for lunch, so I thought, 'Yes!' I went, I ordered steak, and he told me he thought I should write for TV.
+- I have 16 plays, and we don't ever do subtitles. You can't do subtitles in the theater, so I was like, 'I'm not gonna do subtitles.' You'll never lose the story. There might be a little joke that you might miss, but you'll never miss the story, even in the Spanglish of it.
+- I always was missing that female brown queer perspective, and I think in 'Vida' we have that. A lot of things I wanted to touch on and deal with, I get to do here.
+- My first time up to bat as a showrunner, what I did was hire an all-Latinx writers room. And it's a diverse Latinx writers room - we have an Afro-Dominican and Texicans and Chileans. It's diverse within its Latinidad.
+- I feel like a lot of us have a story to tell, it's just that we don't get the platform or the access or the opportunity. I don't know how the goddesses and gods and the stars aligned. I got the opportunity, and I do have to note that a Hispanic woman gave me that opportunity.
+- White, older showrunners told me, 'Why do you want to hire an all-Latinx writers room? Hire who's best for the show - don't get caught up in that.' And I was like, 'No.' For such an intimate show about the details of a culture? You can't fake that. The room needs to reflect the makeup of the show.
+- Sometimes, when I was the only person of color in a room, you had to defend all the people of color everywhere.
+- You're on set more when you produce an episode, and it's long hours, but you learn so much.
+- When you get a bunch of Latinxs together, we get to handle our stories. A cultural shorthand happens.
+- I'm not a good business person when it comes to my writing.
+- I adore 'Broad City,' but the one Latino is queer for jokes. You see queerness of Latinos in this emasculated with an accent or fez on a set '70s show. It's always like, 'Ha, ha, funny emasculated immigrants.'
+- I'm always writing. There's no stopping. It's just that you can't see it sometimes.
+- The fact that I have a show on Starz, it's crazy. It's insane.
+- Any time you have to move in two days, it's crazy. It's like, 'Who am I going to get to take care of my cat?
+- It's mountains. The air is crisp. It's peaceful. You don't get spring break in Guanajuato.
+- Pleasures. I had to cut them back so I can write. And it's worked! It so has. But I am the most boring human on the planet.
+- I had never heard this term before - gente-fication - which is also happening in Portland, Houston; it's happening in a lot of cities. It's upwardly mobile Latinx who want to come back to their neighborhoods where they grew up - or it's Latinx moving to L.A. and looking for a Latinx neighborhood to live or open a business.
+- At Shondaland, six out of nine writers were of color - not Latinx, but I was like, 'Wait, I can do that but for the whole room?' 'Atlanta' had done that, then I can do that.
+- I'm very conscious of who I work with. Because I want to develop and nurture my writers so they can have their own shows, take on whatever is next for them.
+- I didn't understand that TV writing wasn't writing; it was pitching.
+- I was a playwright who was still learning the ropes when Starz took a chance on me to create and showrun 'Vida.' They nurtured and supported me during every step of the strenuous process, and that is a debt that cannot be repaid.
+- Putting on makeup before work is a meditative exercise. It incites me to think about how I'll tackle my day.
+- The thing is about 'Vida,' we're telling a very simple family narrative. There's nothing fancy about it.
+- So many times, shows say they're set somewhere - like in Chicago, 'The Good Wife' - but it doesn't feel like Chicago.
+- The hierarchy plays out in the writers room, and you, as a staff writer, need to know your place.
+- Write about your experiences! When I moved to L.A., I didn't have any friends, and the office janitor was the person who I saw the most. He would always come in at around 10:00 P.M., and I would still be at my desk, so I wrote a play about a first-year TV writer and the friendship that she developed with the janitor. Our stories matter.
+- I'm interested in people's darkness - and humor in the darkness.

@@ -1,0 +1,125 @@
++++
+author = "J. K. Rowling"
+title = "J. K. Rowling Quotes"
+quotes_len = "119"
+description = "the best 119 J. K. Rowling Quotes"
++++
+- I loved writing for kids, I loved talking to children about what I'd written, I don't want to leave that behind.
+- I do get recognized, but I must say Edinburgh is a fantastic city to live if you're well-known. There is an innate respect for privacy in Edinburgh people, and I also think they're used to seeing me walking around, so I don't think I'm a very big deal.
+- With all of their benefits, and there are many, one of the things I regret about e-books is that they have taken away the necessity of trawling foreign bookshops or the shelves of holiday houses to find something to read. I've come across gems and stinkers that way, and both can be fun.
+- Failure means a stripping away of the inessential.
+- I really don't believe in magic.
+- I like to get in among a set of people and get to know them very well.
+- I've never managed to keep a journal longer than two weeks.
+- It is our choices... that show what we truly are, far more than our abilities.
+- If you want to see the true measure of a man, watch how he treats his inferiors, not his equals.
+- There was a point where I really felt I had 'penniless divorcee lone parent' tattooed on my head.
+- I was set free because my greatest fear had been realized, and I still had a daughter who I adored, and I had an old typewriter and a big idea. And so rock bottom became a solid foundation on which I rebuilt my life.
+- The truth. It is a beautiful and terrible thing, and must therefore be treated with great caution.
+- I think that I've had a very strange life.
+- I did not set out to convert anyone to Christianity.
+- 'Harry Potter' gave me back self respect. Harry gave me a job to do that I loved more than anything else.
+- I knew no one who'd ever been in the public eye.
+- I just hate meetings. Though it's true that once you've made a lot of money, people around you might be full of ideas about ways to make lots more money and might be disappointed that you don't want to seize every opportunity to do so.
+- I sometimes have a tendency to walk on the dark side.
+- If ever I expected to come face to face with an angry Christian fundamentalist, it wasn't in FAO Schwarz.
+- I was convinced that the only thing I wanted to do ever - was write novels.
+- If you love something - and there are things that I love - you do want more and more and more of it, but that's not the way to produce good work. So as an author, I need to write what I need to write.
+- I'm opposed to fundamentalism in any form.
+- I think you have a moral responsibility when you've been given far more than you need, to do wise things with it and give intelligently.
+- His priority did not seem to be to teach them what he knew, but rather to impress upon them that nothing, not even... knowledge, was foolproof.
+- I think the next thing I publish will be for children, but I don't really want to be held to that because I also know what my next book for adults will be, and I really like that, too, so it depends. I've always had more than one thing going.
+- Fear of a name increases fear of the thing itself.
+- I felt I had to solve everyone's problems.
+- There's no formula.
+- You sort of start thinking anything's possible if you've got enough nerve.
+- I am proud of having done what I've done. Very proud.
+- I don't read 'chick lit,' fantasy or science fiction but I'll give any book a chance if it's lying there and I've got half an hour to kill.
+- The first story I finished was when I was six years old.
+- Jane Austen is the pinnacle to which all other authors aspire.
+- The moment you are old enough to take the wheel, responsibility lies with you.
+- In a novel you have to resist the urge to tell everything.
+- I'm an emotional person.
+- Indifference and neglect often do much more damage than outright dislike.
+- I'm not anti-middle-class in the slightest. Look at me! I am very pro people putting time and money and effort into trying to improve the world.
+- It is impossible to live without failing at something, unless you live so cautiously that you might as well not have lived at all, in which case you have failed by default.
+- I feel 80% of my life is completely normal.
+- I just write what I wanted to write. I write what amuses me. It's totally for myself. I never in my wildest dreams expected this popularity.
+- The middle class is so funny, it's the class I know best, and it's the class where you find the most pretension, so that's what makes the middle classes so funny.
+- I will carry on writing, to be sure. But I don't know if I would want to publish again after Harry Potter.
+- I think I've really exhausted the magical. It was a lot of fun, but I've put it behind me for the time being.
+- Honestly, I think we should be delighted people still want to read, be it on a Kindle or a Nook or whatever the latest device is.
+- The thing about fantasy - there are certain things you just don't do in fantasy.
+- It does not do to dwell on dreams and forget to live.
+- There are some things you can't share without ending up liking each other.
+- Whatever the reviewers feel about 'The Casual Vacancy', it is what I wanted it to be, and you can't say fairer than that as a writer.
+- I would like to be remembered as someone who did the best she could with the talent she had.
+- I don't think I am evangelical in my work.
+- Imagination is not only the uniquely human capacity to envision that which is not, and therefore the fount of all invention and innovation. In its arguably most transformative and revelatory capacity, it is the power to that enables us to empathize with humans whose experiences we have never shared.
+- I'm pro Union.
+- However my parents - both of whom came from impoverished backgrounds and neither of whom had been to college, took the view that my overactive imagination was an amusing quirk that would never pay a mortgage or secure a pension.
+- But I was the most unashamed lone parent you were ever going to meet.
+- Why do I talk about the benefits of failure? Simply because failure meant a stripping away of the inessential. I stopped pretending to myself that I was anything other than what I was, and began to direct all my energy into finishing the only work that mattered to me.
+- I always felt an outsider.
+- Humans have a knack for choosing precisely the things that are worst for them.
+- We do stigmatise teens a lot and see them as scary and alien.
+- The internet has been a boon and a curse for teenagers.
+- I think you're working and learning until you die.
+- The fame thing is interesting because I never wanted to be famous, and I never dreamt I would be famous.
+- I've laid my friends bare.
+- Talent and intelligence never yet inoculated anyone against the caprice of the fates.
+- No, there is literally nothing on the business side that I wouldn't sacrifice in a heartbeat to have an extra couple of hours' writing. Nothing.
+- The moment I said I'd finished a book, I knew what would happen. There would be a bidding war, and I would end up with someone who'd got the fattest wallet, who had bought it because I'd written Harry Potter. That would have been why.
+- I love a good Dorothy L. Sayers.
+- I'm interested in that drive, that rush to judgment, that is so prevalent in our society. We all know that pleasurable rush that comes from condemning, and in the short term it's quite a satisfying thing to do, isn't it?
+- What's coming will come and we'll just have to meet it when it does.
+- On the subject of literary genres, I've always felt that my response to poetry is inadequate. I'd love to be the kind of person that drifts off into the garden with a slim volume of Elizabethan verse or a sheaf of haikus, but my passion is story.
+- I am the freest author in the world.
+- I don't think about who the audience is for my books.
+- People ask me if there are going to be stories of Harry Potter as an adult. Frankly, if I wanted to, I could keep writing stories until Harry is a senior citizen, but I don't know how many people would actually want to read about a 65 year old Harry still at Hogwarts playing bingo with Ron and Hermione.
+- I remember the first time I heard a teenager say 'LOL.' Just what? But it means 'laugh.' Why don't you just laugh? What are you doing?
+- It is perfectly possible to live a very moral life without a belief in God, and I think it's perfectly possible to live a life peppered with ill-doing and believe in God.
+- The most important thing is to read as much as you can, like I did. It will give you an understanding of what makes good writing and it will enlarge your vocabulary.
+- I pay a lot of tax, and I feel, one of the reasons I stay and pay why I'm not based in Monaco... I think my country helped me.
+- I would always want printed books.
+- I love inventing names, but I also collect unusual names, so that I can look through my notebook and choose one that suits a new character.
+- Death is just life's next big adventure.
+- To the well-organized mind, death is but the next great adventure.
+- I've been writing my entire life, and I'll always write.
+- I received free health care.
+- I'm not a natural joiner.
+- Writing and cafes are strongly linked in my brain.
+- The thing about the 600 words, I mean some day, you can do a very, very, very hard day's work and not write a word, just revising, or you would scribble a few words.
+- I've been asked this question so many times, do you feel you need to write a book for adults? No, I don't need to write a book for adults.
+- Never trust anything that can think for itself if you can't see where it keeps its brain.
+- If you're holding out for universal popularity, I'm afraid you will be in this cabin for a very long time.
+- Anything's possible if you've got enough nerve.
+- Death obsesses me, yes it does. I can't really understand why it doesn't obsess everyone - I think it does really, I'm just a little more out about it.
+- In fact, you couldn't give me anything to make me go back to being a teenager. Never. No, I hated it.
+- Whether you come back by page or by the big screen, Hogwarts will always be there to welcome you home.
+- I don't need to publish to make a living.
+- I'm a writer, and I will write what I want to write.
+- I imagined being a famous writer would be like being like Jane Austen.
+- Hearing voices no one else can hear isn't a good sign, even in the wizarding world.
+- The best of us must sometimes eat our words.
+- Of all the subjects on this planet, I think my parents would have been hard put to name one less useful than Greek mythology to securing the keys to an executive bathroom.
+- You lose your individuality a huge amount when you have no money, and I certainly had that experience.
+- And the idea of just wandering off to a cafe with a notebook and writing and seeing where that takes me for awhile is just bliss.
+- My favorite literary heroine is Jo March. It is hard to overstate what she meant to a small, plain girl called Jo, who had a hot temper and a burning ambition to be a writer.
+- It takes a great deal of bravery to stand up to our enemies, but just as much to stand up to our friends.
+- We're a phenomenally snobby society, and it's such a rich seam. The middle class is so funny: it's the class I know best, and it's the class where you find the most pretension, so that's what makes the middle classes so funny.
+- I think you could ask 10 English people the same question about class and get a very different answer.
+- Bigotry is probably the thing I detest most.
+- If you love something - and there are things that I love - you do want more and more and more of it, but that's not the way to produce good work.
+- When I was in my teens I had issues with OCD.
+- Secretly we're all a little more absurd than we make ourselves out to be.
+- Youth cannot know how age thinks and feels. But old men are guilty if they forget what it was to be young.
+- There appears to be something to do with vehicles and movement that stimulates my writing.
+- When people are very damaged, they can often meet the world with a kind of defiance.
+- I always have a basic plot outline, but I like to leave some things to be decided while I write.
+- The poor are discussed as this homogeneous mash, like porridge. The idea that they might be individuals, and be where they are for very different, diverse reasons, again seems to escape some people.
+- I am not a particularly thick-skinned person.
+- Some of the furor that surrounded a Harry Potter publication was fun.
+- Every now and then I read a poem that does touch something in me, but I never turn to poetry for solace or pleasure in the way that I throw myself into prose.
+- Poverty entails fear and stress and sometimes depression. It meets a thousand petty humiliations and hardships. Climbing out of poverty by your own efforts that is something on which to pride yourself but poverty itself is romanticized by fools.
+- Never be ashamed! There's some who'll hold it against you, but they're not worth bothering with.

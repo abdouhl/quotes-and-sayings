@@ -1,0 +1,24 @@
++++
+author = "Kwak Dong-Yeon"
+title = "Kwak Dong-Yeon Quotes"
+quotes_len = "18"
+description = "the best 18 Kwak Dong-Yeon Quotes"
++++
+- I've met a lot of people, interacted with them, and experienced a lot of things in my life that I try to keep in mind. Such large and small experiences are accumulated and incorporated into acting in various ways.
+- The reason why I decided to appear in 'Vincenzo' was because of my love and trust for director Kim Hee-won and writer Park Jae-beom.
+- I live a dramatic life and love the characters that are constantly changing in their lives. For that reason, if I have an opportunity, I would like to participate in the musical 'Hedwig.'
+- I want to work with Song Joong Ki sunbae again who I worked with in 'Vincenzo.' I learned so many things from Song Joong-ki sunbae but it's regrettable that we mainly filmed together only in the second half.
+- I look old. To be honest, up until two or three years ago, my age put a lot of restrictions on me. I was told, 'You look like you're in your mid- to late-twenties, but you're actually too young.' There were a lot of restrictions like that when it came to casting. I even requested that they remove my age on my public profile.
+- I usually focus on monitoring my acting.
+- I was getting make up done in the car when the door opened and Park Bo Gum came in. After we said 'Hello,' an hour of silence followed.
+- All the roles I play have something of myself in them.
+- Before I met Park Bo-gum, I was curious what he would be like.
+- Although it was short, I have fond memories of my appearance in KBS's 'Fight My Way.'
+- If it's a good story or if it's a character I want to act in, I end up wanting to do it.
+- I think all the junk food and irregular eating and sleeping times from my trainee days made me look the way I do today.
+- You can't hate somebody that is both respectful and grateful to other people.
+- I don't trust people much and I thought 'perfect' Park Bo Gum might have flaws. He drops some foods while eating.
+- No matter what role I take on, I'll try to put something of myself in them without making them stand out too much. That's my job after all.
+- I don't like when people say I act good for my age. Who would have said that to Daniel Radcliffe or Emma Watson when they were filming 'Harry Potter?'
+- There are still a lot of Babel wannabes in Korea, so it'd be fun if 'Vincenzo' could break them all open in the second season.
+- Park Bo Gum has a very reserved personality. Becoming close with him was a struggle. Just trying to talk in informal speech took two hours.

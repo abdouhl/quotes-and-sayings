@@ -1,0 +1,23 @@
++++
+author = "Jessica Stroup"
+title = "Jessica Stroup Quotes"
+quotes_len = "17"
+description = "the best 17 Jessica Stroup Quotes"
++++
+- I was raised in a strict Southern household in Lexington, South Carolina, and I remember sneaking off to watch 'Pet Cemetery' as a kid. After seeing those animals reincarnate, I screamed and couldn't sleep for weeks, but watched it again and again.
+- I'm just a huge fan of smells, first of all. I have a bit of an obsession with smells.
+- I'm Southern, but I need to be out making my own money, and impacting the world outside of my house.
+- I was raised by boys. I can hold my own, I can fight, and I love horror movies - simply for the scare factor and the surrealism.
+- For meals, I'm big into quinoa or rocket salad with a protein like shrimp of chicken added to it.
+- When I was 15, I got a job at the first Hollister that opened up.
+- I love getting to work with the stunt coordinator. It's like choreography, like a dance.
+- I'm such a tomboy - I was raised in the South - and I also really wanted to work in New York, being so different from California, though it was a freezing-cold winter.
+- I was in, like, nine schools by ninth grade, so I moved a ton of times when I was younger.
+- On set, I have a lot of coffee... so I try to chug water before going for that next cup.
+- If you watch '90210,' you see my hair changing every episode - I've chopped it off, and I've kept it long. I've done it all to my hair on that show.
+- I was a part of that Beanie Babies generation. I had, like, 400 of them... OK, maybe not that many, but I had a lot of little stuffed animals that I liked to make talk. I was a big dork, and I still am.
+- Circuit training is a great way to go. Keeping the reps high and the weight low, you'll tone your muscles without bulking up.
+- When you don't feel healthy, stop the excuses and do something. Just go outside, walk, breathe. Life's too short to fall into a rut. You are in charge of you - treat yourself well, and it'll show.
+- I love 'Gossip Girl.' I used to hang out with Blake Lively and Jessica Szohr. I'm also addicted to Bravo and reality shows like 'Top Chef.'
+- Hair on a guy is something that attracts me first; if you've got a good head of hair, and you're able to style yourself in a way that's presentable, I think that's really important.
+- Women rule men's lives - every decision a man makes is based on a woman.

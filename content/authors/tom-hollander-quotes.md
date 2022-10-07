@@ -1,0 +1,42 @@
++++
+author = "Tom Hollander"
+title = "Tom Hollander Quotes"
+quotes_len = "36"
+description = "the best 36 Tom Hollander Quotes"
++++
+- Obviously I'd love to have kids and all that. Luckily, as a man, there's not such an egg timer on it, but I'd like to be able to pick them up without Nurofen first.
+- Actresses are just professionally lovely, aren't they?
+- Show business is not conducive to mental stability. It's a constant rollercoaster of adrenaline spikes and devastating let-downs. There's something about seeing a face from the telly in real life that makes people deranged.
+- I've always wanted to do a real comedy. I haven't done enough, and it seems silly not to do more, considering the fact that people tend to laugh at me.
+- Drama schools say if arts funding is cut, people can't afford to go, but I didn't go to drama school.
+- Actors, who have no real sense of who they are or what they want, have long known that not just their gender but every aspect of their identity is on a spectrum. They can be anything they are asked to be. They aspire to a protean state, shape-shifting like high summer clouds.
+- I don't have any children. And I've often found other people's a bit annoying.
+- Nothing else is as fulfilling as playing a part in which you are able to have a significant say in the creative process all the way through. How many actors get to do that? It's extremely rare.
+- Stories about vicars are always being told because they're at the heart of our society. Vicars touch all parts of the community and see life in all its extremity.
+- I was one of the first actors in London to be seen for Frodo ten years ago. I didn't get it, obviously. The right size, but too handsome, apparently.
+- I'm no Kenneth Branagh or Ben Stiller. I'm not that single-minded, 'I'm producing it, directing it, and starring in it' kind of person; that's not me.
+- People who go to Oxford and Cambridge are often unproductive. What am I saying? This is nonsense. No, sometimes they get so competitive that, unless they're going to be Pulitzer prize-winning, they can't get off their backside.
+- I prefer to be flippant about acting, just in case I'm rubbish.
+- Certainly in the theatre, you never have to get up before 10 A.M., and when filming, though you do have to get up terribly early, you usually get to lie down a lot during the working day. I thought my semi-bedridden existence was a choice. But now I think that actually, in fact, I must always have been depressed.
+- My sister and I both benefited hugely from the great security that our parents had given us, and then we went off and squandered it all rushing around in showbiz.
+- When we get christened or married or die, we drift naturally in the direction of the church. And in moments of crisis, when our spiritual Tom-Tom is no longer telling us what to do, we find ourselves scrabbling at the vicarage door.
+- My father was ethnically Jewish, but his family converted to Catholicism.
+- The truth is I have always found it hard to get up. One of the reasons I became an actor was specifically because you get to lie in more than people with proper jobs.
+- The danger with playing a part that defines you is that it swallows up everything else.
+- New York is still the most glamorous city I've ever been to, but it's starting to feel older. The sirens still wail; the paths in Central Park still pulsate with joggers. The Manhattan schist still trembles beneath your feet. But weirdly, it's starting to feel, dare I say it, a bit quaint.
+- In a thriving culture, you celebrate your achievements. In an exhausted one, you proclaim your disadvantages.
+- People behave differently to TV stars and film stars; it's to do with the scale of the medium. Film stars get hushed awe, TV stars get slapped on the back. Neither is good for you. Famous people don't hear the word 'no' enough.
+- My voice broke very late. I think that, deep down, I knew that once it broke, my self-esteem would plummet, as I'd never be head chorister again.
+- We have a very disabled person in our family who is cared for by someone who lives a life most other people would find impossible, and her faith is making it a joy for her. And you can't argue with that. I mean, you can, but it's fruitless.
+- They haven't said it, but let's be clear: I would never have been on the list for James Bond, so I'm not labouring under that misapprehension.
+- I'll have you know that as a young man, I spent an entire year as a woman in a world tour of 'As You Like It.' I played Celia.
+- For me, faith is more about aspiration than complacency - the smug satisfaction that other people find distasteful.
+- Every now and then, I feel terribly uncomfortable with what I'm working on, and then I think maybe I am an artist. I'm not very articulate about it, but I do know that you have to follow your gut.
+- I meet people who are famous, and it's made me realise that fame has huge lifestyle disadvantages. I'm nervous about that. I don't want to become a celebrity.
+- Somehow I find it easier to inhabit characters if they are a little bit pathetic. I do seem to have an affinity with pathetic people.
+- Acting is a general thing; it's not like being a primary artist like a painter or writer which stands the test of time. I don't think acting stands the test of time, but it can capture the mood of the moment, which is in itself very exciting, but it rarely lasts.
+- My parents are very lovely people - the sort of people that one should aspire to be like, really.
+- In the periods of my life when I've had least contact with the Church, I've always assumed a belief in God is a solid thing, but clearly it's a relationship; it has good days and bad days.
+- When I started in the profession, there were very visible actors who were Scottish, Welsh, or regional. Lots of working-class-hero leading actors; it was not fashionable to sound posh. Now, I'm middle-aged; it's fashionable to sound posh if you are the generation behind me.
+- Funnily enough, I never thought of myself as being short. Being an actor has made me much more conscious of it than I would have been otherwise.
+- I am single. Acting can make it hard to have profound relationships if you're not careful. You get into this pattern of three-month, four-month jobs and 'what's the next adventure.'

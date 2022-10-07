@@ -1,0 +1,16 @@
++++
+author = "John Kline"
+title = "John Kline Quotes"
+quotes_len = "10"
+description = "the best 10 John Kline Quotes"
++++
+- The best teachers are those who keep students motivated, challenged and flourishing.
+- For too many years, politicians in Washington have been eager to pledge more hard-earned taxpayer dollars to help deal with the student debt load. But this doesn't sit right with the many Americans who take pride in making fiscally responsible choices and paying off their loans on time.
+- The Workforce Investment Improvement Act of 2012 would consolidate and eliminate dozens of ineffective or duplicative programs, enhance the role of job creators in workforce development decisions, and improve accountability over the use of taxpayer dollars.
+- We simply can't keep providing money from the federal government in the form of subsidized or actual loans and Pell Grants when we don't have the money.
+- When I talk to teachers, parents, superintendents, my colleagues, everyone wants to fix No Child Left behind. There is great dissatisfaction with No Child Left Behind.
+- Let's get one thing straight: No one wants Stafford loan interest rates to increase.
+- We must revamp K-12 education law to ensure Washington does not stand in the way of meaningful reforms.
+- No Child Left Behind taught us that parents, teachers and state and local leaders are more suited to address students' needs than a one-size-fits-all accountability system developed by Washington bureaucrats.
+- Enacted under President George W. Bush's administration with the promise to focus on individual student achievement and overall school performance, No Child Left Behind was heralded as groundbreaking. And in some ways, it was.
+- The Interest Rate Reduction Act takes a first step toward providing critical stability by eliminating the threat of an immediate interest rate increase, while making clear the need to move toward a long-term solution that serves the best interests of taxpayers and borrowers.

@@ -1,0 +1,106 @@
++++
+author = "Mona Eltahawy"
+title = "Mona Eltahawy Quotes"
+quotes_len = "100"
+description = "the best 100 Mona Eltahawy Quotes"
++++
+- I visited Libya in September 1996 for the 27th anniversary of the 'revolution' - a military coup that a 27-year-old Gadhafi led to topple the monarchy and since which he has ruled. Some were optimistic that Gadhafi's 'revolution' could herald a new Libya, but it didn't take long for his brutality to stamp out any such hopes.
+- I'm a survivor. I'm a messenger.
+- Good riddance, Bin Laden - an unwelcome squatter in the house of my religion who tore down all the walls and was prepared to throw them on a fire to keep himself warm.
+- There was always something sickening about tourists taking pictures of themselves posing in front of that big gaping hole called Ground Zero.
+- As an Egyptian-American, I want both sides of that hyphen to enjoy the forms of freedom guaranteed by the First Amendment, as I want both sides of that hyphen to move beyond the deceptive simplicity of the question, 'Why do they hate us?'
+- When I first read Margaret Atwood's novel 'The Handmaid's Tale,' it was Saudi Arabia as I knew it that came to mind, not a dystopian future United States as in the new television adaptation.
+- We have been under military rule since 1952, when a group of army officers overthrew Egypt's monarchy and ended Britain's occupation of the country. But that only replaced an external occupation with an internal one, in which favored sons of the armed forces replaced their uniforms with suits, a move meant to create a semblance of civilian rule.
+- Banning hate speech doesn't end racism or antisemitism. Social pressure does that. It becomes socially unacceptable.
+- To say that there is patriarchy in Arab culture is not denying women agency.
+- I can write about my culture and religion because I am a product of both. Even when I'm accused of giving ammunition to the Islamophobic right, in the struggle between 'community' and 'women,' I always choose the women.
+- For years I looked at the Iranians with envy - not at the outcome of their 1979 revolution, but because it was a popular uprising, not a euphemism for a coup.
+- A source of embarrassment for Libyans, Gadhafi has never been a joke: disappearances, a police state, zero freedom of expression, and poverty for at least a third of the population of country tremendously wealthy thanks to oil.
+- Bashar al-Assad's henchmen stomped on the hands of famed Syrian cartoonist Ali Farzat. Our dictators tailor wounds to suit their victims' occupations.
+- In the U.K., my mother had been the breadwinner. I'd seen my parents side by side. In Saudi Arabia, my mother was basically rendered disabled. She was unable to drive, dependent on my dad for everything. The religious zealotry was so suffocating.
+- Mubarak was adept, as were many other U.S.-backed dictators, at playing the sane middle to the 'lunatics with beards' he so often used as bogeymen to guarantee the support of foreign allies.
+- We left Egypt when I was seven, and we didn't return until I was 21. My teen years were divided between the United Kingdom and Saudi Arabia. Up until we left the U.K., it was like your regular teenage years. The one thing I remember is that I couldn't date. That was one thing my parents made very clear.
+- Saudi Arabia isn't just a conservative country with different values we shouldn't judge. It is a modern Gilead.
+- As a feminist of Egyptian and Muslim descent, my life's work has been informed by the belief that religion and culture must never be used to justify the subjugation of women.
+- I do not celebrate the appointment of women to high positions in regimes where cruelty is a favored tool of governance by a patriarchy; if they accept, they are nothing short of foot soldiers of that patriarchy and the violence it has instituted.
+- For years, despite my inner doubts, I represented to others my choice to veil as a feminist one.
+- Women of color have always been kind of boxed in by the idea that the more you talk about the misogyny of your own community, the more you make that community look bad.
+- I joke that one of the rare times Egyptians identify as African is when the national soccer squad is playing in the African Cup of Nations - and preferably winning it.
+- President Abdel Fattah el-Sisi, like his most recent predecessors Mohamed Morsi and Hosni Mubarak, rarely mention the Sinai Peninsula other than to celebrate its liberation from Israeli occupation in 1982.
+- I have chosen not to have children.
+- I grew up in the U.K., and my parents are both doctors.
+- Authenticity has never been Barbie's strong suit.
+- I am horrified by the moral amnesia that develops when a dictator dies.
+- I avoid continuously writing or tweeting about ISIS, as it centres them in the narrative and we end up reacting to them and reacting to the agenda they set.
+- I chose to wear the hijab at age 16, soon after my family moved from Britain to Saudi Arabia.
+- It's one thing to be groped and harassed by passers-by, but when the state gropes you, it gives a green light that you are fair game.
+- All religions, if you shrink them down, are all about controlling women's sexuality.
+- Authoritarianism, religious fundamentalism and militarism are inherently patriarchal and hierarchical.
+- I detest the niqab and the burka for their erasure of women and for dangerously equating piety with that disappearance - the less of you I can see, the closer you must be to God.
+- The price of toppling Gadhafi will be steep. But Libyans will topple him, and in doing so, they will bring down with him the castles of fear our dictators thought they had fortified.
+- I am appalled to hear the defence of the niqab or burka in Europe. A bizarre political correctness has tied the tongues of those who would normally rally to defend women's rights but who are now instead sacrificing those very rights in the name of fighting an increasingly powerful right wing.
+- I will never ally with Islamophobes and racists. But in the choice between 'community' and Muslim women, I will always choose my sisters.
+- I know Obama knows better than George W. Bush.
+- For years, successive Arab dictators have tried to keep discontent at bay by distracting people with the Israeli-Arab conflict.
+- The military belongs in its barracks, not our ballot boxes.
+- While the 2011 revolution did not remove the regime, it has shortened the seemingly endless patience that many Egyptians once had for military rule.
+- We must make sure #MeToo breaks the race, class, gender, and faith lines that make it so hard for marginalized people to be heard.
+- Too many have rushed in to explain the Arab world to itself.
+- As a U.S. citizen, I cherish the First Amendment.
+- Too many on the Left are earnest about nothing at all, sadly. They've been rendered spineless by snarkiness - not least on Twitter.
+- I wore the hijab - a form of dress that comprises a head scarf and usually also clothing that covers the whole body except for the face and hands - for nine years. Put more honestly, I wore the hijab for nine years and spent eight of them trying to take it off.
+- As a Muslim woman, I'm all too familiar with the media shorthand for 'Muslim' and 'woman' equaling Covered in Black Muslim Woman. She's seen, never heard. Visible only in her invisibility under that black burka, niqab, chador, etc.
+- My family moved to Saudi Arabia from Glasgow when I was 15. Being a 15-year-old girl anywhere is difficult - all those hormones and everything - but being a 15-year-old girl in Saudi Arabia... it was like someone had turned the light off in my head. I could not get a grasp on why women were treated like this.
+- The religious fundamentalists of the Republican party are a mirror image of the religious fundamentalists of Egypt's Muslim Brotherhood.
+- I abhor the rightwing Muslim ideology behind the veils, but I equally abhor the political rightwing xenophobes of Europe.
+- Saudi authorities must launch a campaign about the safety of female pilgrims and the determination of the authorities to ensure every woman's safety.
+- That morning of 11 September 2001, as we watched the twin towers crumble on live television, America and I would develop a bond that has proven deeper and more enduring - for better or worse, through sickness and health - than the one I had with my now ex-husband.
+- I was born in Egypt, and my family moved to London when I was seven. I grew up mostly in Clapham, where I also went to school after a brief stint in Whitechapel.
+- I'm no fan of Sarkozy, but I support a ban on face veils because they erase women from society and are promoted by an ultra-conservative ideology that equates piety with the disappearance of women.
+- Some forms of veil are justified by the idea that you're not tempting men. Well how about men just behaving and keeping their hands to yourselves? How about, instead of criticizing how I dress, respecting me and my right to the public space?
+- As a woman in Saudi Arabia, you have one of two options. You either lose your mind - which at first happened to me because I fell into a deep depression - or you become a feminist.
+- Across the globe, fundamentalists of all religions are on one side, and their attitudes towards women and towards female sexuality are almost identical.
+- I was never one for dolls.
+- As an Egyptian, I was glad to see the film 'Black Panther' embrace my country with its inclusion of the Ancient Egyptian goddess Bast as the deity of Wakandans. But considering the anti-black racism against the Nubian indigenous community and visitors in my country, I knew Egypt would not return the love.
+- I started off at a local newspaper called 'The Middle East Times,' which is no longer in existence. I remember one of the earliest stories that I wrote for them was a study about domestic violence in Egypt from a government-run research institute think tank.
+- When we complain to Egypt's Western allies about whichever autocrat is in power, we are asked, 'But who is the alternative?' It is a question designed to frustrate.
+- My feminism does not demand that a woman have an equal opportunity to torture, alongside men. Torture is no less wrong because a woman, not a man, carries it out.
+- When Tunisians overthrew Zine El Abidine Ben Ali in 29 days and Egyptians Hosni Mubarak in 18 days, it was an appropriate rebuke to dictators and Bin Laden.
+- The Bush administration and its 'we'll liberate you by invading your countries' doctrine is thankfully behind us. It is up to us to fight for our rights inside our communities.
+- When Mubarak does die, he will be remembered as the most bland of those military men turned dictators: compare him with Gamal Abdel-Nasser and Anwar Sadat. The legacies most associated with him are a network of bridges and highways and 'stability.'
+- I like to call the Republicans the Christian Brotherhood of the U.S. so that my fellow Americans recognise the line that connects their mix of religion and politics with their Muslim equivalent in Egypt.
+- I was 15 when my family moved to Jidda from Britain in 1982. Living in Saudi Arabia was such a shock to my system that I like to say I was traumatized into feminism.
+- This ISIS group, they attack Muslims more than they attack anyone else.
+- Selling out Saudi women is an old-established tradition.
+- We are fighting misogynists in every culture. My solution is to listen to the women in each community and amplify their voices.
+- To me, Egypt is a wonderful history, a wonderful people, and it's represented through artists like Om Kalthoum, who is considered the fourth pyramid of Egypt. She's a wonderful diva whose voice, for me, is really Egyptian.
+- Muslim views are not a monolithic blob.
+- I believe at the heart of any revolution for social justice and human dignity are consent and agency, the unequivocal belief that I own my body - not the state, not the church/mosque/temple, not the street and not the family.
+- When the only two sides fighting are conservative - even if one of them is just conservative in appearance - then everyone loses. And women don't just lose; they're also used as cheap ammunition.
+- Morality crusades unite military regimes and religious zealots alike.
+- The Right is incredibly deft at getting earnest about all the wrong things.
+- To write about the hijab is to step into a minefield. Even among those who share my cultural and faith background, opinions veer from those who despise it as a symbol of backwardness to those for whom religion begins and ends with that piece of cloth.
+- My brother, a cardiologist, was among thousands of Muslims visited by the FBI in November 2001 and forced to submit to special registration fingerprinting, his photo and information forever in Homeland Security's files.
+- The first time I wore a head scarf, I was 16. I looked and felt like a nun. I missed the wind in my hair. For me, it was not a comfortable thing to wear.
+- My birth at the end of July 1967 makes me a child of the naksa, or setback, as the Arab defeat during the June 1967 war with Israel is euphemistically known in Arabic.
+- Anti-U.S. sentiment has been born out of many grievances - support and weapons for such dictators as Mubarak, unquestionable support for Israel in its occupation of Palestine, the wars in Afghanistan and Iraq, and drone attacks in Pakistan and Yemen that kill more civilians than intended targets.
+- In Saudi Arabia - recognized as one of the worst violators of women's rights - women outnumber men on university campuses and yet are treated like minors who need a male guardian's permission to do the most basic things.
+- In 1993, I joined Reuters as a correspondent in its Cairo bureau.
+- I defend a woman's right to cover her hair if she chooses, but the face is central to human interaction, and so the ideologues who promote its covering are simply misogynists.
+- To this day I have no idea what dissident professor or librarian placed feminist texts on the bookshelves at the university library in Jeddah, but I found them there. They filled me with terror. I understood they were pulling at a thread that would unravel everything.
+- It is the harassers and assaulters who make us 'look bad,' not the women who have every right to expose crimes against them.
+- The fight against racism must be seen as a revolutionary one.
+- I grew up looking at my parents as equals.
+- Anti-black racism is not just an Egyptian problem. It exists in many parts of the Arab world.
+- What is satire if not a marriage of civil disobedience to a laugh track, a potent brew of derision and lack of respect that acts as a nettle sting on the thin skin of the humourless?
+- As Muslim women, we're not waiting for the president of the United States to open doors for us or to fight our fights.
+- It was precisely my love of the First Amendment that made me join sidewalk activists in 2010 to support an Islamic community center's right to open in Lower Manhattan.
+- The Tunisian revolution left every Arab dictator in fear; Egypt's toppling of Mubarak left them terrified - even one of the U.S.' best allies in the region could fall.
+- For most of my life, the U.S. was never anything more than vacation memories.
+- Feminism, as I see it, is not about counting women in key jobs.
+- I do not subscribe to a feminism that demands perfection or super heroic nobility of women. But I do insist that putting women at the service of patriarchy is no victory for us.
+- Nothing protects women from the patriarchy of military regimes.
+- Until the Saudi authorities who administer the holy sites take concrete steps to protect female pilgrims, we must protect each other. Men must stop assaulting us, yes. But women the world over, regardless of faith, know that until that happens, we are each other's keepers.
+- My parents' generation grew up high on the Arab nationalism that Egyptian president Gamal Abdel Nasser brandished in the 1950s.
+- I left my husband a year after 9/11. Not because he was an American and I an Egyptian, nothing to do with culture or religion, nothing to do with 9/11. We brought out the worst in each other. But before we separated, we visited N.Y.C. one more time together for a friend's engagement, and we went to pay our respects at the site of the attacks.
+- Too often, when Muslim women speak out, some in our 'community' accuse us of 'making our men look bad' and of giving ammunition to right-wing Islamophobes.

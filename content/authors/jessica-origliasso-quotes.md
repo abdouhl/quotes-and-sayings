@@ -1,0 +1,67 @@
++++
+author = "Jessica Origliasso"
+title = "Jessica Origliasso Quotes"
+quotes_len = "61"
+description = "the best 61 Jessica Origliasso Quotes"
++++
+- Our first record as the Veronicas was a big mainstream success. Maybe if we'd had the indie record first, then the breakout record, it would have been supported by Triple J.
+- Since we get so much love and support from the queer community around the world, we really wanted to connect with U.S. audiences too and put on amazing shows wherever we can!
+- There's certain types of music where the artist sells the song - where it doesn't really matter what's going on with the song.
+- Just look at the transformation Taylor Swift made from being pop country to pop pop. There are very specific things she cut out and very specific things she adopted.
+- Possessions can be replaced - it's people that can't.
+- We were going for an otherworldly feel, you know a lot of people tell us we look like aliens anyway. I don't know if it's just because there's two of us and we have big eyes and long necks.
+- Not many people know this but we come from a long line of chicken, pineapple and onion farmers at Ingham in Queensland.
+- We both have different inspirations, style-wise. Lisa really loves Penelope Cruz and that classic gypsy look, whereas I like trashy hot messes and '50s pin-up girls.
+- We grew up with a different gauge on what pop is. Pop for us was INXS and John Farnham.
+- I just lived openly, as loud as I wanted to be, which translated into our music really well.
+- My personal favorite person we worked with in the U.K. is Cathy Dennis, who is absolutely incredible. She wrote 'Can't Get You Out of My Head' for Kylie Minogue and 'Toxic' for Britney Spears, so she's one of my absolute favorite pop writers.
+- All my closest friends are gay. All of them.
+- The thing that is most conducive of that better life for all is love, acceptance, understanding and being yourself.
+- Lolita' was written at a time when we were heavily listening to more dance, electronic, and trance, and then on the flip side we were writing country-pop songs like 'Born Bob Dylan' or our acoustic songs, or trip-hop.
+- As a fan of music, there's nothing I hate more than hearing an artist write a new album off the back of a successful record. Usually they've rushed it, or they've gone into the studio with all the big guns to replicate what they'd just created.
+- I'm a bit of a cougar, to be honest.
+- There's certain people in your life you realise aren't exactly the people that you thought they were.
+- We don't have to test our boundaries anymore. We definitely know what they are.
+- The fact that Australia is falling so far behind on something so simple as equal love and equal rights for equal love is disgusting, it's embarrassing.
+- When you are signed to a major label, everyone wants to have a say in who you are and what you are doing.
+- We're huge fans of Kylie Minogue, Grimes, and artists who are doing more electronic music.
+- We get home to Brisbane every couple of months or weeks. But we have often flown home for just two days as we get so homesick.
+- Even when I was dating a man I always said I'd never get married until marriage equality was passed in Australia. It wouldn't feel right.
+- Anyone that continues to spread hate or fear or judgment or phobias doesn't deserve a platform.
+- Girls around the age of 14 to 18 are deciding who they are and exploring relationships, they're ready to take charge of their life. Boys aren't as confident at that age. They want music that deals with their emotions for them.
+- Australia is a smaller country and the industry works differently over there. You get added to one radio station in Australia, and you pretty much get added across the board.
+- I'm still always surprised when someone recognizes me.
+- At the end of the day, we're all human beings, and people have their struggles and inner demons.
+- Australians want progression, Australians want equal rights, they want safer, more compassionate, more harmonious communities, and we're not allowing it to progress in that way. It's very disappointing, knowing Tony Abbott's conservative views, he's clearly not the person to be leading Australia in the present or the future.
+- The '90s is my favourite era of music, especially the girl-bands like Babes in Toyland.
+- You shouldn't feel you have to label yourself for someone else to understand you. You should be able to feel what you want to feel and that's okay.
+- I have a vintage bohemian style of decor with a lot of candles, and second hand furniture and my crystals and my books and plants.
+- When you're faced with challenges in any industry, but especially the music industry, it tests you in a lot of ways, both personally and professionally.
+- If you have everything you want in life, including money, fame and being asked out on dates by 20 cute boys, and you are still unhappy then you have to go deep within yourself to fix the issue.
+- You know what, we can be really fierce with each other but as soon as someone tries to take either one of us on, that's not one of us, we back each other up.
+- Women can be quite intimate emotionally - they're very emotionally available.
+- I've wrongly been called sick by newspapers and magazines throughout my entire career.
+- Our food pyramid, the kind of diet that is constantly promoted, is completely warped. It's not based around anything to do with healing your body.
+- I was embraced entirely and completely by the LGBTQ community. So I always felt very comfortable and confident to live exactly how I wanted to.
+- Lisa tried to eat me in the womb, that's the real tea.
+- It's hard for new artists to keep hold of what they own.
+- Having to deal with people all of a sudden knowing who we were and knowing our music and all the rest of it was definitely something that we had to get used to.
+- Electro '80s is very popular in Australia. Like, you get a headache if you walk into a mall with the number of girls and boys that are wearing big hair, leggings, headbands. You feel like you're back in the '80s.
+- In Australia, our first album went four-times platinum. It was massive.
+- I am very clean, not exactly a neat freak, and creative.
+- Nobody should feel like they can force themselves into your life how it suits them when it's toxic and unwanted.
+- We're very private people and we tend to write about our relationships but keep the actual details close to our chests.
+- We love pop and the U.K. specifically seems to embrace pop and it's so cool.
+- Back in your twenties you're discovering your boundaries in life, whether it's with relationships or friendships and partying.
+- As songwriters, we can go in and write for other artists in a time where you aren't necessarily feeling inspired for yourself.
+- Lis and I didn't talk for a year. I was in a relationship that wasn't good for me. I became isolated. I had nobody anymore, I only had my relationship.
+- I think Spotify really does help. If you're going with the evolution of music these days, it's only becoming more and more popular and I don't think it's something to be shunned.
+- We might depend on each other a bit too much and use that as a crutch, but it's not entirely a bad thing.
+- We are comfortable in our bodies, we know how healthy we are.
+- We're complicated women.
+- I just love Fortitude Valley, I love all of it. It is such a progressive hub, it feels like the East Village of New York.
+- There's some members of the older generation who have been conditioned with such closed minds.
+- I'm very, very lucky - when I realised I was sexually attracted to females there wasn't a struggle where I found that hard to accept.
+- I always felt empowered by and proud of the people that I love, the people that I'm attracted to.
+- I spoke to a UFO researcher about an experience that I had. It was very strange and trust me, you don't want to hear about it.
+- After you give up meat for about a week, you don't really crave it anymore.

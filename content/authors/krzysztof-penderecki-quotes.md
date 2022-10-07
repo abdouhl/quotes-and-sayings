@@ -1,0 +1,86 @@
++++
+author = "Krzysztof Penderecki"
+title = "Krzysztof Penderecki Quotes"
+quotes_len = "80"
+description = "the best 80 Krzysztof Penderecki Quotes"
++++
+- I have about 1,700 species of trees, almost everything that can grow in our climate.
+- There is some limit to finding, always, new things. It's rather impossible.
+- Melody was banned from music by the composers of the avant-garde. I was unique among them in always using and writing melody and so I think this is why I've shared my music, why they can have also pleasure, not only an interesting structure.
+- If I were reborn, if I were a teen-ager now, starting my career as a composer, I would do again what I have done.
+- I started studying counterpoint and theory with a physicist whose hobby was music.
+- I was a very religious child.
+- I used to do most of my composing at a little table in a cafe. Composing for 52 instruments, I had to figure out how to accommodate myself to the small table.
+- All I'm interested in is liberating sound beyond all tradition.
+- I started music late.
+- I think in work like 'Passion According to St Luke,' which I wrote when the Church was being persecuted by the Communist regime, it mattered to me to declare for the cause. I sided with the militant Church and I think my music fulfilled an important socio-political function.
+- I started to write religious music at a time when it was absolutely impossible. The first religious work I wrote was the 'Psalms of David,' when I was still a student in 1957... At that time, religious music was really forbidden.
+- My grandfather taught me trees and the Latin names of trees when I was five or six. His father was a forester, so he knew them all.
+- I must never change my way - because of critics who may not like it - I preserve my language and my style.
+- After so many years, I don't really think writing has to be absolutely new. No. It has to be good work.
+- I'm really just a frustrated violinist.
+- Chopin is a great composer who influenced many, many important composers. He was a great innovator, especially in harmony.
+- After music, trees are my passion. My great-grandfather was a forester, so maybe it is genetic. My father would take me for walks in the forest and sometimes I would play truant with him. 'You won't learn anything in a communist school, my boy,' he would say. He loved trees too.
+- Listening to classical music is like reading philosophy books. Not everybody has to do it.
+- I take commissions because I know I'll have to get up early in the morning and work.
+- At school, I wrote in the style of the Dutch composers. After I graduated, a new style set in.
+- I have written many works to accompany Old Church Slavonic texts.
+- I have lived through very difficult times.
+- I don't really think my work breaks into periods. In fact, if you listen to my work in all its so-called periods, what you should hear is continuity.
+- If I would be born in New Zealand, maybe, I would never write the Polish Requiem or pieces which were connected with the history of war. But this was my childhood. War was the main subject, and also in our family.
+- I think the best publicity I can get for my music is to conduct it.
+- For me, music is pure abstraction.
+- I'm not a minimalist, not at all. I feel much better, safer even, having a large piece.
+- There is something about performing my own music, and other people's music, that gives me pleasure. I think I learn more by doing that than I ever did studying music.
+- I always felt independent of musical fashion.
+- I accept all of the music that I wrote.
+- When the Second World War started, I was only five but I still remember... Being a witness... I wanted people to remember what happened in our country and elsewhere.
+- Usually composers need a reason to write. I need a deadline.
+- The 1960s were a time of cultural revolution in Poland. And I was a part of that revolution. For me, those years - the late 1950s and early 1960s - were the most fruitful.
+- When Kubrick called me about 'The Shining,' it was very strange. He first asked me to write music for his film, but I instead gave him suggestions about some of my pieces. I told him about 'The Awakening of Jacob,' which he did use in 'The Shining.'
+- In summer, I like to sit and compose on the porch, where I can see people come and go.
+- I don't write political music. Political music is immediately obsolete.
+- Listen to the triple fugue in 'Magnificat' - the first subject is seven voices, the second one has 52 different voices, the third uses five; then I combine all together. Such textures you cannot call primitive.
+- With Orff it is text, text, text - the music always subordinate. Not so with me. In 'Magnificat,' the text is important, but in some places I'm writing just music and not caring about text. Sometimes I'm using extremely complicated polyphony where the text is completely buried. So no, I am not another Orff, and I'm not primitive.
+- Everyone is born lazy.
+- So many new things have been discovered in the 20th century that now, at the end of the century, we need some kind of synthesis, some musical language which will allow us just to write music.
+- Latin is an international language.
+- In my own works I am an obsessionist. Though I write humorous music too, much of it has been obsessed by death and the tragic.
+- For years, my favorite composers had been Monteverdi and Bach. Then I began to rediscover the 19th century, see it from another perspective.
+- I studied violin since I was a boy, and my dream was to be a violinist and to play.
+- Traveling, talking to people, and rehearsing, I'm always finding new ideas. If I stay in one place, maybe I won't have so many ideas.
+- The circumstances In which I grew up In Poland were not auspicious for humor.
+- I have found my perfect place on earth in Poland, in Luslawice, near Krakow.
+- I love Shostakovich. We were good friends.
+- I don't believe in a composer who is only able to compose, who can't play or conduct, can only use a computer. If that trend continues there will be no more symphonies, no more oratorios.
+- There's a kind of passionate expression in all my pieces. It's just that the nature of the expression takes different forms.
+- I have always had an audience for my music, even in the very avant garde, crazy times.
+- Poland is my home, my roots are here. There is nowhere I would rather live.
+- Poland is different from the other so-called socialist countries. We have a different background. Poland belongs to the West, not the East. We belong to the Mediterranean, Latin culture, not to the Byzantine, which is very different and which you find in Bulgaria and even parts of Czechoslovakia and, of course, Romania.
+- Writing music is something very natural... this is the way to communicate with other people.
+- That is our dilemma in Poland. We don't like to be ruled by the East.
+- Big forms fascinate me.
+- Composers are very individual creatures.
+- When writing music for the 'Kaddish,' I evoked the prayers that were sung in Eastern Galicia, Ukraine and Romania. I was advised by my late friend, Boris Carmeli... He would sing me various melodies that were sung by his grandfather, thus they had to be at least as old as the mid-19th century.
+- I started with very tonal 19th-century music because I wanted to be a violinist as a child. So this was my first music, and then I was very much influenced by Stravinsky and Shostakovich in the 1950s. But I was starting to develop my own style.
+- I began as a violinist, not a composer. Thus my contact with orchestral musicians, with the source of music, is very important.
+- It's no longer possible to find something which will shock other people, because everything has already been done.
+- Poles have a mistrust of the West and an even deeper mistrust of the East.
+- There was this kind of dictatorship of the Darmstadt school, composers like Boulez and Stockhausen, who were very strict and orthodox. They would not allow other composers to write the music they wanted to write, and only a certain kind of music could be played.
+- I'm never satisfied. I don't think about what has come before because I'm trying to find something different than I did before.
+- The isolation of Eastern Europe actually helped me to be so original. I couldn't travel so much, I had to find my own things, such as making the strings sound like electronic music.
+- Conducting is a natural way to participate in one's own music. Almost every 19th-century composer Mendelssohn, Mahler was conducting or playing his own music. Mozart did both.
+- My music is rather abstract and maybe even strange-sounding for some people, so maybe that's why it's been used in so many horror movies and thrillers.
+- I don't like to be alone. I like to have my family around me. They disturb me, of course, but that's OK.
+- The communists saw what we did in the arts as the only product of socialism that was known in the West, so they tolerated it.
+- I was growing up in a communist time, especially, and the other music, the western music, was banned, so on radio half of the music was Chopin. So my colleagues and I were a little bit allergic to this music because it was everywhere - everywhere!
+- Every day I write. I am not waiting for a great idea from heaven.
+- As a young man I couldn't travel, nobody could travel, they wouldn't give us a passport. For many years I was trying to go abroad. And then one day I read in the newspaper about a new competition for composers, and the first prize was a trip to the West. I decided I must get the first prize, so I wrote three pieces in three different styles.
+- Our house was in the middle of town; behind it was the ghetto, from which Jews were sent to concentration camps.
+- My family was very open. My grandfather was German and a Protestant. My father, a lawyer, was Greek-Catholic and played the violin. My mother was very religious and went to church twice a day. My grandmother was Armenian. So I was raised with three different faiths - that's why I am so open.
+- I wrote 'Threnody,' then I wrote several works where I changed my music completely.
+- One should live with history round one.
+- Works of art inspire me to compose.
+- You can only learn orchestration if you have the possibility of using an orchestra.
+- I grew up at the time of Social Realism in Poland, when everyone was supposed to be 'writing for the workers.' But I soon became allergic to this. I have never written for audiences. I like it if they appreciate my music. But I would never change my style for them.
+- I always had my roots in the past.

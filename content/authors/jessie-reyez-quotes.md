@@ -1,0 +1,101 @@
++++
+author = "Jessie Reyez"
+title = "Jessie Reyez Quotes"
+quotes_len = "95"
+description = "the best 95 Jessie Reyez Quotes"
++++
+- Honestly, the angrier I am, the looser my tongue is... when I get angry, it's just a motor mouth, and it just goes off, which is great, but it doesn't really work unless I'm very, very passionate about what I'm talking about.
+- All of the songs on 'Kiddo' were a part of my soul; they're songs that I could never give away.
+- My thought process is I have been lied to so much by people who I thought I could trust that it motivates me to want to be as honest as possible, to project that energy, because that is how I want people to treat me.
+- Kali Uchis is a dope person. Her voice, her style - she's so unique.
+- I don't know how other people have a topic or have a goal when making a song, like, 'Let's write about this, or let's write about that.' It's kind of difficult for me. Personally, I like vibing out and freestyling.
+- When I sing in Spanish, my tone is different. I feel more relaxed because that's how I speak to my family.
+- I like being able to just put everything out on the table and letting the cream float.
+- The stories in the songs come from my real life.
+- The EP is called 'Kiddo' because this has been an uphill battle for me. As a female in the industry, as a female of colour, some people will demean me. So it's like, 'OK, you wanna call me kiddo? I'll show you kiddo.'
+- When I'm performing, I have to tell myself, 'Wait a minute. You need to be here right now. You need to hold these memories and remember time is golden.'
+- Spanish is my first language.
+- You just need to create and be open with that energy. The second that you are precious with it, it's almost like you showing the world you have a limited amount.
+- I love soul music.
+- I was an awful singer when I was younger.
+- I'm just happy to know that no part of me thinks that I made it. Everything in me says you need to keep going, keep working.
+- I know I'm grown, but there's a part of me who will eternally be six years old.
+- Authenticity is hella important.
+- The second you're not honest with yourself, you've lost everything.
+- It's hard to get someone to sit down and listen to an album in its entirety.
+- Fear is a real thing.
+- I purposely try to make my music cinematic. I try to inspire visuals even though I'm only an instrument of sound.
+- I have really dope parents.
+- I remember going to audition in Toronto for a girl group. I was 15 or 16. I went in with my guitar. I had the wickedest nerves, man! I was decent, but not good enough.
+- I ended up moving to Miami and bartending, but the party atmosphere is a black hole down there. People party all the time, and if you're working in the industry, you're sleeping all day and at the club all night, day after day.
+- Music's always been in my home. My dad plays guitar, and I grew up listening to cumbia and salsa and boleros.
+- I was all depressed because my ex cheated on me. It was hard for me to get over that.
+- Me personally, I have a small circle. Part of that is because sometimes, you meet people, and you can feel the synthetic energy.
+- When I went to school, I didn't know a lick of English, but it was okay because there were so many immigrants in the area, a lot of the kids didn't speak a lick of English, either. It was normal to have a wicked accent.
+- Amy Winehouse affected my life tremendously. I think maybe she was the first sense of intimacy that I had with a complete stranger, musically speaking.
+- I struggle with insecurities. I struggle with forgiveness. I struggle with letting someone go that did me dirty without vengeance, which is an evil thing.
+- Paying attention to my breath makes me happy to be alive. And that really grounds me during a performance.
+- I thought, 'Maybe if I become a cheerleader, I can meet managers or agents. Maybe I can sing the national anthem at a game, and someone in the industry will hear me.' I saw everything as an opportunity to further my music. I was literally the cheerleader who had a mixtape in between her pom-poms at events.
+- The power's in the people, more so because we have platforms that we can control, like Instagram, Twitter, Soundcloud, where we can deliver straight. If you're building a fanbase, it's in your hands; it's not monopoly. You can do it.
+- The first time I went crowd surfing was heaven.
+- I feel like humans, when you're faced with decisions, you can go up and down: duality.
+- My earliest memories have to do with music.
+- You can give a bunch of opportunities to people, but if they are not ambitious, nothing is going to happen.
+- When you come from an immigrant home, you're in a whole different world until you leave your house. In my teenage years, I had to learn to switch cultures the second I left my house and, when I came back, to go back to my fundamentals.
+- I'm a child of extremes.
+- You have to have your own back.
+- Luckily, everyone that I've collaborated with, everyone that has been willing to offer guidance and advice, they've all been dope people.
+- I'm a fan of leaving people hungry; I don't like leaving people satisfied.
+- There are things I still criticize myself heavy for. There are days I have to pick myself back up, but that, to me, is success; it's getting to both sides: physical and the spiritual, mental. Just peace. Peace of mind.
+- I think life would be a lot easier if people were able to stand in their mistakes and not backtrack. If you did something wrong, own it. Like, hold your own.
+- Ugh, I'm a Gemini!
+- I know I'm my own worst critic.
+- Someone can be miles away, but if they're in your heart, that means they're locked in your head, too.
+- Talk to your enemies; sometimes ignorance comes from a lack of understanding.
+- First time I met Kehlani was through Jahaan Sweet - a really dope producer; then we linked up in Toronto, and the vibe was just lit. She's a really warm human being.
+- The key to having something beautiful is being able to convey a normal human emotion but say it in a way that's never been said.
+- I'm appreciating every single bit of success I get, no matter how small.
+- I'd get out at school at 3:00 P.M., show up to dance practice at 6:30 P.M., practice for three hours till 9:00 P.M., get home at midnight, and try to do whatever homework I could before getting back up for 7:00 A.M. But I did it because I liked dancing, and I loved the music.
+- In a book, you can create a world in your imagination that's as intricate as you want. Even something like 'Angels & Demons.' I was reading it, thinking, 'This is incredible! This is so scary!'
+- At every show, I pray with my band. It's a big thing.
+- Some people's parents listened to the Beatles... but my family is Alquimia, Celia Cruz, and Carlos Vives - this old, rich Colombian music. I loved hearing that while I was growing up.
+- I don't have time to date.
+- The last thing I want to do is get too happy.
+- The luxury of not getting judged for 'loving' who you want to love should be given to everyone - including women.
+- I think about legacy, of course. I don't want to make my life nothing. I want to know that I died and made a massive difference. I want to know that my life purpose was bigger than myself, and I want to pay forward because the amount of people that have helped me... the list of people that have contributed to where I am now is insane.
+- My mom says that she caught me one day in front of the TV watching opera. I was trying to sing back the opera. She saw that I really liked music, and so she put me in piano lessons when I was about three years old.
+- I love being in the woods, when I can just walk barefoot in the grass and just sit down and breathe. I love that so much.
+- I think of legacy: I want plaques on the wall. I want a farm for my dad. I want an orphanage, preferably two, named after my mother. I want to positively and tangibly help the lives of millions of people and die a legend.
+- Sometimes if I feel the songs are too much, it hurts, but then I open my eyes: people are singing along or crying, and the 7-year-old in me is like, 'Yeahhh.'
+- To be honest with you, the fact that people vibe with my music is just a really positive byproduct of something that is just a reflex to me. The fact that people even care to listen means a lot to me.
+- I feel like it's dangerous to get complacent and celebrate too much... You can't get comfortable.
+- I'm very meticulous.
+- My demons are not that easy to shake.
+- I feel like my objective in music is to take a hammer and nail and chip away a piece of my heart and give it to someone, so I feel, with merch, it's a tangible parallel of that.
+- I'll never pretend to be I'm something I'm not.
+- I feel like truth resonates, and you can taste when something is synthetic.
+- I remember being in the States a few years ago, and when I said I was from Toronto, it doesn't really make a difference. Now you say you're from Toronto, and people want to talk to you a little longer. Drake's putting on and bringing a lot of eyes to the city, but I feel like the seed and the flowers have always been here.
+- Before I pass, I want to start an orphanage and name it after my mother. She worked with kids all her life.
+- In life, unfortunately, I've had multiple experiences where people that I thought I could depend on have switched up, or I've caught them in lies, and their true colours have shown.
+- My God, it's laundry and family when I come back home. I've got to see my brother and kids, and my sister-in-law, my aunts, my uncles, cousins; everybody is here.
+- I can't be so guarded up all the time. I know it's not healthy.
+- For me, I try to always look at the positive.
+- At Afropunk, everyone can be themselves, and I think that's beautiful.
+- I'm all about polarities and juxtapositions.
+- If you're serious about your music, there's this thing called The Remix Project in Toronto, and it's an art incubator, and it's basically like free school. If you don't got money for studio, you don't have the networks, they help you.
+- To be blunt, I feel like lyricism in Spanish is of a different quality than English. You can get really poetic in Spanish, but I feel like if you do that in English, you risk sounding cheesy. In Spanish, it's never that. It's always this deep, passionate, beautiful imagery; it's painted different, a different color.
+- I love my smart, supportive, if-I-see-something-I'm-going-to-speak-up type of men.
+- I feel like I'm really grateful that my parents chose Canada, and I feel like there's open arms here, and it's very apparent.
+- I'm a fan of writing, and writing letters, because I hate when I'm trying to get a thought out, and I can't.
+- I want to be remembered for doing something bigger than myself and making a positive impact on the world. I want to make my life worth something and to die a legend and to make my family proud.
+- I'm proud of the fact that I can just focus on the bullseye and go. Thank God, I don't have to worry about distractions or veering off course because my focus is very defined. I'm proud of that.
+- Frank Ocean - I have so much respect for him.
+- Why am I who I am? It's the way I was raised.
+- I'm a person of extremes. I'm usually very polar in a lot of things that I do.
+- I'm sensitive. I'm proud of being sensitive. I'm proud of being empathetic.
+- Canada has this really cool way - specifically Toronto - of encouraging you to wave both flags: if you've been born there, like, wave your flag and then wave your parent's flag, too, and be proud of it.
+- I want to make something great. I want to make something that I can be proud of in 10 years, something that is timeless.
+- I've been debating with people over what an album actually means in 2018. Certain artists who have paid their dues and proven themselves have almost the privilege to put out a full length album.
+- I was very small when I started making music. I think the first song might have been when I was, like, in grade one, maybe? It was really ironic, cause it was a kid talking about taking time with growing up.
+- If you consume something that's poisonous, you don't consciously think of vomiting; your body just does it. It's a reflex. When I'm happy, I don't instantly feel the need to get rid of that feeling. But when I'm sad, I think maybe that's what happens.
+- I remember that I wanted the Razor scooter, and my dad went to the garage, spent one or two days, and built one out of wood and painted it with the Colombian colors.

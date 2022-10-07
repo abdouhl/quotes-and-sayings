@@ -1,0 +1,78 @@
++++
+author = "Miley Cyrus"
+title = "Miley Cyrus Quotes"
+quotes_len = "72"
+description = "the best 72 Miley Cyrus Quotes"
++++
+- I'm pretty outspoken.
+- When preparing for a concert, I do lots of training. I work with a choreographer to create great moves and then I have to keep my voice strong with lessons.
+- No matter how long what I'm doing here lasts, I want to be a songwriter for the rest of my life. I love it and it's my escape.
+- I'm actually graduating early. I got a lot of work done already. Being home schooled, I have had a lot of tutors help me.
+- Anyone that hates on you is always below you, because they're just jealous of what you have.
+- Pink isn't just a color, it's an attitude!
+- I know what I'm doing. I know I'm shocking you.
+- I'm a bit of a tomboy.
+- I get more anxious than nervous before a concert.
+- I don't love kids.
+- A true friend is someone who is always there during the ups and downs, I actually have a song called 'True Friend'.
+- I probably have an earlier curfew than anyone. My mom wants to keep me really safe and my dad's not overly protective, but he's a dad no matter what.
+- I need more friends. It's kind of like my quest right now just to have more true friends.
+- You can't live a positive life with a negative mind and if you have a positive outcome you have a positive income and just to have more positivity and just to kind of laugh it off.
+- Every career thing I do can't be perfect and sometimes my decisions are wrong.
+- I never had, like, a nanny that took care of me. My mom always fed me breakfast, lunch, and dinner.
+- I love to sleep. I'd sleep all day if I could.
+- Music is what I breathe, what I love to do. It keeps me alive.
+- My mom is always telling me it takes a long time to get to the top, but a short time to get to the bottom.
+- I am fully committed to Hannah Montana. It's what gave me this amazing opportunity to reach out to so many people. I'm really excited about our new season. We are making great new episodes that I can't wait for our fans to see and I'm looking forward to the 'Hannah Montana' movie that will be out in the spring.
+- Jesus is who saved me. He's what keeps me full and whole.
+- I don't have a normal life.
+- My dad, like, he's the most trusting human in the world.
+- There's nothing more fun than being out on stage and getting the vibe from the crowd. There's nothing like being on a set where you are there to make other people happy and to make them laugh. That's the best job in the world.
+- I try to not work too many Sundays. At least on Sunday nights, I try to chill out a little bit. I call it Sunday Funday.
+- I come from this really small town near Nashville, Tennessee, where everything was la-di-da and normal.
+- I just stick my tongue out because I hate smiling in pictures. It's so awkward. It looks so cheesy.
+- I never faked anything. I never played the Disney game of smiling and being a princess and then suddenly having a hard time, saying, 'That isn't who I really am.'
+- I love tube socks!
+- My dad says I could sing before I could talk, if that's possible. I was always humming and things like that.
+- I don't keep secrets because I'm no good at them!
+- You don't have to go out and party every night. You can act because it's your dream.
+- People are impressed with me - because I can sleep for just 45 minutes - I'm used to it.
+- The only people that you really have, that I learned, are your family, because they love you no matter what.
+- I love looking out at 27 semis and being like, every single one of those semi trucks is there to put together my stage.
+- I take a hiatus every now and again, but I'm not good at that.
+- God wants my life to be about being successful and being happy and blessing other people and being blessed.
+- As soon as I step on that stage, nothing matters. I don't think of it as work. It's just so much fun.
+- Life is all about having a good time.
+- I've got high standards when it comes to boys. As my dad says, all girls should! I'm from the South - Tennessee, to be exact - and down there, we're all about southern hospitality. I know that if I like a guy, he better be nice, and above all, my dad has to approve of him!
+- But I don't necessarily define my faith by going to church every Sunday.
+- It's so much easier to know who you are when there aren't a thousand people telling you who they think you are.
+- I always say the minute I stop making mistakes is the minute I stop learning and I've definitely learned a lot.
+- I think my dad is a lot cooler than other dads. He still acts like he's still 17.
+- I don't want to be perfect, but I do want to be a role model. My mom always tells me that imperfections equal beauty. All of us are imperfect.
+- I am so excited to let fans in on how important my relationship with my family is to me. I hope to motivate mothers and daughters to build lifetimes of memories together and inspire kids around the world to live their dreams.
+- I guess I kind of realized that my whole life isn't one giant press junket. I don't have to be smiling all the time and always have the perfect answer.
+- If I could get any animal it would be a dolphin. I want one so bad. Me and my mom went swimming with dolphins and I was like, 'How do we get one of those?' and she was like, 'You can't get a dolphin. What are you gonna do, like, put it in your pool?'
+- I've not taken like acting lessons or anything but it doesn't mean I don't need to because I'm sure I do.
+- I have four shelves covered with journals that I've written. Dad and I are writing songs together. I've probably written 100 songs.
+- I would say I'm a nice person, and I take pride in the fact that I treat everyone really well, so there's no reason for anyone to ever come at me because I only want the best for everybody else.
+- Those minutes that I'm on stage are the best! Being there and looking at the crowd and seeing their faces, hearing them sing the positive words from the songs.
+- There's no right or wrong, success or failure.
+- I love animals, but I don't really like riding animals. Like, I don't love being on a horse - it's just not my thing.
+- There are so many people that have come up to me during our shows and tell me: 'The hour that we are watching your show is the hour that my kids are happiest and are smiling, they are laughing,' and that is what I long to do.
+- If you believe in yourself anything is possible.
+- I'm kind of bipolar in my acting choices because I just want to do a little bit of everything.
+- I think that turning on the charm without being fake is really important.
+- I've actually had a melody on my guitar since the day I learned how to play it, back when I was 7. And for some reason I can't add lyrics to it.
+- All I do is work, so I eat to live and to keep going.
+- The best part of my carreer is getting to meet so many different people, because I learn so much from everyone.
+- People like controversy because that's what sells.
+- Some of the worst things that have happened in my career, like things getting leaked, have actually been what's best for me, because people knew when I was on that show that I was really growing up.
+- My life won't be a series of either/ors - musician or actor, rock or country, straitlaced or rebellious, this or that, yes or no. The real choices in life aren't that simple.
+- My favourite sport is cheerleading!
+- I think Hannah gets nervous just like any other person would. She's like a dork, personally. She's just really, really fun.
+- I think I am a pretty good sister.
+- I am not very good at keeping secrets at all! If you want your secret kept do not tell me!
+- I told my mom, 'I'm not buying another magazine until I can get past this thought of looking like the girl on the cover'. She said, "Miley, you are the girl on the cover,' and I was, like, 'I know, but I don't feel like that girl every day.' You can't always feel perfect.
+- With yourself, I think you have to decide the kind of person that you really want to be, and for me, it's just a sweet girl.
+- I hate being thought of as a product.
+- I have an opinion. I have my own taste.

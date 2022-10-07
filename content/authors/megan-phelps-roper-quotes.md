@@ -1,0 +1,105 @@
++++
+author = "Megan Phelps-Roper"
+title = "Megan Phelps-Roper Quotes"
+quotes_len = "99"
+description = "the best 99 Megan Phelps-Roper Quotes"
++++
+- If you look at who you were a year ago and aren't somewhat embarrassed, you're not growing as a person.
+- It really bugs me that Twitter gets such a bad rep.
+- The things I believe in now are grace and the power of human connection to change hearts and minds and the importance of civil dialogue.
+- As happy as we were in our backyard jumping on trampolines, it was the same general feeling, often euphoria, on the picket line, because we felt like the way our lives were falling on to us contorted with the people of God and the scriptures. It all felt very normal.
+- We believed it was a Good vs Evil situation: that the WBC was right and everybody else was wrong, so there was no questioning. It was a very public war we were waging against the 'sinners.'
+- I believe in so much - I believe in people. I believe in hope.
+- I don't feel confident at all in my beliefs about God. That's definitely scary. But I don't believe anymore that God hates almost all of mankind. I don't think that, if you do everything else in your life right and you happen to be gay, you're automatically going to hell. I don't believe anymore that WBC has a monopoly on truth.
+- In the era of Donald Trump the echoes of Westboro are undeniable: the division of the world into Us and Them; the vilification of compromise; the knee-jerk expulsion of insiders who violate group orthodoxy; and the demonization of outsiders and the inability to substantively engage with their ideas, because we simply cannot step outside of our own.
+- When we lose hope that there is a possibility of reaching the other side - I don't even like to say the 'other side' because there are so many sides, and breaking it down into us/them is oversimplifying - it allows us to treat people in a way that's incredibly destructive.
+- Because of the dynamics on the picket line all my life, I had these expectations of people. It was all the things that I had learned about outsiders from the time I was tiny, that they were evil, that if they were being nice to me they were trying to seduce me away from the truth.
+- Twitter was an alternative community for me. A different kind of community. I knew I was making people angry. But it didn't matter, they weren't my community. But the longer I was on Twitter and the more I came to know these people, to like and respect them, the more I could see the empathy and grief and sorrow they were expressing.
+- I liked 'The Sun Also Rises.'
+- I always joke about how I get excited to go to the grocery store without permission.
+- As a member of Westboro Baptist Church, I became a fixture on picket lines across the country.
+- My friends on Twitter didn't abandon their beliefs or their principles - only their scorn. They channeled their infinitely justifiable offense and came to me with pointed questions tempered with kindness and humor. They approached me as a human being, and that was more transformative than two full decades of outrage, disdain, and violence.
+- Twitter helped others to see me as a human being. And showed me their humanity, too.
+- I went to my mother right before I was set to go protest my first soldier's funeral and asked my mother: 'I need to understand why we're doing this.'
+- I know I want to do good for people. And I want to treat people well.
+- My family, they cannot have anything to do with us. They believe that, you know, their duty is to deliver me to Satan for the destruction of the flesh.
+- I wrote an apology for the harm I'd caused, but I also knew that an apology could never undo any of it.
+- We did lots of fun normal-kids stuff.
+- There are aspects of Westboro that are, of course, more extreme in the way that certain religious practices manifest. But the idea that the Bible is the infallible word of God, that it's unquestionable - this is common.
+- Loving someone whose ideas we find detestable can seem impossible, and empathizing with them isn't much easier - but it's so important to remember that listening is not agreeing.
+- I think for some people who leave Westboro, losing that sense of specialness feels like you've lost something really valuable and important. I had the opposite experience. I was so grateful to know that I wasn't uniquely evil. I was just a human being who had had this set of experiences that were outside of my control.
+- In 2014, as a Christmas gift, I wrote an essay for my husband, about our story. Writing that showed me there was value in interrogating my experiences while they were fresh - especially because I was terrified of forgetting.
+- In my home, life was framed as an epic spiritual battle between good and evil.
+- We know that we've done and said things that hurt people. Inflicting pain on others wasn't the goal, but it was one of the outcomes. We wish it weren't so, and regret that hurt.
+- Since leaving the church, I've been working with law enforcement involved in counterterrorism and deradicalization. I hoped that illuminating Westboro's ideology - and especially the unraveling of that ideology - would be useful to the people doing that work.
+- There's so much power in seeing the possibility of change.
+- All I could do was try to build a new life and find a way somehow to repair some of the damage. People had every reason to doubt my sincerity, but most of them didn't. And - given my history, it was more than I could've hoped for - forgiveness and the benefit of the doubt. It still amazes me.
+- We held signs that said 'Thank God For Dead Soldiers,' 'Thank God For IEDs.'
+- We were raised to believe that our way of seeing the world was the only way.
+- Assuming ill motives almost instantly cuts us off from truly understanding why someone does and believes as they do.
+- My husband and I eventually want to start a nonprofit and call it the Westboro Foundation. It was his idea, and I love it. I would love for Westboro to come to mean something besides 'God hates gays.'
+- The pickets were just a fact of life. And the fact that people hated us from the time I was tiny, the fact that we were hated, I was taught, was a cause for great rejoicing.
+- Whenever people would speculate about the death of my grandfather it was always this very retributive thing. That they were going to picket his funeral after all the things that he had done to so many other people. That vindictiveness is obviously completely understandable. It would make perfect sense.
+- I had never experienced the death of someone close to me until my grandfather passed away.
+- We know that we can't undo our whole lives.
+- I was born and raised in the Westboro Baptist Church, an infamous congregation started by my grandfather, and consisting almost entirely of my extended family.
+- I'm constantly meeting people that I hurt, you know? This is not - when I go and talk about these things, this is not a theoretical - it's not a theoretical apology. It's something that I live every day.
+- There's a rich history at Westboro of parodying pop culture. The thing about pop culture is that it gives us a shared language. We were constantly trying to co-opt things that were popular to deliver our own message.
+- Westboro's fire and brimstone message was the air I breathed all my life. But after joining Twitter at the age of 23, I encountered people who challenged my beliefs and unearthed contradictions my blind faith had missed.
+- I was a blue-eyed, chubby-cheeked five-year-old when I joined my family on the picket line for the first time. My mom made me leave my dolls in the minivan. I'd stand on a street corner in the heavy Kansas humidity, surrounded by a few dozen relatives, with my tiny fists clutching a sign that I couldn't read yet: 'Gays are worthy of death.'
+- You know, I had grown up standing on public sidewalks, saying things that people, you know, were very provoked by and were upset by. And - but standing outside that first soldier's funeral, it was eerily quiet.
+- I wanted to do everything right. I wanted to be good, and I wanted to be obedient, and I wanted to be the object of my parents' pride. I wanted to go to Heaven.
+- It's important to see people as being on a journey.
+- Empathy is not a betrayal of one's cause.
+- My first memories are of picketing ex-servicemen's funerals and telling their families they were going to burn in hell.
+- I try to focus on using my energy to change things, but there are times when I feel so bad.
+- My life was forever changed by people who took the time and had the patience to learn my story and to share theirs with me. They forsook judgment and came to me with kindness and empathy and the impact of that decision was huge.
+- When I got on Twitter, that was the first time I was able to have lasting relationships with outsiders. And even though they were limited to those 140 characters, it was the duration of the friendships and the rapport we were able to develop.
+- The very first soldier's funeral protest that I went to was in Omaha, Neb.
+- In spite of overwhelming grief and terror, I left Westboro in 2012.
+- We read the whole Bible, cover to cover, over and over again... It wasn't that we read selective parts of the Bible. It was that we interpreted it in this very selective way.
+- I had grown up seeing people in school where I felt like I needed to keep them at arm's length, or on the picket line, where there was a tonne of hostility and no time to build rapport with people.
+- You can't listen to the whole world tell you you're crazy, without wondering, 'Am I crazy?'
+- When we engage people across ideological divides, asking questions helps us map the disconnect between our differing points of view.
+- I definitely regret hurting people.
+- I don't believe in God anymore.
+- I do send messages to my family; I send letters in the mail, and when I'm in town, I almost always leave something in the door of my house in Topeka.
+- The idea that people feel that they have to be sympathetic to me? It's a funny concept.
+- Even though I was 27 when I left, I still was largely treated like a child, because I wasn't married. My parents, my mother specifically, knew where I was and what I was doing at all times.
+- I got on Twitter in 2009.
+- Whatever state you find yourself in, you're supposed to be content there.
+- My church's antics were such that we were constantly at odds with the world. That reinforced our 'otherness' on a daily basis.
+- You hear stories about Scientology, where people are prevented from leaving, and Westboro's not like that. If you decide that you don't want to be there, then they will help you leave. The shunning, cutting people off - they're doing that because they believe it is for our highest good.
+- I don't believe any more that WBC has a monopoly on truth.
+- I will say, this is something, this praying for people to die thing, that's something that I came to believe was unscriptural. And for years, I made these arguments to my family, in writing, privately in letters that didn't get responses and in interviews. And for a while, they just doubled down. Eventually, they came to stop doing it.
+- When people are in the thrall of poisonous ideology, it's really not all about deliberate ill will, or inherent hatred, or a lack of intelligence. It's about the unbelievable destructiveness and staying power of bad ideas and about finding ways to equip people with the tools they need to fight them.
+- Showing your own righteousness by pointing out someone's unrighteousness, the race to the bottom, the transgressions getting smaller and smaller and smaller but still treated with the same level of intolerance and condemnation, all of that stuff, even as I say it I am talking about Twitter but I am thinking about Westboro.
+- I remember feeling like we at WBC were a persecuted minority, triumphant in the face of evil people 'worshipping the dead' as we picketed funerals or rejoiced at the destruction of the Twin Towers.
+- What's important to me is how the Lord looks at me, more than anything else.
+- Discussing and dissecting opposing viewpoints with others on Twitter opened up a whole new way of thinking for me.
+- Westboro would quote this passage from the book of Leviticus that, for them, shows that the definition of 'love thy neighbor' is to rebuke your neighbor when you see him sinning. And if you don't do that, then you hate your neighbor in your heart.
+- My family thought - and thinks - very seriously about words. About language and what it means and how it shapes us and how it should shape us and change us.
+- How could we claim to love our neighbour while at the same time praying for God to destroy them?
+- We were supposed to be able to use the Bible's words to explain what we were doing, and if we couldn't do that, then we shouldn't be doing it.
+- If you can see these people... as human beings and capable of change, there is hope. We should be willing to reach out. Imagine what could happen if we kept reaching out to people like Westboro members?
+- We played video games and read books, and we went to public school. And yeah, we went to amusement parks. We did all of those things, but we also - that was all sort of organized around this nationwide picketing campaign.
+- Take heart, and be patient; change takes time but it is possible, and it's way more likely if we can reach out and disagree without demonizing.
+- Several people I had conversations with were hugely influential. People who found internal inconsistency in Westboro's ideology. It was the first thing that allowed me to recognize that Westboro was wrong.
+- Generally, people don't change their minds about fundamentally deeply held beliefs; it doesn't happen in an instant - it's a process.
+- I don't think that, if you do everything else in your life right and you happen to be gay, you're automatically going to hell.
+- I miss my family every single day.
+- Once I saw that we were not the ultimate arbiters of divine truth but flawed human beings, I couldn't pretend otherwise.
+- There's a learned helplessness for a lot of people who are leaving Westboro because you're not allowed to have any kind of independence when you are there so a lot of people don't have practical life skills.
+- I don't believe any more that God hates almost all of mankind.
+- Our duty was to declare God's standards to the world: no adultery, no fornication, no gays, no idolatry.
+- At Westboro, the depictions of hell are extremely vivid. The only thing that changes in hell, according to the church, is your capacity to feel pain. As the capacity to feel pain increases, so does the pain. It's absolutely terrifying. I believed God was going to curse me for having left this group of people.
+- We thought it was our duty to go and warn people of the consequences of their sins, and I understood that to be the definition of loving our neighbour.
+- Some people cannot believe there is an alternative interpretation of the Bible aside from their own.
+- If organizations like Westboro were universally bad, they wouldn't exist. There had to be some draw, and at Westboro, there was a lot of draw. The church was almost entirely made up of my extended family, and everyone in the church felt like family.
+- We know that we dearly love our family. They now consider us betrayers, and we are cut off from their lives, but we know they are well-intentioned. We will never not love them.
+- For my grandfather, there was no distinction. There was no tension between his support for civil rights for black people and his animus toward gay people because both of those positions were scripturally derived.
+- Growing up in Westboro, there was a culture of celebrating death and tragedy... a very calloused way of seeing other people's pain. After I left, it took me a while to be able to really empathize with what it must have been like for the loved ones of people whose funerals we protested.
+- I feel like I was transformed by the kindness of people who had every reason to show me cruelty and the transformative power of their decision to treat me like a human being, that was so huge, that anytime somebody wants me to talk about that I feel like I absolutely want to do that.
+- I no longer believe that the Bible is the literal and infallible word of God. And I don't believe in God as a figure in the sky listening to your prayers, things like that.
+- Arguing is fun when you think you have all the answers.
+- I don't like to say I'm not a believer because I still feel like a believer in a lot of things, primarily hope and grace and the power of human connection.

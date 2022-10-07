@@ -1,0 +1,73 @@
++++
+author = "Tony Bennett"
+title = "Tony Bennett Quotes"
+quotes_len = "67"
+description = "the best 67 Tony Bennett Quotes"
++++
+- Performers should really go to the best schools, like Lady Gaga, you know, she went to NYU and had great teachers... It's best to really study your technique as much as you possibly can so you can have a long career instead of a quick one that's a failure.
+- Never treat the audience disrespectfully.
+- I was taught never to compromise: to never sing a cheap song. I never look down at the audience and think that they are ignorant or think that I'm more intelligent than they are. To think otherwise is totally incorrect and runs contrary to everything I was raised to believe.
+- I grew up in an era where the record companies just sold records to everybody, and the whole family bought songs.
+- Fame comes and goes. Longevity is the thing to aim for.
+- I take care of myself. I work out three times a week. I have a trainer, and we just work out for an hour.
+- It's a great thing that the United States has given the rest of the world - no other country has given such great popular music to the Far East and Europe. When I play those great countries, a lot of times, the audience starts singing the songs with me. They know them. They love them.
+- I still get a little nervous before performing. You don't want to forget a lyric; you don't want to make a mistake. I still get butterflies. You can try to judge an audience, but you can only really judge things by the applause.
+- To me, life is a gift, and it's a blessing to just be alive. And each person should learn what a gift it is to be alive no matter how tough things get.
+- I'd like to prove that if you take care of yourself, you can actually not regret the fact that you've become an old-timer, but you can just still improve and actually get better.
+- When Sinatra said, 'For my money, Tony Bennett is the best singer I've ever heard,' it changed my career completely. He was my best friend, and I was his best friend... but I was never part of the Rat Pack.
+- More than anybody else I'd like to thank Count Basie for teaching me how to perform.
+- I respected Ella Fitzgerald, Nat King Cole and Frank Sinatra. Those were my heroes, and they were 10 years older than I was.
+- For many years, I've always been attached to what they call the Great American Songbook, and Kern was a great leader of that because he had the classical training of Europe. He impressed all the greatest composers, like Cole Porter and Gershwin. They couldn't believe he was writing the songs he was writing.
+- I had the greatest time of my life in England for a couple of years, and Robert Farnon made some of the best music I've ever been around.
+- The whole music world is based on the young, the very young people.
+- I study nature, and I realize that no matter how much you learn, you can't top nature.
+- As a young boy, I did a lot of foolish things. I made a lot of mistakes. And you live and learn.
+- The high point for me in my career was when Sinatra called me his favourite performer in the Fifties. And I've been sold out ever since.
+- I'll call it a day when I die. It's a wonderful occupation for me. I've never worked a day in my life.
+- I still insist that American performers are the best performers in the world.
+- Johnny Mercer started Capitol Records, and he brought in Sinatra, Dean Martin, and Nat King Cole. He just let them sing whatever they wanted, and it became the best record company in America.
+- Gaga is a gorgeous singer, and when she sings a great ballad, I get goose bumps.
+- Nobody has communicated with the public more than Lady Gaga. Ever. I trust the audience, and I'm very impressed. As far as they're concerned, she's part of their family. The only guy who ever did that was Bing Crosby, years ago.
+- I have a simple life. I mean, you just give me a drum roll, they announce my name, and I come out and sing. In my job I have a contract that says I'm a singer. So I sing.
+- I'll never retire.
+- When the uncreative tell the creative what to do, it stops being art.
+- I know the history of the record business so well because I followed Billie Holiday into the record studios. It was so primitive compared to the sophisticated business today.
+- It sounds so simple, but if you just be yourself, you're different than anyone else.
+- I get up, and boy, I can't wait to paint and study music and keep learning. I just love it.
+- I lived for 15 years in Los Angeles, and I still can't believe that the handsomest man in the world, Cary Grant, and the greatest performer in the world, Fred Astaire, and Johnny Carson, one after another - they were all in my home at different times. I celebrated my 50th birthday with them. Unforgettable.
+- I've never worked a day in my life.
+- In America, at the beginning of talkies, they pulled Fred Astaire from the theaters and put him on the screen and had all of these great composers write songs for him. They call it the Great American Songbook; I call it the Fred Astaire Songbook because they were written for him.
+- Every week, as an 11-year-old kid, I would tune in to what was really the first American Idol-type program, a radio show called 'Major Bowes' Amateur Hour.' The winning group on the evening of September 8, 1935, was called the Hoboken Four, and their spokesman was Frank Sinatra, then aged 19.
+- I think one of the reasons I'm popular again is because I'm wearing a tie. You have to be different.
+- When you get older, you don't have to eat a lot. I get my rest and sleep very well at night. It keeps me very balanced.
+- Every show is different. The public has always been nice to me. I'm fortunate that way.
+- The singers who are the most honest are the ones who become immortalized.
+- Mercer was very clever. He knew the way Southerners spoke and put that into his lyrics. But in that whole era, you had the best. Harold Arlen was just fantastic. Cole Porter was better than anybody, and Gershwin was Gershwin, y'know. Johnny Mercer started Capitol Records, and he brought in Sinatra, Dean Martin, and Nat King Cole.
+- Presley is country music, white music. Jazz is black music - it was invented by the blacks in New Orleans. And I'm really a jazz singer. I was impressed with Elvis - he was the handsomest guy I ever met in my life, and a very nice person, too. But the music doesn't impress me.
+- If music sounds dated, it means it wasn't very good in the first place.
+- I've been so fortunate because I never really had ups and downs as far as my career. Ninety-nine percent of the time, I've been sold out all over the world.
+- I still have a lot to learn. I'm concentrating on learning a lot more about music.
+- I loved Art Tatum! And, through him, and other different jazz musicians, I actually found my technique.
+- My whole premise has been, right from the beginning, that it would take me a lifetime to learn to explain myself as an artist. As you grow older, you learn what to do and what to leave out. You kind of simplify your work and get the same thing done with fewer strokes. It's pretty interesting to me.
+- Singing is a gift.
+- The young people look great on television. They're youthful and have a lot of zip and energy, but when you see them live, they can only do about 20 minutes because they haven't got the training to hold an audience for an hour and a half or so.
+- When you hear a great two-track of a performance in Carnegie Hall, let's say, it sounds like you're right there at that moment. It's true to reality. And the closer it gets, once it gets too technical, it becomes very tinny to hear notes. It doesn't sound right. It has to be natural.
+- I grew up in an era where the record companies just sold records to everybody, and the whole family bought songs. Today, record companies are failing because they are putting their accent just on the young, and I think that's rather silly.
+- Every day feels like just starting out because I still have so much more to learn.
+- Singing intimately is almost like thinking into a microphone, so it helps to have the song buried inside you.
+- If something is good, it's always good. You don't have to change it.
+- I was possessed with a wonderful example of my Italian American family. They would come over and join us every Sunday, all my aunts and uncles and nephews and nieces, and I would sing for them.
+- I love entertaining people; I strive to make them feel good, and they make me feel wonderful. To explain it simply, I like what I do, and my ambition is to get better as I get older. That's really what I'm all about.
+- Lady Gaga is the Picasso of the entertainment world. She's very intelligent.
+- No matter what age you are, there's a lot of room for learning.
+- I want to try to prove that at 100, I could sing as well as I was singing when I was 45 or 43. I'd like to prove that if you take care of yourself, you can actually not regret the fact that you've become an old-timer, but you can just still improve and actually get better.
+- To work is to feel alive.
+- I loved my mom so much because she had to work on a penny just to put food on the table... During the Depression in the United States, everybody had a tough time. And I was so hurt because she was crying that she didn't have any food for us for Thanksgiving.
+- I've been very fortunate. I'm doing what I love, and I'm getting away with it, you know?
+- I still feel that I can get better somehow. And I search for it all of the time.
+- I don't sing operatically, and I sing very intimately, but I still do the scales, and I think in terms of intonation and making sure that I'm hitting the notes right on the head... and having it appear quite effortless.
+- I have grown to appreciate the power of believing in myself and of always having faith in myself. I rarely look back; instead, I always look forward. There is so much of life that we miss when we wallow in regret.
+- I want to try to prove that at 100, I could sing as well as I was singing when I was 45 or 43.
+- My whole life has been singing and painting. I just do those two things.
+- Sinatra invited me once to his birthday party in L.A. I was young, and I felt great about it. But when I got there, the Rat Pack were all in the kitchen laughing their heads off.
+- The United States created the best popular songs that were ever written, and from the 1920s to the 1940s, it was a renaissance period. It stopped in 1950.

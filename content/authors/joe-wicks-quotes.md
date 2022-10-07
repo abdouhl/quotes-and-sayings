@@ -1,0 +1,106 @@
++++
+author = "Joe Wicks"
+title = "Joe Wicks Quotes"
+quotes_len = "100"
+description = "the best 100 Joe Wicks Quotes"
++++
+- You can be fit and healthy and still have fun.
+- Oh, I love a good burger, I really do. With chips and a beer and ice cream afterwards.
+- Unconditional love is so important for people with addiction.
+- You can have an awesome physique by doing just 25 minutes exercise a day. That's all I do.
+- I'm not a military-style guy. I'm very, like, relatable.
+- I'm the man I am today because of what my dad's been through, what my mum's been through and I always had love and that's the most powerful thing you can have in life.
+- There's no wrong or right with fitness. It's whatever you enjoy and whatever you can keep up and keep doing.
+- One thing I had more than anything, I had love and support from my mum and dad. My mum used to say: 'I don't care if you become a dustman or a doctor, you can be who you want.'
+- I think kids learn from what they see.
+- That would be the most powerful thing I've ever achieved, if I can take a kid who doesn't like exercise and get them to enjoy it. That would be the ultimate, ultimate achievement for me.
+- When I've stopped doing workouts and YouTube videos, I want this content that I've created to be used in schools all around the world. This is what I want to be remembered for.
+- I'm a big fan of HIIT training and you can do it anywhere; at home, in the garden or even in the park.
+- I love a feelgood Taylor Swift or Katy Perry pop tune.
+- I Snapchat in the bath. I Snapchat when I wake up. I'm giving people inspiration. It's like a TV show.
+- My aim is always just to get one person a day to exercise and cook healthy food.
+- I'm always giving out such a positive message that I never really get attacked. There's not much you can attack me for.
+- My mum is a social worker and my dad's a roofer. My brother Nicky and I were the first two in my family to go to university.
+- The antidote to addiction is connection and love.
+- People underestimate the impact of lack of sleep; not only will the intensity of your workouts suffer, but you are likely to crave sugary foods the next day.
+- I do love my dad, we have a great relationship now but there were years when he was absent and it was my mum that raised me.
+- I don't do politics.
+- I eat three home-cooked meals a day, all prepared in advance. My ethos is to stay away from unsustainable low-calorie diets and aim for something balanced: loads of veg, protein and enjoy the carbs you love. Be realistic. I don't count sugar or salt or grams of fat: it's very restrictive and unenjoyable.
+- I had quite a chaotic home life, it wasn't stable, my diet wasn't great. I was never an overweight child, but I had behavioural issues. I think that was linked to my upbringing and not having a great start with my nutrition.
+- I don't want people to compare themselves to me and feel bad. I want to be inspiring, not to depress them.
+- My goal is to take the nutrition world globally. You've got chefs who do their chef thing, you've got fitness trainers who do the fitness stuff but I'm the only one who does both.
+- Role modelling for your kids is so essential.
+- I live my life online: I don't have many secrets.
+- I believe that a child who exercises is more alert, focused, positive, has better mental health.
+- I'm not the best trainer in the world. I'm not the most technical or scientific. But I consistently put videos out there, whether it's for your grandma or a young toddler. And I'm relentless.
+- I think I've opened up my mind to all foods, except tinned tuna. I can't stand that. I will not go near it; the smell is unbearable.
+- I love my mum for raising us, and I love my dad for teaching me what to avoid.
+- Cooking at home with fresh ingredients means you know what's going into your food.
+- Having a perfect set of abs will not bring you happiness, but eating healthy food and exercising will.
+- Think of your body like a car: a glass of water first thing in the morning is like starting your engine.
+- Your baby is your baby and you are free to feed them however you like. Try not to compare your child to others. This is your journey and you can take it at your own pace. Whichever style of weaning you decide to go for is your choice, and remember: all children eventually do learn to eat with a knife and fork.
+- I don't come from a very ambitious family. We weren't entrepreneurial. We weren't hard-working academics, or setting up businesses. But for some reason, when I started doing fitness, I always had this voice in my head telling me to keep going - keep going, and people will eventually follow.
+- My mum loved housework, she basically had OCD.
+- If I have a fizzy drink and an ice cream, I get a sore tummy and a headache.
+- I try to be as genuine and authentic as possible.
+- I want to be the person who completely transformed the health of the nation.
+- I like getting fresh air.
+- I don't know Russell Brand but I like him a lot. I think he's a good guy.
+- I really believe you need to have some challenges in life, because you come out of it, and are better for it.
+- I like going to the cinema or theatre, followed by a meal and cocktails. I'm typically home by midnight; I used to be a raver but not now, unless I'm on the boys' trips to Vegas, Dubai or Miami.
+- A lot of people would question, 'is twenty-five minutes or thirty minutes a day really enough to have a good physique?' But that's how I live my life: I do short and intense workouts so that I can enjoy my day and be with my family and not be in the gym for hours.
+- I'm not someone who... counts calories or tracks macros; I've never known how many grams of this and that and how many calories I eat.
+- The minute you have a little bit of success, you think: 'I can do more and I can reach more people.' So as I've achieved more, I've become way more focused.
+- I've never thought much about energy, or a higher power, or the driving force behind someone's purpose.
+- I used to think I wanted to be a PE teacher and I worked as a school teaching assistant for a year, but it wasn't for me.
+- Lots of kids don't have active lives and good diets.
+- Don't look too far into the future, just look at tomorrow. One day at a time. Can you win tomorrow? Can you make progress? The answer is yes, you have a choice and tomorrow you're going to win.
+- I just don't regret anything I've gone through or anything I have been through with my mum and dad, I'm just proud of who I am.
+- You can't smash your business and be a mum or a dad on 1,000 calories a day.
+- I'm just trying to use my happiness and motivation to rub off on other people around me.
+- Fasting is not sustainable or enjoyable, yet we've been conditioned to think the only way to burn fat is to cut out all the things we love and spend hours in the gym. How can anyone live like that? Don't starve yourself; train, then refuel your body.
+- Exercise is an amazing tool to help us feel happier, more energised, and more optimistic.
+- If you had met me as a kid you would have never predicted me to be a success. I had a pretty ropey upbringing and you might have thought I'd have gone the other way.
+- My office is my house.
+- A golden rule? Do not come food shopping when you're starving hungry and craving stuff. You'll fill your basket with all the naughty things you probably wouldn't eat.
+- I'm not motivated to be famous. I'm motivated to be successful. To reach people, I've got to get on TV, I've got to get in with the government, I've got to get on TV abroad.
+- Finger foods can help little ones to explore food at their own pace. They are also great for helping them to develop hand-eye coordination and encouraging them to try out a variety of textures.
+- It's never too late to get fit; it's never too late to feel good and confident and change the way you eat and train. Just give it a go and momentum will take you the rest of the way.
+- I was quite hyperactive as a young kid, and then when I got to high school I was just the class clown. I didn't have much of an attention span.
+- I work with my brother and best mates, but I wouldn't give any old plonker a job. With success, I've been able to spend more time with family and be financially supportive in a way I never thought I could.
+- I'm not one to dwell on the past and have resentments.
+- I never really had an overweight body.
+- I'm putting out the story of my life, all day, every day. You follow it, you think you know me. People love it. It looks like I'm having the time of my life.
+- It's all about nutrition. You can train, train, train all you want but I always say you can't outtrain a bad diet.
+- I grew up on a council estate, but I still had a roof over my head, we still had food, I went on school trips. I wasn't completely deprived.
+- Start early and hydrate as soon as you wake up.
+- I wasn't born ambitious, but I am ambitious now.
+- If you're really unfit and you want to get into fitness, just starting at home with some really basic, gentle stuff is going to build up your confidence and your fitness. This way, if you do decide to join a gym, you're not going to be really intimidated and just run out the door.
+- As a kid I had a very unhealthy diet. I try not to place any blame. Mum was uneducated in cooking. She left school and home at 15, had my older brother when she was 17 and me at 19. It was usually frozen meals and lots of cola, peanut butter, jam sandwiches, sweets and loads of chocolates.
+- I've got freakishly large big toes. They look like the ace of spades.
+- I just have the ability to make a four-year-old kid and a 50-year-old man feel good at the same time. I don't talk down or up. I'm just myself.
+- People say I'm like a cross between Jamie Oliver, Russell Brand and Mr Motivator.
+- If you're a likable person and you're passionate, then people are drawn to that wherever you are in the world.
+- I've always been a fan of the home workout. I know a lot of people think that jumping around in your living room is never going to be as effective. But you can get an amazing workout using your bodyweight alone.
+- If you struggle with sleep, you'll struggle with exercise and diet.
+- The diet industry pushes these low calorie, calorie-counting diets, and that's what I want to release people from.
+- I think exercise is a huge part of structuring each day.
+- You don't need a gym or lots of equipment to get fit and healthy.
+- Plan your workouts in advance and try and stick to them like appointments you can't miss.
+- I won't do ready meals because I'm teaching people how to cook. I won't do it no matter how much you pay me, you can say you'll give me £100,000 to do it, but my brand is more important than that.
+- My top tips for deep sleep are to switch off your laptop and mobile at least 30 minutes before bed and leave them in another room. Ditch the bedroom TV; listen to music instead. Get a comfortable eye mask. It takes getting used to, but trust me, it will allow you to sleep deeper and longer.
+- I slag off people I see coming out of the gym with a can of Red Bull or a Lucozade!
+- Well, I started my career as a personal trainer. So I did one-to-one, you know, outdoors, at people's houses and then obviously boot camps and stuff, which I love.
+- Exercise always makes you feel happy, it lifts your mood and gives you energy.
+- I'm staying fit to stay mentally strong.
+- I don't live with judgement or resentment, I don't have time for it.
+- I applied the same mentality to my social media as I did when I was doing my boot camps. I thought, well, no one's watching, but I'll keep adding value, putting out good recipes, funny workouts and good videos. And it grew and grew.
+- I've never made a penny from any of the school stuff I've done. I've had brands asking me if they can sponsor my channel for a year, stuff like that. But I've never monetised it. My books and my 90-Day Plan are my business.
+- Eat carbs such as sweet potato or jasmine rice within one hour of your workout. Cut down on them on rest days when you don't need the extra fuel.
+- If I was going to get stuck living, exercising and eating anywhere, it would have to be Italy. I've been to Sardinia and Tuscany and the food was unreal.
+- I want mums and dads to get up together and train with the kids, exercise, have fun together and connect through fitness.
+- I do need to exercise. I feel I'm a much better person for it.
+- The most offensive thing is when people say, 'Everything you do is for the money.'
+- Never eat food that drains you of energy; eat food that makes you feel awesome.
+- The goal is to get people off low-calorie diets. They're struggling, they're barely eating anything. They need educating.
+- I do want a big family.

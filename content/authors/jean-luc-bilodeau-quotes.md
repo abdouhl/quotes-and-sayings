@@ -1,0 +1,17 @@
++++
+author = "Jean-Luc Bilodeau"
+title = "Jean-Luc Bilodeau Quotes"
+quotes_len = "11"
+description = "the best 11 Jean-Luc Bilodeau Quotes"
++++
+- I like to go out if there's a party or go to the movies, but I just like hanging out with my buddies and having a good time.
+- I don't watch that much TV. I think I should probably watch a little bit more, but I love the ABC Family shows.
+- My music library has about every genre of music possible. I've really gotten into Ray LaMontagne, He makes amazing music, so I listen to him, and he's a great artist.
+- I've always really, really wanted to go to Egypt and go inside some pyramids and just hang out there. I don't know why. I don't like hot weather, and I don't like the desert, but something about the pyramid and the mummies and all their history there, I'd love to go check it out.
+- My fav band is Rush.
+- I try to make the best of everything.
+- I don't think I could ever have a desk job, so I get to be mobile. I'm on set. I get to walk around kind of doing my own thing, being independent - it's just a really good vibe. Everyone on a film set is very happy, and they all love their jobs, so it's a cool environment to be a part of.
+- I love dancing, and I always have.
+- Fall is my favorite my time of the year. I love it. I'll try and make it back to Vancouver a bunch. I love going back home for that. Everything turns orange. You start to get out of summer, start making your way into the winter, everyone is wearing jackets. Vancouver lights up in the fall, so I definitely go back there for a bit.
+- L.A. will never be a hockey town. I'm a huge hockey fan, and people out here do not appreciate hockey as much as they should. I've always been into it. I'm Canadian; that's my sport for sure.
+- My father's really fluent in French, but I can't speak at all. I actually took it twice in school already and failed both times!

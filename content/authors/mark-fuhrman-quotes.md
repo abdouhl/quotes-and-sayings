@@ -1,0 +1,29 @@
++++
+author = "Mark Fuhrman"
+title = "Mark Fuhrman Quotes"
+quotes_len = "23"
+description = "the best 23 Mark Fuhrman Quotes"
++++
+- I had bought a farm, was trying to rebuild my life and just looking to be left alone. Then I get charged with perjury strictly for political purposes.
+- I don't like having people pick me out on the street. I don't like the status - good, bad or indifferent. I don't like it. I want my private life back, and I'm never going to have it.
+- The Skakel family, when they married into the Kennedys, was so wealthy, they could have purchased the Kennedy family.
+- Rewards are directly proportional to the suspect and his peers' status in society: $100,000 was offered in the Moxley case. It meant nothing to millionaires.
+- Nobody's reported my victories, my accomplishments, my true personality - the way I treat all people.
+- A working detective has no hope of understanding what even experts who devote their lives to the study of criminal psychology can't figure out.
+- Johnnie Cochran hasn't spent 20 years serving people in low-income, minority neighborhoods, ridding them of gangs and narcotics. I have. He hasn't been shot at and punched. I have. I've paid my dues to be able to say I'm not a racist.
+- When I testify, I'll testify. I don't need to sit around chewing my fingernails.
+- When I went through the Simpson case, I was a cop. Then I was a good cop. Then I was a bad cop. Then I had the media camped out in front of my house when I retired. Then, you know, I am the evilest thing on the planet. Then I write a few books, and then I start getting involved, like the Martha Moxley case.
+- I know that on LAPD they have used psychics. They used it on the Hillside strangler case. I'm not sure on the Richard Ramirez case. I can't say one thing or another about it. I've read about it. I really don't have a lot to say about if it works or if it doesn't.
+- Yes, you make mistakes in the old cases where you really think you know who the suspect is, and you probably do, and you make the mistake of relying on people.
+- Pre-meditation can form in split seconds.
+- Any street cop knows you will be sued or involved in some type of litigation throughout your career.
+- I think you have to look at these cold cases. If they're done properly, if the homicides are done properly, and everything's documented properly, you have a lot of concrete statements from those people that they would be able to look at them and refresh their memory.
+- Shortly after her feeding tube is removed, Terri Schiavo receives the Catholic ceremony of last rites. Michael Schiavo stays in a room down the hall. He remains at his wife's side throughout the day, except when her immediate family comes to see Terri.
+- If I could afford it, I'd buy 1,000 acres and put my house right dead-center.
+- After the Simpson trial, after all the bad things Cochran was claiming, I became the most investigated officer in the history of the LAPD.
+- I don't think many people understand what racism is. The intellectuals use it like toilet paper; it's something they can use. It's not something they live.
+- I take full responsibility for my life and my career.
+- Am I a racist? No. That simple. And if that's not good enough for you, too bad.
+- There was never a shred, never a hint, never a possibility - not a remote, not a million-, not a billion-to-one possibility - I could have planted anything. Nor would I have a reason to.
+- I think it's pathetic that a court of law cannot be in a vacuum of the legal system, without the influence of the public threatening to do great bodily harm to people and property. It's really a pathetic statement for our country.
+- If you're a big celebrity, you get money to be private. I'm just a working stiff. I don't get bodyguards or alarm systems.

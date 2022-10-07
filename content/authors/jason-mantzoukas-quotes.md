@@ -1,0 +1,20 @@
++++
+author = "Jason Mantzoukas"
+title = "Jason Mantzoukas Quotes"
+quotes_len = "14"
+description = "the best 14 Jason Mantzoukas Quotes"
++++
+- It's always nice when people discover I'm a normal person and not, because of my appearance, a half-crazed lunatic who may stab them with a Bic pen.
+- At a certain point, I had to be like, 'I will not do any more auditions with a Middle Eastern accent.'
+- I've numerous times heard mothers in stores tell their children not to go near me.
+- I was funny in a way that was not dissing the teacher; I was funny just to be funny. A real charmer with a prominent mustache that he didn't know what to do with and a smart-alecky attitude.
+- When I was a child, I was referred to as the Danny Kaye of the family, because I was always impersonating and mimicking people. I was a song and dance man.
+- People know my background and for people who need an improviser, I'm one of the people they think to use if I'm appropriate for the part.
+- There are girls who find the giant beard 'gross' and 'creepy.' I know because they tell me.
+- Maybe it's just my improv and sketch background, but I'm a lot more comfortable in a group. I like sharing focus and populating an ensemble.
+- Having a giant beard really distracts people from noticing you're barely keeping it together emotionally.
+- A good comedy with a purpose behind it is exhilarating.
+- Looking the way I look, whenever anybody's looking for a light brown funny guy, I get the call... I'm 100 percent Greek, but I look like I could be Indian or Middle Eastern or Hispanic. If it's ethnic, they'll try and put me in it.
+- I was in band that played mostly covers for a while, and the bands that we would cover were, like, the alternative rock bands of that day: we did a Jane's Addiction song and a Faith No More song. All the kind of alternative radio of that time, the late '80s, basically.
+- I completely understand social media as a method of promotion and digesting information, but it just seems like a colossal waste of time to me, and there's a million other ways I'd rather waste my time.
+- I like antagonizing the audience, poking at them.

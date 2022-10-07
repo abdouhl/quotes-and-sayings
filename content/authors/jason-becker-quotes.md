@@ -1,0 +1,46 @@
++++
+author = "Jason Becker"
+title = "Jason Becker Quotes"
+quotes_len = "40"
+description = "the best 40 Jason Becker Quotes"
++++
+- I love soundtracks to movies and am always touched by the music if it's good. The music in some old Disney movies, like 'Pinocchio,' 'Alice in Wonderland' and 'Peter Pan' really gets to me.
+- Age doesn't affect me. With ALS, I am just stoked to have another year.
+- You know, some people think since I can't move I am a vegetable. Wrong. Just picture yourself as you are, just always sitting down and if you need something a hot babe takes care of you. I am exaggerating a little, but this is how I see it.
+- I guess I would say true happiness is to love and be loved. Of course, having enough money for food, shelter, health care and things like that all help, but that is more about security.
+- I wrote 'Triumphant Heart' and it made me feel triumphant.
+- Generosity and kindness always feel good to give, and it never feels good to give grief or negativity.
+- Life isn't only about moving.
+- I guess I just love all kinds of music.
+- I still have downs and get depressed, but I try not to dwell too much on being negative because it always passes and there is still so much to do.
+- My parents thought art was important and a lot of my childhood was spent doing some form of it or another.
+- I don't miss playing guitar anymore. I'm sure that's out of necessity, but I am grateful for so much more. I am surrounded by loving people, and I can still make music.
+- It is just satisfying to think that, somehow, my music and my story could touch someone and make them want to make their own life better.
+- I love Richmond. I think growing up here had a profound influence on my music.
+- I am mostly a positive person and I think I always have been.
+- I usually stay out of politics, but people have asked me whether the American Healthcare Act (AHCA), if passed by the Senate, will affect me personally. I'm about music, not politics, but the fact is this one has me freaked out for poor and disabled people.
+- My dad was a really good classical guitarist. He took lessons with a student of Andre Segovia.
+- I can't stand it when people get bullied or feel ugly or worthless.
+- My dad was my first influence. He played classical guitar and my uncle Ron played the blues.
+- Not playing guitar has been the hardest thing about having ALS.
+- I am such a sucker for love; to me, it feels like the reason we are here - to love and be happy.
+- I think music comes out of silence... and I have a lot of silent time, without a pesky guitar interrupting my thoughts.
+- I had been exposed to classical music my whole life; even before I was born.
+- As my guitar playing dwindled, something else in my music got better.
+- I thought it would be fun to write a song where a bunch of my favorite guitarists contributed, so I started 'Valley of Fire.'
+- Many times in music, if you are given limitations, it expands the creativity.
+- I remember when I was first losing my ability to play my fast licks and my hands were shaking and falling off the guitar. It forced me to sort of create a new slow style.
+- I got my first guitar for Christmas when I was five years old.
+- When President Trump promised we would get better, cheaper health care that would fix the problems of the Affordable Care Act, I hoped it was true. Unfortunately, the American Healthcare Act promises giant cuts to the programs that I and every other poor, sick and disabled person have relied on for our lives.
+- I have survived ALS to continue my work as a musician and composer for 28 years due to the care I receive through insurance and Medicaid. Without these supports, my family can flatout not manage my care, and my life and career will be in serious jeopardy.
+- Guitar Player' was always the serious musician's magazine. They rarely catered to what was popular. They focused on innovative players.
+- I think mostly music just felt good because my parents gave me a real good childhood so I was rarely sad.
+- People often comment on the feeling and soul in my music, and I think part of that comes from the honesty and diversity of the kids I went to school with and jammed with.
+- Some people feel sorry for me, and I understand that. I really feel lucky though.
+- Even as I was trying to become a rock god, Michael Jackson was the ultimate magic rock star to me. I loved his music, his scene and style. He transcended musical categories.
+- I am not a perfect saint, by any means.
+- I have gotten nothing but love since I was diagnosed from the whole metal community. I guess that is true about both David Lee Roth and Eddie Van Halen. David was very kind to me especially when I was limping and falling and when my hands started getting weak.
+- Not being able to play makes one be able to listen and receive better. The constant noodling on guitar can be great, but also distracting to the universal music inside you.
+- In my first label Shrapnel Records I wasn't expected to do anything except the creative music that I wanted to do. I was my own boss, which is great.
+- Jimi Hendrix was the master of live stuff. He was my inspiration to do the yo-yo, everything he did on stage was awesome.
+- I spend time editing and massaging each note. Then I start layering with different instruments, adding harmonies, counterpoint, and whatever the song calls for. Then I arrange it into a whole piece, and decide where I need to add live musicians. It takes a lot of time, but it is very satisfying once it is complete.

@@ -1,0 +1,87 @@
++++
+author = "Juliette Binoche"
+title = "Juliette Binoche Quotes"
+quotes_len = "81"
+description = "the best 81 Juliette Binoche Quotes"
++++
+- I love the unknown. I think because it brings fear, and to embrace fear is the best feeling.
+- Oh, I'll be forgotten too, don't worry.
+- If you told me tomorrow that I couldn't act anymore, it wouldn't bother me. I have only one wish: to meet the man of my life.
+- I move on stage differently. The more you act, anyway, the more you live, your perception of life becomes more and more accurate.
+- What makes a person sexy is when he's not trying to be sexy.
+- My ambition is to have beautiful encounters, not to make money.
+- Attraction is beyond our will or ideas sometimes.
+- As an actor, I have to be fulfilled in the roles that I play; it has to be a journey for me to learn something or involve myself.
+- I was so happy when they cast me in Chocolat, because it's one of my vices.
+- What I love most about this crazy life is the adventure of it.
+- I'm not even aware of my success. Success is such an illusion.
+- I believe that being an actress or being involved in a movie has to be a life experience, otherwise why go for it? I have to change me, and I have to learn things, and I have to push me and my limits. By acting, I find a freedom inside of a prison in a way.
+- But I've never felt that being an actress is being in a comfortable place. It's seen from the outside that we're being driven in big cars and having these gorgeous suites and all of that. But come on, it's not about that.
+- Movies are open doors, and at every door, I change character and life... I live for the present always. I accept this risk. I don't deny the past, but it's a page to turn.
+- There was probably something as a child I wanted to express, something unsaid that I needed to share.
+- Fighting the ageing process just doesn't work. I think that actresses, ultimately, are responsible for the faces we give to women.
+- It's never been my purpose to become an American icon, or more famous or richer.
+- I'm not obsessed by looks. I think you can become a prisoner of your own image.
+- I don't believe in coincidence.
+- I would say I'm humanly engaged.
+- I like being a mother, and I want to be involved in my work, so I have to make choices. If you're a film actress, your career is from 20 to 45, but you can still dream.
+- I won't do something just for the sake of working.
+- Acting is like peeling an onion. You have to peel away each layer to reveal another.
+- I've been changed watching films or reading books or hearing music, and that helps you to live your life.
+- I think I am pretty much melancholic.
+- In a building with apartments, of course, you want to make connections. Life is easier that way. There's salt if you don't have salt; you can knock at someone's door, like in any city. But you know, you can hear the others, and you want to sleep, you get annoyed.
+- I don't like films giving me answers. I like films that are provoking me, that are making me feel not only being in an easy place.
+- I would have loved to have met Marilyn Monroe and have dinner with her.
+- I think acting is about forgetting yourself in order to give the best of yourself. It's passing through you more than you're creating it. You're not the flower, but the vase which holds the flower.
+- As an actress, I think there is always a political consciousness there.
+- Some words, you know, it's amazing but some words would come only in French, and when I speak French, it would only come in English. And so the adjustment is very difficult sometimes.
+- I've played journalists before, and I have good friends who are journalists. I think being an actor is not very far from being a journalist. Because you investigate, you try to understand, you're asking questions, you're interested in the other.
+- People think actors have such glamorous lives, but the truth is actors go where nobody wants to go.
+- I like travelling and if I have to come to Hollywood to make a movie I will, but otherwise I'd never move there. It's very much an industry town and that doesn't really interest me.
+- Movies are open doors, and at every door, I change character and life.
+- You make your own path as an actor. Nobody does it for you, so you have to invent yourself.
+- Each new film is like a trial. Before I step in front of the camera, I do not know whether I am going to fall or whether I am going to fly - and that is exactly the way I want it to stay.
+- I'm very down-to-earth and accessible, I think.
+- Maybe it's because my mother divorced and my grandmother divorced, so maybe I'm frightened deep down. But then I also feel there is no real need. Why do I need to get married? To reassure me? No I don't need reassurance.
+- I am not a woman staying at home.
+- But I think it's a little different in Europe, because 40 is really the best age for a woman. That's when we hit our peak and become this ripe fruit.
+- My private life is very private, and I have chosen not to live in America or England, where you are so exposed and can't fight against it.
+- I like intensity. If it's too mellow, I feel like, bleah. I like intensity, because it's way of reaching spaces inside of you, and it's my need of knowledge, of knowing about myself regardless.
+- I'm a fighter as a mother. I'm fighting to be a mother, but I cannot say no to my passion because it's me, as well.
+- I never felt being an actor or making a movie was an easy thing to do.
+- My only ambition is to be true every moment I am living.
+- I try to see my films just once. it's like a dream you've been through when it's been intense, and you just have to go through it once more just to make sure you've had it.
+- But, you know, when I choose a film I need to believe in it and believe I can do something special with it, and after a while that means not trying to judge or analyze why I should do it. You have to follow this intuition thing, which is a mystery to me.
+- It's not a struggle to be on a diet. You feel lighter, and your spirit is lighter, too. But I love chocolate, and I allow myself to have chocolate. That doesn't go against a diet for me.
+- Being a famous actress may give you a sense of being important, but believe me, it's just an illusion.
+- What I need is to express my passion for life... It's movement I'm interested in, the life in me, the life in humanity.
+- My aim was never to be an American star; otherwise, I would have moved to Los Angeles.
+- When you make a film, it's a bet. You don't know how the film is going to be, anyway.
+- For me, acting goes to a special place; it's almost mystical. You have to let go of what you think is good; it's a jump into trust, and trying to reach without wanting too much.
+- I wanted to work with people from the world, with different minds and different visions.
+- When I won the Oscar, there was something telling me 'this isn't the truth'. I had to get back to real work.
+- Choosing to be in the theatre was a way to put my roots down somewhere with other people. It was a way to choose a new family.
+- I've never thought of my characters as being sad. On the contrary, they are full of life. They didn't choose tragedy. Tragedy chose them.
+- Acting is a tough business, and you need to be in good shape mentally and physically.
+- Sometimes I call directors. Sometimes I just meet with them. It just happens. It's not that I'm pushy. It comes naturally. But I go ahead. I don't stay in my armchair, waiting for the phone to ring.
+- I live for the present always. I accept this risk. I don't deny the past, but it's a page to turn.
+- I want to know why I'm alive. I want to understand. It's like exploration; it's like someone being interested in a place and its history, digging into the earth and looking for it, searching - it's a passion.
+- I really don't think that the Oscar changed my career much because I didn't want it to.
+- The thing is that I never felt beautiful. I really never did. I think I can change my looks and be different things, but I've never thought of myself as this face.
+- I have stories that I'd like to maybe one day consider directing, but you need a lot of time to write and put it together.
+- I think it's the same simple thing for everyone - to be happy, and have love in your life.
+- I am not a great French woman. George Sand, Marguerite Duras and Simone de Beauvoir are great French women.
+- As actors, we are so privileged to do what we do and to give to the world and to choose the subject we want to say to the world.
+- When I'm in the movie, I'm entirely in the movie. When I'm on the set, I'm 200 per cent there; when I'm at home, I'm 200 per cent at home.
+- As an actress we don't beat one another. It's whoever's right for the part.
+- For me, habit is just a synonym for death.
+- I never really worked in Hollywood. Some American producers came to Europe to shoot films with me, so it's a different situation... It was not my aim.
+- I want to make films that are political and social. Films with a message or an idea. Films that dare to ask.
+- When you really put your heart in the work, you don't think of how you look. And I think that's the beauty of it.
+- If you have everything, then you don't want to go on. It's the lacking that makes you search for something better.
+- Before I thought there was a common denominator between my films - as if all my characters were sisters - but I'm not so sure now.
+- The best mother is the mother who adapts, and the best children are the children who adapt as well.
+- You must understand, I don't have to be happy to be happy.
+- I sometimes feel like I could do another job. Anything. Maybe because as an actress you're playing different characters, everything feels possible.
+- Usually I love preparing. It's really the time I prefer, because it's a time of reflection and of possibility of growth - to let it cook inside.
+- I was used to theatre classes. I studied with my mother; she was a theatre teacher and directed, too, so it was very family-like. Then I studied with a great teacher in Paris, and she was wonderful; she pushed me, but she was a warm soul.

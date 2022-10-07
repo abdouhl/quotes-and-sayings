@@ -1,0 +1,18 @@
++++
+author = "Melissa Rivers"
+title = "Melissa Rivers Quotes"
+quotes_len = "12"
+description = "the best 12 Melissa Rivers Quotes"
++++
+- It's the most prestigious dog show in the country. We love dogs, and we're having a blast out here.
+- The Emmys are flat-out fun.
+- The interviews have been a little tough due to the fact that we're interviewing dogs. We see a lot of contestants licking themselves, but we're used to that from covering the Grammys.
+- I love seeing what people wear out to dinner in different cities. I know how differently I dress in New York than I do in Los Angeles.
+- Oh God, friend breakups are the worst. The worst! And I've been through it. Basically, if you're over the age of 5, you've been through friend breakups.
+- I think anyone who has a job in the entertainment industry that is ongoing and then decides they get bored and doesn't want to do it anymore is foolish!
+- I had Cooper in December and was back on the red carpet in January. I picked him up and took him to work with me, you know, took him to my dressing room. So he's been raised the same way I was, which is that work is such a big part of our lives.
+- I'm a big fan of the laceless Converse for travel, with cute jeans, and throw on a little jacket, and you look presentable.
+- Parenting a pre-teen is quite something.
+- My son Cooper has just turned ten and the sarcasm fairy has already started to take up residence inside his body. Not only am I living with my mother - again! - but I've also got her mini-me to contend with.
+- My mom is a typical mother.
+- I don't think I should be giving out relationship advice! You have to accept each other for who they are and what they will be able to modify in their behavior and what you can modify in your behavior to create a better relationship.

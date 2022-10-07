@@ -1,0 +1,20 @@
++++
+author = "John Cage"
+title = "John Cage Quotes"
+quotes_len = "14"
+description = "the best 14 John Cage Quotes"
++++
+- If something is boring after two minutes, try it for four. If still boring, then eight. Then sixteen. Then thirty-two. Eventually one discovers that it is not boring at all.
+- The highest purpose is to have no purpose at all. This puts one in accord with nature, in her manner of operation.
+- There is poetry as soon as we realize that we possess nothing.
+- We are involved in a life that passes understanding and our highest business is our daily life.
+- It is better to make a piece of music than to perform one, better to perform one than to listen to one, better to listen to one than to misuse it as a means of distraction, entertainment, or acquisition of 'culture.'
+- Ideas are one thing and what happens is another.
+- There is no such thing as an empty space or an empty time. There is always something to see, something to hear. In fact, try as we may to make a silence, we cannot.
+- It's useless to play lullabies for those who cannot sleep.
+- When we separate music from life we get art.
+- We carry our homes within us which enables us to fly.
+- I can't understand why people are frightened of new ideas. I'm frightened of the old ones.
+- The first question I ask myself when something doesn't seem to be beautiful is why do I think it's not beautiful. And very shortly you discover that there is no reason.
+- We need not destroy the past. It is gone.
+- I have nothing to say, I am saying it, and that is poetry.

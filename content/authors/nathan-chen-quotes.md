@@ -1,0 +1,106 @@
++++
+author = "Nathan Chen"
+title = "Nathan Chen Quotes"
+quotes_len = "100"
+description = "the best 100 Nathan Chen Quotes"
++++
+- There's always things that I can improve on.
+- Just being here at the Olympics is pretty incredible in itself. Seeing the unity of the athletes and to see how everyone has worked so hard to get here - and we are all so excited to be here - it's awesome to be able to experience it.
+- My training and ballet background definitely gives me the competitive edge on the ice.
+- Really, I'm just a normal kid.
+- Being able to land all the quads, especially doing them all in one program, is mentally huge.
+- Throughout the day, I'll snack a lot. I always have some breakfast cereal, like Kellogg's cereal, something on hand, so that I can just quickly get some carbs in.
+- As a kid growing up, I didn't want to tell any of my classmates I did figure-skating because I knew they'd be like, 'Oh, you're a skater, you're gay, blah blah blah.' So I kept it to myself. Once I started getting to more of an elite level, I didn't really care what people thought, though.
+- I don't think the demographic for skating really entails a lot of basketball watching.
+- That would be pretty cool being the first one to do the quint.
+- I have confidence in how I've trained and prepared myself. I've dreamed about the Olympics for a long time, and it would be kind of silly and a waste to freak myself out.
+- It's something I have to remind myself about, that at every competition, I put a lot of pressure on myself, almost like it's the end of the world, and I have to keep reminding myself it's not.
+- You have to have passion for what you do, or else it's difficult when the going gets tough.
+- Sometimes thinking about the Olympics makes me a little nervous.
+- I start in the morning with something like a breakfast burrito and a smoothie, something that gives me enough protein and carbs to start my day.
+- There are always benefits and good things, bad things that come out of every performance.
+- I really wanted to play hockey. My mom thought figure skates looked easier to use, so she put me in the learn-to-skate program.
+- Team U.S.A. is awesome.
+- I am proud to be a first-generation Chinese-American in the sport of figure skating.
+- I like the challenge and instant gratification of landing a new jump or learning a new element. That made me fall in love with the sport.
+- Every competition is different... You can't plan for everything that happens.
+- I think that ballet and skating definitely go hand in hand, especially growing up at Ballet West, which is an incredible academy.
+- In terms of, like, interviews, I used to struggle a lot with interviews; I never knew what to say.
+- I would love to be working in a hospital or in a completely different realm, working with or exploring the lives of animals.
+- I just like to keep pushing myself and the sport.
+- I can't decide the results, but I can still put my best foot forward and try the best I can.
+- Half of learning a new element is just getting over the fear of doing it. Once you mentally prepare yourself enough to do the jump, that is really half the battle.
+- My parents always enforce the idea of never giving up upon all of my siblings and me, and I think that's something that will stick with me my whole life.
+- I am a first-generation American of Chinese decent. My parents were both born and raised in China and moved to the U.S. in their 20s.
+- My family and parents were very influential in my skating career.
+- I think doing a quint is very, very difficult.
+- Triples are hard. Triple axel is just not my jump. Quads are really my thing.
+- Maybe it's innate: I have a body built to jump.
+- Emma Watson definitely is my celebrity crush. I love 'Harry Potter.' Plus, she's gorgeous, which really helps.
+- I began skating when I was 3. It was during 2002, the year the Olympics were held in Salt Lake City.
+- I hate spiders; I'm terrified of spiders.
+- The Olympics have really motivated me, ever since I started skating as a little kid.
+- It's reassuring knowing that people are supporting me and want to know more about me. It comes with being the national champion and making the Olympic team. I think that it's telling me I'm on the right path.
+- A lot of the things I do outside the rink are just to relax and recover. We spend so much time at the rink, so it's nice to decompress a little.
+- Skating is a sport that I found a lot of interest in from a very, very young age. Ultimately, I think that being on the ice, being in the cold, and trying things and challenging myself in different ways is something that made me really interested in skating.
+- Like my parents taught me, never give up, and always love what you do.
+- My parents did not come to the U.S. with much; they had a lot of hardship.
+- To have all of these jumps in my arsenal is very beneficial. I can always alter my program so I can either play it safe, or I can play it risky with high reward. It depends on what I feel like I need that day.
+- I genuinely dislike sequins.
+- Never give up. There are always tough times, regardless of what you do in anything in life. Be able to push through those times and maintain your ultimate goal.
+- Honestly, I am human. I make mistakes.
+- Once I really understood what skating was and what the Olympic really entailed, I knew that's what I wanted to do: I wanted to be there; I wanted to represent the U.S.
+- If it's time to indulge, I love desserts, especially Hershey's chocolate. I also love sushi and Japanese food. Food is my favorite in general.
+- There's a lot of skaters that I look up to, and I think my biggest skating role models were the two Russian competitors at the 2002 Olympic games in Salt Lake City. They really motivated me to follow my passion in skating, and it really blossomed from there.
+- My parents always wanted the very best for me and pushed me further and further, so that stuck with me.
+- I think my parents felt us being a minority a little bit more than I did, and they tried to shelter me from that so I didn't feel it at all.
+- Once you land a jump, you put it straight in the program. That's the way I've always been doing it.
+- I want to be a full-package skater.
+- I do very scientific-based training. However, for skating, that's a little bit out of the ordinary. Many skaters base their off-ice training around plyometrics, whereas mine is very strength- and power-based.
+- My Chinese name is Chen Wei. I can speak a tiny, tiny bit, just basically get around, but I understand it decently well.
+- An artistic standpoint - I've watched a lot of ballet and source some inspiration from how they move, connect with each other, and find meaning in their movement.
+- I remember being a little kid walking down the grocery aisle seeing athletes on these cereal boxes.
+- I like biology a lot.
+- It's like you get a high off the jumps, and you crave it, and you want to do it again and again and again.
+- As a family, we are all intrinsically motivated.
+- I never got to go to prom or homecoming or a lot of the typical teenage stuff. But, if you think about it, I've gotten to go and meet different people and travel all over the world.
+- Regardless of what I do, no matter how good it is, it's never, in my mind, 'flawless.'
+- Once I landed the triple Salchow, I put it in the program. First landed triple toe, straight into the program. That's what I did with my quad suite.
+- We were all just taught to work as hard as we could, use these opportunities to advance, and just really appreciate all that we had.
+- I wanted to be a goalie.
+- From a logistical standpoint, I learned about when to peak, when to push, when to recover throughout the season.
+- I try to get as close to 10 hours of sleep each night, as sleep is the best form of recovery.
+- Largely, I began skating because I wanted stuff to do outside of school. My mom decided to put me into figure skating.
+- Skating is a very beautiful sport, and I love watching new programs.
+- Every day's a new day.
+- I want to get another Olympic medal outside the team event.
+- I want to do something in medicine, for sure. I don't know what, exactly, that entails, but something along those lines.
+- Ever since I was a younger skater, I've been working my way to these big jumps.
+- My skating career won't last forever.
+- It's been a dream of mine to be selected on the U.S. Olympic team as long as I can remember.
+- I've always had Russian coaches.
+- Skating in itself is a difficult sport, and the amazing athletes within the sport are very challenging.
+- That's something I'm actually very interested in doing, helping young skaters.
+- I love jumping. I have always loved jumping. I love watching jumps. I love doing jumps.
+- When I watch my skating when I was younger, I definitely see all this balletic movement and this artistry come through.
+- I have a very close family. I have four older siblings: two brothers and two sisters.
+- These big jumps take a big toll on the body, especially a young body. So, it's kind of risk or reward, I guess.
+- I've skated after Yuzu a handful of times. The only thing I can take away from it is to be prepared for the Pooh-bears to be raining down from the audience.
+- Personally, I feel like there should be some sort of cap on the quads, but we should still be pushing it to a certain number.
+- I love skating. It's part of my life, and I never wanted to give it up.
+- I really enjoy traveling to... I went to Spain. That was really cool. Japan was really cool. France was really cool.
+- I have my own life to live.
+- If the jump is perfect, you come out, and you feel like you took a three-pointer in basketball or doing the perfect thing in whatever your sport is. You just get that adrenaline rush, a sense of satisfaction, like you want to do it again and again.
+- I always carry my phone with me. I always have a computer on me.
+- Every day is a new day, and ultimately, I have to figure out what works each day.
+- I really like to bike outdoors and love the weight-based workouts that I do. I am not the biggest fan of other cardio-based workouts. Off-season cardio sessions are pretty grueling.
+- I've been working on it a lot, trying to find the artistic balance, trying to find purpose in my movement combined with the jumps.
+- The Olympics really started motivating me from the very start. That was my dream from the very beginning.
+- I'm the baby for sure. My siblings are looking out for me, making sure I'm not doing something stupid. They are making sure my head is set straight and that I'm a good person outside of skating and inside of it, too.
+- It's crazy how fast time flies and how things progress.
+- I began skating in the official practice venue of the 2002 Games. It was a huge Olympic atmosphere with Apollo Ohno sitting on the wall every day when I walked into the rink. That was really cool and very inspiring to see.
+- There are always times when you don't want to go to the rink, or you don't want to do all the things you're supposed to do. Sometimes you're exhausted, or it's been a long week, but I always remind myself that this is my Olympic dream and the passion, because I love the sport very much.
+- Netflix isn't available internationally all the time, but the NBA is. It's nice to have something that feels like home.
+- Ever since I started skating, making the Olympic team was my ultimate dream. It's what has inspired and motivated me throughout my entire career.
+- I celebrate my hardworking parents and all the opportunities they gave me.
+- I tend to be a little bit more quiet and just to myself. I'm a little bit more introverted than extroverted.

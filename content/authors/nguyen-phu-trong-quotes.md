@@ -1,0 +1,28 @@
++++
+author = "Nguyen Phu Trong"
+title = "Nguyen Phu Trong Quotes"
+quotes_len = "22"
+description = "the best 22 Nguyen Phu Trong Quotes"
++++
+- Like in any relations between two countries in the world, Vietnam and the U.S. have differences on a number of issues such as perception on democracy, human rights and trade.
+- We must choose dialogue over confrontation, and peaceful settlement of disputes over unilateral acts of imposition.
+- We will resolutely and persistently maintain independence while fighting for the protection of our sovereignty, but we must maintain a peaceful environment for development.
+- It is not proper to name them, but in a number of countries, in the name of democracy, all decisions are made by one person.
+- The politburo have seriously self-criticized and honestly apologize to the Central Committee for the shortcomings in party building, cases of moral decay among party members and cadres.
+- I believe that peace, stability, maritime security and cooperation for mutual benefits in the East Sea represent the essential interest of countries within and outside the region.
+- The market economy of its own cannot destroy socialism. But to build socialism with success, it is necessary to develop a market economy in an adequate and correct way.
+- Do not let ASEAN become a playing card for the competition among major countries.
+- We need to balance between democracy and law and order.
+- The principle of the Communist Party of Vietnam is collective leadership with accountability and responsibility of the individual, which can never become authoritarian.
+- I think that 20 years ago, not too many people would imagine a meeting - interesting meeting, a substantive meeting between the General Secretary of the Communist Party of Vietnam and the President of the United States.
+- Policies and actions should have the interest of our people at the heart, so that no one, and no country, will be left behind.
+- A number of party... members lack proper discipline, are plagued by individualism, selfishness and opportunism. This gives rise to some individuals' words not matching their deeds, not adhering to party rules and regulations and having no proper mechanisms for disciplining those who make mistakes.
+- What belongs to our independence and national sovereignty, we will never give up.
+- A country without discipline would be chaotic and unstable.
+- Vietnam's Communist Party is one-party rule but we also have principles of democracy and accountability of the leaders. Otherwise the faults would be blamed on the entire group and merits would be credited to the individual.
+- One of the main objective of our visit to India is to discuss with the Indian leaders and set out concrete,effective measures and direction aimed to deepen and add more substances to the Vietnam-India strategic partnership and translate potentials into reality in the interest of the two countries' people.
+- We have the grounds to be satisfied with the achievements obtained in the promotion of Vietnam-India ties in recent years, as well as to look forward to and believe in a stronger relationship in the future.
+- The Politburo and Secretariat for many terms now have made some big mistakes, especially having not prevented and remedied corruption and the deterioration among some party members.
+- Let me be very frank. I didn't expect to be introduced and elected.
+- Further reforms should be undertaken to transform the U.N. into a stronger and more effective Organization that can fulfill its role of harmonizing the interests and behaviors of States in the face of the monumental changes of our time.
+- I was re-elected as general secretary with almost 100 per cent of the vote. And I am very surprised by that. Because I am quite old. I am the oldest member in the leadership of Vietnam. I myself asked to be retired but due to responsibility tasked on me by the party I had to accept.

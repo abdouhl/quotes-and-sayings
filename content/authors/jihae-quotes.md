@@ -1,0 +1,40 @@
++++
+author = "Jihae"
+title = "Jihae Quotes"
+quotes_len = "34"
+description = "the best 34 Jihae Quotes"
++++
+- The overall concept of 'Only You' is a reflection on the illusion of love, how we confront, understand and manifest our self identities within relationships.
+- If we learn that we're actually the same, then we can be a grander picture and not be so hateful to each other.
+- I do a combination of running and kung fu on a regular basis.
+- Plane food is terrible.
+- I learned to sing as I was learning to talk.
+- Both my mother and my grandmother aspired to be opera singers. And they studied it.
+- I mean, I grew up in a very musical family.
+- Eventually, I would love to direct, but not anytime soon. I just love the storytelling aspect.
+- When you travel to a new country, your spirit has to catch up with you. I love going for a run when I land; it keeps me active and helps my body adjust to the new time zone.
+- I've learned a lot from Dave Stewart; he's a serial collaborator. He's co-written songs with more people than anybody I know - like the most incredible people too.
+- Many find ourselves in this strange consumerist entertainment bubble where celebrities have become the golden cows of our time that we love to worship and destroy.
+- We buy into all kinds of lies that are sold to us from advertising to Fox news or from the Vatican to Goldman Sachs.
+- Music is my first love, and it's not something I'll ever stop.
+- Kickstarter is such an amazing platform, it really is. It's something great for independent artists of all kinds because every musician and every artist needs help to produce the record, make the record. It's like the modern day patronage. It's turning to your direct fan. It's a good motivator too.
+- It's so astounding the amount of sacrifice the astronauts have to go through to do what they do and all the science involved in space exploration.
+- When you make an album, you have a team of musicians you work with; when you're a director and you're creating a motion picture, it's a much bigger animal.
+- I am a space geek now.
+- I make sure I'm always hydrated and take Vitamin C and sunscreen if I stay out in the sun.
+- I grew up learning martial arts in Korea; my dad actually brought in an Olympic instructor to teach me as a teenager.
+- I mean New Zealand has a beautiful energy about the place. You're surrounded by the water.
+- Being the one-woman label that I am takes a toll on you; you have to do everything.
+- In my music career, I never was interested in working and writing and creating songs based on what kind of rewards I could receive in return - a hit song, per se, is what most contemporary artists have to deal with when they deal with a label.
+- I felt like when you're an actor, you don't get to fully creatively express yourself - most of the time, it's not your own writing or direction.
+- I make video art pieces, take photographs, and dabble in acting ever since my screen test for 'Memoirs of a Geisha' with Steven Spielberg. But music is my first love and always will be my priority.
+- I think when I was 16, I thought I was going to go to law school. And then, once I got into college, I decided I don't like to read that much or to study that much.
+- My first album was very eclectic and very soft as a vocal expression.
+- I think if Elon Musk asked me to go to Mars as a musician, to sing for people, I think I might just do that. A return ticket would be a nice incentive, though.
+- We live in a world where over 160 million people are displaced because of climate change or war, and they have no rights and no protection, and not enough countries or people around the world are helping them.
+- I've always been interested in social psychology and why certain groups of people do things while others don't.
+- Being healthy makes me feel beautiful.
+- I had to do a lot of studying 'cause I had to learn new languages all the time. So it was a little bit painful watching other kids play outside, and I'm stuck at home learning something.
+- My musical influences growing up were limited to Korean folk songs and hymns as I went to a Christian boarding school where I was not allowed to listen to secular music.
+- I like marrying the concept of music with new media art forms.
+- There's so many different types of illusions; our lives are an illusion in a sense.

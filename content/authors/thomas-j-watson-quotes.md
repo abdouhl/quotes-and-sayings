@@ -1,0 +1,30 @@
++++
+author = "Thomas J. Watson"
+title = "Thomas J. Watson Quotes"
+quotes_len = "24"
+description = "the best 24 Thomas J. Watson Quotes"
++++
+- Every time we've moved ahead in IBM, it was because someone was willing to take a chance, put his head on the block, and try something new.
+- Nothing so conclusively proves a man's ability to lead others as what he does from day to day to lead himself.
+- Good design is good business.
+- Treat each case as an individual case, and give every man an opportunity to earn just as much money as he is capable of earning.
+- You don't hear things that are bad about your company unless you ask. It is easy to hear good tidings, but you have to scratch to get the bad news.
+- Once an organization loses its spirit of pioneering and rests on its early work, its progress stops.
+- A manager is an assistant to his men.
+- You can be discouraged by failure, or you can learn from it. So go ahead and make mistakes, make all you can. Because, remember that's where you'll find success - on the far side of failure.
+- Follow the path of the unsafe, independent thinker. Expose your ideas to the danger of controversy. Speak your mind and fear less the label of 'crackpot' than the stigma of conformity.
+- All the problems of the world could be settled easily if men were only willing to think. The trouble is that men very often resort to all sorts of devices in order not to think, because thinking is such hard work.
+- Wisdom is the power to put our time and our knowledge to the proper use.
+- If you want to increase your success rate, double your failure rate.
+- The toughest thing about the power of trust is that it's very difficult to build and very easy to destroy. The essence of trust building is to emphasize the similarities between you and the customer.
+- Don't make friends who are comfortable to be with. Make friends who will force you to lever yourself up.
+- If you stand up and be counted, from time to time you may get yourself knocked down. But remember this: A man flattened by an opponent can get up again. A man flattened by conformity stays down for good.
+- If you want to achieve excellence, you can get there today. As of this second, quit doing less-than-excellent work.
+- Recently, I was asked if I was going to fire an employee who made a mistake that cost the company $600,000. No, I replied, I just spent $600,000 training him. Why would I want somebody to hire his experience?
+- Whenever an individual or a business decides that success has been attained, progress stops.
+- If you aren't playing well, the game isn't as much fun. When that happens I tell myself just to go out and play as I did when I was a kid.
+- The great accomplishments of man have resulted from the transmission of ideas and enthusiasm.
+- Really big people are, above everything else, courteous, considerate and generous - not just to some people in some circumstances - but to everyone all the time.
+- To be successful, you have to have your heart in your business and your business in your heart.
+- The best way to supervise your men is from their reports that they make out.
+- Design must reflect the practical and aesthetic in business but above all... good design must primarily serve people.

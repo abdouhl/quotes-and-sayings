@@ -1,0 +1,37 @@
++++
+author = "Joan Baez"
+title = "Joan Baez Quotes"
+quotes_len = "31"
+description = "the best 31 Joan Baez Quotes"
++++
+- I think music has the power to transform people, and in doing so, it has the power to transform situations - some large and some small.
+- As we know, forgiveness of oneself is the hardest of all the forgivenesses.
+- People say I'm such a pessimist, but I always was. It never stopped me from doing what I had to do. I would say I'm a realist.
+- Hypothetical questions get hypothetical answers.
+- My dread is for my show to be a nostalgia act. So the key to it is how do we keep it fresh?
+- I have hope in people, in individuals. Because you don't know what's going to rise from the ruins.
+- The only thing that's been a worse flop than the organization of non-violence has been the organization of violence.
+- The longer you practice nonviolence and the meditative qualities of it that you will need, the more likely you are to do something intelligent in any situation.
+- We were raised with that discussion about violence and non-violence, and we all pretty much came up on the side of non-violence. That became my foundation with politics and my livelihood.
+- Someone had to change the world. And obviously I was the one for the job.
+- I've never been an optimist.
+- Instead of getting hard ourselves and trying to compete, women should try and give their best qualities to men - bring them softness, teach them how to cry.
+- Nonviolence is a flop. The only bigger flop is violence.
+- Action is the antidote to despair.
+- That's all nonviolence is - organized love.
+- The hardest song to write is a protest song, a topical song with meaning.
+- During the 'ballad' years for me, the politics was latent; I was just falling in love with the ballads and my boyfriend. And there was the beauty of the songs.
+- The foundation of my beliefs is the same as it was when I was 10. Non-violence.
+- If it's natural to kill, how come men have to go into training to learn how?
+- If people have to put labels on me, I'd prefer the first label to be human being, the second label to be pacifist, and the third to be folk singer.
+- I didn't go through the routine of singing in small clubs and doing open mics and working so hard the way a lot of people do and did. It was just an overnight kind of thing.
+- The easiest kind of relationship for me is with ten thousand people. The hardest is with one.
+- You may not know it, but at the far end of despair, there is a white clearing where one is almost happy.
+- Mostly what I listen to when I turn on my little iPod is opera.
+- I've never had a humble opinion. If you've got an opinion, why be humble about it?
+- You don't get to choose how you're going to die, or when. You can only decide how you're going to live. Now.
+- I spend a lot of time with Buddhists. I'm not a Buddhist, but their relationship with death interests me.
+- It seems to me that those songs that have been any good, I have nothing much to do with the writing of them. The words have just crawled down my sleeve and come out on the page.
+- I see a young man playing 'Plaisir d'Amour' on guitar. I knew I didn't want to go to college; I was already playing a ukulele, and after I saw that, I was hooked. All I wanted to do was play guitar and sing.
+- My father was a physicist and also an activist. My first public protest was with my dad at Stanford. I came by all that honestly.
+- I'm lucky to have met so many people who have been involved in peace and who have been peace prize winners.

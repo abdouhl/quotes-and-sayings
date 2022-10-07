@@ -1,0 +1,45 @@
++++
+author = "John P. Kotter"
+title = "John P. Kotter Quotes"
+quotes_len = "39"
+description = "the best 39 John P. Kotter Quotes"
++++
+- Globalization is going to bring us closer and closer together across nations and technology you can't stop.
+- In terms of getting people to experiment more and take more risk, there are at least three things that immediately come to my mind. Number one, of course, is role-modeling it yourself. Number two is, when people take intelligent, smart risks and yet it doesn't work out, not shooting them. And number three, being honest with yourself.
+- Those in leadership positions who fail to grasp or use the power of stories risk failure for their companies and for themselves.
+- The world has 6 billion people and counting. We need to help 500 million people become better leaders so that billions can benefit.
+- More and more I'm finding that I'm reading history, I'm reading biography, I'm reading autobiography for a sense of people who've been able to provide leadership. I don't read leadership books anymore.
+- Kotter International is about leading large-scale change, not just managing it.
+- I am always looking for stories that will shed light on how companies define themselves - for better or for worse. When shared with others, such stories can have an enormous impact on how well we move forward in the changing world around us.
+- We worry about appearing awkward in a presentation. But up to a point, most people seem to feel more comfortable with less-than-perfect speaking abilities. It makes the speaker more human - and more vulnerable, meaning he is less likely to attack our decisions or beliefs.
+- I'm impatient. Typically people think they know all about change and don't need help. Their approach tends to be more management-oriented than leadership-oriented. It's very frustrating.
+- The dry academic tomes I wrote very early in my career were earnest reflections of the research I conducted, the analysis I applied and the conclusions I drew. And they had few readers, mostly other academics. I learned along the way and started including more and more stories in my work.
+- Sometimes it doesn't hurt to talk around a little and see what lights people's eyes up and what makes them cloud over.
+- Over the years I have become convinced that we learn best - and change - from hearing stories that strike a chord within us.
+- Neurologists say that our brains are programmed much more for stories than for abstract ideas. Tales with a little drama are remembered far longer than any slide crammed with analytics.
+- Managers are trained to make incremental, programmatic improvements. They aren't trained to lead large-scale change.
+- If people think the boss is manipulating them to get them to work harder, it backfires.
+- We started Kotter International to improve leaders' ability to deal with big, important transformations in organizations - and in their lives.
+- It's very difficult to innovate without requiring people to do something different. And whenever you require people to do something different, you're talking about change.
+- True urgent leadership doesn't drain people. It does the opposite. It energizes them. It makes them feel excited.
+- Tradition is a very powerful force.
+- At any one time the world has a very limited number of Steve Jobs or Winston Churchills or Thomas Watson the firsts. These are wonderful people and we can learn much from them, but praying for a few more of them to solve the world's problems is not a great idea.
+- Innovation is kind of a sub-piece of change.
+- Urgency is unbelievably important when you're talking about, not little changes, but big changes.
+- All organizations start with a structure that looks like a dynamic solar system. They can be very fast, agile. They attract people who play around with crazy ideas.
+- Congress is full of people who get reelected and reelected. How can you have urgency when there are all of those safe seats?
+- I am often asked about the difference between 'change management' and 'change leadership,' and whether it's just a matter of semantics. These terms are not interchangeable.
+- Because management deals mostly with the status quo and leadership deals mostly with change, in the next century we are going to have to try to become much more skilled at creating leaders.
+- The rate of change is not going to slow down anytime soon. If anything, competition in most industries will probably speed up even more in the next few decades.
+- Low lights signal to our senses that the workday may be over and it's time for sleep, making it hard for an audience to pay careful attention. When we stand behind a big wooden podium, it can feel as if there's a shield between us and the audience.
+- If you're overbooked, you can't manage pressing problems or even recognize they're pressing until too late.
+- Great leaders understand that historical success tends to produce stable and inwardly focused organizations, and these outfits, in turn, reinforce a feeling of contentment with the status quo.
+- The vast majority of large scale change efforts fail. Which means that the probability that you have actually experienced a failure, and your people know that and are pessimistic, therefore, about trying something again, is very high.
+- A higher rate of urgency does not imply ever-present panic, anxiety, or fear. It means a state in which complacency is virtually absent.
+- Leaders establish the vision for the future and set the strategy for getting there.
+- Many years ago, I think I got my first insight on how an incredibly diverse team can work together and do astonishing things, and not just misunderstand each other and fight.
+- We are always creating new tools and techniques to help people, but the fundamental framework is remarkably resilient, which means it must have something to do with the nature of organizations or human nature.
+- If the culture you have is radically different from an 'experiment and take-risk' culture, then you have a big change you going to have to make - and no little gimmicks are going to do it for you.
+- Leadership is always about change: it's not about mobilising people to do what they've always done well to continue to do it well.
+- Every organization goes through a lifecycle where they eventually lose their initial speed or agility at a strategic level.
+- In an ever changing world, you never learn it all, even if you keep growing into your 90s.

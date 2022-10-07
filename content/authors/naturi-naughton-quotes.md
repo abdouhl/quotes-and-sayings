@@ -1,0 +1,44 @@
++++
+author = "Naturi Naughton"
+title = "Naturi Naughton Quotes"
+quotes_len = "38"
+description = "the best 38 Naturi Naughton Quotes"
++++
+- I was a cheerleader in high school, but I love to play basketball.
+- As a black actress you've got to work doubly hard. But it doesn't ever get me to the point where I give up on myself. It just motivates me to be more prepared, focus and disciplined. That's why I care so much about doing black films and making sure that we represent and are represented correctly.
+- For my first role, I had to audition five times. I've gotten a lot of no's and rejections. But I just had to keep working hard. I took classes; I worked on my craft and continued to work with an acting coach and just didn't give up on myself.
+- I'm a true singer who grew up singing in church, so I love singing my heart out.
+- I definitely want my career to continue to branch out. I've had the pleasure of working in different areas of entertainment, from being in the music business as a teenager in a girl group to doing Broadway for three years in 'Hairspray,' and also doing TV and film.
+- I love to write music and poetry.
+- I think sometimes if you let it all hang out, it makes you a target.
+- I used to be obsessed with 'Boss.'
+- I love to push myself! Stepping outside of my comfort zone is what will make me a better artist.
+- I don't just want to be a cute girl in a comedy or the actress who just does the same thing over and over again. I want to play roles that are distinct. I want to have a more varied career like actresses Viola Davis or Angela Bassett - those are the people that I grew up watching and admiring.
+- I was pretty young when I decided I wanted to, well, more so be a singer. I started singing in church in my hometown, East Orange, New Jersey. I knew when I was about five or six that I wanted to be a performer.
+- Growing up, all my friends used to say 'Naturi, you are so dramatic!' and I would think to myself, 'Thank you!'
+- Oh, you know, I think it was definitely a little pressure, to remake something like 'Fame'.
+- I feel like being pregnant and entering this new stage has made me stronger and more excited about life in general. Everything seems so much more purposeful.
+- My whole life has been about working and being in the girl group and being on stage and being an actress, but now I get to really enjoy a bigger purpose, which is motherhood, so I'm really excited.
+- I work out and go to the gym, but I still enjoy my soul food and snacks. But I'm a pretty petite young woman, and I just do everything in moderation and make sure that I just keep everything together.
+- Professionally, I want to be remembered for how hard I worked and how I put my heart and soul into my work. Personally, I want people to remember my heart.
+- When I booked 'Hairspray,' I really didn't have a support system other than my family and friends.
+- I feel truly blessed to be one of the many black women who are leading ladies on television.
+- I want to be back on Broadway one day. That's a dream of mine. There's nothing like live theater, and I think it's so important for me to be able to be on stage with an audience that responds.
+- If I think something is wrong, I'm going to say it.
+- I truly admire President Barack Obama and First Lady Michelle Obama.
+- I want to give my daughter that Caribbean influence. But also, just being a black girl in this country, I want her to grow up with culture and confidence, and with love.
+- One thing I'm passionate about is directing. I've always wanted to direct.
+- Family is hugely important to me, because like I said, it takes a village to raise a child. That's my theme. That's how I really feel about life.
+- Starting in music, where I get a chance to connect with the lyrics of a song, I learned so much about performing on stage and connecting to your audience and to what you're singing about. Singing is very emotional. Every song has its own purpose.
+- Starz is a network that's going for the content that's extremely honest and pushing the envelope and is provocative.
+- A lot of people don't know, but I love soul food. I love fried chicken and pork chops, all of that.
+- I think a lot of young people don't realize the price of fame is a lot higher than they imagine.
+- To me, singing and acting have always gone hand and hand.
+- When I was coming up, we didn't have the movement of Black Girl Magic or Black Girls Rock, but my parents made it their business to make sure I saw positive images of myself and celebrated images of black women.
+- I love Aretha Franklin, Patti LaBelle, and The Supremes, because I'm kind of old-school at heart.
+- I hike quite a bit when I'm in L.A., so that helps me clear my head. But usually I recharge by going to church, having family dinners, girls' night out, or just simply relaxing at home watching one of my favorite movies.
+- Singing is my passion and something that I still love to do and I'm always going to want to do it.
+- One of my biggest inspirations growing up was Whitney Houston, so I was devastated to hear about her passing. I'm from East Orange, New Jersey, and started singing at New Hope Baptist Church, so she was like my fellow Jersey girl.
+- I was excited to play Lil' Kim and I wanted to do the role justice. I worked really hard on that role, whether it was performing the rhymes, studying the dialect, her swagger and her stage performances. I wanted people to see my range and stretch my wings as an actress.
+- Singers have a lot in common with actors because you have to dig deep into a song and show the audience what you are feeling as you sing.
+- I want to do stories that inspire people.

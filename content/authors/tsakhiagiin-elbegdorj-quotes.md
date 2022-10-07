@@ -1,0 +1,32 @@
++++
+author = "Tsakhiagiin Elbegdorj"
+title = "Tsakhiagiin Elbegdorj Quotes"
+quotes_len = "26"
+description = "the best 26 Tsakhiagiin Elbegdorj Quotes"
++++
+- The roots of our statehood go back more than two millennia and two centuries to the origins of the Hun Empire. Building upon the legacies and power of the Huns, Mongols had built the largest land empire in the history of the mankind.
+- No central planning, no autocratic rule and no military regime can produce what free man can do.
+- Mongolia is a country of rich and ancient heritage, unique culture and astounding natural beauty. It is a land of free and brave, peace-loving and hard-working people.
+- There are nations, where people live in captivity, fear and silence. I believe, one day from prison camps and torture cells and from exile the leaders of freedom will emerge. The world should stand with those oppressed people until the day of their freedom finally arrives.
+- What do you think, what people want from their governments? Simple. A better life for themselves and for their children. Government that is fair, just and responsible.
+- We can never intimidate and discourage the people who voice their words with courage. The essence of freedom rests precisely here - in the freedom of expression of the people. And we must protect it.
+- We should never take democracy for granted. Democracy can emerge and develop, but it can also decay.
+- Freedom was the desire of our people throughout centuries. Freedom enabled our people to be owners of their destiny.
+- Many still believe that conducting political and economic reforms at the same time is not an Asian way. But this is a fairy-tale. We broke that old stereotype by reforming our political, economic and social systems concurrently since 1990.
+- I am confident that if we stand for the hope and freedom of others we will make our own freedom more secure.
+- People are not really interested in what politicians talk about, but what they are really interested in is how their hard-earned tax money is spent.
+- In the Great Mongol Empire, Mongols governed by a written law called the 'Ih Zasag,' which is translated as 'the Great Order.' It was an era when the Mongols strove to establish a new world order, thus, justice, peace and cooperation in their relations with other states and peoples.
+- Greater technological connectivity makes the world wider, and the walls of isolation - thinner.
+- The constitution is a sacred document in a democracy.
+- The first step into justice begins with the politicians. You have to demand from yourself what you demand from people.
+- You cannot be democratic one day, and undemocratic on another. It is a state of mind, it is a way of living, and it is an essence of action.
+- I do believe in the power of freedom. The power of freedom is the mightiest force of history. Once that power unleashes, it ultimately leads to peace and prosperity.
+- Democracy literally means the power of people. Democracy is not about politics, it is about the people.
+- Once people sense their own power, no authoritarian government can stand against the people who are determined to be free.
+- I see corruption as a mortal enemy for young democracies.
+- All governments must maintain power through consent, not coercion.
+- Real progress comes from people.
+- We know that dismantling old oppressive regimes is a great deal faster and easier than building new flourishing democracies. Chinggis Khaan once said, 'It was easier to conquer the world on horseback than to dismount and govern.' True validation of democracy lies less in what we tear down, and more in what we build.
+- From my quarter-a-century experience as a fighter for democracy, there is never a final victory for democracy. It is always a struggle in every generation, and you have to take up the course of time and time again.
+- It is true that power corrupts. The hope at the polling stations and the actions of the elected representatives, unfortunately, often turn to be opposite. The power of ballot turns into the power of wallet. Some law-makers become law-breakers.
+- Corruption is a true enemy to development.

@@ -1,0 +1,25 @@
++++
+author = "Martin Lawrence"
+title = "Martin Lawrence Quotes"
+quotes_len = "19"
+description = "the best 19 Martin Lawrence Quotes"
++++
+- I don't want to sound facetious, but humour is the key to the soul. You know what I mean?
+- No one is immune to the trials and tribulations of life.
+- To each his own. You like what you like. If you want someone who's big-boned and you like that, ain't nothing wrong with having a little extra meat on there. If you like them thin-boned, then that's okay, too.
+- We grew to know the meaning of love. That is what allowed me and my family to stay close together.
+- If somebody pisses me off and I understand it ain't personal then I'll go to another place and I'll meditate.
+- Everybody has a Big Momma: the mother or the grandmother who tells it like it is, keeps it real with them, isn't afraid to tell you the truth about yourself.
+- I don't like forcing comedy and people just trying to do things just to find a funny beat all the time.
+- As long as there's Big Momma, we're going to bring you comedy.
+- If you want someone who's big-boned and you like that, ain't nothing wrong with having a little extra meat on there. If you like them thin-boned, then that's okay, too.
+- I don't really judge. To each his own. You like what you like.
+- I'm most proud of the blessings that God has bestowed upon me, in my life. He's given me the vision to truly see that you can fall down, but you can still get back up. Hopefully I'll learn from my mistakes and have the opportunity to strengthen and improve the next thing I do.
+- I try to always step up to the plate, be professional, be good at what I'm doing and deliver on the character. In Hollywood, what more can you ask for. You want a consummate professional.
+- I was a B.I.G. fan. I like all of his stuff. I don't really have a favorite song. They all are good, and each brings different memories to me. And you can still listen to it to this day and it means something.
+- You might see some of the movies that I'm in where there are shades of drama or whatever, but for the most part, I don't get offered serious roles.
+- I just try to get along with people and show the love that I would like to be shown to me.
+- When I'm playing Big Momma, it's so much work that all I want to do, when I'm finished, is go back home and just relax and study my lines and get ready for the next day.
+- You can be cool and at the same time respect your woman, who will hopefully become your wife, who will hopefully become the mother of your kids. America needs to get back to family values.
+- You make due with the time you have here. Hopefully when you pass on, somebody can look back and say, 'Wow, they made a difference in some kind of way.'
+- I wanted to trust in my partners and the directors and producers and do the best I can to deliver what I could deliver.

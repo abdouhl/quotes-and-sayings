@@ -1,0 +1,80 @@
++++
+author = "James Patterson"
+title = "James Patterson Quotes"
+quotes_len = "74"
+description = "the best 74 James Patterson Quotes"
++++
+- A lot of people like the idea of eternal love and eternal romance. The notion of love that is more profound and deeper because it is eternal is very powerful.
+- I believe we should spend less time worrying about the quantity of books children read and more time introducing them to quality books that will turn them on to the joy of reading and turn them into lifelong readers.
+- I write larger than life. It's what I do.
+- The best way to get kids reading more is to give them books that they'll gobble up - and that will make them ask for another.
+- The more you read, the better you get at it.
+- Kids don't read as much as you'd like them to, just in terms of seeing the world from different perspectives. I mean, that's the great thing about books, still. Here's television, here are the movies, and it's pretty limited in terms of the perspectives.
+- I read some, and then visited with people involved in this curious, exciting and somewhat misunderstood sub-culture. I met with a fang maker, who offered to fit me for an exquisite pair.
+- People like to talk more than they like to act. They like to sit there and complain and vent. Somehow they think that changes things, when it doesn't.
+- I love this idea of expanding the game universe. It has been limited. I guess probably because the genre was so successful, and the people who were creating those games made so much money at it they just had no desire to sort of open it up.
+- As we go through this transition where a lot more people will be reading on devices, nobody is paying enough attention to make sure it's a smooth transition. I believe we still need places where people can go to handle, hold and talk about books, get information about what books are out there, and so on.
+- It's our job - as parents, grandparents, aunts, uncles - to find books our kids are going to like.
+- This summer, I'll be bringing out a mystery that involves a young lawyer and a court scene the likes of which I don't think you've ever seen. Hollywood said this is James Patterson meets John Grisham.
+- I did know that the book would end with a mind-boggling trial, but I didn't know exactly how it would turn out. I like a little suspense when I am writing, too.
+- I never read detective novels. I started out in graduate school writing a more serious book. Right around that time I read 'The Day of the Jackal' and 'The Exorcist'. I hadn't read a lot of commercial fiction, and I liked them.
+- The fact is that our kids aren't reading books - or frankly, much of anything lately. Schools are under funded, some schools even closing their libraries. Parents have to realize that it's their job, and not the school's job, to get kids into the habit of reading for fun.
+- I have a folder in my office with about 400 ideas in it. So it will take me another 40 years to get through those.
+- A lot of writers fall in love with their sentences or their construction of sentences, and sometimes that's great, but not everybody is Gabriel Garcia Marquez or James Joyce. A lot of people like to pretend that they are, and they wind up not giving people a good read or enlightening them.
+- My favorite books are actually very complicated - 'One Hundred Years of Solitude', 'Ulysses'.
+- I think e-books are terrific in their own right. I love being able to get on a plane and basically carry around seven books and it weigh 10 ounces.
+- Every once in a while, I'll have a 'Do you know who I am?' moment, at least in my head. I hate that.
+- I don't think about an industry or building things, but somebody says you're lucky if you find something you like to do, which is true, and then it's a miracle if you get paid to do it.
+- I love to tell stories. It's a delight for me.
+- Life is hard, and a lot of people come home tired from work. If they're gonna spend half an hour reading, they want some entertainment and a sense of achievement. So that's what I give them. That's all I'm trying to do. Is that really so wrong?
+- Kids say the No. 1 reason they don't read more is that they can't find books they like. Freedom of choice is a key to getting them motivated and excited.
+- I'm big on having a blistering pace. That's one of the hallmarks of what I do, and that's not easy. I never blow up cars and things like that, so it's something else that keeps the suspense flowing. I try not to write a chapter that isn't going to turn on the movie projector in your head.
+- I'm very conscious that I'm an entertainer. Something like 73 percent of my readers are college graduates, so you can't condescend to people. You've got to tell them a story that they will be willing to pay money to read.
+- In my office in Florida I have, I think, 30 manuscript piles around the room. Some are screenplays or comic books or graphic novels. Some are almost done. Some I'm rewriting. If I'm working with a co-writer, they'll usually write the first draft. And then I write subsequent drafts.
+- I don't think of myself as a writer.
+- Somebody said the key to life is to work hard, play hard, rest hard, and I've pretty much adopted that.
+- I guess I write four or five hours a day, but I do it seven days a week. It's very disciplined, yes, but it's joy for me.
+- With my adult books, for the first six weeks or so, it's about 60 percent ebooks in terms of sales. The kids' books, it's like 5 percent. Which means that the parents, the ones that aren't going into stores now, they're no longer buying books for their kids, which is not great.
+- The subject for a lot of non-fiction is very emotional, but if you read it, it's the most boring, dry stuff. I wanted 'Torn Apart' to be extremely accessible and readable.
+- I've always been into 'fast-paced, don't bore 'em, keep it moving along, stick with the story.' You know: tell a story the way I want to hear a story. I find it more rewarding to write for kids, but I also find it a little easier, because you can just let loose a little bit more in terms of fantasy and stuff.
+- Commercial books don't even get covered. The reason why so many book reviews go out of business is because they cover a lot of stuff that nobody cares about. Imagine if the movie pages covered none of the big movies and all they covered were movies that you couldn't even find in the theater?
+- If the White House could do more to tell parents that getting children reading is their business too, we'd see a big difference. Hollywood and the NBA or NFL could step in, too. In England they have an event called Book Day, where every child receives a pound to use at any bookstore.
+- The vampire underworld is much larger than most people could imagine. It exists in all the cities mentioned in the book, but also in many, many more. Teenagers, especially, seem to like to act out vampire fantasies.
+- A lot of times you get people writing wonderful sentences and paragraphs, and they fall in love with their prose style, but the stories really aren't that terrific.
+- I don't believe in lecturing people. It's much more effective to present reading as a fun, rewarding pastime.
+- Always expect the unexpected. Right around Thanksgiving, when the new Alex Cross will be out. It's called Four Blind Mice and it's a pretty amazing story about several murders inside the military.
+- If I'm writing and a chapter isn't coming, I just move ahead.
+- I don't smile as much as I should, even though I smile inside a lot.
+- There are a lot of things we as individuals can't do much about. We can't solve global warming as individuals, or health care problems, but as individuals, most of us can get our kids reading. We can do that.
+- My life revolves around my writing, my wife and my son.
+- There is a lot to be said for collaboration, and it should be seen as just another way to do things as it is in other forms of writing, such as for television, where it is standard practice.
+- I'm very emotional. I do feel stuff, for better or worse.
+- I'm a very good storyteller; I have a lot of compassion for people. That's very useful for a novelist. A lot of novelists are snots. They're just mean people. I'm not a terribly skilled stylist, nor do I want to be. I want a lot of people to read one of my stories and go, 'That was pretty cool.'
+- Let's face it: Most of us don't realize it, but we are failing our kids as reading role models. The best role models are in the home: brothers, fathers, grandfathers; mothers, sisters, grandmothers. Moms and dads, it's important that your kids see you reading. Not just books - reading the newspaper is good, too.
+- One of the nice things about books as opposed to television and movies to some extent is it's not a passive entertainment. People really do get involved, and they do create, and they do have their own visions of what different characters look like and what should happen. It's great - it means their brains are working.
+- This is what I believe is most important: getting good books into the hands of kids - books that will make them want to say, 'Wow, that was great. Give me another one to read.'
+- You know, I remember watching Morgan Freeman when he did the two Alex Cross movies, and he's so confident that he's going to knock the scene dead. And I'm really confident that I can tell a good story now, so I just don't worry about things.
+- I learnt to love reading. And then I started scribbling stories, and I liked that even more.
+- My style is colloquial storytelling. It's the way we tell stories to one another - it's not writerly, it's not overdone.
+- I get up every morning and chop wood, and I pretty much do it seven days a week, and I like to do it. I still have time for my wife and my son, who's 14, and at this point, my head is still above water.
+- What I'm really addicted to is getting people to understand that if their kids aren't competent readers coming out of middle school, it's really going to be hard for them in high school.
+- I love the idea of expanding the universe of games to some extent. At one point, they were kind of limited to boys, fanboys and whatever. I like the idea of liberation for games.
+- There are reasons people seek escape in books, and one of those reasons is that the boundary of what can happen is beyond what we do - or would want to see in real life.
+- A good love story always keeps the pot boiling.
+- I grew up in a house full of women: my mother, grandmother, three sisters, and two female cats. And I still have the buzz of their conversations in my head. As an adult, I have more female friends than male ones: I just love the way that women talk.
+- I was always a good student, but I didn't read that much until I was 18 and I was working my way through college.
+- Generally I find that kids ask better questions than you get with adults. Something that kids will do a lot is, they're so nervous, and they're not really paying attention, so they'll ask the same question someone just asked. And you're trying to be nice and not embarrass them any more than they are already.
+- Ultimately, a great thriller is a roller coaster ride. I like to think that's a promise I have never failed to keep, and one that I'd say has served my books well.
+- Hollywood is a peculiar beast - people in Hollywood are nuts.
+- One of the interesting things about YA books - I don't know about Percy Jackson, but I do know about 'Twilight' and 'Maximum Ride': There are a lot of adult readers. In fact, we released 'Maximum Ride' both as a paperback for kids and as a mass release for adults.
+- There are terrific models for success with reluctant readers, but many school systems and state governments need to set aside their 'not invented here' and 'we have more important problems than education' attitudes.
+- I don't get a chance to be funny with the thrillers. I like to be funny, and I think I am really funny. So with 'Middle School: The Worst Years of My Life', it was fun to let loose.
+- I'm not a writer's writer. I'm not a craftsman. I could be, and that would be a one-book-a-year operation.
+- I didn't care for most of the books I was being asked to read in school. I started reading like crazy right after high school when I got a job in a mental hospital. I was working my way through college, and I did a lot of night shifts, and there was nothing to do. So I read like crazy, serious stuff, all the classics.
+- For many years I had heard about an underworld consisting of people who act out a vampire fantasy while I was living in New York. Fortunately for me there are also several books on the phenomena.
+- I have a number of writers I work with regularly. I write an outline for a book. The outlines are very specific about what each scene is supposed to accomplish.
+- When I was 26, I wrote my first mystery, 'The Thomas Berryman Number', and it was turned down by, I don't know, 31 publishers. Then it won an Edgar for Best First Novel. Go figure.
+- I always figured there would be a kid audience and an adult audience, and there is. That's true for 'Hunger Games' and 'Twilight' and 'Harry Potter.' And 'Maximum Ride,' for sure. In particular what happens is a lot of parents share the books with their kids, and the mom has read it, and the kids, and they talk about it.
+- It seemed to me that I could write commercial fiction. I wasn't sure whether I could, or whether I wanted to write serious fiction at that point. So I said, 'Let me try something else,' and I wrote a mystery - but I didn't know much about it.
+- People always come up to me and say, 'you should do standup.' It's nice to discover things about yourself. That keeps everything lively and fun.
+- Schools and parents can team up to find books that kids will really get excited about - that will make them say, 'That was a great experience. Now I know why people get excited about reading.'

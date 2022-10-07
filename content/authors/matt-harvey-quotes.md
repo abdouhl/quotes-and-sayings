@@ -1,0 +1,42 @@
++++
+author = "Matt Harvey"
+title = "Matt Harvey Quotes"
+quotes_len = "36"
+description = "the best 36 Matt Harvey Quotes"
++++
+- I don't need to show anybody anything other than getting the guy out who is trying to make his money off of me.
+- I just have to be better. There's not much else to say.
+- Dirty martinis and music - that's the big motto in our family. We get the booze going, and the music starts playing. Always old-school hip-hop. Jay-Z. Tribe Called Quest. The Pharcyde. My parents love that stuff.
+- As a public figure, you deserve to be treated fairly.
+- I'm here to win. I'm here to play, and who I hang out with is my choice.
+- The last thing I ever want to do is not be here with my team.
+- When people are getting on me for being at a Ranger game at 7 o'clock at night, they don't see what I've done between yoga, Pilates, workout, thrown, ran, done all my work by 5 o'clock, ate, and then I went to the game. Nobody is seeing that. Nobody is commenting on that.
+- Baseball is my job, and I love it, but it can't be the only thing I've got going on.
+- It's hard going out there and not doing what I can to help this team win.
+- Nobody knows the hard work that goes in the morning before I do anything.
+- I like to dominate 100 percent. I don't want to just beat you - I want to wear you down.
+- There's not one part of me that wants to go crazy and do anything out of the ordinary, but it would be nice to do something and not have it spread all over the place. But that's the world we live in now, and you either have to accept it or figure it out - or become a villain, I guess.
+- I love the idea of coming into a struggling franchise and seeing if I can help them win. First off, I hate to lose. At anything. Secondly, who doesn't want to be the guy to help turn something around?
+- You've got to stay positive and go out and work as hard as you can to fix things, and there are going to be adjustments throughout your career, and hopefully it's a long one, so figuring out how to stay out there and get people out is part of baseball.
+- I'm not getting caught in a club at 2 o'clock in the morning. I'm going to basketball games and hockey games and going to events and dinners.
+- For me, it's a feel thing; it's a mechanical thing.
+- I think the big thing is keeping positive energy in the clubhouse. The amount of time we spend in there and spend together carries over into what you do on the field.
+- I think a lot of women would be impressed by my shoe collection.
+- From the things I've read, I think I've been portrayed in kind of a way that makes me look like I don't put an effort into winning. I think that's completely the wrong portrayal of the person I am.
+- I'm very close with my friends. If someone was to ever come along and be the right person, they would have to get along with my friends.
+- I have a 48-hour rule. No drinking two days before a start. But those other days? Yes, I'm gonna go out. If I was locked up in my house all week, I don't know what I'd be like on the baseball field.
+- I will never apologize for having a life.
+- When you work so much in between starts, you realize how long the season is. It's exciting to look at and be a part of, obviously. It's almost like a challenge, to see how, from start to start, things may feel a little differently.
+- When I'm out there on the mound, I'm fighting for my teammates, fighting for the ability to stay in the game for a long time. It's war. I see the hitter - I think about what I want to do, but it's a very quick process. Then I attack. It's almost primal.
+- This day and age, you look at baseball as a whole, and not just the pitchers' side of it. You have the weight programs, you have the technology, and as a pitcher, you need to keep up.
+- The only thing I can do is move forward and try to put myself in the best position to help this team win, and whatever decisions they make, I will just have to deal with it.
+- My whole thing is that guys are working out and getting legs stronger and getting the upper body stronger, and the ligaments just aren't quite able to keep up.
+- A lot of work is going in, and it's not paying off. And it's becoming very frustrating for me.
+- That's obviously not easy. I don't want to leave the Mets; I don't want to not play in New York. It's not at all that I want to leave, but that's the business.
+- You give a press conference, and they'll pick one word, they'll pick two words. The media is still out to write what they want to write.
+- I would like to have two or three kids.
+- When you have these big, strong power hitters who can hit the ball a country mile, and they're strong for a reason and able to do that, as a pitcher you have to keep up.
+- I did some things, including the Body Issue. I'm not going to say I regret doing that, but I think now if you asked me to do it, I would probably say no.
+- I can understand how people who don't really follow baseball can look at 'dead arm' and think the absolute worst. Basically, a dead arm is when your arm kind of feels a little heavy, kind of feels weak, and basically, it's just muscular fatigue.
+- I think there's a lot of learning process in figuring out what things you want to do and shouldn't do. Maturing in that way is something that comes with experience and time.
+- I'm not going to give up enjoying my life and doing the things that I'm interested in doing.

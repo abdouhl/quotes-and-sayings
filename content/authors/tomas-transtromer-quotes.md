@@ -1,0 +1,15 @@
++++
+author = "Tomas Transtromer"
+title = "Tomas Transtromer Quotes"
+quotes_len = "9"
+description = "the best 9 Tomas Transtromer Quotes"
++++
+- I walk slowly into myself, through a forest of empty suits of armor.
+- It's always so early in here, before the crossroads, before the irrevocable choices. Thank you for this life! Still I miss the alternatives. The sketches, all of them, want to become real.
+- A ship's engine far away on the water expands the summer-night horizon. Both joy and sorrow swell in the dew's magnifying glass. Without really knowing, we divine; our life has a sister ship, following quietly another route. While the sun blazes behind the islands.
+- A person shows himself for an instant as in a photograph but clearer and in the background something which is bigger than his shadow.
+- I am still the place where creation does some work on itself.
+- Sometimes my life opened its eyes in the dark. A feeling as if crowds drew through the streets in blindness and anxiety on the way towards a miracle, while I invisibly remain standing.
+- Society's dark hull drifts further and further away. It is this place - the place of our separation, our distinction - that much of his poetry occupies.
+- Every abstract picture of the world is as impossible as a blueprint of a storm. Don't be ashamed because you're human: be proud! Inside you, vaults behind vaults open endlessly. You will never be finished, and that's as it should be.
+- The language marches in step with the executioners. Therefore we must get a new language.

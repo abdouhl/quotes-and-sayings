@@ -1,0 +1,173 @@
++++
+author = "Jerry Saltz"
+title = "Jerry Saltz Quotes"
+quotes_len = "167"
+description = "the best 167 Jerry Saltz Quotes"
++++
+- When people in stadiums do the Wave, it's the group-mind collective organism spontaneously organizing itself to express an emotion, pass time, and reflect the joy of seeing the rhythms of many as one, a visual rhyming or music in which everyone senses where the motion is going.
+- I like that the art world isn't regulated.
+- Ofili is still a champion. It would be a huge mistake to think otherwise.
+- When the purse strings tighten up at museums, the institutions usually cut back and cancel shows. That's exactly the wrong reaction. In fact, now is a good time for them to loosen up - a chance to breathe and experiment a little - and go for the juicy solution lurking in their own basements.
+- Contrary to popular opinion, things don't go stale particularly fast in the art world.
+- Chris Ofili's suave, stippled, visually tricked-out paintings of the nineties, with their allover fields of shimmering dots and clumps of dung, are like cave paintings of modern life. They crackle with optical cockiness, love, and massive amounts of painterly mojo.
+- Many art-worlders have an if-you-say-so approach to art: Everyone is so scared of missing out on the next hot artist that it's never clear whether people are liking work because they like it or because other people do. Everyone is keeping up with the Joneses, and there are more Joneses than ever.
+- There's something pleasing about large, well-lit spaces. I love that dealers are willing to take massive chances in order to give this much room to their artists. Most of all, I love that more galleries showing more art gives more artists a shot.
+- A canon is antithetical to everything the New York art world has been about for the past 40 years, during which we went from being the center of the art world to being one of many centers.
+- New York being what it is, our museums are vertical, not horizontal. That means the stumbling blocks to architectural clarity are unavoidable - but certainly surmountable.
+- Artistic qualities that once seemed undeniable don't seem so now. Sometimes these fluctuations are only fickleness of taste, momentary glitches in an artist's work, or an artist getting ahead of his audience (it took me ten years to catch up to Albert Oehlen). Other times, however, these problems mean there's something wrong with the art.
+- When museums are built these days, architects, directors, and trustees seem most concerned about social space: places to have parties, eat dinner, wine-and-dine donors. Sure, these are important these days - museums have to bring in money - but they gobble up space and push the art itself far away from the entrance.
+- A saboteur in the house of art and a comedienne in the house of art theory, Lawler has spent three decades documenting the secret life of art. Functioning as a kind of one-woman CSI unit, she has photographed pictures and objects in collectors' homes, in galleries, on the walls of auction houses, and off the walls, in museum storage.
+- If only we could persuade galleries to observe a fallow period in which, for two months every other year, new and old works of art could be sold in back rooms and all main galleries would be devoted to revisiting shows gone by.
+- Kinkade estimated that one of his paintings hung in every twenty homes in America. Yet the art world unanimously ignores or reviles him. Me included.
+- Yes, 85 percent of the art you see isn't any good. But everyone has a different opinion about which 85 percent is bad. That in turn creates fantastically unstable interplay and argument.
+- The New York gallery scene being as incredibly overpopulated and overmoneyed as it is, deep conflicts and contradictions aren't hard to find.
+- I don't often go to curator or artist walk-throughs of exhibitions. For a critic, it feels like cheating. I want to see shows with my own eyes, making my own mistakes, viewing exhibitions the way most of their audience sees them.
+- Once artists are expected to shock, it's that much harder for them to do so.
+- As I made my way through 'On Line,' the austere, stridently dogmatic, sometimes revelatory exhibition 'about line' at MoMA, I found myself thinking, 'Someone please wake me when the seventies are over!' In the empire of curators, the sun never sets on the seventies. It is the undead decade.
+- Jeffrey Deitch is the Jeff Koons of art dealers. Not because he's the biggest, best, or the richest of his kind. But because in some ways he's the weirdest (which is saying a lot when you're talking about the wonderful, wicked, lovable, and annoying creatures known as art dealers).
+- I love Rauschenberg. I love that he created a turning point in visual history, that he redefined the idea of beauty, that he combined painting, sculpture, photography, and everyday life with such gall, and that he was interested in, as he put it, 'the ability to conceive failure as progress.'
+- I'm noticing a new approach to art making in recent museum and gallery shows. It flickered into focus at the New Museum's 'Younger Than Jesus' last year and ran through the Whitney Biennial, and I'm seeing it blossom and bear fruit at 'Greater New York,' MoMA P.S. 1's twice-a-decade extravaganza of emerging local talent.
+- The reason the art world doesn't respond to Kinkade is because none - not one - of his ideas about subject-matter, surface, color, composition, touch, scale, form, or skill is remotely original. They're all cliche and already told.
+- All of Koons's best art - the encased vacuum cleaners, the stainless-steel Rabbit (the late-twentieth century's signature work of Simulationist sculpture), the amazing gleaming Balloon Dog, and the cast-iron re-creation of a Civil War mortar exhibited last month at the Armory - has simultaneously flaunted extreme realism, idealism, and fantasy.
+- I know it's dangerous to take on bloggers. They can go after you every day, all day long, and anonymous people can chime in, too.
+- 'The Night Cafe' and 'The Starry Night' still emit such pathos, density, and intensity that they send shivers down the spine. Whether Van Gogh thought in color or felt with his intellect, the radical color, dynamic distortion, heart, soul, and part-by-part structure in these paintings make him a bridge to a new vision and the vision itself.
+- All art comes from other art, and all immigrants come from other places.
+- When money and hype recede from the art world, one thing I won't miss will be what curator Francesco Bonami calls the 'Eventocracy.' All this flashy 'art-fair art' and those highly produced space-eating spectacles and installations wow you for a minute until you move on to the next adrenaline event.
+- Works of art often last forever, or nearly so. But exhibitions themselves, especially gallery exhibitions, are like flowers; they bloom and then they die, then exist only as memories, or pressed in magazines and books.
+- A sad fact of life lately at the Museum of Modern Art is that when it comes to group shows of contemporary painting from the collection, the bar has been set pretty low.
+- Many say an art dealer running a museum is a 'conflict of interest.' But maybe the art world has lived an artificial or unintentional lie all of these years when it comes to conflicts of interest.
+- Biennial culture is already almost irrelevant, because so many more people are providing so many better opportunities for artists to exhibit their work.
+- Robert Rauschenberg was not a giant of American art; he was the giant. No American created so many aesthetic openings for so many artists.
+- The German ueber-photographer Andreas Gursky was the perfect pre-9/11 artist.
+- Artschwager's art always involves looking closely at surfaces, questions what an object is, wants to make you forget the name of the thing you're looking at so that it might mushroom in your mind into something that triggers unexpected infinities.
+- Early-twentieth-century abstraction is art's version of Einstein's Theory of Relativity. It's the idea that changed everything everywhere: quickly, decisively, for good.
+- The Met is not only the finest encyclopedic museum of art in the United States; it is arguably the finest anywhere.
+- Galleries began growing in both number and size in the late seventies, when artists who worked in lofts wanted to exhibit their work in spaces similar to the ones the art was made in.
+- Megacollectors suppose they can enter art history by spending astronomical amounts.
+- Living and working for four decades in a Bologna apartment and studio he shared with his unwed sisters, Morandi painted little but bottles, boxes, jars, and vases. Yet like that of Chardin and the underappreciated William Nicholson, Morandi's work seems to slow down time and show you things you've never seen before.
+- Lucian Freud's career affirms that the only thing an artist can do is remain true to whatever vision, (lack of) talent, or ideas that happened to pick them in order to be made known to the world.
+- Not to say people shouldn't get rich from art. I adore the alchemy wherein artists who cast a complex spell make rich people give them their money. (Just writing it makes me cackle.) But too many artists have been making money without magic.
+- The price of a work of art has nothing to do with what the work of art is, can do, or is worth on an existential, alchemical level.
+- Of all the biennials, triennials, quadrennials, internationals, and massive group shows, Documenta, established in 1955 and held once every five years in Kassel, Germany, is seen as the most serious. A statement show.
+- I hate art auctions.
+- Every artist will one day face the moment when he or she is doing what he or she does after the style has passed and the art-world heat-seeking machine has moved on.
+- I see around 100 shows a month, going from Niketown-size palaces where you feel like yelling, to storefronts in Bushwick. Each has to pay the bills; keep artists happy; and cope with collectors (oy!), curators (ay-yi-yi), critics (woo-hoo!), and occasionally plumbers. That their fiscal life often hangs in the balance only adds to the energy.
+- I wish I could write about shows outside New York. I often feel like the last person to know anything, because I almost never get to leave town, and when I do, I tend to go for three days max. Seeing between 30 and 40 shows a week in 100 or so galleries and museums takes up nearly all my time.
+- I don't know much about auctions. I sometimes go to previews and see art sardined into ugly rooms. I've gawked at the gaudy prices, and gaped at well-clad crowds of happy white people conspicuously spending hundreds of millions of dollars.
+- Anyone who relishes art should love the extraordinary diversity and psychic magic of our art galleries. There's likely more combined square footage for the showing of art on one New York block - West 24th Street between Tenth and Eleventh Avenues - than in all of Amsterdam's or Hamburg's galleries.
+- These days, newish art can be priced between $10,000 and $25,000. When I tell artists that a new painting by a newish artist should go for around $1,200, they look at me like I'm a flesh-eating virus.
+- I see artists bored by light-without-heat, irked at gigantic galleries' pushing out art-as-product, leaving behind the over determined for the undetermined, guided by interior voices and bringing us out of a long tunnel to new blueness.
+- Elizabeth Peyton, the artist known for tiny, dazzling portraits of radiant youth, is now painting tiny, dazzling portraits of radiant middle age.
+- Kinkade's paintings are worthless schmaltz, and the lamestream media that love him are wrong. However, I'd love to see a museum mount a small show of Kinkade's work. I would like the art world and the wider world to argue about him in public, out in the open.
+- To me, nothing in the art world is neutral. The idea of 'disinterest' strikes me as boring, dishonest, dubious, and uninteresting.
+- Mission accomplished. The Museum of Modern Art's wide-open, tall-ceilinged, super-reinforced second floor was for all intents and purposes built to accommodate monumental installations and gigantic sculptures, should the need arise. It has arisen.
+- I often find myself privately stewing about much British art, thinking that except for their tremendous gardens, that the English are not primarily visual artists, and are, in nearly unsurpassable ways, literary.
+- I don't plan out my visits rigorously, but I do have a list of about 125 New York galleries, alternative spaces, museums, and so forth that I visit regularly. That's the closest thing I have to a strategy: I go to a lot of places, many that artists don't visit.
+- The very paradigm of revolution, of right versus wrong, good versus bad, is a relic with no bearing on the present. Yet artists, exhibitions, and curators valorize the sixties. People who wrote about these artists 30 years ago still write about them in the same ways, often for the same magazines.
+- Urs Fischer specializes in making jaws drop. Cutting giant holes in gallery walls, digging a crater in Gavin Brown's gallery floor in 2007, creating amazing hyperrealist wallpaper for a group show at Tony Shafrazi: It all percolates with uncanny destructiveness, operatic uncontrollability, and barbaric sculptural power.
+- Our culture now wonderfully, alchemically transforms images and history into artistic material. The possibilities seem endless and wide open.
+- After its hothouse incubation in the seventies, appropriation breathed important new life into art. This life flowered spectacularly over the decades - even if it's now close to aesthetic kudzu.
+- Batty as it sounds, subject and style may choose artists, through some unfathomable cosmic means. How else to explain that even artists who enjoy what they do can be perplexed or even horrified that they're doing it?
+- Poor Georgia O'Keeffe. Death didn't soften the opinions of the art world toward her paintings.
+- Now people look at 'The Scream' or Van Gogh's 'Irises' or a Picasso and see its new content: money. Auction houses inherently equate capital with value.
+- To engage with art, we have to be willing to be wrong, venture outside our psychic comfort zones, suspend disbelief, and remember that art explores and alters consciousness simultaneously.
+- You can't prove Rembrandt is better than Norman Rockwell - although if you actually do prefer Rockwell, I'd say you were shunning complexity, were secretly conservative, and hadn't really looked at either painter's work. Taste is a blood sport.
+- Giant group events are distorting organisms: You can like and hate them in rapid succession.
+- Much good art got made while money ruled; I like a lot of it, and hardship and poverty aren't virtues. The good news is that, since almost no one will be selling art, artists - especially emerging ones - won't have to think about turning out a consistent style or creating a brand. They'll be able to experiment as much as they want.
+- Just as Pollock used the drip to meld process and product, Richter 'found' and used the smudge and the blur to ravish the eye, creating works of psychic and physical power.
+- New Yorkers only cross water for visual culture if the water is an ocean. The East River throws us for a huge loop. If we started going to Queens and the Bronx for visual culture, many of our rent, space, and crowding problems would be over indefinitely.
+- Art usually only makes the news in America when the subject is money.
+- John Currin's exaggerated realism and his twisted women kept me off balance, never knowing if they were sincere or ironic or some new emotion.
+- Calling a young artist 'great' these days can give one the heebie-jeebies: The word has been denatured in the past decade.
+- If the Frieze Art Fair catches on, I imagine at least two great things happening. First, we will once again have a huge art fair in town that isn't too annoying to go to. More importantly, Frieze may finally show New Yorkers that we can cross our own waters for visual culture. That would change everything.
+- Almost all institutions own a lot more art than they can ever show, much of it revealing for its timeliness, genius, or sheer weirdness.
+- Everyone goes to the same exhibitions and the same parties, stays in the same handful of hotels, eats at the same no-star restaurants, and has almost the same opinions. I adore the art world, but this is copycat behavior in a sphere that prides itself on independent thinking.
+- Marlene Dumas is one of the two or three most successful female artists alive, if you judge by prices. I've never reviewed her work, because I find nothing in it to get excited about no matter how hard I look.
+- The giant white cube is now impeding rather than enhancing the rhythms of art. It preprograms a viewer's journey, shifts the emphasis from process to product, and lacks individuality and openness. It's not that art should be seen only in rutty bombed-out environments, but it should seem alive.
+- Mark Grotjahn's large new paintings abound with torrents of ropy impasto, laid down in thickets, cascading waves, and bundles that swell, braid around, or overlap one another.
+- The greatest work of art about New York? The question seems nebulous. The city's magic and majesty are distilled in the photographs of Alfred Stieglitz and Paul Strand.
+- Decades ago, Gerhard Richter found a painterly philosopher's stone. Like Jackson Pollock before him, he discovered something that had been in painting all along, always overlooked or discounted.
+- It's art that pushes against psychological and social expectations, that tries to transform decay into something generative, that is replicative in a baroque way, that isn't about progress, and wants to - as Walt Whitman put it - 'contain multitudes.'
+- I love art dealers. In some ways, they're my favorite people in the art world. Really. I love that they put their money where their taste is, create their own aesthetic universes, support artists, employ people, and do all of this while letting us see art for free. Many are visionaries.
+- Art is good, bad, boring, ugly, useful to us or not.
+- One argument goes that recessions are good for female artists because when money flies out the window, women are allowed in the house. The other claims that when money ebbs, so do prospects for women.
+- The New York art world readily proves people wrong. Just when folks say that things stink and flibbertigibbet critics wish the worst on us all because we're not pure enough, good omens appear.
+- Pictures artists staged their own images or copied or cut out others already in existence. The viewer took them in separately, in sometimes paradoxical waves: an original image, then the manipulations of it, then the places where image and idea intersected. This created a crucial perceptual glitch that irony and understanding filled.
+- Auction houses run a rigged game. They know exactly how many people will be bidding on a work and exactly who they are. In a gallery, works of art need only one person who wants to pay for them.
+- Only an artist as preternaturally acute and copacetic, as oddly visionary and just odd as Richard Artschwager, would be able to lay out the whole course of human evolution and have it make some kind of sense while also seeming like a dazzling insight.
+- 'Summer of Love: Art of the Psychedelic Era,' the Whitney Museum's 40th-anniversary trip down counterculture memory lane, provides moments of buzzy fun, but it'll leave you only comfortably numb. For starters, it may be the whitest, straightest, most conservative show seen in a New York museum since psychedelia was new.
+- I like something about George W. Bush. A lot. After spending more than a decade having almost physiological-chemical reactions anytime I saw him, getting the heebie-jeebies whenever he spoke - after being sure from the start that he was a Gremlin on the wing of America - I really like the paintings of George W. Bush.
+- After 1909, Monet drastically enlarged his brushstrokes, disintegrated his images, and broke through the taming constraints and delicacy of Impressionism for good. Nineteen gnarly paintings, starting in 1909 and carrying through his final seventeen years, finish off the notion that Monet went happily ever after into lily-land.
+- Although I adore the Italian High Renaissance, I'd rather look at Mannerism. The former is ordered, integrated, otherworldly, and grandiose; it leaves you feeling hungry for something flawed and of-the-flesh.
+- The style of ancient Egyptian art is transcendently clear, something 8-year-olds can recognize in an instant. Its consistency and codification is one of the most epic visual journeys in all art, one that lasts 30 dynasties spread over 3,000 years.
+- Few contemporary artists mined the space between the ordinary and the strange better than Orozco did.
+- I also take pleasure in the so-called negative power in Grotjahn's work. That is, I love his paintings for what they are not. Unlike much art of the past decade, Grotjahn isn't simply working from a prescribed checklist of academically acceptable, curator-approved 'isms' and twists.
+- Put yourself in the position of an up-and-coming artist living in early-sixteenth-century Italy. Now imagine trying to distinguish yourself from the other artists living in your town: Michelangelo, Raphael, Leonardo, or Titian. Is it any wonder that the Italian High Renaissance lasted only 30 years?
+- The art world is an all-volunteer force. No one has to be here if he or she doesn't want to be, and we should be associating with anyone we want to.
+- Turns out Picasso's passion for uncertainty, mystery, and the thrill of life never ended.
+- The last time money left the art world, intrepid types maxed out their credit cards and opened galleries, and a few of them have become the best in the world.
+- Every movement that slays its gods creates new ones, of course. I loathe talk of the sixties and seventies being a 'Greatest Generation' of artists, but if we're going to use such idiotic appellations, let this one also be applied to the artists, curators, and gallerists who emerged in the first half of the nineties.
+- I see 30 to 40 gallery shows a week, and no matter what kind of mood I'm in, no matter how bad the art is, I almost always feel better afterward. I can learn as much from bad art as from good.
+- Artists working for other artists is all about knowing, learning, unlearning, initiating long-term artistic dialogues, making connections, creating covens, and getting temporary shelter from the storm.
+- Among living artists, George Condo may be the most embraced by the powers that be.
+- Venice is the perfect place for a phase of art to die. No other city on earth embraces entropy quite like this magical floating mall.
+- I've always said that an art critic can put aside politics around art.
+- I have a soft spot for art that, in terms of subject matter and material, is in bad taste.
+- 'The Panorama' is also the last place anywhere in New York where the World Trade Center still stands, whole, as it stood in the early morning of September 11. I can also see the corner where I saw the first tower fall and howled out loud. Seeing the buildings again here is uplifting, healing.
+- Recessions are hard on people, but they are not hard on art.
+- I'm not for or against video - or any medium or style, for that matter.
+- Can space break? I mean the space of art galleries. Over the past 100 years, art galleries have gone from looking like Beaux Arts salons to simple storefronts to industrial lofts to the gleaming giant white cubes of Chelsea with their shiny concrete floors.
+- First let me report that the art in the Barnes Collection has never looked better. My trips to the old Barnes were always amazing, but except on the sunniest days, you could barely see the art. The building always felt pushed beyond its capacity.
+- I rage against Vincent van Gogh for needing to die at 37, after painting for only ten years.
+- Appropriation is the idea that ate the art world. Go to any Chelsea gallery or international biennial and you'll find it. It's there in paintings of photographs, photographs of advertising, sculpture with ready-made objects, videos using already-existing film.
+- Rumors sound of galleries asking artists for upsized art and more of it. I've heard of photographers asked to print larger to increase the wall power and salability of their work. Everything winds up set to maximum in order to feed the beast.
+- The art gods cooked up something special for James Ensor.
+- Those who love him love that he sells the most art; they take it as a point of faith that this proves Kinkade is the best. But his fans don't only rely on this supply-and-demand justification. They go back to values.
+- Abstraction is one of the greatest visionary tools ever invented by human beings to imagine, decipher, and depict the world.
+- It took the Metropolitan Museum of Art nearly 50 years to wake up to Pablo Picasso. It didn't own one of his paintings until 1946, when Gertrude Stein bequeathed that indomitable quasi-Cubistic picture of herself - a portrait of the writer as a sumo Buddha - to the Met, principally because she disliked the Museum of Modern Art.
+- As I went through 'This Progress,' one of two performance pieces by Tino Sehgal that transform Frank Lloyd Wright's emptied-out spiral into a dreamy Socratic-purgatorial journey, the museum literally fell away. I was suspended in some weird nonspace.
+- Willem de Kooning is generally credited for coming out of the painterly gates strong in the forties, revolutionizing art and abstraction and reaching incredible heights by the early fifties, and then tailing off.
+- While a large segment of the art world has obsessed over a tiny number of stars and their prices, an aesthetic shift has been occurring. It's not a movement - movements are more sure of themselves. It's a change of mood or expectation, a desire for art to be more than showy effects, big numbers, and gamesmanship.
+- We're all entitled to opinions about how art institutions should behave, and entitled to voicing those opinions through whatever means available to us. We're also allowed to change or modify our opinions.
+- In 1998, Artnet was the site that convinced me that if my writing didn't exist online, it didn't exist at all. It showed me criticism's future.
+- It took me twenty years to get Steven Parrino's work. From the time I first saw his art, in the mid-eighties, I almost always dismissed it as mannered, Romantic, formulaic, conceptualist-formalist heavy-metal boy-art abstraction.
+- It is not possible to overstate the influence of Paul Cezanne on twentieth-century art. He's the modern Giotto, someone who shattered one kind of picture-making and invented a new one that the world followed.
+- My culture-deprived, aspirational mother dragged me once a month from our northern suburb - where the word art never came up - to the Art Institute of Chicago. I hated it.
+- Billions of photos are shot every year, and about the toughest thing a photographer can do is invent an original, deeply personal, instantly recognizable visual style. In the early nineties, Wolfgang Tillmans did just that, transforming himself into a new kind of artist-photographer of modern life.
+- Outside museums, in noisy public squares, people look at people. Inside museums, we leave that realm and enter what might be called the group-mind, getting quiet to look at art.
+- Probably only an art-worlder like me could assign deeper meaning to something as simple and silly as Tebowing. But, to us, anytime people repeat a stance or a little dance, alone or together, we see that it can mean something. Imagistic and unspoken language is our thing.
+- Of course art world ethics are important. But museums are no purer than any other institution or business. Academics aren't necessarily more high-minded than gallerists.
+- Money is something that can be measured; art is not. It's all subjective.
+- Koons's work has always stood apart for its one-at-a-time perfection, epic theatricality, a corrupted, almost sick drive for purification, and an obsession with traditional artistic values.
+- I have never really cooked, don't know how to use my dishwasher, and subsist mainly on prepared deli takeout. I don't even eat in restaurants much.
+- John Baldessari, the 79-year-old conceptualist, has spent more than four decades making laconic, ironic conceptual art-about-art, both good and bad.
+- Wolfgang Tillman's stunning large-scale pictures, being shown for the first time, were so offhand I failed to see them as art.
+- The alchemy of good curating amounts to this: Sometimes, placing one work of art near another makes one plus one equal three. Two artworks arranged alchemically leave each intact, transform both, and create a third thing.
+- Where Cezanne captured and intensified shards of the eternal (every pear far more sharply defined than it could be in life), Monet portrayed the changeability and flux of every moment. 'The Water Lilies' give you a jittery, amorphous sense of a world seen at the speed of light.
+- My nominee for Best Picture of the year - maybe the best picture ever, because it's essentially made up of and is an ecstatic love letter to all other movies - is Christian Marclay's endlessly enticing must-see masterpiece 'The Clock.'
+- A lot of people still think caring about clothes is a dubious, unserious, frivolous, girlie thing.
+- The Metropolitan Museum of Art is unsurpassed at presenting more than 50 centuries of work. I go there constantly, seeing things over and over, better than I've ever seen them before.
+- Art is for anyone. It just isn't for everyone. Still, over the past decade, its audience has hugely grown, and that's irked those outside the art world, who get irritated at things like incomprehensibility or money.
+- Abstract Expressionism - the first American movement to have a worldwide influence - was remarkably short-lived: It heated up after World War II and was all but done for by 1960 (although visit any art school today and you'll find a would-be Willem de Kooning).
+- Giorgio Morandi's paintings make me think that artists may not totally choose, or even control, their subjects or style.
+- Damien Hirst is the Elvis of the English art world, its ayatollah, deliverer, and big-thinking entrepreneurial potty-mouthed prophet and front man. Hirst synthesizes punk, Pop Art, Jeff Koons, Marcel Duchamp, Francis Bacon, and Catholicism.
+- The forties, seventies, and the nineties, when money was scarce, were great periods, when the art world retracted but it was also reborn.
+- There's one Baldessari work I genuinely love and would like to own, maybe because of my Midwestern roots and love of driving alone. 'The backs of all the trucks passed while driving from Los Angeles to Santa Barbara, California, Sunday, 20 January 1963' consists of a grid of 32 small color photographs depicting just what the title says.
+- Think of an abstract painting as very, very low relief - a thing, not a picture.
+- Galleries needn't be exactly like White Columns purely because times are bad again. But the idea of this special space could - should - help shape what comes next.
+- When art wins, everyone wins.
+- 'Untitled' is a time machine that can transport you to 1992, an edgy moment when the art world was crumbling, money was scarce, and artists like Tiravanija were in the nascent stages of combining Happenings, performance art, John Cage, Joseph Beuys, and the do-it-yourself ethos of punk. Meanwhile, a new art world was coming into being.
+- Many things happened in the sixties, but the period is no more significant, better, or more 'political' than today. It's time to turn the page.
+- In art, scandal is a false narrative, a smoke screen that camouflages rather than reveals. When we don't know what we're seeing, we overreact.
+- In the late nineties, Katy Grannan began making haunting photographs of people who had extraordinary inner yens to be seen by strangers.
+- When I criticize Joseph Beuys or Francis Bacon, nobody calls those opinions anti-male. Putting female artists or their subject matter off-limits is itself sexist and limiting.
+- It's great that New York has large spaces for art. But the enormous immaculate box has become a dated, even oppressive place. Many of these spaces were designed for sprawling installations, large paintings, and the Relational Aesthetics work of the past fifteen years.
+- In the seventies, a group of American artists seized the means not of production but of reproduction. They tore apart visual culture at a time of no money, no market, and no one paying attention except other artists. Vietnam and Watergate had happened; everything in America was being questioned.
+- The art world is molting - some would say melting. Galleries are closing; museums are scaling back.
+- Many museums are drawing audiences with art that is ostensibly more entertaining than stuff that just sits and invites contemplation. Interactivity, gizmos, eating, hanging out, things that make noise - all are now the norm, often edging out much else.
+- Art is changing. Again. Here. Now. Opportunities to witness this are rare, so attend and observe.
+- Abstraction brings the world into more complex, variable relations; it can extract beauty, alternative topographies, ugliness, and intense actualities from seeming nothingness.
+- Summer is a great time to visit art museums, which offer the refreshing rinse of swimming pools - only instead of cool water, you immerse yourself in art.
+- Too many younger artists, critics, and curators are fetishizing the sixties, transforming the period into a deformed cult, a fantasy religion, a hip brand, and a crippling disease.
+- The secret of food lies in memory - of thinking and then knowing what the taste of cinnamon or steak is.
+- A metaphysical tour de force of untethered meaning and involuting interlocking contrapuntal rhythms, 'The Clock' is more than a movie or even a work of art. It is so strange and other-ish that it becomes a stream-of-consciousness algorithm unto itself - something almost inhuman.

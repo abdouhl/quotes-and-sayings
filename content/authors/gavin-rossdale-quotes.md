@@ -1,0 +1,41 @@
++++
+author = "Gavin Rossdale"
+title = "Gavin Rossdale Quotes"
+quotes_len = "35"
+description = "the best 35 Gavin Rossdale Quotes"
++++
+- I quite like Low, the band from Minnesota. They're absolutely mesmerizing. I get much the same feeling from anything that Will Oldham does.
+- Wherever you look there are inspirations, books, literature, paintings, landscapes, everything. Just living is an inspiration.
+- I'm not a workaholic, but I was a bit manic, I have to confess.
+- I was pretty taken with Patti Smith, she was my heroine.
+- I love playing live, I don't like studios all that much. I need the reaction of the audience.
+- In a band that works out well, everybody has a certain role to fulfill.
+- For some critics we might be uncool on account of our popularity.
+- As an artist, you're pretty sheltered backstage. You often don't know what's going on out there.
+- I think people are too hard on the Pistols. The Pistols started the whole punk thing and never saw much money.
+- Bob Dylan has a way with words that simply blows me away. When he forgets his lyrics he just makes up new ones on the spot, that is what I called talented!
+- Lyrics are really important for me.
+- Dub and reggae... I play that a lot around the house.
+- The more I talk about things, the more I understand myself.
+- For the sound we produce, everybody is equally important. Each of us has a very different personality and that is what keeps Bush alive.
+- I don't know any musician who got to the top without hard work. Take whoever you want. They all work bloody hard, harder than you think.
+- It's pretty hard to make out what's going to be a commercial success and what's not.
+- Playing live, you can't survive, certainly not in England. We used to work daytime jobs and play gigs at night. It was very exhausting.
+- Only the guys who never made it and will never make it in the U.S. need to put up the front that they don't care about America.
+- I have always been fascinated by dark and mysterious stuff. I guess I have a pretty dark and gloomy side. Writing songs saves me from going completely gonzo.
+- I think it's pretty normal that there are a lot of people out there who don't like us.
+- We recorded our first CD, Sixteen Stone, with a small budget and never dreamed that we would enjoy such a high success. It was simply fantastic.
+- I am really addicted to music.
+- I don't see myself as the boss. I sing and write the songs, and it would feel strange if somebody else wrote the lyrics I sang.
+- The only people who benefit from lawsuits are lawyers. I think we made a couple of them rich.
+- I love what I'm doing most of the time, but it's hard work. People only see your albums in the charts. They see us at award shows and after-show parties. They don't know about your doubts, the hard work that goes in.
+- I love seeing the fans of the music that I make.
+- Being real is what is important.
+- I pretty much grew up when punk was big in the UK. The Sex Pistols were heroes for me. I used to run around like Johnny Rotten. I had a jacket like his.
+- If you just keep your head down and just try and do your thing, sometimes magic happens.
+- Any reaction is better than none.
+- I always wrote about things that were important to me. I think our past success showed that it was also important for a lot of others.
+- The Beatles, the Small Faces and the Kinks were great bands, but that was in the '60s.
+- As much as we all love playing live, it's not normal to be on the road all the time, to have no home.
+- When I first began to write, I was writing on bass, because I was thinking more Public Image, more dub.
+- A happy wife is a happy life.

@@ -1,0 +1,17 @@
++++
+author = "Kris Holden-Ried"
+title = "Kris Holden-Ried Quotes"
+quotes_len = "11"
+description = "the best 11 Kris Holden-Ried Quotes"
++++
+- It turns out that I've become a pretty good werewolf actor. I'm going to have to try to get myself into a different position, at some point in the future, but I'll take werewolf. Werewolf is pretty damn fun to play.
+- I was on the national Pentathlon team for a few years, but there was no funding for athletes in Canada. I was in a massive amount of personal debt at the age of 21, so I joined a little modelling and talent agency to get a some work, to do anything so that I didn't have to drop out of school.
+- I love period pieces. It's where my skill sets lie, with the horseback riding, the sword fighting and the accents. I love that world, and I love working on those big, epic shows. That's what I hope to find myself in, in the future.
+- Fencing is a funny sport. Competitive fencing is not really very applicable to the stage world unless you're fighting with a rapier during the Renaissance, you know?
+- I grew up reading a lot of fantasy/sci-fi.
+- I always thought I was doing something special with 'Lost Girl.' How that would be reflected or responded to by the fans, I hadn't really considered. That they are so loyal is amazing. We have such lovely fans.
+- 'Lost Girl' has just proven to be one of those shows that people enjoy watching. It has an alchemy about it. It's an escape or a release for people, and that's the best we can hope for.
+- Really, acting is like anything else. The more time you put in, the more you learn and the more you can give back to the industry.
+- I grew up reading a lot of fantasy/sci-fi. It was really all I read - anything from 'Dragonlance,' when I was 12, to 'The Wheel of Time' and Robert Jordan stuff, to George R.R. Martin, who did 'Game of Thrones.'
+- I always gravitated a bit towards more of the fantasy, and 'Lost Girl' really fits in with that.
+- I actually did want to be an actor when I was younger, but my father didn't want to hear anything about it. And you know what? I went with his decision. I said, 'Yeah, maybe you're right. I don't know anything about acting.'

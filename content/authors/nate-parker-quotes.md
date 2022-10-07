@@ -1,0 +1,37 @@
++++
+author = "Nate Parker"
+title = "Nate Parker Quotes"
+quotes_len = "31"
+description = "the best 31 Nate Parker Quotes"
++++
+- Women have been such an important part of my life. I try, every day, to be a better father to my daughters and a better husband.
+- I think chemistry and great acting go hand-in-hand.
+- Identify your niche and dominate it. And when I say dominate, I just mean work harder than anyone else could possibly work at it.
+- The black community is my community - the LGBT community, too, and the female community. That is my community. That's me; it's who I am.
+- When I was young, to have a big nose, big lips or dark skin was the worst. You were the wretched. That was something I not only felt, but I participated in.
+- We have a tendency to sugar coat the Civil Rights movement by showing arm in arm and everyone singing 'Kumbaya'. We don't really always show the resistance from the government, the resistance from the status quo, from the majority to silence the movement.
+- We all serve a purpose. My purpose isn't to be rejected. My purpose isn't to think small or to be introverted. This door closed is literally pushing me to the next door.
+- I prefer to make movies which not only have a message for 'then' but a message for 'now.'
+- I coach a high school wrestling team and a middle school team. I consider myself a coach and an activist, so I'm really involved in the community.
+- I do believe, as a person of color, the disparities are great. A lot of the roles that were sent to me were 'Gangbanger No. 1.' And when a role did come up that I felt carried and represented my community in the best ways, I wasn't the only one that knew it existed. So I'd have to compete.
+- The American dream is more about opportunity than anything else.
+- The crazy thing is a lot of people - a lot of men, if I'm just speaking for myself - don't really start thinking about the effect of hyper-masculinity and false definitions of what it means to be a man until you get married or until you have kids. Because then, all of sudden, you have something to protect.
+- I think patriotism is all about wanting to see America better, wanting to see those are oppressed do better and get treated better.
+- Any psychologist will tell you that healing comes from honest confrontation with our injury or with our past. Whatever that thing is that has hurt us or traumatized us, until we face it head on, we will have issues moving forward in a healthy way.
+- I walked around feeling, in a sense, that people of color, we began at the bottom of a slave ship. We were enslaved; we picked cotton. There was Honest Abe, who wore a top hat and was taller than anyone and who said, 'Enough is enough; slavery must end.' And then, black people could stand up again. But after that, we didn't catch up.
+- I immediately felt the need, back when I was a managing tech engineer, to attach myself to Nat Turner. And to research him and learn about him and try to find ways into his life that I could apply to my life.
+- All I can do is seek the information that'll make me stronger, that'll help me overcome my toxic masculinity, my male privilege, because that's something you never think about. You don't think about other people.
+- So if I'm 36, and I have my 19-year-old self, I'm pulling him to the side and saying, 'Listen bruh, throwing on your Timbs and your fitted hat and strolling campus trying to get a girl to say yes, or going to the club hoping you bring a girl home, that's not the way to go about healthy relationships. You need to step back.'
+- I, for one, believe that partisanship should have nothing to do with the actions of Christ. You're either Christlike, or you're not.
+- Sadly, black people disassociate ourselves from the things which make us who we are, identifying them as lesser, or inferior. It's a form of self hate. So, with reckless abandon, we strive to be like the majority.
+- My father passed away when I was very young, so I was head of household for a very long time. Whether it came to cooking food or having to braid hair to get kids out of the door for school, I've been one that has - with the help of my mother - has been a father figure for a lot of young ladies.
+- I just feel like if I really believe what Dr. King said, 'Injustice anywhere is a threat to justice everywhere,' then I should be compelled to use my God-given platform to effect change.
+- Let me be the first to say I can't remember ever having a conversation about the definition of consent when I was a kid. I knew that 'no' meant 'no,' but that's it.
+- I was very insecure approaching the idea of directing a feature film. I told myself I would not move until I felt I was moving in power rather than moving in desperation to make a movie.
+- I never felt the need to introduce all the obstacles in my past when I say, 'Hello, my name is Nate.' But at the same time, I've never hidden from it.
+- So often, when we don't have people that can be representative or symbolic of leadership and of faith, of purpose, in that absence we become bitter and resentful.
+- You don't choose who you sit next to in a theater. You sit in a theater, and there's an energy that happens.
+- Leadership is one of the things I really strive to excel in in my life.
+- I'm a perfectionist to a fault.
+- I think, at some point, we have to be followers of Christ - not followers of White Christ, or any other color Christ, for that matter.
+- I'm a big Hall and Oates fan.

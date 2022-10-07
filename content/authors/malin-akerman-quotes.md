@@ -1,0 +1,80 @@
++++
+author = "Malin Akerman"
+title = "Malin Akerman Quotes"
+quotes_len = "74"
+description = "the best 74 Malin Akerman Quotes"
++++
+- When I get dolled up to go out, men turn their heads and I'm used to it. But I think all women are sexy and should embrace that side of themselves.
+- Anytime you get to work with an actor who is beyond you in experience and talent, I feel like they make you a better actor. You really bring up your game.
+- People are all vulnerable in so many different ways. We go into survival mode a lot of times.
+- When you live in L.A., it is easy to stay fit, as the weather is amazing.
+- I'm such a bad shopper for myself. I love fashion and all that kind of stuff, but that's sort of the last thing I want to do when I'm done with a film is go shopping. I want to just chill.
+- I'm a big pasta fan. I'm a big Italian food fan. Anything Italian - I love cheese, mozzarella. Mozzarella is my favorite, so I have to say anything Italian, I'll take it.
+- Turns out, I couldn't catch them - or even get close to them. I realized that sharks are amazing, beautiful animals who have absolutely no interest in checking me out.
+- I'm a tooth person... I like quirky teeth. My husband has little teeth with spaces in between them. He hates them and I love them. I like people with buckteeth, and I like it when they crinkle a bit. It's very charming.
+- New York reminds me a little bit of Canada and my upbringing. Los Angeles is like living in a vacation, and you have to pinch yourself every once and a while.
+- I shouldn't say this, but I always love the sidekicks. I want to do a leading-lady role in a film - absolutely. But I find that a lot of times I get attracted to the sidekick role. They stand out a little more because they're quirkier, they're funnier, they're crazier.
+- I loved 'Pan's Labyrinth.' It transported me into another world. I like fantasy worlds; I love 'Lord of the Rings' as well, for that reason, because you really get to get out of reality and go somewhere else.
+- I never was shy, but as far as telling jokes, I'm the worst. I like physical comedy; it's where I feel comfortable.
+- A lot of big studio films, which are fun and great, tend to have a formula, and you've seen it before, and it's a new version of it.
+- How can you not love a man banging on the drums? He knows how to keep a rhythm.
+- I have this weird obsession with kids and old people falling. Like, funny falls. It is awful, but it's the thing that makes me laugh the most.
+- I don't mind being goofy and silly. I love to make people laugh and I'm not self-conscious.
+- I was a groupie for a year and followed a band. I dated the drummer of the band.
+- Jennifer Aniston and Paul Rudd are really amazing, lovely people and really great comedic actors.
+- I'm gluten intolerant, so that automatically cuts carbs from my diet.
+- I think we can leave mullets back in the '80s. I'm really not a big fan of them.
+- I am extremely lucky that I have a husband who is so supportive. He's not in the slightest bit jealous or worried about the things I do in certain scenes.
+- I'd love for my son to go, 'Hey, Mom, I'd love to have a career that is stable.' I'd be so happy. But of course, whatever makes him happy is what he's going to do.
+- I was really shy growing up. I had braces, headgear, and no boobs - still don't. So, the boys weren't interested in me. The only way I could get attention was by being a goof and a dork, which meant a lot of physical comedy.
+- I like when you watch a film and you feel like you're a part of somebody's life for an hour and a half.
+- I've always felt so different from how I look. I meet so many pretty girls who are like, 'Here I am! Don't you want me because I look good?' That concept is so weird to me. I want to know, 'What else do you have going on?'
+- My only requirement for life is that I don't get stuck in a rut.
+- People do think you're more intelligent if you have dark hair. But my husband definitely prefers me as a blonde.
+- I get horrified when I have to do table reads with the whole cast, because there's a lot of stuttering coming from me, so I have to do a lot of prep.
+- Modeling was never anything that was a career choice. I did catalog work in Toronto to make money so that I could go to school.
+- I always did TV commercials and made great money to put myself through school. That became guest starring roles on TV shows.
+- I don't have a problem with being a woman. Women's bodies are so beautiful.
+- I love a good Slash guitar riff. It's sexy!
+- Women have a way of contorting things sometimes. We all have our moods, ups and downs. Or if the guy doesn't say anything when you walk out with a new top and the guy has no idea why you're mad at him. So of course, women are complicated.
+- As a girl I wanted the Cyndi Lauper hairstyle, with the shaved side of the head, or the Sharon Stone perm from 'Total Recall.'
+- You've got to allow yourself the things you enjoy or you'll just be miserable.
+- I think Cate Blanchett is fabulous - she just shines in everything she does - and I'm a big Susan Sarandon fan.
+- In '87, I was about 9 years old, and so at that point I was wearing, like, fluorescent green T-shirts and acid-wash jeans and leg warmers, and my hair was in a ponytail with a scrunchie and I had the teased bangs that were up in a rainbow shape. It was crazy.
+- I love seeing when actors go from one genre to the next because I feel like most of them can pull it off.
+- I love the Coen brothers. They're so brilliant, and they always surprise you in one way or another. 'A Serious Man' was awesome. I like stuff like that, that kind of throws you for a loop. It takes you on a journey that is unexpected.
+- I think recharging is important, absolutely. Every now and then, you need maybe a couple of weeks to just chill out and let your emotions balance themselves out a little bit.
+- I'm such a foodie, and I actually think I would rather lose my hearing than my taste.
+- I always love the quirky stuff, which is why I love 'Childrens Hospital.' That really pushes the envelope of comedy.
+- I was always active as a kid. I was a professional figure skater for many years and I was a dancer, so it's just been part of my life, and I think that creates a certain body type.
+- My hair is naturally blond and thin, so I like to give it some texture. Sexy, dirty bedhead is good for blonds.
+- We all in real life put on these masks - we don't swear when we're around certain people... When we come home, when you're on your own I'm sure you're really different than when you're with your boss.
+- It's a great beauty tip, if you ever want to look five years younger, to shave off your eyebrows. It's amazing what it does. It really shaves off the years.
+- I have been a goof my whole life. I wasn't really the popular girl in school and didn't have any boyfriends in high school because I was a nerd. I was a geek.
+- The funny thing is that my husband couldn't be sweeter. He looks like this bad boy. He's got tattoos and earrings and a mohawk, but when you talk to him and he's around you, he's such a gentleman. He holds doors for ladies. He pulls out chairs. He cooks. He cleans.
+- I feel nowadays a lot of bands can be too overly produced. There's something about the leather pants and bare bodies and Axl Rose running back and forth on a stage and going crazy. I love all that.
+- Unfortunately, I like to feel a little stubble when I kiss. Women are too soft.
+- I'm the type of person who doesn't want to sit alone in a restaurant or bar.
+- I believe in eating as nutritiously as I can all the time... My mother raised me on fresh - rather than processed - foods, and that's how I eat on a regular basis.
+- I can't walk by chocolate without eating it.
+- I think it's critical in any character you play that it really is about reacting instead of acting. You can always tell when a person is acting.
+- I wouldn't have made it past the first round of American Idol auditions. It was months before our first song was recorded. The guys were like, 'Just seeng!' And I was like, 'I don't know how to seeng! Can't I just play the triangle?'
+- In Europe and Sweden, we see boobs on TV, and it's not a big deal. Everyone has them; everyone has seen them.
+- Nutella. I dig my spoon in and eat it straight out of the jar. I can easily go through one a week.
+- I'd love to do all types of film, not just comedy, although I love comedy.
+- I do love doing films; I love going out and creating different characters for each film, and not having to be stuck with one role for many, many years. It's a creative liberty that I love.
+- Those are my favorite kind of parts to do, just being a goofball and seeing how far you can go with something until you're just way out of line.
+- I would love to interview Dave Grohl. I just think he's an amazing musician, and I grew up listening to Nirvana, so I have so many questions about that.
+- Eventually, I went to college to study psychology, but I was getting more and more TV roles, so I thought, 'You know? It's kind of like psychology, but a little more selfish.' I took a break from school, moved to L.A., and never went back.
+- Don't hate me, but I've always been skinny. I got lucky.
+- I love when you get to work with people you know because there's so much more trust, and you're much more willing to be vulnerable in a scene with someone you trust.
+- I don't really have an issue with showing certain parts of my body. I'd rather not, but it's not a big deal. Growing up in Sweden, it's natural over there.
+- I meet so many pretty girls who are like, 'Here I am! Don't you want me because I look good?' That concept is so weird to me. I want to know, 'What else do you have going on?'
+- There isn't a woman alive who doesn't have problems with her body. Including me!
+- Who doesn't love a funny girl who can look sexy at the same time?
+- In college, I wanted to be a child psychologist. Acting was just something on the side to make money. And it was fun.
+- They say that your second trimester is when you get most of your energy and it's the 'easiest' part of the pregnancy.
+- I still get excited by working with big names. You have that initial moment of, 'Oh my goodness, I'm going to work with Tom Cruise!'
+- I do not watch horror films. At all. I am not a horror film girl; I don't have the stomach for it. I've seen a few in my lifetime, like 'The Shining' or 'Carrie,' but I can't sleep for, like, a week after I see something like that.
+- I have all these nice clothes that I've bought over the years, and I never wear anything because, when you have a toddler, everything gets spilled, and they wipe their boogers on you, whatever. You end up shifting a little bit, and your values shift a bit, too. I don't care about that as much as I used to.
+- Every time I'm in Canada I feel more Swedish, and every time I'm in Sweden I feel more Canadian. I belong in both places and I love them both equally. It's funny because the Swedes claim me as their Swedish pride and the Canadians call me their Canadian girl. I'll take it all.

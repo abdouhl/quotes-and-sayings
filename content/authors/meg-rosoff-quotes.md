@@ -1,0 +1,49 @@
++++
+author = "Meg Rosoff"
+title = "Meg Rosoff Quotes"
+quotes_len = "43"
+description = "the best 43 Meg Rosoff Quotes"
++++
+- I'm not sure I can write about America for the same reason I'm not sure I can write about adults - I have no critical distance on either place.
+- I lived in New York for 10 years, and every New Yorker sees a shrink.
+- When I was at university, there was such a strong delineation between city kids and those who had grown up the suburbs. City kids were so at home in the world, in a way that suburban kids take years to catch up, if indeed they ever can.
+- Teenagers are very dark, I think. That's all the goth and emo stuff. They're experiencing a lot of stuff that adults experience, but in a much more raw way. It's that extremity that I'm interested in, to be able to go down so far and come up so quickly.
+- One of the more interesting things I've learnt since becoming a writer is that if you like the book, you'll generally like the person. It doesn't always work in reverse - there are huge numbers of lovely people out there writing not very good books.
+- People talk about writing convincing teenagers like it's a really clever thing to do, but it comes incredibly naturally to me. Which, of course, is slightly a worry.
+- I'm constantly snatching my books out of the hands of precocious ten-year-olds who are simply too young to read them, despite parents insisting that dear Octavia has a reading age of 28. I remember trying to read 'In Cold Blood' at the age of twelve, and realising that just because you can read book doesn't mean you should.
+- It's hard recommending books for kids, and a huge responsibility. If you get it wrong, they don't tell you they hate that particular book, they tell you they hate reading.
+- I, a late riser, fantasise about getting up every morning at 5 A.M. to fetch the horses in from the fields.
+- While working in advertising, I channelled my creative energy into elaborate escape fantasies: cake making, dog breeding, the Peace Corps.
+- Although I've lived in England for more than twenty years, I still have a foreigner's passion for all the details of English history and rural life.
+- Life doesn't go on forever, and you don't want to drop dead without ever having done what you wanted to do.
+- Like many other people of my generation, I don't think I ever really bothered to grow up. I wasn't ever really a proper teenager until I was about 19, and maybe I got a bit stuck there, because it seemed to go on and on.
+- I've been fired five times for having a bad attitude.
+- I think most people struggle over a matter of years to find a satisfying way to live.
+- I can actually trace the moment I decided I couldn't be a doctor. It was in biology, they brought in these African crickets and we were supposed to dissect them - but there's no way I was touching those bugs.
+- Contrary to popular belief, editors and agents are gagging for good books.
+- Your writing voice is the deepest possible reflection of who you are. The job of your voice is not to seduce or flatter or make well-shaped sentences. In your voice, your readers should be able to hear the contents of your mind, your heart, your soul.
+- I've spent most of my life trying to wear a persona that didn't quite fit and when I started writing books, it was like finally becoming the right person.
+- Every day a piano doesn't fall on my head is good luck.
+- There's an overwhelming sense of paranoia in the suburbs. People there seem so much more paranoid to me than people in the city about their kids being kidnapped or their parties being raided or their drinks being spiked. There's a kind of hysteria about that.
+- As a person with the retentive mental capacity of a goldfish and a dislike of repetition, I frequently make use of the thesaurus built into my Microsoft Word U.K. Software.
+- Self-knowledge is essential not only to writing, but to doing almost anything really well. It allows you to work through from a deep place - from the deep, dark corners of your subconscious mind.
+- I always think plot is what you fall back on if you can't write, to keep things going.
+- The more you live, the better writer you are.
+- I know from experience that careers do not always arise from a deep sense of destiny.
+- The thing about adolescence is that you are emerging from a state of obscurity. You are coming out into the world from your family. Your family can seem normal because it is your family and all you know, but in fact it is a mess.
+- My husband is my most valuable resource.
+- I'd like to think life has improved since 1850, despite the long hours we all seem to spend slaving over hot computers, but the psychological journeys remain the same - the search for love, identity, a meaningful place in the world.
+- The truth about love is that you don't always fall in love with whom you are supposed to fall in love with. Love just hits you. It is a transcendent thing. Sometimes it is your best friend's husband and sometimes it's your father. It's weird. But that's a fact of life.
+- In my experience, adults rarely bother reading the reviews of children's books and almost never read the books themselves - particularly if they don't have children.
+- Writing's a great skill, but thinking's a better one.
+- Life is absolutely horrific, leading up to absolute horror.
+- I am quite a cheerful, dark person. On the outside, I'm optimistic but I expect the worst to happen.
+- My daughter is a fantastic travelling companion - she's totally organised, whereas I'm hopeless.
+- In the odd moment when I am not thinking about horses, I write books.
+- When you read a book, the neurons in your brain fire overtime, deciding what the characters are wearing, how they're standing, and what it feels like the first time they kiss. No one shows you. The words make suggestions. Your brain paints the pictures.
+- I think the bravest thing to write about is nothing, just to write a book in which nothing happens.
+- The average attention span of the modern human being is about half as long as whatever you're trying to tell them.
+- My younger sister Debby had died of cancer, which started me writing - the sense of life being short. Cancer focuses your mind.
+- I have never written out of a desire to be controversial.
+- Nowadays, I only review books I really like. It's cowardly, I know, but I figure it's not my job to make people unhappy. I'll leave that to the professionals.
+- I loved horses and horse books as a child.

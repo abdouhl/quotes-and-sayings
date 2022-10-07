@@ -1,0 +1,26 @@
++++
+author = "Garth Ennis"
+title = "Garth Ennis Quotes"
+quotes_len = "20"
+description = "the best 20 Garth Ennis Quotes"
++++
+- You know, I think I did originally have some sort of idea of maybe a Where Eagles Dare kind of mission against impossible odds, but it really sort of died before I had a chance to really go anywhere with it, and then just doing the book was out of the question.
+- Preacher is a book that somehow allows me time by its settling on it's characters, that sort of modern gothic western feel. You're not likely to see the boat veering too far from that.
+- Wouldn't want to write the X-Men, and I suppose the X-Men is the ultimate Marvel comic, and I really wouldn't want to go anywhere near it at all, although on the other had I wouldn't mind having a crack at something like the Punisher.
+- Yeah, Hitman I suppose is most of the time a lighter read than Preacher; it was always going to be.
+- As the scripts come in they are sent to the artists, and the artists are either very busy, or ready to start.
+- The comics I read as a kid were much more influenced by TV and movies. Encountering superheroes as an adult without that kind of childhood sentimentality, it just doesn't allow you, or in my case at least, it wouldn't let me take the characters seriously.
+- I suppose that Heartland, Unknown Soldier and Pride and Joy represent not a quieter side but more of a serious side to my work, something I've been getting into recently.
+- It's nice to be in a situation where the two books that I write for a sort of regular monthly income are also works that I enjoy immensely, rather than them being some kind of bread and butter, do it because you have to do it.
+- I don't necessarily write everything as automatically assuming it will be collected, there's nothing that says Hitman will be collected, though it might be.
+- I've seen a fair bit of the States and the rest of the world, and I'm convinced that there's nowhere I'd be happier, there's nowhere I'm missing out on because I'm in N.Y.
+- I tend to forget what I'm doing will ever be read while I'm writing it, and just get on with the task at hand.
+- If you look at Marvel Comics, there are very few Marvel characters I would like to write.
+- There's immense fun to be had as long as you can sort of sneak it past DC. I have been told on occasion that I need to have more respect for these characters.
+- It would have shown people that I was prepared to do that kind of work, although I find myself in a position now where I don't really need to and I could pick and choose the kind of characters I'd like to do.
+- I guess you can stay sort of true to the story; you don't have to artificially bring the character back from whatever doom you've designed for them, you can tell the story, I suppose, honestly.
+- Hitman does well and it certainly does well enough to survive, but at the same time I don't want to involve the character into the DC Universe even if it meant more sales, to the point where we sort of upset the balance that we have at the moment.
+- I'm sure you're aware, with the time it takes to put these books together, everything can suddenly start coming out at once even though I wrote anything between one and five years ago.
+- Most regular superhero books are designed to go on forever; of course, very few of them do, but the point is they are trying to throw mud against the wall and hope it will stick, and most of it slides off.
+- I can't really put it in one sentence because although on one hand Preacher is about faith and yes it is also about, I suppose, the search for God, the search for faith and the manipulation and the abuse committed by figures in whom I suppose people have faith.
+- With a mini series you can give the story a proper sense of pacing, a proper sense of closure.

@@ -1,0 +1,83 @@
++++
+author = "Matt Lauer"
+title = "Matt Lauer Quotes"
+quotes_len = "77"
+description = "the best 77 Matt Lauer Quotes"
++++
+- I don't walk around saying everything is going to be wonderful.
+- People have the right to say whatever they want.
+- When people start to write articles about what might be wrong with the 'Today' show you know where you should point the finger, point it at me because I have been there the longest. And it's my responsibility.
+- What makes people successful in this business is to be yourself on camera. Sounds simple. It's not.
+- Over the course of 20 years that I've been at NBC, I have never seen the amount of money I make reported correctly by the media.
+- You get your dream job and, in my opinion, despite anything they might say about you professionally or personally, you shut up, and you just do the job - and enjoy it.
+- I did not stay at the 'Today' show because of money. I think there are other ways to make money.
+- I read the rumors, and I know there is a cottage industry of meanness out there.
+- On a day-to-day level, I love watching my kids accomplish the little things that seem trivial but are really milestones: seeing my son hit a baseball or watching my daughter draw something that actually looks like what she says she's drawing. Or hearing them say 'I love you.'
+- Every night at 6:30, my entire family sits down for dinner together. It's definitely the best part of my day.
+- I'm lucky: I have very funny kids.
+- If you can be who you are on camera, which is not easy, then I think you're going to be successful.
+- Does anyone want to see a person who's making the money that the newspapers say I'm making complaining, 'Woe is me, my life is terrible, and people are being unfair?' No one would've had any patience for that. I wouldn't have any patience for that.
+- Some of what is being said about me is untrue or mischaracterized, but there is enough truth in these stories to make me feel embarrassed and ashamed. I regret that my shame is now shared by the people I cherish dearly.
+- I kid my friends who are golfers, and I say, 'If you ever hear me complain, hit me in the butt with a putter' because I have no reason to complain. Even on days when you don't like what you see in the paper, I have no reason to complain.
+- My mother is a strong woman. Her strength comes from being tested by life's unpredictability. It comes from soldiering on for her children, even when she might rather have given up. I know it hasn't always come easily, but I also know it's her greatest gift.
+- I can't be as open on national television as I can when I'm having dinner with friends. But that doesn't mean the type of person I am is different. My values, my dislikes, my sense of humor are the same.
+- I take the harsh criticism along with the compliments.
+- Could there have been a better role for Florence Henderson than Mrs. Brady? She nurtured everybody. She was so caring.
+- My dad was Jewish. My mom is not. So I was not raised anything.
+- In my mind, I am extraordinarily handy. But what that means is when I attempt to fix something, there's usually a five-minute period of experimentation, followed by a five-minute period of frustration, followed by a frantic phone call to a professional.
+- I like fishing as much when I don't catch anything as when I do.
+- I don't think it's a healthy thing in your personal life to go around with that never-sure attitude.
+- I don't think I'm all that interesting. I mean, I'm a guy who does a morning show and goes to bed at 9:00 every night. I mean, I don't have a lot in my life that's really fascinated or fodder for tabloids.
+- I am the luckiest guy I know.
+- This is the best job in television. I grew up watching the 'Today show.'
+- The vast majority of what I've seen written about me is not true. My family and friends - the people who matter to me - they know the real story.
+- When you feel your family is being threatened and hurt, you speak up. And then you put your head down and go back about your business.
+- There are pockets of liberal, affluent America where parents don't want their kids vaccinated.
+- I worry about that every single day: Am I being a good father?
+- I admire people who are completely at ease with themselves. But I don't have that feeling.
+- Mostly, I think of myself as having great common sense. I've always been proud of that. Was I a terrific student? Absolutely not. But put me in a roomful of people, and I don't think I'm ever going to embarrass myself.
+- I probably would do over the Tom Cruise interview because I've thought of so many things I would have said in hindsight.
+- There was always an unspoken generosity about my mom.
+- I learned more from my dad by osmosis than by any talk we ever had. He was the most reliable person I've ever met.
+- Katie Couric is kind of my soulmate.
+- I'm glad to know that I can host the 'Today' show for 16 years and not be a trending topic. And all the sudden I'm on 'Royal Pains,' and I'm a trending topic. There's something a little strange about that.
+- Broadcasting through 9/11 together, like Katie Couric and I did, creates a bond.
+- There are no words to express my sorrow and regret for the pain I have caused others by words and actions. To the people I have hurt, I am truly sorry.
+- It usually takes two people a little while to learn where the funny buttons are and testy buttons are.
+- The Iraqis have once again failed to meet a deadline for a final draft of the constitution.
+- If you have a bad experience on the air, you don't think you've done your job, or you have an embarrassing moment. I guarantee you'll work harder the next time not to let it happen again.
+- Outside of my family and my work, I have two passions, both instilled in me by my father: golf and fishing.
+- Meredith Vieira warms my heart.
+- If I buy something new - a piece of clothing, a tie, a shirt, a suit - something old has to go. That's the way I avoid clutter, crammed closets and drawers. It keeps things in balance, and it really works.
+- My dad taught me how to fish. When I am stand in a trout stream now, and I have the waders on, and I've got a fly rod in my hand, or I am fishing for bass, I think of sitting in a boat with my dad. How can that be a bad experience?
+- In some ways, being No. 2 in the ratings is a real shot in the arm, a kick in the pants.
+- Not a lot of conservatives on this list. Are more liberals than conservatives screwing up America?
+- If you are the person who gets the lion's share of attention in good times, guess what: you get the lion's share of attention in bad times.
+- Early on, I had five jobs in a row where I was either fired or canceled.
+- I've always liked the idea of walking into a cocktail party where there are different people and finding some connection with almost everybody in the room.
+- If I feel like I've done a great job during an interview with the president of the United States live in the Oval Office, it doesn't give me a tenth of the good feeling of going to the school play and making eye contact with my kids as they're onstage delivering their lines. Nothing compares with that moment of connection.
+- I am blessed to be surrounded by the people I love. I thank them for their patience and grace.
+- When you get your dream job, you'd be really hard-pressed to leave it. Unless you've got another dream job out there.
+- I'm one of these people who tends to think that the ordinary people are more fascinating than the celebrities and even the politicians.
+- You're going to have twenty years as host of the 'Today Show,' and eighteen of those years are going to be so unbelievably fantastic that you're going to think you're living in a fantasy world. And one or two of those years is going to be incredibly frustrating and challenging.
+- It's rare when suddenly a window opens up, and you see a side of a celebrity you've never seen before, good or bad.
+- I was one of these people, especially early in my career, who balanced the equation too much in favor of my job; I spent most of my life focusing on that. But becoming a dad gave me back perspective; it brought balance into my life.
+- I'm not going to whine or get depressed. Who's going to feel sorry for me? Nobody.
+- In this business, the minute you start feeling comfortable about the show you're doing or the ratings you're getting, you're in big trouble.
+- I like it when things are where they're supposed to be.
+- There are some harsh realities about this business, and they've been beaten into my psyche. But I'm more of an optimist than a pessimist.
+- I knew I wanted to work in television because some friends of mine, when I went to high school - their fathers worked for, as a matter of fact, for NBC Sports at the time.
+- People don't want to see me having a bad morning. They have job problems, financial problems, family pressures, kids to get off to school. The last thing they want to wake up to is someone showing them the same problems. So maybe that's the one time I am forced to act.
+- I get letters from women, and they say, 'I love your Roman nose.' If I weren't on TV and I walked past that same woman, she'd go, 'Did you see the beak on that guy?
+- People always say, 'Is it tough getting up at four in the morning?' I'm not terrible with that, but the weird thing for me is that I start to feel like a 3-year-old in need of a nap at about 7:30 at night; and, at 9:30, my head is teetering like that.
+- I was always more interested in asking people about themselves than I was telling them about me.
+- I like getting rid of things. I really do.
+- I don't want to be known in my life for what I do from 5 to 9 in the mornings.
+- Being in front of the camera - first of all, when I wanted to get into television, it was as a producer. I never had an idea that I would do anything in front of the camera, and that kind of happened by accident. But I wanted to be a producer or give me a job with the Yankees or play for the Knicks. I was a sports nut when I was a kid.
+- I value my privacy a lot.
+- Times are harder there right now. I think it's been well publicized. We are - the show is not where I want it to be right now. The ratings are not where I want them to be. I want to make it better.
+- When you have somebody in a position of power show interest in you after you've kind of been down and out, that's a big boost.
+- There's a difference between good chemistry and a bond. Chemistry is something you have with somebody you meet - or you don't. It's an intangible. It may be superficial. It's much harder to put your finger on than a bond.
+- Researchers have discovered that chocolate produces some of the same reactions in the brain as marijuana. The researchers also discovered other similarities between the two but can't remember what they are.
+- I don't find anything comes out of getting in someone's face during an interview and screaming.
+- Even the bad interviews I think you learn from. They make you better.

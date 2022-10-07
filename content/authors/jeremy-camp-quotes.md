@@ -1,0 +1,84 @@
++++
+author = "Jeremy Camp"
+title = "Jeremy Camp Quotes"
+quotes_len = "78"
+description = "the best 78 Jeremy Camp Quotes"
++++
+- Yes, I'm a miserable, wretched sinner, but He loves me. And to Him, I'm His child, and I can walk in that love and that understanding.
+- I've been through a lot of things in my life.
+- I lost my wife to cancer and I saw the impact of telling my story - this is what happened, this is what God did and why he was faithful.
+- Imagine no more tears, no more sorrow, no more pain... and one day we will forever be with Jesus.
+- We have opportunities to be used by the living God on a daily basis and I don't need the platform of a concert hall to do so.
+- God has given us these talents and we want to pass on our best.
+- If I'm on stage and ministering my heart and pointing people to Christ, then that's all I can do.
+- I am realizing that there are opportunities everyday to encourage, evangelize, or exhort someone.
+- I remember the Lord speaking into my heart and saying, 'Jeremy, I want you to stand up and worship me.'
+- I know that if you don't have Christ in your life then all the hope you have and the greatest thing you can gain is what you get from this earth.
+- My whole faith was shattered there for a while.
+- When you're reading the Word of God, you need to let it soak in and let God speak to your heart and let the Holy Spirit work.
+- Everything is in your face. The battle is that you're getting things from all ends like never before and the intensity is being turned up like never before. So there's a call to be set apart, and there's a call to speak the truth, and there's a call to start standing up and putting your faith in action.
+- You see God's hands in so many situations. Then someone will point to all the bad things that are going on. Well, it's because we don't want God in our society. We are pushing God farther and farther away. And we can now see those consequences in our society.
+- I was praying one day and God literally gave me a song called 'Healing Hand of God.'
+- No matter what hard thing you may go through or what kind of pain you may go through there is still hope.
+- I don't want to stand on stage night after night, without being on my face beforehand truly crying out for those that have come to the event.
+- I believe that no matter what you believe, you're going to go through hard times.
+- There are a lot of people doing social justice things, which is great. But we can't just say, 'Here's some food. Here's some stuff.' We have to be able to give the gospel, share the hope and have a real heart for that.
+- I think people need to realize they're not alone, and that there's hope, and it's running to Jesus.
+- My heart's desire is that people will listen to the Lord and his leading and really dive into the fullness of what He's called them to do, whatever that looks like.
+- I am so thankful to get to still be serving the Lord through music.
+- Christ is my life.
+- The biggest thing when you come to my show live... is that you get to know the person's heart - the stories behind the songs, the depth of the music and there will be some amazing worship moments. You'll get an amazing experience because this is real to me and you'll see that.
+- We live in such a self-gratifying nation, and everything is instantaneous.
+- Through the loss of my wife and many confusing times, Jesus was always there by my side.
+- When I lost my wife I had a whole different concept of her life. She lived 21 years and people who knew her know it wasn't about the great things she did on this earth. It wasn't that she had money or had popularity, it was that she loved Jesus Christ more than anything else in this world. That was how she related to the world.
+- I want this world to come alive, to see that yes, you're dead in your trespasses, but you have been made alive in Christ.
+- Unfortunately, with addiction, there's manipulation and deception.
+- I have to be so thankful. I have two kids, my beautiful wife, I'm just blown away at God's grace and God's faithfulness.
+- I love in the Old Testament where they talk about Ebenezer so much... stones to remembrance. And it's like there's constant stones of remembrance of what God has done.
+- I had joy always, because 'the joy of the Lord is my strength.' I mean, that is the truth.
+- When we go and play live... we go and we work with like different organizations: the food banks, homeless shelters, children's hospitals or different homes that are reaching out to people. And just to actually go and say, 'Hey, don't just hear me play, come to my concert, that's it, hope you have a good night.' It's like, 'Hey, come be a part.'
+- I'm unashamed in my faith, and I'm okay with that.
+- I always wanted to do some acting, but didn't want to be that guy who says he has to.
+- I'm not ashamed of the Gospel.
+- We all have the opportunity to share the gospel and we should - that's what we were called to do.
+- Restored' has been about how God has restored my life.
+- I've always just written my heart and allowed God to do what he wanted to do.
+- When you have an open wound, it's festering and hurting constantly. Then it finally heals and then becomes a scar. Well, pretty soon you're not feeling it and not really paying attention to it.
+- I always write tons of different styles.
+- Sometimes the simplicity of just declaring who God is and the greatness of who He is... sometimes you just have to say it.
+- My music is very diversified. I'll have a rock song then I'll do a ballad.
+- Let's come together as the body of Christ and reach out and be the true hands and feet of Christ.
+- All throughout the Bible, we get to see who Jesus is.
+- My God has restored my life in so many ways.
+- Everyone can resonate with love.
+- We should be living a life of purity.
+- Thankful to have my daughters love the Lord with all their heart.
+- A lot of people say, 'Wow, a movie on your life, isn't that exciting?' Absolutely, I'm blown away that God allowed me to do this but it's hard - watching the film and being a part of it.
+- I've always been real honest in my music and real honest when I play live.
+- God's grace is definitely abundant.
+- I am growing and understanding more of who God is in my life and how I am to minister.
+- Years ago I watched my 1st wife suffer through cancer and she went to be with Jesus.
+- If you really see through the eyes of how God sees people, He loves them, but what did He do? He spoke the truth. And the truth will set you free, and you shall be free indeed.
+- I had times when I'd be reading the Bible, and it would be talking about Jesus healing other people, and I'd be angry. I asked God some difficult questions. 'Why didn't you heal my wife?'
+- People have been asking me since I did 'Carried Me, The Worship Project,' 'When are you going to do another worship project?' And that's my favorite one.
+- When you don't trust people all of the sudden you stop trusting anything.
+- I might have some difficult questions, but I know God is still good and he has been merciful and gracious.
+- Even being a Christian, you go through hard times. But you either go through hard times not having hope or realizing that Jesus is the only hope.
+- God had to teach me a lot of things.
+- I had my battles. I had my times of just being upset and God would show me, 'Hey, I'm right here, I'll walk you through this and it doesn't make sense now but just trust me.' That's where faith come in - trust.
+- I want to share my journey because I think God wants us to share our stories with one another - to show others how what he has done in our lives. To help others who are going through the same thing. I think he gets joy in that.
+- I've been through a lot and if God can use that story to help people through a lot of pain and heartache and share hope with people, well we'll see how it progresses.
+- If a man gave his life to the Lord, then he would have someone to walk through this life with.
+- I want to use what God has done in my life to comfort me and to minister to people.
+- People who are in jobs are striving to gain the most they can before they die through financial means, through their flesh, the lust of their flesh and man's drive for power. But as believers we are to be the opposite. We are to be humble, not prideful. We are to think of things that are true, whatever is noble, and whatever is worthy.
+- If you are a believer, you don't have to go out and be a street evangelist.
+- I get on stage and realize what God has given me, and not just I sing some songs and tell a couple stories, or something that God's done. It's more like, 'OK, guys. I want to encourage you to go out to this world and show love and truth.'
+- This time we live in is saying, 'Live for yourself, and whatever makes you happy' and all this kind of stuff, and it's so contrary. And we so don't want to go and be reckless for the Lord.
+- I realize now that God has been with me every step of my life - through the suffering.
+- It's hard to see your wife deteriorate in front of your eyes.
+- If you don't have much passion, well, get on your face and pray for the passion and get into the word of God. That's what I've been sharing. That's the whole concept.
+- For me, even with my Twitter and Facebook, I'm not on it all the time. I don't Twitter every day.
+- It's been a crazy whirlwind, but I'm so blown away by God's hand on my life.
+- You can fill up your time with anything that you want. And stuff per se is not bad - technology is awesome; if you use it for the right the reason, it's great.
+- I guess you could call my music progressive, pop, rock.
+- Each year I have grown and learned new things.

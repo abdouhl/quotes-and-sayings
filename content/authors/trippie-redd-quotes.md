@@ -1,0 +1,54 @@
++++
+author = "Trippie Redd"
+title = "Trippie Redd Quotes"
+quotes_len = "48"
+description = "the best 48 Trippie Redd Quotes"
++++
+- No artist that beefs with me or talks down on my name has that many platinum songs. They're all gold.
+- I did alternative rock before. That's why my style is the way it is now.
+- Me, I'm trying to sound like me. I don't be trying to sound like somebody.
+- I want to make my own animes.
+- If I die and I gotta couple Grammys on me, more than a couple hits on me, I got some plaques and I got billboards still up and I done touched a lot of people's souls and I'm viral, once that happen then you can judge all you want.
+- I want to be an actor.
+- I will always do something new.
+- Don't worry about what other people say, you could be doing what they're doing or even better than them.
+- I like my phone. My phone makes magic happen.
+- I want Grammys.
+- I don't really care what type of beat it is. As long as it appeals to my ear, I'm gonna do a song to it.
+- Believe or not, love me or hate me, YoungBoy is Tupac, man.
+- Anything Drake drops is timeless. It's always timeless, it's always lit.
+- I can rap, I can sing, I can do whatever, you know what I'm saying? I can do rock.
+- I wanna prevail at everything.
+- No matter if you like it or not, you could hate Drake, he always says stuff that everybody can relate to. Facts.
+- I just love movies.
+- One thing I'm not going to do is change up anything. Like, I'm always gonna be me.
+- I'm not emo. I've never been emo.
+- I have a real spiritual family.
+- I would put LeBron on a track.
+- Erykah Badu - she's timeless, that's my second mom.
+- Kanye on the track and LeBron. That's fire.
+- I love scars.
+- I really just blend like rock, R&B and rap together to create a sub-genre, but it's very versatile.
+- Watch The Throne' is my favorite project. The production, the way they carried themselves, it's amazing.
+- I want to accomplish something for myself and set a bar for myself, for somebody to be like, 'Damn, Trippie legendary. He did such and such.'
+- It's not about what hits Billboard or how many views you got on a video. It's about copies sold. It's about streams, you know?
+- I listen to a lot of the people that use Auto-tune.
+- All I do is get better.
+- You got a problem with me, pull up.
+- I honestly just live in Trippie Redd's world. I don't live in America... I ain't finna live anywhere else but America.
+- I could blow up from making a beat or I could blow up from making a song.
+- If Chief Keef can run around and say he's 300, I'm definitely 1400.
+- Me and my friends made a group called 1400 and the number always stuck with me. I always see it everywhere I go. There's an angel behind the number, it's an angelic number.
+- Love Scars' blew up pretty fast.
+- I do very versatile music.
+- I want to make my own Netflix originals.
+- I worked at Little Caesar's for about two days, bro. I was out. That's the only job I've ever had.
+- If I live and breath something, I might as well show everybody what I live and breath.
+- Get whatever tattoos you want, just make sure they mean something at least.
+- My favorite thing from Taco Bell is the Doritos Locos Tacos Supreme.
+- I'm really an artist. I really do this. I don't need the money. It doesn't matter to me.
+- There is no time where I feel like I will fall off. I feel like I will always last.
+- Music took me from a real dark place to a real bright one.
+- My mom was real into like a lot of different musical artists, real artists, even back when Jay-Z and Beyonce was together.
+- I do stuff on my own, I think for myself, and I've always looked out for others.
+- I believe in the Devil. I believe there's a God, too. I met God at church - the Catholic Church.

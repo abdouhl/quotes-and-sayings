@@ -1,0 +1,29 @@
++++
+author = "Malcolm Young"
+title = "Malcolm Young Quotes"
+quotes_len = "23"
+description = "the best 23 Malcolm Young Quotes"
++++
+- I love coming back to Scotland.
+- My brother John loved Big Bill Broonzy, and from that, Angus and I discovered Muddy Waters and Buddy Guy. We could relate to what they were singing about. When a family uproots itself and moves to the other side of the world because your dad couldn't get a job, you didn't feel part of the system, if there even was a system.
+- If you get too big for your boots, if you've got big dreams, you're gonna get them broken or shattered.
+- Angus has had a few swings at me, maybe two or three times in our whole career. But then it's done, and it's not gonna drag on, because it's not worth it. We have to stick together. And we know that.
+- I used to listen to the Beatles and Stones, whereas Angus was more into the heavier stuff - Cream, Hendrix - with the lead guitar.
+- The blues singers were talking about everyday life, and they pushed a button.
+- From the get-go, I was wise enough to say, 'Well, I'm playing rhythm 'cause Angus could really soar with the leads.' I used to mess around a little bit with lead at the time but not much; Angus, he was just so much better; he just went for it, and it was brilliant. My place was sitting with rhythm, and I love rhythm. I've always loved it.
+- You always underestimate - rather than be disappointed.
+- I was more of a melodic player. Angus was more into the rock world. Straightaway, I said this is how we should do it. It was never a brotherly squabble but the opposite, because we just wanted to do good as a band.
+- It just gives us that adrenaline charge when we go on. We know we're gonna come off two hours later, but we're pushing it all the way; we build it right through. It's amazing how it happens. It's sort of magical, because you couldn't do it in a rehearsal like that; you need that audience in front, and that's really what gets us going.
+- Angus and I had silent dreams about playing in a band since we were kids, always playing our guitars and listening to records.
+- I'd listen to a song and say, 'Hang on, I like that piano thing,' so I'd play the guitar like that and get the vibe from it, and it just evolved from the get-go. It was pretty obvious what to do; You don't think about rock n' roll: you just do it.
+- Everyone played a bit of guitar in our family.
+- We sort of find that music tames the beast, you know.
+- I've never felt like a pop star - this is a nine-to-five sort of gig. It comes from working in the factories, that world. You don't forget it.
+- I still feel very Scottish.
+- The bottom line is what we record is what we use. Once we feel we've got a good album, we stop at that. That's usually around 12 tracks.
+- You can't outdo Angus, you know. It's a difficult one.
+- If there was a wrong note, it didn't matter as long as it was rocking.
+- Why not simply work better and harder at what you've got?
+- People paid money for tickets to see us and be entertained by us, and we've never forgotten that. Anything after that was a bonus.
+- There's very few rock & roll bands. There's rock bands, there's sort of metal bands, there's whatever, but there's no rock & roll bands - there's the Stones and us.
+- Rock bands don't really swing... a lot of rock is stiff. They don't understand the feel, the movement, you know, the jungle of it all.

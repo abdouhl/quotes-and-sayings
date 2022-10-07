@@ -1,0 +1,28 @@
++++
+author = "Jerry Cantrell"
+title = "Jerry Cantrell Quotes"
+quotes_len = "22"
+description = "the best 22 Jerry Cantrell Quotes"
++++
+- I'm doing the best I can with what I got and that's all anybody in my band is doing.
+- Part of the healing process is sharing with other people who care.
+- To me not one thing is better than anything else, I'm completely proud of everything I've written and recorded.
+- I can sing fine and I can play guitar fine, but put 'em together and it becomes a thoughtful effort.
+- Bands don't last. Bands don't last forever - it's a rarity when they do.
+- Every record, you've got more experiences to draw on as a writer and a musician.
+- You feel different every day of your life. You just have to create your own space to survive, personally and professionally.
+- Every record that you do man, is sooo different in every way.
+- Success has a lot to do with luck, but it also involves a lot of real hard work. The thing about success is you really can't gauge things by album sales.
+- I've been a fan of Metallica and friends with those guys for a long time and that was just great - half Alice In Chains and half Metallica playing together.
+- And when power ballads come back, we'll get big hair again.
+- I've never been a big soloist; I just put in what needs to be there. I'm more of a rhythm player who plays lead - or tries to play lead.
+- Times change and you have to adapt.
+- One thing that you hope for when you want to be a musician is that you have that recognizable sound.
+- That's always been a dream for me, to be able to collaborate and make music with the people that inspired you to make music.
+- I'm going to keep thinking about topping myself every time. I can say very confidently that Alice In Chains have done that on every record. It surprises me. I don't go in there expecting that, but I do go in there hoping for it.
+- Our music's kind of about taking something ugly and making it beautiful.
+- Like everybody, I'm making up my life as I go along.
+- I'm just thankful to have a tour and work something I can focus on.
+- Playing for someone else's crowd is always difficult for any band.
+- Rehearsals and this band are two words that don't really go together, kinda like Military Intelligence.
+- In '98, I locked myself in my house, went out of my mind and wrote 25 songs. I rarely bathed during that period of writing, I sent out for food, I didn't really venture out of my house in three or four months. It was a hell of an experience.

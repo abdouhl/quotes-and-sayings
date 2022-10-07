@@ -1,0 +1,29 @@
++++
+author = "Timothy Murphy"
+title = "Timothy Murphy Quotes"
+quotes_len = "23"
+description = "the best 23 Timothy Murphy Quotes"
++++
+- I am pleased that the President has signed an Executive Order this week requiring federal agencies to disclose information about prices and quality of healthcare services.
+- Amnesty is not the answer as it will only encourage more illegal immigrants to enter.
+- Instead, I think over the years we have cut the strength of marriage and relationships by the law and weakened the institution. We have tried to deal with relationships with no-fault divorce, with child custody, with so many other avenues; and it has not helped.
+- Healthcare providers will compete to offer the best record of patient safety at the lowest prices. Hospitals and patients will benefit from having accurate information about areas of excellence and areas that must be improved.
+- Since September 11, the U.S. has significantly improved its security to prevent another attack.
+- A system of cameras and censors are used along the border and interior to help detect the movement of illegal immigrants crossing through the dense brush.
+- The best doctors and the best hospitals in America, if they cannot get the patient information they need when they need it, it can lead to morbid consequences: Higher mortality.
+- Illegal immigration is crisis for our country. It is an open door for drugs, criminals, and potential terrorists to enter our country. It is straining our economy, adding costs to our judicial, healthcare, and education systems.
+- If one of us, any of us, any American is traveling in a town somewhere in America and a medical crisis hits them, for someone who is diabetic or perhaps has heart disease or some other problems, where do we get the records to determine what to do?
+- Drug smugglers often use juveniles to carry their shipments into the U.S. because they know the juveniles will not be prosecuted if caught.
+- There needs to be more pressure on the Mexican government to stop the drugs and illegal immigrants on their side of the border instead of exporting them to the U.S.
+- Our border patrol does a great job under these very dangerous conditions. They use very sophisticated equipment, including gamma rays, to detect drugs and illegal immigrants as they enter the U.S.
+- Each State has its own health insurance mandates, and some of them are good, but there are about 1,800 of them all across the Nation, including provisions for acupuncturists, massage therapists, and hair replacements.
+- Rather than improving the wealth of their own nation, the Mexican government encourages its poor to come to the U.S. and send money home.
+- What I do say is, yes, children may be resilient and they have been able to deal with all sorts of difficulties they have faced, but the bottom line is this: I believe very strongly children need a mother and a father in the home.
+- We must continue to ensure law enforcement has the necessary tools to combat terrorism here at home. We must also work with our allies and provide our military with the weapons and protective gear they need to defeat terrorism abroad.
+- Providing patients and consumers with solid information on the cost and quality of their healthcare options can literally make the difference between life or death; and play a decisive role in whether a family or employer can afford healthcare.
+- As a person who has spent my career as a child psychologist and have dealt with many children who have struggled with many problems in families, I have seen families ripped apart by so many things that sometimes law has tried to deal with.
+- The technology used to detect if vehicles are carrying radioactive material is so sensitive it can tell if a person recently received radiation as part of a medical procedure.
+- We must safely secure our border by investing in more law enforcement and technology, and receiving cooperation from the Mexican government.
+- The current medical records system is this: Room after room after room in a hospital filled with paper files.
+- While the recent addition of the National Guard providing a support role manning computers and cameras has allowed more Border Patrol agents to work the field, more agents are still needed.
+- Our enemy is motivated by hatred and will not stop planning more plots against until they are ultimately defeated. Today was an important and necessary victory in the war, but there is a long road ahead. We must remain committed if we are to succeed and protect our liberty.

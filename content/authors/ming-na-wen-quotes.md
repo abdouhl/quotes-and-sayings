@@ -1,0 +1,32 @@
++++
+author = "Ming-Na Wen"
+title = "Ming-Na Wen Quotes"
+quotes_len = "26"
+description = "the best 26 Ming-Na Wen Quotes"
++++
+- Mom takes all the credit for my success. Now Mom says, 'I read your face when you were a baby, and it said you were going to be a star. That's why I named you Ming - because it's all about the sun and the stars and enlightenment.'
+- Both my parents are chefs... I grew up in a restaurant and was always surrounded by cooks. I love food.
+- What I want is the same opportunities as anyone to get a part.
+- I've loved all forms of animation.
+- Mulan is so important in Chinese folklore - a fearless girl who cared about her family and country so much that she was willing to join the fight and sacrifice herself.
+- I'm as proud to be Chinese as I am American.
+- I love that synergy between being entertainers and having people respond. There's no greater reward.
+- 'Star Wars' is on my bucket list. Even if it's just a small walk on, I don't care.
+- I was a total sci-fi geek. 'Star Wars' was my ultimate favorite.
+- I hope Hong Kong and Asia wants to hire American Asian actresses as much as Hollywood has been hiring Chinese actors from Asia.
+- Being a sci-fi geek, it was just lovely to be on a show where I pretend I'm in outer space. That's always been my dream: to pretend to be out in space or actually be out in space.
+- I appreciate both... for me, I think 'Star Wars' is more science fantasy and is based on a lot of great legendary heroes and morality plays and stuff. And 'Star Trek' is just pure fun. Pure science fun. And I've always appreciated both.
+- I've always dreamed that George Lucas would call me one day and ask me to be in one of the 'Star Wars' films.
+- The 'ER' role was not Asian-specific, and my agent knew that I loved the show.
+- There's just so much love that goes into home cooking, and I think it will really help the American family overall. I'm hoping to maybe get a cookbook out one day because I've got some great family recipes.
+- I'm like Madonna: I'm Ming-Na. Just my first and middle name. That's it. Pure and simple.
+- Growing up as an Asian American in this society, there were a lot of times where you feel isolated or out of place as an Asian. And growing up in White America, that's absolutely my experience. And I think that's why I got into acting because I wanted to be anybody else but Asian.
+- I'm not one of those actresses that's going to feel like I never achieved my dreams and goals and just get disgruntled and hate everything about the business. I've had so much fun.
+- That's what was so amazing about 'Mulan.' Here is this story with all Chinese characters, and yet so many people related to her character and loved the story. So I really think as long as you have a good story that relates to a lot of people, it doesn't matter what ethnicity it is.
+- 'Mulan' holds a very special place in my heart. It's been 16 years since the film, but hordes of fans still come up and tell me how much she means to them.
+- I'm sort of a gypsy at heart and don't like to stay in one place too long.
+- I think on 'ER,' my other long-running show, I had some ideas about what's going on. 'Stargate Universe,' they were kind of secretive too a little bit about what they wanted to do, but I kind of liked working this way. I like the surprises, and I like knowing just enough to work on the character.
+- I was hesitant to do 'Mulan II.' For me, I felt like the story that needed to be told, this legendary character of Mulan, was already encompassed in the first movie, and I was worried they would try to create this crazy cartoon character out of this legendary character of China.
+- I love doing TV. It's so great for my world as a mom, as someone who likes to have a steady job and go to work feeling secure because I'm with a family.
+- When I grew up in Pittsburgh in my parents' restaurant, I was almost like a country bumpkin.
+- I'm trying to show I'm a trained actress - I can transform myself into different characters. I'm not just an ingenue.

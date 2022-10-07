@@ -1,0 +1,180 @@
++++
+author = "Mark Zuckerberg"
+title = "Mark Zuckerberg Quotes"
+quotes_len = "174"
+description = "the best 174 Mark Zuckerberg Quotes"
++++
+- We started off as this platform inside Facebook; and we were pretty clear from the beginning that that wasn't where it was going to end up. A lot of people saw it and asked, 'Why is Facebook trying to get all these applications inside Facebook when the web is clearly the platform?' And we actually agreed with that.
+- If you grew up, and you never had a computer, and you've never used the Internet, and someone asked you if you wanted to buy a data plan, your response would be 'What's a data plan, and why would I want to use this?'
+- I feel that the best companies are started not because the founder wanted a company but because the founder wanted to change the world... If you decide you want to found a company, you maybe start to develop your first idea. And hire lots of workers.
+- Founding a company is hard. Most of it isn't smooth. You'll have to make very hard decisions. You have to fire a few people. Therefore, if you don't believe in your mission, giving up is easy. The majority of founders give up. But the best founders don't give up.
+- I like making things. I don't like getting my picture taken.
+- If you're always under the pressure of real identity, I think that is somewhat of a burden.
+- We are a mission-driven company. In order to do this, we have to build a great team. And in order to do that, you need people to know they can make a bunch of money. So we need a business model to make a lot of money.
+- When we were a smaller company, Facebook login was widely adopted, and the growth rate for it has been quite quick. But in order to get to the next level and become more ubiquitous, it needs to be trusted even more.
+- I look at Google and think they have a strong academic culture. Elegant solutions to complex problems.
+- A frustration I have is that a lot of people increasingly seem to equate an advertising business model with somehow being out of alignment with your customers. I think it's the most ridiculous concept.
+- Connectivity is a human right.
+- I think that more flow of information, the ability to stay connected to more people makes people more effective as people. And I mean, that's true socially. It makes you have more fun, right. It feels better to be more connected to all these people. You have a richer life.
+- There's a level of service that we could provide when we're just at Harvard that we can't provide for all of the colleges, and there's a level of service that we can provide when we're a college network that we wouldn't be able to provide if we went to other types of things.
+- Our goal is to make it so there's as little friction as possible to having a social experience.
+- I think we basically saw that the messaging space is bigger than we'd initially realized, and that the use cases that WhatsApp and Messenger have are more different than we had thought originally.
+- Think about what people are doing on Facebook today. They're keeping up with their friends and family, but they're also building an image and identity for themselves, which in a sense is their brand. They're connecting with the audience that they want to connect to. It's almost a disadvantage if you're not on it now.
+- Frankly, I think that the news industry is critically important because it points out things and surfaces truths that can often be uncomfortable. I think that that's working, and the spotlight has been pointed on things that we have a responsibility to do better, and I accept that.
+- Just take terrorism, for example. We have a team of more than 200 people working on counterterrorism. I mean, that's pretty intense. That's not like what people think about what Facebook is.
+- Facebook was not originally created to be a company. It was built to accomplish a social mission - to make the world more open and connected.
+- I do everything on my phone as a lot of people do.
+- We help Chinese companies grow their customers abroad. They use Facebook ads to find more customers. For example, Lenovo used Facebook ads to sell its new phone. In China, I also see economic growth. We admire it.
+- Back, you know, a few generations ago, people didn't have a way to share information and express their opinions efficiently to a lot of people. But now they do. Right now, with social networks and other tools on the Internet, all of these 500 million people have a way to say what they're thinking and have their voice be heard.
+- There are disasters that happen - Hurricane Harvey came up, and you had people self-organizing through the community and getting in boats and driving around rescuing people coordinated ad hoc through this network. That's not a media function.
+- We want to make it so that anyone, anywhere - a child growing up in rural India who never had a computer - can go to a store, get a phone, get online, and get access to all of the same things that you and I appreciate about the Internet.
+- People like to talk about war.
+- I believe we have to nip Ebola in the bud before it spreads through Africa and to other countries.
+- When we are thinking about stuff like embeds, we are not thinking about how we are competing with YouTube. We are thinking about how are we going to make it more useful for people to share stuff on Facebook.
+- The biggest mistake we made as a company was betting too much on HTML5.
+- Mobile is a lot closer to TV than it is to desktop.
+- The real story of Facebook is just that we've worked so hard for all this time. I mean, the real story is actually probably pretty boring, right? I mean, we just sat at our computers for six years and coded.
+- There are different ways to do innovation. You can plant a lot of seeds, not be committed to any particular one of them, but just see what grows. And this really isn't how we've approached this. We go mission-first, then focus on the pieces we need and go deep on them and be committed to them.
+- My goal was never to just create a company. A lot of people misinterpret that, as if I don't care about revenue or profit or any of those things. But what not being just a company means to me is not being just that - building something that actually makes a really big change in the world.
+- If you look at the history of our country over the last 100 years, there have been periods where science and research have been celebrated. They were really kind of held up as heroes in society, which encouraged a generation of people to go into these fields.
+- When people are connected, we can just do some great things. They have the opportunity to get access to jobs, education, health, communications. We have the opportunity to bring the people we care about closer to us. It really makes a big difference.
+- The thing that we are trying to do at facebook, is just help people connect and communicate more efficiently.
+- Connectivity just can't be a privilege for people in the richest countries. We believe that connecting everyone in the world is one of the great challenges of our generation, and that's why we are happy to play whatever small part in that that we can.
+- The amount of trust and bandwidth that you build up working with someone for five, seven, 10 years? It's just awesome. I care about openness and connectedness in a global sense.
+- Our philosophy is that we care about people first.
+- Our role is to be a platform for making all of these apps more social, and it's kind of an extension of what we see happening on the web, with the exception of mobile, which I think will be even more important than the web in a few years - maybe even sooner.
+- We have these services that people love and that are drivers of data usage... and we want to work this out, so that way, it's a profitable model for our partners.
+- If we're trying to build a world-class News Feed and a world-class messaging product and a world-class search product and a world-class ad system, and invent virtual reality and build drones, I can't write every line of code. I can't write any lines of code.
+- Open Graph is a language for structuring content and sharing that goes on in other apps, and we're continuing to build it out longer term. But we found we need to build more specific experiences around categories like music or movies. Where we've taken the time to build those specific experiences, stuff has gone quite well.
+- There are a few other things that I built when I was at Harvard that were kind of smaller versions of Facebook. One such program was this program called Match. People could enter the different courses that they were taking, and see what other courses would be correlated with the courses they are taking.
+- I think that people just have this core desire to express who they are. And I think that's always existed.
+- Facebook is inherently viral. There are lots of sites that include a contact importer, and for lots of them it doesn't really make sense. For Facebook it fits so well. It wasn't until a few years in that we started building some tools that made it easier to import friends to the site. That was a huge thing that spiked growth.
+- I think Facebook is an online directory for colleges... If I want to get information about you, I just go to TheFacebook, type in your name, and it hopefully pulls up all the information I'd care to know about you.
+- I remember flying in, driving down 101 in a cab, and passing by all these tech companies like Yahoo! I remember thinking, 'Maybe someday we'll build a company. This probably isn't it, but one day we will.'
+- I literally coded Facebook in my dorm room and launched it from my dorm room. I rented a server for $85 a month, and I funded it by putting an ad on the side, and we've funded ever since by putting ads on the side.
+- The connectivity declaration is about uniting the whole industry - a lot of companies that typically compete very fiercely - to push in a coherent direction.
+- No one has done a study on this, as far as I can tell, but I think Facebook might be the first place where a large number of people have come out. We didn't create that - society was generally ready for that. I think this is just part of the general trend that we talked about, about society being more open, and I think that's good.
+- It wasn't until we got our first office in Palo Alto where things became more like a company. We never went into this wanting to build a company.
+- There are good examples of companies - Coca-Cola is one - that invested before there was a huge market in countries, and I think that ended up playing out to their benefit for decades to come.
+- The thing I really care about is the mission, making the world open.
+- On engagement, we're already seeing that mobile users are more likely to be daily active users than desktop users. They're more likely to use Facebook six or seven days of the week.
+- We want Facebook to be one of the best places people can go to learn how to build stuff. If you want to build a company, nothing better than jumping in and trying to build one. But Facebook is also great for entrepreneurs/hackers. If people want to come for a few years and move on and build something great, that's something we're proud of.
+- We're running the company to serve more people.
+- The main Facebook usage is so big. About 20 percent of the time people spend on their phone is on Facebook.
+- I think what we've found is that when you can use products with your friends and your family and the people you care about, they tend to be more engaging. I think that we're really going to see this huge shift where a lot of industry is and products are just going to be remade to be social.
+- Once you have a product that you are happy with, you the need to centralize things to continue growth.
+- As abhorrent as some of this content can be, I do think that it gets down to this principle of giving people a voice.
+- We know that for every 1 person who get access to the Internet, one new job gets created, and one person gets lifted out of poverty. So in theory, going and connecting everyone on the Internet is a large national and even global priority.
+- We don't sell data; we don't allow anyone to sell data.
+- Facebook and Instagram are both really popular with teens, both in the U.S. and globally across the world. I think what you're starting to see is that there are all these different ways that people want to share and communicate.
+- For the first time we're allowing developers who don't work at Facebook to develop applications just as if they were. That's a big deal because it means that all developers have a new way of doing business if they choose to take advantage of it. There are whole companies that are forming whose only product is a Facebook Platform application.
+- I always tell people that you should only hire people to be on your team if you would work for them.
+- Facebook is really about communicating and telling stories... We think that people can really help spread awareness of organ donation and that they want to participate in this to their friends. And that can be a big part of helping solve the crisis that's out there.
+- By giving people the power to share, we're making the world more transparent.
+- Working with a lot of people at the same time is a task. I really like making stuff and getting stuff done. One of the things I really liked about Facebook was that I could always move so quickly. I wrote the original application in, like, nine days at the end of January.
+- In addition to building better products, a more open world will also encourage businesses to engage with their customers directly and authentically. More than four million businesses have Pages on Facebook that they use to have a dialogue with their customers. We expect this trend to grow as well.
+- The question isn't, 'What do we want to know about people?', It's, 'What do people want to tell about themselves?'
+- A lot of times, I run a thought experiment: 'If I were not at Facebook, what would I be doing to make the world more open?'
+- Our strategy is very horizontal. We're trying to build a social layer for everything. Basically, we're trying to make it so that every app everywhere can be social, whether it's on the web or mobile or other devices. So inherently, our whole approach has to be a breadth-first approach rather than a depth-first one.
+- Health is certainly extremely important, and we've done a number of things at Facebook to help improve global health and work in that area, and I am excited to do more there, too. But the reality is that it's not an either-or. People need to be healthy and be able to have the Internet as a backbone to connect them to the whole economy.
+- We just think that there are all these different ways that people want to share, and that compressing them all into a single blue app is not the right format of the future.
+- People have really gotten comfortable not only sharing more information and different kinds, but more openly and with more people - and that social norm is just something that has evolved over time.
+- There are people who are really good managers, people who can manage a big organization, and then there are people who are very analytic or focused on strategy. Those two types don't usually tend to be in the same person. I would put myself much more in the latter camp.
+- There are really two core principles at play here. There's giving people a voice so that people can express their opinions. Then, there's keeping the community safe, which I think is really important. We're not gonna let people plan violence or attack each other or do bad things.
+- Unless you are breaking stuff, you are not moving fast enough.
+- One of the things that we're trying to do with Creative Labs and all our experiences is explore things that aren't all tied to Facebook identity. Some things will be, but not everything will have to be, because there are some sets of experiences that are just better with other identities.
+- A lot of people are focused on taking over the world or doing the biggest thing and getting the most users. I think part of making a difference and doing something cool is focusing intensely.
+- Now the playbook is we build AI tools to go find these fake accounts, find coordinated networks of inauthentic activity, and take them down; we make it much harder for anyone to advertise in ways that they shouldn't be.
+- I care about helping to address these problems of social cohesion and understanding what economic problems people think exist.
+- I just want to make sure when I have kids, I can spend time with them. That's the whole point.
+- In retrospect, I do think it's fair to say that we were overly idealistic and focused on more of the good parts of what connecting people and giving people a voice can bring.
+- What really motivates people at Facebook is building something that's worthwhile, that they're going to be proud to show to friends and family.
+- Our mission is to connect every person in the world. You don't do that by having a service people pay for.
+- Really, who you are is defined by the people who you know - not even the people that you know, but the people you spend time with and the people that you love and the people that you work with. I guess we show your friends in your profile, but that's kind of different from the information you put in your profile.
+- Building a mission and building a business go hand in hand. The primary thing that excites me is the mission. But we have always had a healthy understanding that we need to do both.
+- People don't care about what someone says about you in a movie - or even what you say, right? They care about what you build. And if you can make something that makes people's life better, then that's something that's really good.
+- When I was in college I did a lot of stupid things and I don't want to make an excuse for that. Some of the things that people accuse me of are true, some of them aren't. There are pranks, IMs.
+- When Facebook was getting started, nothing used real identity - everything was anonymous or pseudonymous - and I thought that real identity should play a bigger part than it did.
+- What we will do is we'll say, 'Okay, you have your page, and if you're not trying to organize harm against someone, or attacking someone, then you can put up that content on your page, even if people might disagree with it or find it offensive.' But that doesn't mean that we have a responsibility to make it widely distributed in News Feed.
+- This is our commitment to users and the people who use our service, is that Facebook's a free service. It's free now. It will always be free. We make money through having advertisements and things like that.
+- I'm trying to make the world a more open place.
+- We have a very open culture at the company, where we foster a lot of interaction between not just me and people but between everyone else. It's an open floor plan. People have these desks where no one really has an office. I mean, I have a room where I meet with people. But it has all glass, so everyone can see into it and see what's going on.
+- We're very focused on making News Feed really good, making our photos experience really good, making messaging really good, and creating great location apps. That's the nature of a platform business of our scale. Most companies that are relevant to us will have some overlaps in some competitive way.
+- It's, like, even in journeys like Facebook, we've had some very serious ups and downs.
+- Advertising works most effectively when it's in line with what people are already trying to do. And people are trying to communicate in a certain way on Facebook - they share information with their friends, they learn about what their friends are doing - so there's really a whole new opportunity for a new type of advertising model within that.
+- I spend a lot of time just, you know, with my girlfriend and my dog. And I mean, we don't have a lot of furniture in our house, so it's really simple. And we're trying to build products for everyone in the world, right. And you don't want to get isolated to do that.
+- I always kind of see how I want things to be better, and I'm generally not happy with how things are or the level of service that we're providing for people or the quality of the teams that we built. But if you look at this objectively, we're doing so well on so many of these things. I think it's important to have gratitude for that.
+- I got my first computer in the 6th grade or so. As soon as I got it, I was interested in finding out how it worked and how the programs worked and then figuring out how to write programs at just deeper and deeper levels within the system.
+- The thing that's been really surprising about the evolution of Facebook is - I think then, and I think now - that if we didn't do this, someone else would have done it.
+- Facebook is in a very different place than Apple, Google, Amazon, Samsung, and Microsoft. We are trying to build a community.
+- The majority of people who don't have Internet, don't have the Internet because they don't know why they want to use the Internet.
+- When you give everyone a voice and give people power, the system usually ends up in a really good place. So, what we view our role as, is giving people that power.
+- The companies that work are the ones that people really care about and have a vision for the world so do something you like.
+- There are definitely elements of experience and stuff that someone who's my age wouldn't have. But there are also things that I can do that other people wouldn't necessarily be able to.
+- It's not that every single thing that happens on Facebook is gonna be good. This is humanity. People use tools for good and bad, but I think that we have a clear responsibility to make sure that the good is amplified and to do everything we can to mitigate the bad.
+- I feel like the thing we can do is celebrate people doing great work and create more cultural momentum and awareness that this is an important thing in the world. So when the next economic crisis hits and people are talking about where to cut from the budget, science isn't the thing.
+- The real question for me is, do people have the tools that they need in order to make those decisions well? And I think that it's actually really important that Facebook continually makes it easier and easier to make those decisions... If people feel like they don't have control over how they're sharing things, then we're failing them.
+- I do think that we're gonna move towards this world where eventually you'll be able to capture a whole experience that you're in and be able to send that to someone.
+- What we figured out was that in order to get everyone in the world to have basic access to the Internet, that's a problem that's probably billions of dollars. Or maybe low tens of billions. With the right innovation, that's actually within the range of affordability.
+- I will only hire someone to work directly for me if I would work for that person. It's a pretty good test.
+- I actually think people generally have an awareness and feel like, 'Wow, these networks have a lot of information.'
+- It's a juicy thing to say we're building a phone, which is why people want to write about it. But it's so clearly the wrong strategy for us.
+- I don't have an alarm clock. If someone needs to wake me up, then I have my BlackBerry next to me.
+- Facebook is uniquely positioned to answer questions that people have, like, what sushi restaurants have my friends gone to in New York lately and liked? These are queries you could potentially do with Facebook that you couldn't do with anything else, we just have to do it.
+- I wear the same outfit or, at least, a different copy of it almost every day.
+- The community - more than two billion people use our products, and we get that, with that, a lot of people are using that for a lot of good, but we also have a responsibility to mitigate the darker things that people are gonna try to do.
+- I updated my grilling app, iGrill, today and it now has Facebook integration that lets you see what other people are grilling right now around the world. Awesome.
+- If I could snap my fingers and do one thing in science, I would get more funding for basic science. But the level of funding that needs to be done is not on the order of millions, like the cost of the Breakthrough Prizes. It's billions to tens of billions.
+- The biggest risk is not taking any risk... In a world that is changing really quickly, the only strategy that is guaranteed to fail is not taking risks.
+- You can use your real identity, or you can use phone numbers for something like WhatsApp, and pseudonyms for something like Instagram. But in any of those you're not just sharing and consuming content, you are also building relationships with people and building an understanding of people.
+- It's against all of our policies for an application to ever share information with advertisers.
+- At Facebook, we build tools to help people connect with the people they want and share what they want, and by doing this we are extending people's capacity to build and maintain relationships.
+- In general, we're a social network. I prefer that because I think it is focused on the people part of it - as opposed to some people call it social media, which I think focuses more on the content.
+- People at Facebook are fairly used to the press being nice to us or not nice to us.
+- I think a simple rule of business is, if you do the things that are easier first, then you can actually make a lot of progress.
+- We have a rule that if you check in code, you have to maintain it. So I mostly code on the side. I don't check in code anymore.
+- The basis of our partnership strategy and our partnership approach: We build the social technology. They provide the music.
+- All of my friends who have younger siblings who are going to college or high school - my number one piece of advice is: You should learn how to program.
+- We pay attention to every demographic in every country, so we're going to focus on building things that teens are going to like, and we're also going to focus on building things that other folks are going to like.
+- We're a community of a billion-plus people, and the best-selling phones - apart from the iPhone - can sell 10, 20 million. If we did build a phone, we'd only reach 1 or 2 percent of our users. That doesn't do anything awesome for us. We wanted to turn as many phones as possible into 'Facebook phones.' That's what Facebook Home is.
+- The only meat I eat is from animals I've killed myself.
+- People love photos. Photos originally weren't that big a part of the idea for Facebook, but we just found that people really like them, so we built out this functionality.
+- A squirrel dying in front of your house may be more relevant to your interests right now than people dying in Africa.
+- I mean, we've built a lot of products that we think are good, and will help people share photos and share videos and write messages to each other. But it's really all about how people are spreading Facebook around the world in all these different countries. And that's what's so amazing about the scale that it's at today.
+- One of my big regrets is that Facebook hasn't had a major chance to shape the mobile operating system ecosystem.
+- I just think people have a lot of fiction. But, you know, I mean, the real story of Facebook is just that we've worked so hard for all this time. I mean, the real story is actually probably pretty boring, right? I mean, we just sat at our computers for six years and coded.
+- I hope that Facebook and other Internet technologies were able to help people, just like we hope that we help them communicate and organize and do whatever they want to every single day, but I don't pretend that if Facebook didn't exist, that this wouldn't even be possible. Of course, it would have.
+- I think a lot of the time there isn't such a black-and-white difference between what's a platform and what's an app. It's really just like the most important apps become platforms.
+- Right now, with social networks and other tools on the Internet, all of these 500 million people have a way to say what they're thinking and have their voice be heard.
+- I started the site when I was 19. I didn't know much about business back then.
+- Figuring out what the next big trend is tells us what we should focus on.
+- While some doubted that connecting the world was actually important, we were building. While others doubted that this would be sustainable, you were forming lasting connections. We just cared more about connecting the world than anyone else. And we still do today.
+- Games is probably the biggest industry today that has gone really social, right. I mean, the incumbent game companies are really being disrupted and are quickly trying to become social. And you have companies like Zynga.
+- Move fast and break things. Unless you are breaking stuff, you are not moving fast enough.
+- Bill Gates has always been a mentor and inspiration for me even before I knew him. Just growing up, I admired how Microsoft was mission-focused.
+- My goal was never to make Facebook cool. I am not a cool person.
+- This is a perverse thing, personally, but I would rather be in the cycle where people are underestimating us. It gives us latitude to go out and make big bets that excite and amaze people.
+- Our goal is not to build a platform; it's to be cross all of them.
+- About half my time is spent on business operation type stuff.
+- I think humans are just hard-wired to process people's faces and understand meaning and expression at such a more granular level than other types of communication.
+- When I started Facebook from my dorm room in 2004, the idea that my roommates and I talked about all the time was a world that was more open.
+- Move fast with stable infrastructure.
+- There is a huge need and a huge opportunity to get everyone in the world connected, to give everyone a voice and to help transform society for the future. The scale of the technology and infrastructure that must be built is unprecedented, and we believe this is the most important problem we can focus on.
+- Hackathons are these things where just all of the Facebook engineers get together and stay up all night building things. And, I mean, usually at these hackathons, I code too, just alongside everyone.
+- I just think that VR and AR are going to be a really big deal.
+- 2018 is an incredibly important election year, not just with the important midterms here in the U.S., but you just had the Mexican elections. You have Brazil. You have India coming up at the beginning of next year. There's an assortment of elections around the EU. We're very serious about this. We know that we need to get this right.
+- When most people ask about a business growing, what they really mean is growing revenue, not just growing the number of people using a service. Traditional businesses would view people using your service that you don't make money from as a cost.
+- Look at the way celebrities and politicians are using Facebook already. When Ashton Kutcher posts a video, he gets hundreds of pieces of feedback. Maybe he doesn't have time to read them all or respond to them all, but he's getting good feedback and getting a good sense of how people are thinking about that and maybe can respond to some of it.
+- In terms of doing work and in terms of learning and evolving as a person, you just grow more when you get more people's perspectives... I really try and live the mission of the company and... keep everything else in my life extremely simple.
+- Video is growing very quickly on Facebook. A lot of people compare that to YouTube. I think that kind of makes sense. YouTube isn't the only video service, but I think it's the biggest, and it probably makes more sense to compare Facebook video to YouTube rather than Netflix because that's a completely different kind of content.
+- My friends are people who like building cool stuff. We always have this joke about people who want to just start companies without making something valuable. There's a lot of that in Silicon Valley.
+- I actually don't read most of the coverage about Facebook. I try to learn from getting input from people who use our services directly more than from pundits.
+- It's really easy to have a nice philosophy about openness, but moving the world in that direction is a different thing. It requires both understanding where you want to go and being pragmatic about getting there.
+- If you go through some big corporate change, it's just not going to be the same. If we sold to Yahoo, they would have done something different; if you want to continue your vision of the company, then don't sell because there's inevitably going to be some change.
+- I actually do think you're seeing this trend towards organizations just caring more about their brand and engaging. And so I think Home Depot will want to humanize itself. I think that's a lot of why companies are starting blogs, are just giving more insight into what's going on with them.
+- What really motivates people at Facebook is building stuff that they're proud of.
+- It used to be the case, like you'd switch jobs, and then maybe you wouldn't keep in touch with all the people that you knew from that old job, just because it was too hard. But one of the things that Facebook does is it makes it really easy to just stay in touch with all these people.
+- We talk about this concept of openness and transparency as the high-level ideal that we're moving towards at Facebook. The way that we get there is by empowering people to share and connect. The combination of those two things leads the world to become more open.
+- After launching the first version of Facebook for a few thousand users, we would discuss how this should be built for the world. It wasn't even a thought that maybe it could be us. We always thought it would be someone else doing it.
+- You get a reputation for stability if you are stable for years.
+- We're at a point now where we've built AI tools to detect when terrorists are trying to spread content, and 99 percent of the terrorist content that we take down, our systems flag before any human sees them or flags them for us.

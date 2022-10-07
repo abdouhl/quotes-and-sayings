@@ -1,0 +1,66 @@
++++
+author = "Taylor Goldsmith"
+title = "Taylor Goldsmith Quotes"
+quotes_len = "60"
+description = "the best 60 Taylor Goldsmith Quotes"
++++
+- I'm in my early thirties. I live in Los Angeles, California. I'm an artist.
+- I love Santa Barbara and have always dreamed of someday having enough money to have a spot up there.
+- We knew what music we liked but not who was from where. As we started to look more into these artists, we started finding out that a lot of the stuff we were most drawn to was made in California.
+- I read actual books. It's cool to read on a Kindle if that's what you want to do, but for me, I like having a bookshelf.
+- For five albums, I would create an image of someone that wasn't true to who they were. I'd be in love with an idea. It's not an uncommon problem.
+- We're thrilled to play an offbeat place. Our music fits with it. I love playing unusual venues.
+- I have big plans to read books over again, but I've never re-read anything. The only books I've read over again are the books I didn't pay attention to in high school.
+- Books look handsome and it's a real singular experience getting to go to a bookstore. I don't want to not do that.
+- When I think of bands that have maintained a certain level of success all along - Metallica, or the Red Hot Chili Peppers - no matter what anybody thinks about them, you have to look at them and say, 'Wow, those guys operated under the most pressure.'
+- Growing up, even finding all those notes that you write in first grade to your future self of like what you want to be when you grow up - it was always music.
+- Sometimes songwriting can turn into a gossip column, and I try to avoid that as much as I can.
+- We've just always felt like we had a product onstage that represented us.
+- I wasn't really much of a reader early on, but when I first started getting into reading at around 16 all I could really read was Kurt Vonnegut books.
+- You write a song; you know what you want it to sound like. With a band like ours, it's more about the collective. It's important everyone feels expressed and represented.
+- Dawes is a rock 'n' roll band playing guitars, writing songs, working in a certain tradition. Through our attitude and personality, I hope, you can hear a song and go, 'That's a Dawes song.'
+- Unfortunately it's easy to just label us as part of a Laurel Canyon sound. What we try to do is to be unique.
+- When you see a Bruce Springsteen or Tom Petty or Jackson Browne show, the impression you get is that you'd love to have a beer with them. That's the image they project.
+- When you see yourself as the center of things, it deprives you of a certain level of empathy.
+- But when you're six records deep, every record has one or two songs that need to be in every set, so you're already looking at 12 songs that you know you're going to play.
+- Laurel Canyon and Dawes have become linked in a way that I think is misguided, frankly, to tell a new fan what we sound like. But at one point maybe it wasn't.
+- We let the lyrics be the focus of the song. Which is not what you hear with some of the zeitgeisty bands, like the War on Drugs, who I love, their lyrics are usually buried and The National, one of my favorite bands, Matt Berninger writes in fragments, in a very impressionistic way.
+- I love the idea of having a beer with a lot of the musicians I admire.
+- A song like 'Telescope' was about a friend of mine. He doesn't know it's about him.
+- When we record a song, like 'Bedside Manner,' it's important that the next time I write a somber, mid-tempo song that we don't treat it the same way.
+- When I discovered Bob Dylan and Leonard Cohen, I could explore the records that inspired me on a different level and that led me to Joni Mitchell, who is maybe my favorite of all time, and Warren Zevon. Those artists that wrote the lyrics that you try for.
+- I actually like social media, and I recognize what modern technology serves.
+- Slash is one of the greatest guitar players I've ever heard, and it's amazing when you hear about all the crazy stuff he's done.
+- We've always tried to inspire ourselves, so to speak. In the beginning, that could mean just hearing your own songs played back to you for the very first time.
+- I feel like a lot of artists, when they're on their fourth record, they're perceived as the old guys. At least in this day and age. I like that people perceive us as just getting started because that's how we perceive ourselves.
+- I don't really work on songs when we're touring because there's just too much other stuff going on.
+- I think it's important to always stay critical. But rather than dwelling on it and wishing I could change something, it's important to just take those lessons learned and those new notes and apply them to the next thing.
+- And that's the case with all of James McMurtry's songs. He never presents these characters for us to judge, but only to sympathize with. He has a capacity for compassion with every sketch that he makes with a person that he is not.
+- We've always been fans of groups like Little Feat, Steely Dan, the Eagles, or Dire Straits that have that quality. Bands that sometimes are perceived as not the 'cool' band, because they're so good in a technical sense.
+- I know some bands that don't like touring and are able to make a living producing other bands. There are a lot of ways of carving a living out, but it's become tougher and tougher to figure out what that means.
+- I get the biggest kick out of it, to hear words that I wrote and chords that I wrote being sung by somebody else.
+- Bands speak for us in this inevitable way that you can't get anywhere else because it is this perfect balance of artistic expression and popular culture.
+- When people do, or say, things we don't believe in, forgiveness can feel disgusting. But when you try to think of someone who isn't worthy of it, it's hard to find an example.
+- Like for me, it's funny that I have ended up in so many side projects because I have always looked at any song that I write as a Dawes song.
+- And so to me, I've always thought the kinds of fans that I want is the kind of fan that I am, which is when I subscribe to an artist, I'm yours. I'm on board.
+- It's easy to look at kids sitting around a campfire looking at their phones and to think, 'What a shame.' But I think they're going to be more advanced in terms of communication than my generation.
+- All of the people we admire have extensive catalogs, so what's most exciting about people responding well to the band is allowing us to continue making as many records as we can.
+- I was learning guitar as the band was beginning, at least in terms of being a lead guitar player. I could write songs, but I couldn't really play solos.
+- When we were putting together 'One Of Us,' we were just following our impulses and what felt good.
+- And rather than judging and alienating others, I do think there's an opportunity that no one is taking, myself included, to actually understand why somebody is coming from a certain place.
+- I've always been a little more narrative, a little more linear, a little more direct. People instantly want to classify that as something retro. It's just a way of writing songs.
+- That the longer you can work and stay in people's peripherals, the more likely folks might be to acknowledge you and know that you're there.
+- So, hopefully, us finding ways to constantly work, but always with a different product, will help our band play to more people and continue making music.
+- When we made 'North Hills,' I had never heard Warren Zevon, and I never heard the Grateful Dead. I had never heard of Jackson Browne.
+- I think that there's a singular emotion that goes along with what the bands that we love mean to us. I feel like people feel represented by that in a way that you don't get from saying, 'Oh, I like this book' or 'I went to college here' or 'This is what my job is.'
+- Our dad was a singer and keyboardist and was in bands throughout his whole life. He was in a band called Sweathog that opened for Black Sabbath and eventually was the lead singer of Tower of Power for a few years.
+- For me, I definitely like quiet; I like to write alone.
+- Well, I think at first, songs were sort of the vehicle which allowed me to be on the stage and get to hold a guitar and get to sing.
+- There are times, like with Dire Straits, where you can get as close as you can be to being good at your instrument and not cross over to that tasteless place.
+- When you go back and listen to 30 years of Tom Petty records, they are pretty consistent. I love that.
+- I aspire to be someone like Gillian Welch. What she does is play part of a group with two acoustic guitars with harmonies. She plays folk. However, there is no one that sounds like Gillian Welch. I aspire to come up with a unique sound like she has.
+- I feel like we're very lucky in the sense that Dawes can be the kind of band that plays with Bright Eyes or M. Ward but that also plays with Bob Dylan.
+- If what you do for a living is play drums or bass, then that defines you. You don't want to be some guy missing notes here and there; you want to really speak with it.
+- I think there are ways a place can sneak its way into a song, or a feeling that you take into the studio.
+- I write these songs and I like the idea of letting the band interpret it as they will. This band is like any band; it's not just me. This isn't just a way for me to play my songs. There are four distinct artistic voices, and they deserve to be expressed.
+- I know a lot of bands that will make their first record and get to a certain level, and then when the second record comes out, they can start where they left off as a headlining act playing in front of a certain number of people, or they can go back out and make a lot less money and open for people.

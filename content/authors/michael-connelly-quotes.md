@@ -1,0 +1,134 @@
++++
+author = "Michael Connelly"
+title = "Michael Connelly Quotes"
+quotes_len = "128"
+description = "the best 128 Michael Connelly Quotes"
++++
+- When you're working on a novel, you never think about how much it would cost to shoot one of your scenes. But that's a huge consideration in film and TV.
+- I have a large collection of biographies about jazz musicians.
+- I got lucky, and the first book, 'The Black Echo,' got published.
+- I realize now I could have gotten a whole book out of that and so I think that was a big mistake. But the truth is you write in the moment and with your head down and there is no way back then that I could have conceived of Harry having the longevity that he has had.
+- When you're a detective on the midnight shift, you don't have a specialty: you roll on any time they need a detective, whether it's big or small.
+- I want people to think I'm a creative genius.
+- To get a connection to your characters, you have to put them in a situation that you can feel yourself.
+- I get up to write while it's still dark, 5 or 5:30. I start by editing and rewriting everything I did the day before, and that gives some momentum for the day.
+- I'm a disciple of Raymond Chandler, who said in his essays that there's a quality of redemption in anything that can be called art.
+- Write every day even if it is just a paragraph.
+- Being a journalist always makes you a quick study of wherever you're at. You're out all the time and seeing places that normally you wouldn't get to see. It gives you an unusual level of insight into any place.
+- Ross McDonald had a greater influence on me than any other writer. His style of writing, the repeated theme of the past coming out to grab somebody, that's very attractive to me as a reader and, now, as a writer.
+- The three books I've written in Florida about L.A. are my best takes on the physicality of the city, as far as description goes.
+- My literary heroes all wrote about L.A.: Joseph Wambaugh, Ross Macdonald, and Raymond Chandler were the three writers that made me want to be a writer.
+- That's what I like most about writing fiction over journalism: the easy metaphors!
+- I hate people thinking their city is unique, but there is a certain aura about Los Angeles; it's not necessarily a beautiful thing, but it's part of Harry Bosch.
+- I connect to the tradition of Irish storytelling. And I think there is something - I can't put my finger on it - something genetic there. Maybe just a need to tell stories.
+- As a writer, you look for inspiration wherever you can get it.
+- In 'Blood Work,' they made choices I wouldn't have made, but I'm not a filmmaker. I took the money, and they told the story.
+- As a reporter, you develop an ear for dialogue because it's your job to capture it accurately.
+- My history is that I will create a character, and they will have a book to themselves, and then I'll integrate the character into the larger world of all my books.
+- I chose deliberately for Harry Bosch to age chronologically with the books.
+- I never miss L.A. because I'm there enough.
+- My grandparents were all born in the U.S., but their parents came from Ireland.
+- You know that song, 'New York, New York?' If I can make it here, I'll make it anywhere? That's kind of like L.A.
+- Writing a screenplay is so spare, it kind of reminded me that I really should celebrate what I can do in a book, which is description: for example, places, people, locations.
+- I like stories about people who have to go into darkness for a good reason and then have to figure out how to deal with the darkness that seeps into their souls.
+- I think books with weak or translucent plots can survive if the character being drawn along the path is rich, interesting and multi-faceted. The opposite is not true.
+- I'm always looking at ways of shaking up the writing experience because I think it helps.
+- When I am so intensely involved with writing my books, I don't like to reread them. I feel like that story is done.
+- Every time I visit Brisbane, I think, 'This is my childhood.'
+- I never write thinking, 'What would a woman do?' any more than I think, 'What would a man do?' It comes down to what would a solid detective do in these circumstances.
+- Artists are supposed to stay hungry.
+- I don't think anyone will believe me, but I've never been pressured by a publisher to churn out a book.
+- I'd be lying if I said the success means nothing to me. It does. I enjoy it and live a pretty great life.
+- The TV audience is way bigger than a book audience, and no matter what I do, I'm always thinking if this will help people read my books.
+- Eight to ten years in a patrol car? I didn't have that in me.
+- In writing on the page, you can be a bit elliptical, but on TV, you can't dance around stuff. You either show it, or you don't.
+- As a former reporter, I wrote 'The Scarecrow' quickly - I didn't have to think about what the character would do the way I do with Harry Bosch.
+- I'm just going to write the best books I can.
+- I first discovered Tampa in my 20s when I met my wife, who was living there, and I instantly fell in love with the city. It's somewhere between a big city and small town, so you get the feeling of both.
+- I feel I'm functioning at some level as a journalist because even though I write fiction, I'm trying to get the world accurate.
+- It wasn't a decision to become a writer. I wanted to become a writer of crime fiction. I was very specific.
+- It's about being fair. It's about Black Lives Matter. Yes, they matter. Everybody counts or nobody counts, and I think if more cops had the philosophy of Harry Bosch, we'd have less of these situations happening.
+- I think I would spend the first 30 weeks not writing, just clearing my head and seeing parts of the world I haven't seen and going back to places I have seen and love.
+- When I was in college, there were dollar movie nights. I went to see 'The Long Goodbye,' which was based on one of Chandler's books but was contemporary and set in Los Angeles in 1973. I loved the movie, which motivated me to read the book.
+- In 1995, I sold the rights to Harry Bosch to Paramount. They had several screenplays written, but a movie never happened. Harry Bosch went on the shelf, and I had to wait 15 years to get him back.
+- L.A. is a long shot city, and those who make that shot - you can tell. You can see very clearly who's made it and who hasn't.
+- There are nineteen Harry Bosch books, and someone told me if you add up the descriptions of Harry from all of them, it would come to less than three pages. He's very elliptically described over the two decades during which the novels occur. I did that by intention.
+- My entire career writing novels was wrapped up around Harry Bosch. This character was too important to me to just hand off.
+- We're all seeking order. We're all seeking control.
+- I'm not Mr. Hollywood. I'm a book writer.
+- I was fired as an actor on 'Bosch.'
+- The fulfillment I get from a good day of writing is addictive and will always bring me back the next day.
+- I've sold 11 of my books to Hollywood. There are all kinds of my books on shelves in Hollywood because the scripts didn't capture the characters.
+- I write at a pace that suits me, and sometimes it's two books a year, but most often it's one.
+- I can't say I'm an expert on public transport.
+- I don't put a lot of description in the books because I write books the way I like to read them, and that is I like to build images and be a creative reader, and so I write that way.
+- I've always thought of L.A. as the modern version of 'The Garden of Earthly Delights.'
+- When I was a teenager, I was a voracious reader of crime fiction, but only contemporary books. I was not interested in reading 'The Glass Key' or 'The Maltese Falcon' - stuff that was 40 or 50 years old.
+- Now I'm writing about contemporary Los Angeles from memory. My process was to hang out, observe, research what I was writing about, and almost immediately go back to my office and write those sections. So it was a very close transfer between observation and writing.
+- What brought me to the table was Raymond Chandler and, to a lesser degree, Ross Macdonald and Dashiell Hammett. I was basically inspired to want to write like the classic private-eye writers.
+- One of the great things about fiction is you can use an issue and describe it in human terms.
+- I think the best way to sell a made-up character is to plant his feet into the real earth.
+- In the TV world, we are seeing a lot more power going to the writer. I sense it is a writer's medium.
+- When I lived in L.A. full time, I moved often - fourteen different neighbourhoods in sixteen years.
+- I think there has to be an empathic strike between the reader and the protagonist. There has to be something said or known that connects the reader to this person you're going to ride through the story with.
+- In a daydream sort of way, I think it would be pretty cool to direct a movie. But I have been on movie and TV sets and know it is hard work. I like directing it in my mind. It is easier.
+- I think it's pretty apparent who my favorites are because I keep coming back to them. At the top of that list would be Harry Bosch, who's now going on 20 years of literary life. I still like him the best because there's still a lot to say about him.
+- Deep in my heart it still feels like I'm a journalist even though I haven't worked for a paper and carried a press pass for 14 years.
+- All my writing is fun, and that makes it hard to slow down or walk away.
+- Many writers learned their craft and work ethic at a newspaper. I benefited from that.
+- I'd seen Titus Welliver in a few shows and felt he had some inner demons in his portrayals, as does Harry Bosch.
+- The act of reading a story is sacred, and people build images and all that stuff.
+- My experience as a newspaper reporter was invaluable in terms of getting me to the kind of writing I do now. It gave me a work ethic of writing every day and pushing through difficult creative times. I mean, there's no writer's block allowed in a newsroom.
+- You have to write about what scares you.
+- When I write about places in L.A. - like where the best taco truck is or something - it's not about L.A. To me, it's about Harry Bosch, because he's the guy that does these things and has this experience.
+- My father was a builder. During my high school years, I worked for him. One summer, I was working with a guy who had just come back from Vietnam and had been a tunnel rat. He wouldn't talk about the experience, but it sounded really scary to me.
+- When I went home at 20 to tell my parents, 'I don't want to be an engineer, I want to try and write books,' I was braced for, 'That's not gonna happen.' But I didn't get that response, and maybe it was because of my dad's experience of having an artistic dream and having to put it aside.
+- This next to never happens, but if I had time to sit on a beach and read, I wouldn't read a cozy. But I've read cozies. That's how I got interested in crime fiction: because my mother was a soft-boiled reader.
+- I've been able to write at least one book a year for 20 years, and I don't think I would've had that kind of drive if I hadn't come out of the journalism business.
+- I think there'd be huge losses if there weren't newspapers. I know everything's shifting to the Internet and some people would say, 'News is news, what you're talking about is a change of consumption, not the product that's out there.' But I think there is a change.
+- My favorite is 'The Last Coyote.' I'm not saying that's the best book I've written; I hope I haven't written my best book yet, but that one was the first book I wrote as a full-time author, with my full-time focus. I have a nostalgic feeling about it.
+- Keeping your head down and just writing is only part of the equation, so I surround myself with smart people to help sell my books.
+- I went into journalism to learn the craft of writing and to get close to the world I wanted to write about - police and criminals, the criminal justice system.
+- I'm going to have to be impressed and feel confident in the people I'm handing a book to - or I'm not going to do it. Once you hand it to them, you're out. You have no control over it.
+- I wanted to learn about the worlds I wanted to write about in fiction.
+- We want our government to protect us, to make sure something like 9/11 never happens again. We quickly moved to give law enforcement more power to do this. But that now begs the question, did we move to fast? Did we give too much power away? I don't have the answer.
+- The characters I write about are very internal.
+- With age comes a greater understanding and a greater worldview.
+- I have high hopes for Renee Ballard's literary life, and it can't start out better than the top of 'USA TODAY''s best-seller list.
+- I trust the readers to build their own visual images. To me, that's part of the wonder of reading.
+- I used to tape over the top corner of my computer screen so I couldn't see what time it was. I like the idea that I'm just with the words and not knowing what's going on with the world, when it's lunch or dinner.
+- People like the Bosch books because they like Harry Bosch, not because the plots are fantastic.
+- I could not have been happier with 'The Lincoln Lawyer.' They got the essence, and the casting, starting with McConaughey, was just perfect.
+- I'm one hundred percent Irish, and I'm very proud that I'm Irish American, though I don't know exactly where my ancestors came from. I just know County Cork.
+- There is a prevailing school of thought that something good must take time, sometimes years to create and hone. I have always felt that the books I have written fastest have been my best - because I caught an unstoppable momentum in the writing.
+- I think there's a general misconception that anything written quickly lacks quality, and I don't believe that.
+- As far as characters in fiction that I really admire - it's pretty strong to say you would wish that you had created another character - but I'll throw out Will Graham, the protagonist in 'Red Dragon,' a book I've read several times.
+- When I was at a newspaper, I knew what an opportunity that was, and I religiously protected my time on the cop beat.
+- I've crossed the Mexican border and gone to Tijuana a few times over the years, but I've never felt comfortable there.
+- I was a police reporter, so I got into the worlds that I write about, and I think many of the details in my books come from those days.
+- The books I've written the fastest were the best reviewed and sold the best.
+- I love movies. Movies have influenced me as a writer.
+- I not only read Raymond Chandler but read all the crime fiction classics. I was hooked.
+- A good day to me is writing from 6 A.M. 'til noon with a break to take my daughter to school. After lunch, if I still feel the momentum, I'll hit it again.
+- I want to tell stories that reflect how people are feeling.
+- I don't miss being a reporter as a job, but I do miss the everyday interaction with the front line of law enforcement. I still have a cadre of cops who keep me up to date, but I don't have the access I used to.
+- The LAPD, like most police departments, is a male-dominated bureaucracy. A woman faces a lot of pushback.
+- I think the only boundaries are individual and personal. A writer should be free to write about anything he or she wants to, including the twin towers. I have made small references to 9/11 in my past two books.
+- I watched 'Kojak' religiously with my father. It was a great bonding time. He loved shows where the stakes were high. Life and death, justice prevailing, things like that. I think that helped set me on the path to what I do now.
+- A movie is like a city. There's, like, 150 people working, and it's all because of something that came out of your head.
+- I wrote my first real murder story as a journalist for the Daytona Beach News Journal in 1980. It was about a body found in the woods. Later, the murder was linked to a serial killer who was later caught and executed for his crimes.
+- I write my books never thinking of an actor.
+- When I write about Mickey Haller as the Lincoln lawyer, I totally see Matthew McConaughey because he took that character when that character was still fairly new to me - only two or three years old - when I knew McConaughey was going to play him. He's also the same age, the right age, in comparison to the book.
+- The criminal defense attorney is misunderstood if not despised by most of society. It doesn't matter if we believe in our adversarial system and the ideal that everyone charged with a crime is entitled to a vigorous defense. Ideals give away to reality - defense lawyers working loopholes and angles to get their clients off.
+- I write puzzles and mysteries. Nothing too highfalutin.
+- I learned to write crime novels by reading people I hoped to emulate: people like James Lee Burke, Lawrence Block, Joseph Wambaugh, and Sue Grafton.
+- The philosopher Friedrich Nietzsche once wrote that when you look into the darkness of the abyss the abyss looks into you. Probably no other line or thought more inspires or informs my work.
+- In the real world, some defense lawyers never have an innocent client in their whole career.
+- My whole reputation and creative thought as a novelist is really wrapped around Harry Bosch, so he's near and dear.
+- I admit my reading time is limited because I can write in the situations and places where people usually read. But reading is the fuel - it's inspiring - so I try to keep the tank full. What happens most of the time is I binge read. I will put aside a day or two to do nothing but read.
+- As soon as I got to L.A., there was this big crime where these guys tunnelled underneath a bank on a three-day weekend and went right up to the vault and emptied everything out.
+- That's the irony in the work: the best stories are the worst things that happen. My best times were somebody else's worst.
+- What is overriding that and most important is that readers generally are interested in a good character. They might be more comfortable with Harry because they think they know him, but they always seem willing to give somebody new a chance.
+- I get into this unfortunate thing when I'm touring for my books. I was in Spain, and the media asked me, 'Who's your favorite Spanish mystery writer?' I'm totally flat-footed. I feel that I'm under-read when it comes to foreign writers.
+- I mostly read on airplanes and right before sleep.
+- A newspaper is the center of a community, it's one of the tent poles of the community, and that's not going to be replaced by Web sites and blogs.

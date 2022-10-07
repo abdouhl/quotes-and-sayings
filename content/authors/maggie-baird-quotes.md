@@ -1,0 +1,16 @@
++++
+author = "Maggie Baird"
+title = "Maggie Baird Quotes"
+quotes_len = "10"
+description = "the best 10 Maggie Baird Quotes"
++++
+- We were lucky enough to homeschool our kids - or we'd call it 'unschooled world school.'
+- People would say my children should have free will to eat meat - my philosophy is that is wrong, not healthy for the planet, animals or people. They learned and embraced all they could, taking gradual steps toward becoming vegan.
+- My dad actually was a wonderful person, and also happened to be a hunter and fisherman. And my brothers and I never would eat meat our whole lives. We just wouldn't eat it. We would refuse it. Of course, in that day and age you kind of got forced to eat it. But the minute we all became teenagers, we foreswore it.
+- We live this very normal life when we're home except it's also very 'abnormal because we do crazy things.
+- I grew up in Colorado.
+- It's so easy to find a vegan recipe for literally anything you want to eat. It's also the most basic way and easiest way to eat.
+- There's no controlling Billie - she's an authentic person. She's strong-willed and speaks her own mind, but she also listens to reason.
+- I hear Billie described as one of the biggest stars in the world and that's very hard for me to process.
+- Having a small house and a close family was part of a philosophy that happened to work out with not having a lot of money.
+- The early days of being vegetarian meant ordering plain salads with vinaigrette and a baked potato. You could put the potato in the salad, and, if you were lucky, there were kidney beans.

@@ -1,0 +1,19 @@
++++
+author = "Tony Greig"
+title = "Tony Greig Quotes"
+quotes_len = "13"
+description = "the best 13 Tony Greig Quotes"
++++
+- Well I grew up in England, and I was in the London police.
+- Us investigators who went out into the field were faced on occasion with a lot of anger, by people saying why has it taken you five or six year to come and see me?
+- You have to understand that once an indictment has been signed, all countries that are signature to the U.N. charter will hand a person straight over. You don't have to go through the normal extradition process.
+- I was employed as an investigator and my particular team, we were investigating the role of the business community in the genocide and we identified a bunch of leaders of the business community and I investigated two people.
+- And that was what I was asking to happen and I was told that the indictment would be signed, but I was coming to the end of my one-year contract, I had to return to New Zealand for personal reasons.
+- Cricket the world over, I don't think, will ever know how different things would be without Kerry Packer.
+- Each investigation team has a lawyer attached to it and there was a lawyer attached to me and my assistant.
+- I met with people who are already very angry with the tribunal.
+- Well the war lasted for three months, from April of 1994 until the Tutsi army, the exiles as it were, gained control of the country and then it stopped.
+- The U.N. has been so disappointing to date on the whole Rwanda issue that despite the people they've sent through, and I have no doubt their competence, in the end, the decision is going to be made by other people and not by them.
+- The U.N. was there to protect other Rwandese.
+- One of the difficulties about interviewing people in Rwanda is that the country is trying to get on with ordinary life and some people just don't want to get involved in this.
+- I think today that it is essential that the Rwandan tribunal continues to prosecute efficiently. And if the U.N. fails to do that, it is sending entirely the wrong message to people who are in the position to complete these atrocities again.

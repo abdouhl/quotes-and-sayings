@@ -1,0 +1,28 @@
++++
+author = "Natalia Reyes"
+title = "Natalia Reyes Quotes"
+quotes_len = "22"
+description = "the best 22 Natalia Reyes Quotes"
++++
+- Actually, between Colombian and Mexican Spanish, there's not a huge difference, but it is a different accent.
+- You can win the lottery but you need to buy the ticket first. And in life, you can get lucky but you need to work hard and be ready first.
+- In general, we as women, but also Latinas, we're always kind of serving other characters.
+- And just seeing yourself on buses and billboards in even the smallest town of any country in the world, it's overwhelming sometimes and it's amazing and it's unbelievable.
+- I was really young, like nine, when I saw the first 'Terminator', and I was amazed by the world they created, and everything James Cameron did.
+- I'd love the opportunity to continue to work in the U.S. with people I have always admired and I also want keep telling stories from where I'm from.
+- You can say that I have always dreamed big. As an actor you want the world to see your work and my dream was to make movies.
+- I think there's so much talent in Latin America - you know, directors from Mexico and Chile and Colombia - we have so much talent and there are not enough platforms to show our talents, so I'd love to use this and start creating my own endeavors and get all these really talented people together.
+- I've lived and worked in Mexico; I love Mexico.
+- It's part of my challenge as an actor, not only speaking English but speaking Spanish with a Mexican accent.
+- I was not expecting Linda Hamilton to be there auditioning with me. I never would've imagined that. I didn't recognize her. We went into a room with four people, and the scene was really emotional. She held my hand and hugged me. She was so loving.
+- Terminator' is a reflection of how the world is changing.
+- James Cameron has always been great about changing the rules.
+- I didn't really think of Hollywood or doing an action movie just because it was not something that I had in mind or that I thought was possible.
+- Technology is such a big part of our lives. It makes everything easier. It doesn't make sense to fight against it. We need to set limits and learn how to use it so that we can go to places that we have never been to before.
+- You're always nervous about an audition.
+- I started with theater when I was 9 years old and then got into television when I was 16, but I would say my first big break was 'Lady, La Vendedora de Rosas', a telenovela that was very successful all across Latin America.
+- I finished high school and college - I actually moved to New York to study film - and was always working in theaters and studying. You never stop learning.
+- I feel really lucky because I discovered acting when I was really young, I was like nine and I think I had a really happy childhood and youth. I was doing what I wanted.
+- I mean I do believe there is a responsibility of the entertainment industry in general with everything that is happening with the world, with violence and with climate change and with the stereotypes with Latinos or any community.
+- Well, 'Terminator', it's just such an iconic movie in movie history. It's universal. I think it's part of the pop culture of the world.
+- I love theater, going to the movies, and cooking new vegan dishes at home. I also love dancing salsa and traveling, and doing outdoor sports such as biking, hiking, and swimming.

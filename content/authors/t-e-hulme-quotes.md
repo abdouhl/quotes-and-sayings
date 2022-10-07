@@ -1,0 +1,14 @@
++++
+author = "T. E. Hulme"
+title = "T. E. Hulme Quotes"
+quotes_len = "8"
+description = "the best 8 T. E. Hulme Quotes"
++++
+- Here is the root of all romanticism: that man, the individual, is an infinite reservoir of possibilities, and if you can so rearrange society by the destruction of oppressive order, then these possibilities will have a chance, and you will get Progress.
+- All national histories are partisan and designed to give us a good conceit of ourselves.
+- The view which regards man as a well, a reservoir full of possibilities, I call the romantic; the one which regards him as a very finite and fixed creature, I call the classical.
+- Man is an extraordinarily fixed and limited animal whose nature is absolutely constant. It is only by tradition and organisation that anything decent can be got out of him.
+- No history can be a faithful mirror. If it were, it would be as long and as dull as life itself. It must be a selection, and, being a selection, must inevitably be biased.
+- Born with blue spectacles, you would think the world was blue and never be conscious of the existence of the distorting glass.
+- All conviction - and so, necessarily, conversion - is based on the motor and emotional aspects of the mind.
+- Pure geometrical regularity gives a certain pleasure to men troubled by the obscurity of outside appearance. The geometrical line is something absolutely distinct from the messiness, the confusion, and the accidental details of existing things.

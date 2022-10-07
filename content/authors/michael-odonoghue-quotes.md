@@ -1,0 +1,22 @@
++++
+author = "Michael O'Donoghue"
+title = "Michael O'Donoghue Quotes"
+quotes_len = "16"
+description = "the best 16 Michael O'Donoghue Quotes"
++++
+- I think therapy interferes with the creative process. It takes off the edge.
+- Anyway, the title The War of the Insect Gods came before we had that ending, before we knew they had become gods. That we knew the evolutionary cycle they went through. Before we even knew anything about that. We had an ending.
+- One of my problems is I am getting so mature that I have to pick up a TV and toss it through the coffee table just to remind people of who I am. I want to go ranting and screaming into the grave.
+- Making people laugh is the lowest form of comedy.
+- Any good humor is sophomoric. 'Sophomoric' is the liberal word for funny.
+- I try to attack all races and creeds, except the Irish. Clearly they are closest to the angels and don't deserve abuse. But the others have it coming.
+- Insects are my secret fear. That's what terrifies me more than anything - insects.
+- It's very easy to make insects move. Because they do move mechanically without the rippling of flesh as you mentioned. They move more like real tinker toys and you can make models of them quite easily.
+- Television doesn't want to admit it has those dreadful roach ads on anyway.
+- A Madagascar Hissing Roach chasing Jerry Lewis. That would be a really neat treat.
+- Nothing important has ever come out of San Francisco, Rice-a-Roni aside.
+- I am Hollywood's hottest young, middle-aged director, but I'll write out of New York because I don't want to become a salad head. That's what you become out there: a guacamole dip.
+- Sometimes you have to be cruel... in order to be even crueler.
+- The true essence of comedy is a baby seal hunt.
+- Working with Woody Allen is like filming Howard Hughes's will. It's a very mysterious and strange event. You never get a peek at the whole will.
+- Once you put yourself in the hands of the government, you could end up in Utah.

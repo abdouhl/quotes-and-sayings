@@ -1,0 +1,67 @@
++++
+author = "Jimmy Butler"
+title = "Jimmy Butler Quotes"
+quotes_len = "61"
+description = "the best 61 Jimmy Butler Quotes"
++++
+- I just like country because a lot of those guys are from towns that I'm maybe from, for one. But also, I like how humble they are, and they're genuine people, I think. I'm not saying that rappers or rock and roll, those people, aren't. But I just feel like I get along with those guys because they're from small town.
+- We say it every year: we are confident; we think we can win a championship, yadda, yadda, yadda. You have all heard it before. But we have to go out there and do it.
+- I just want to ball. I just want a chance to win a championship. I just want to win. I wake up every day smiling. Why? Because I've got my people around me. I really don't give a damn what anybody thinks about me or what I say or what I do.
+- If you didn't talk to me to write something, you're just making stuff up. You're going by what you think, what you're assuming. I leave it at that. Read it. Believe what you want. But at the end of the day, if you've got a real question, then just come up and ask me, and see who I am as a person.
+- Every time my name is called, I get so many cheers, standing ovations, and a lot of hands are being clapped.
+- I don't like the phrase 'face of the franchise.' I just want to be a part of it. I think we have a really good team. When we start winning games, it looks a lot better.
+- If my teammates are out there to hoop, I'm going. I see the way these guys prepare for games. How can you not want to go be a part of that?
+- I'm country at heart. I love doing normal stuff, like back in my rookie year when nobody knew who I was, and I could grab dinner and have normal conversations.
+- Defense is all about if you want to play or not, if you really take matchups personal. A lot of guys don't. Once again, that's the league that we're in. That's not the league that used to be.
+- If you think you can sing, you can sing; that's all that matters. So I'm always singing around my guys, around the team, during warm-ups, because I think people need to hear this voice. I think they deserve it.
+- I loved the city of Chicago, and I love the Reinsdorfs. I'm forever grateful for them in taking a chance on me, allowing me to become the player that I am today. It's still incredible to me that I got to hoop in a Bulls jersey.
+- You ask what position I play, I say point guard.
+- If I get a chance, high pick and roll more. I want some triple doubles. I've got to get my handle right so I can pass and get it to guys where they can make shots.
+- I just don't think there have been many people that have understood how important winning is to me.
+- As a player, you look where I've come from, averaging 'X' amount of points, to where I am now, an All-Star.
+- It's not all fine and dandy, but a smile can go a long way. Show some love, be patient, and this world will be a much better place.
+- My job is to go out there and play. I mean, I guess you could guess who I would rather play for. We're not going to sit here and say that that's a huge secret. I mean, whoever they decided to bring in, my job was to help them win to the best of my ability.
+- I play dominoes all the way until I got Bible study. And then I do Bible study. I go to the game. After the game, come home. Dinner. Dominoes until I go to sleep. I'm. Not. Joking.
+- I don't like to lose, man. I think that's where it starts for me. If we're not winning games, then I don't smile too often.
+- Minnesota is legit. There's so much space to run, like back home in Texas.
+- I've changed, and I've learned every single year what to do and what not to do. But I still pride myself on going out and doing the right things. Doing what I'm supposed to be doing on both ends of the floor.
+- My whole life, people have doubted me. My mom did. People told me in high school I'm too short and not fast enough to play basketball. They didn't know my story. Because if they did, they'd know that anything is possible.
+- A lot of guys are offensive minded, which is good at some points and times but bad at others - at lots of others. I wish I could say I want everybody to play defense as hard as I do. It's not a reality.
+- Young guys in this league don't understand urgency. These guys don't understand that you never know what the league brings, the times may bring. I think they do understand what it takes to win here, and they continue to learn that.
+- I love the game, and I don't do it for any other reason except to compete and go up against the best and try to prove I can hang. All my emotion came out at one time.
+- Im from Tomball: Tomball, Texas. Its a small town on the northwest side of Houston. I dont think it's as country as people make it seem. It's actually growing. But don't go there without me, man, because they'll take your shoes and all of that.
+- I learned 'The Star-Spangled Banner,' the national anthem. I always wanted to play it before the Bulls game, but I always thought, like, Coach would be like, 'You're not focused on the game!' So I never really asked.
+- I knew that to be successful, I had to be more than a scorer. I had to become a leader. It's not about scoring. It's about doing what my team needs me to do.
+- No matter what, all I want to do is win. I don't care what anybody says, any media outlet, anybody says as a person; the one thing they can't say is that I don't want to win.
+- It's the heart that I play with on every single possession. And that's all that it is.
+- For us to be a really good team, everyone has to guard.
+- I don't change the way that I play. I love the game of basketball, man. I ride with these guys in this locker room. They know that. If I've got something to say to them, I will say it. You may not like the way that it comes across. That's fine. But that's who I am.
+- I built a fort when I was little, with pillows and blankets.
+- Music is my way of taking my mind away from the game. When I'm singing, you don't got anything to worry about. Don't gotta worry about scoring however many points or winning the game. No matter how good or how bad you are, it's fun.
+- I still sing, because that's my true calling. This basketball thing is only for, what, I think another year or so. And then I think I'm gonna switch over to my singing career.
+- We'll go on vacation, but we don't really care to go see Rome or anything. We just want to play dominoes. We like the fact that we can say, 'Oh, we went to Rome.' 'Well, what'd you do in Rome?' 'Played dominoes'.
+- Whoever I suit up for... I'm going to do my job.
+- People don't work as hard as I do. They don't expect the same things out of the game that I do.
+- I wanna be that glue guy: I want to be a guy my team and my coach can count on. That's what I want to be.
+- Everybody's so scared to be honest with one another. If you didn't like the way I handled myself in practice, one of the players, come up to me. Somebody say something - anybody. I'm not gonna take it as offense; it's not personal.
+- You can lose. Michael Jordan lost, but that doesn't mean he wasn't the GOAT.
+- I'm a competitor; I'm in here talking - come at me. If you score on me, I'm gonna tap you on your butt. You got the best of me - but you got to do it every time.
+- You get traded. It happens. It's part of the business.
+- I love music as a whole. Country music, hip-hop. I just like people being passionate with what they love to do.
+- If your No. 1 priority isn't winning, and people can tell? That's the battle. Now there's a problem between people, because that guy's No. 1 priority is winning, and that guy's isn't.
+- I play really hard. I put my body on the line every damn practice. Every day in the games. That's my passion. That's how I give to the game.
+- If you think you can sing, you can sing; that's all that matters.
+- I always speak my mind. Whether it be something that's going on in the world, something on the basketball court, or just something I saw with somebody else that's not right.
+- There's a lot of people that think I'm a terrible basketball player, so it's just gonna piss me off. And if it's people who think I'm good, I'll be happy. I'm just not gonna read it at all and stay content in my own mind.
+- I've become a much better player, so I feel like my voice is heard and taken for what it's worth a little bit more.
+- I just wanna hoop and be out there with my soldiers. Go to war. Try to, to the best of my abilities, help us win.
+- Decisions I make, the money, my contract, all of that will handle itself. I don't ever worry about my money. I already have enough money for the rest of my life. It's all about winning.
+- I think we're all pros. If we go out there and just play basketball the right way, everything is gonna work itself out.
+- The hardest people to play in front of are my brothers and friends from childhood, because I can never take them seriously. I know when they're sitting in the stands; it's constant jokes. They're just waiting on me to shoot an air ball or dribble the ball off my foot so they can laugh.
+- I've learned enough times in life that saying something is completely different than acting upon it.
+- Guys that are young in the league. Guys that you get to teach them your way. It's not a bad thing. It's actually a good thing. It's working for them. Teach them that way, and I guarantee they aren't as stubborn and hard-headed as I was, which sometimes is good, sometimes is bad. But like I always say, I'm not going to change who I am.
+- You can't be selfish in this game. You've got to know, at the end of the day, that it's all about winning. And when you win, everybody looks good.
+- The main thing is confidence. I'm gaining more and more confidence to do whatever I want to do on the basketball court, whether it is shooting threes or sprinting to the rim and finishing or ball handling. I'm confident enough because I have worked on it that I am going to do the exact same things in the game.
+- She's very loving. That's my family. That's Michelle Lambert. She is my mom.
+- I'm blessed; I'm fortunate to be able to play the game that I love every single day.
+- After I sign my big contract, I'm gonna make my brothers buy me dinner. They need to buy me something for a change. I think I'm gonna get me a house. That's gonna be first. Probably get some new socks. Need some socks.

@@ -1,0 +1,20 @@
++++
+author = "Mark Takano"
+title = "Mark Takano Quotes"
+quotes_len = "14"
+description = "the best 14 Mark Takano Quotes"
++++
+- The fact that, for so many generations, ordinary, everyday Americans came out of the closet and told their family and friends about who they are has laid the foundation for public sentiment to change. They got comfortable in their own skins to be able to share themselves with family and friends. This is where social change took place.
+- As someone who is both an ethnic minority and openly gay, I often talk about how simply being who I am has given me a double awareness of the vulnerability that some Americans may be facing.
+- When I first ran for Congress in the 1990s, my background as an openly gay Asian was one of the focal points of the campaign, and, in fact, my opponent attacked me for it.
+- You can't not be changed by the experience of seeing extreme poverty. You start to want to think about ways in which you can make the world better.
+- I hope that by just being a competent member and expressing informed views on issues that aren't related to issues of LGBT equality, Republicans see me as a general asset.
+- The model that I'd always seen as a little boy, as a teenager, as I watched other political careers, I saw people who'd start off in local government, gain experience, move to state government, and then on to federal office. I'd always believed that kind of experience was important.
+- Interracial marriages were basically legalized, but nevertheless, there was a social stigma attached to them for a long time to come. I imagine that's going to be true for same-sex marriages - that people's emotional comfort level with it will not fully materialize for decades.
+- Every member of Congress is sent to Washington to represent all of their constituents, regardless of their age, race, social standing, or sexual orientation, and I believe that America should be a place where everybody can dream, and nobody is left out.
+- I think it is important for someone like me to not run away from who I am but embrace it. LGBT people across the country need to know they have a friend in Congress.
+- Those life experiences that helped shaped my political beliefs are with me in every position I take and every vote that I cast - whether it be in favor of comprehensive immigration reform, strengthening Social Security and Medicare, or improving our nation's education system.
+- I taught high school English for 24 years. I always teach my students to appreciate the beauty of language and to write poetically.
+- I think most polling shows that most Americans agree that when it comes to employment that, you know, people should be really judged by, you know, their competency and not, you know, who it is they choose to love or who they're in a relationship with.
+- We, as Americans, do our level best to avoid being cruel to one another; we're led out of a diverse nation to come together and learn how to live with one another in a way that elevates everyone and our way of life. We've tried mightily to renew and imagine - imagine anew what it means to be free, what it means to be fair.
+- It's common sense to be for middle-class tax cuts and tax cuts on small businesses, to be for not allowing Medicare to be turned into voucher care.

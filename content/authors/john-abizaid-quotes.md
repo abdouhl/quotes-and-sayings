@@ -1,0 +1,42 @@
++++
+author = "John Abizaid"
+title = "John Abizaid Quotes"
+quotes_len = "36"
+description = "the best 36 John Abizaid Quotes"
++++
+- Nobody's more mindful of the sacrifices of our troops than those of us that command them.
+- I think you also understand that one of the key things that's got to be done in Iraq is to build a mentality of understanding that the military needs to be subordinate to civilian control and respectful of its own people.
+- Clearly the Secretary of Defense, my boss, would like nothing better than to get Osama bin Laden and to get... to ensure the complete defeat of al-Qaida, because we know that al-Qaida is planning operations against the United States even as we speak here.
+- But the truth of the matter is that there is there is an opportunity for them to participate in the economic and political future of the country and certainly in the security life of the country.
+- The United States is the most powerful nation on Earth and it just can't walk away from the Middle East and central Asia and the Horn of Africa.
+- Well, the reports are correct that we're conducting very robust military operations on the Afghan side of the border in areas where we think al-Qaida is operating and Taliban remnants are.
+- It's also natural in that part of the world to blame what people view as the... as the most important authority in the region, and that currently is the United States of America.
+- So, these political activities will create friction in and of themselves, and in this environment of friction there'll be additional violence.
+- But my Arabic is pretty good. It's good enough to have conversations with people, to understand what they say, to understand what they're feeling.
+- We need to make it very clear to the Iranians, the same way we made it clear to the Soviet Union and China, that their first use of nuclear weapons would result in the devastation of their nation.
+- I don't believe Iran is a suicide state.
+- Being on the run, having to change the way that you do business, being unable to plan in a safe and secure environment, always looking over your shoulder, knowing that some day somebody's going to knock on your door and it's going to be your last.
+- Everybody needs to understand that I learned Arabic from the United States Army as a second language. I never spoke it at home.
+- We've got to ensure that the quality and the capability of these forces will be good enough to withstand the challenges that the insurgents and the terrorists will present to the new Iraqi government.
+- Morale is good; troops are confident; leaders are capable.
+- And so I think that if the person has the funds, the network, and the equipment to do this, and also the experience, which is the key factor, then they can be quite deadly.
+- But clearly the fact that we've gone from zero Iraqi security forces on duty in May to up to 200,000 today is an enormous accomplishment, but it's not enough.
+- Capturing any member of any terrorist cell or any insurgent cell that we may happen to come across is always very, very valuable, and the thing that interests me is that in most instances after a time, people talk and they tell us what they know.
+- Well, the hardest thing to do, as we know from our own experience on 9/11 is protect everything all the time.
+- We'll try to include Iraqi officers in our staffs. We will do everything we can to empower Iraqi security forces to stand up on their own and operate where they can alone.
+- As far as Zarqawi is concerned, there is a network of extremists; it's not just Zarqawi.
+- You don't build a new power plant in the United States overnight. It takes years to build.
+- I think what actually works best is local-level individual targeting of key leadership nodes.
+- You know as well as I do that counterinsurgency is a very nuanced type of military operation.
+- In other words, for every 10 enemy you kill you bring on 20 new recruits to their anti-coalition cause then essentially you are working against yourself.
+- I think you will see a lot of strains develop in the political process that will result in violence everywhere in the country - but it's controllable, it's workable and it will lead to a much better future for these people.
+- Undoubtedly, there are members of the former regime that are cooperating in some fashion and then there are extremists that are within Iraq that are cooperating with them.
+- Oh, the transition concerns me because as we move towards an important political event, it's clear to me that the terrorists and insurgents will move as hard as they can to disrupt this process.
+- But the key shift in focus will be from counter-insurgency operations to more and more cooperation with Iraqi security forces and to building Iraqi security capacity.
+- But I am satisfied that the information that we have that this is the work of Zarqawi, is accurate.
+- Certainly our goal is to leave Iraq, but we can't leave Iraq with our forces until we know that the Iraqi security forces are capable and efficient enough to defend the sovereignty of the nation.
+- Our forces will not be on the sidelines.
+- It's clear to me now that we've got to reach out to the Arab Sunni community in particular in an effort to cause some moderate political activity to take place so they join the future of Iraq.
+- But all that having been said, you can't, in a city of a million people like Karbala, or 5 million like Baghdad, you can't be in all places at all times.
+- Every American soldier wants as much public support as he can possibly have. That's the soldiers on duty in Iraq, and that's me, as well. We fight better knowing that our people back home support us, back us, and understand what we're doing. It's hugely important.
+- The power to prevent violence is a power that no police force seems to have anywhere in the United States.

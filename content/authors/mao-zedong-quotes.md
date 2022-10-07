@@ -1,0 +1,45 @@
++++
+author = "Mao Zedong"
+title = "Mao Zedong Quotes"
+quotes_len = "39"
+description = "the best 39 Mao Zedong Quotes"
++++
+- Investigation may be likened to the long months of pregnancy, and solving a problem to the day of birth. To investigate a problem is, indeed, to solve it.
+- The guerrilla must move amongst the people as a fish swims in the sea.
+- I voted for you during your last election.
+- War can only be abolished through war, and in order to get rid of the gun it is necessary to take up the gun.
+- In time of difficulties, we must not lose sight of our achievements.
+- To read too many books is harmful.
+- Let a hundred flowers bloom.
+- Political power grows out of the barrel of a gun.
+- In general, any form of exercise, if pursued continuously, will help train us in perseverance. Long-distance running is particularly good training in perseverance.
+- Learn from the masses, and then teach them.
+- Despise the enemy strategically, but take him seriously tactically.
+- There is a serious tendency toward capitalism among the well-to-do peasants.
+- Political work is the life-blood of all economic work.
+- Letting a hundred flowers blossom and a hundred schools of thought contend is the policy for promoting the progress of the arts and the sciences and a flourishing culture in our land.
+- We think too small, like the frog at the bottom of the well. He thinks the sky is only as big as the top of the well. If he surfaced, he would have an entirely different view.
+- Once all struggle is grasped, miracles are possible.
+- Enable every woman who can work to take her place on the labour front, under the principle of equal pay for equal work.
+- An army without culture is a dull-witted army, and a dull-witted army cannot defeat the enemy.
+- All reactionaries are paper tigers.
+- The cardinal responsibility of leadership is to identify the dominant contradiction at each point of the historical process and to work out a central line to resolve it.
+- Classes struggle, some classes triumph, others are eliminated. Such is history; such is the history of civilization for thousands of years.
+- I have witnessed the tremendous energy of the masses. On this foundation it is possible to accomplish any task whatsoever.
+- Politics is war without bloodshed while war is politics with bloodshed.
+- We shall heal our wounds, collect our dead and continue fighting.
+- Weapons are an important factor in war, but not the decisive one; it is man and not materials that counts.
+- In waking a tiger, use a long stick.
+- Swollen in head, weak in legs, sharp in tongue but empty in belly.
+- Passivity is fatal to us. Our goal is to make the enemy passive.
+- The differences between friends cannot but reinforce their friendship.
+- People like me sound like a lot of big cannons.
+- The people, and the people alone, are the motive force in the making of world history.
+- There is in fact no such thing as art for art's sake, art that stands above classes, art that is detached from or independent of politics. Proletarian literature and art are part of the whole proletarian revolutionary cause.
+- Women hold up half the sky.
+- A revolution is not a dinner party, or writing an essay, or painting a picture, or doing embroidery.
+- If you want to know the taste of a pear, you must change the pear by eating it yourself. If you want to know the theory and methods of revolution, you must take part in revolution. All genuine knowledge originates in direct experience.
+- Communism is not love. Communism is a hammer which we use to crush the enemy.
+- Let a hundred flowers bloom, let a hundred schools of thought contend.
+- Genuine equality between the sexes can only be realized in the process of the socialist transformation of society as a whole.
+- The atom bomb is a paper tiger which the United States reactionaries use to scare people. It looks terrible, but in fact it isn't.

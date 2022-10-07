@@ -1,0 +1,77 @@
++++
+author = "Molly Bloom"
+title = "Molly Bloom Quotes"
+quotes_len = "71"
+description = "the best 71 Molly Bloom Quotes"
++++
+- I've seen what power women have in unification, and I would love to create co-working spaces and networks for female entrepreneurs.
+- I believe that to get what you want as a woman is to use your brain, to have a job, and to not need someone or have to make decisions based on that.
+- Getting the book published and the movie made was not an easy task. But it helped. Because even though it's a difficult life to explain, I lived it.
+- In sports, especially skiing, you have to be comfortable with risk. You have to have a relationship with fear, and it can't dominate the decision-making process.
+- I did a little soul searching to explore where I had gone wrong, why I made the decisions I did, how my definitions of success and ambition were off. I love a great new pair of shoes - I love to look at my bank account and see zeroes - but what is it attached to?
+- I saw someone lose $100 million in one night. When you watch that, as an owner-operator of a game, you realize that these numbers are incredibly unsustainable, incredibly unhealthy. So, I was not happy about this loss. It brought me no joy or adrenaline.
+- In 2009, my tax returns showed over $4 million.
+- My mom had put her house up to bail me out of jail!
+- I think everyone can relate to that fall from grace - having life change in an instant or having to stand for some of your bad choices, that feeling of 'Nothing is ever going to be good again.'
+- Money is the great equalizer.
+- You can tell a lot about a man's character by watching him win or lose money.
+- Know when to fold. Pay attention to the signs. They're there.
+- Even if there are people around to help you, you don't suffer with an audience; you don't triumph with an audience.
+- Being humble got me very far when I went to L.A., because it was in stark contrast to this town of people who were so cutthroat.
+- I don't think anyone's private life stands up to public scrutiny.
+- Everyone has their dreams and their rise and their own version of a fall from grace.
+- Every card player in Hollywood wanted to come to the games. Everyone's friends and their friends wanted to come to watch.
+- I made the choice to go into the world of underground poker.
+- I hang out with my grandma, go to sleep at 8:30, and that's it.
+- I think, before I had money, I believed that money would solve my problems, that it would give me power and I wouldn't have financial stress anymore, and it would completely change my life. And then, when I had money, it changed a lot of things, but it didn't change the way I felt inside at all.
+- I built the most exclusive and decadent high-profile club for powerful men.
+- The human spirit is so resilient, and failure teaches you so much.
+- I think my dad really wanted me to survive the world. He knew as a psychologist how difficult the world is, and I think he wanted me to be tough.
+- You're going up against the billionaire boys' club or trying to find your way into something you have no basis for, and it's bigger than anything you ever imagined - and then actually having that work. Having that risk pan out. It taught me to be very fearless - maybe too fearless in the end.
+- I don't really miss the Hollywood lifestyle.
+- I grew up in a very high-achieving family. I have a brother who's a Harvard-educated cardiothoracic surgeon. My other brother is a two-time Olympian, fifth-round draft pick for the Philadelphia Eagles, and an entrepreneur and philanthropist.
+- I've always been very ambitious and very determined and very compassionate at the same time.
+- I moved to Los Angeles. My parents were not on board with that, and so I had to get a lot of different jobs. One of them was working for a man in Hollywood who had a weekly poker game.
+- Tobey Maguire and I had a tough relationship - it was a tough working relationship. We butted heads, and ultimately, I lost the Los Angeles game because of differences with him. But then I moved to New York and built a bigger game, five times bigger, making more money, and that was pretty exciting.
+- I believe that refusing to quit and refusing to fail will trump talent and brilliance in the end.
+- Look at the things you've done and ask for forgiveness. After clearing out that wreckage from the past, you can move forward, in a way, to keep your finger on the pulse.
+- Literally, if you weren't the best in the world in my family, it wasn't impressive.
+- Life is about making choices, seeing those choices through, and living through consequences.
+- Because of athletics, I got real comfortable with risk at a young age.
+- The chemistry at a table is so important. You must start with a carefully balanced mix of personalities. If the balance is off, and the stakes are too big for some of the players, it kills the game. Too small, and everybody gets bored.
+- After I quit the U.S. Ski Team, there was a fair amount of, you know, grief that follows that, and I just wanted to take a year off. And I had a friend that lived in Los Angeles, said I could crash on his couch. And so I just kind of did the first really spontaneous thing I'd done in my young adult life.
+- I was in the company of movie stars, important directors, and powerful business tycoons. I felt like Alice tumbling down the rabbit hole.
+- You're as sick as your secrets, and my whole life was a secret, so it's just... it's been really healing, and I've found a lot of inner peace by just owning everything and moving forward from there.
+- Tobey Maguire was the worst tipper, the best player, and the absolute worst loser.
+- High stakes, low stakes, poor or rich - people will find a way to gamble.
+- I think my gift lies in being a startup entrepreneur and creating environments and experiences.
+- In terms of my own life and the mistakes I made and the struggles I had, I'm grateful for them. It taught me more than success and opportunity ever did.
+- The motivations I had for being successful were somewhat dysfunctional.
+- I'm definitely a gambler, as exemplified by the massive risks I've taken.
+- I created a lot of drama and mess in my life.
+- I'm really kind of a behind-the-scenes person.
+- I've been rich; I've been poor. I've been successful; I've been decimated. And the way I felt inside didn't change dramatically. It's less stressful to have money, that's for sure. But that doesn't mean I felt fulfilled. So I've learned to live in the smaller moments of life.
+- I'm all about second chances.
+- I developed an interesting skill set in that I was able to create a network and create experiences and environment - I built this decadent playground for men. It might have been successful, but it wasn't important. It didn't have any true meaning.
+- When you're willing to play poker for two days and lose millions of dollars, it's no longer recreation. It's taking over.
+- I have been hugely successful at times in my life, and I have also been in ruins. But the lessons I learned on the way up were just as valuable on the way down.
+- This was 2008, you know. The economy was falling apart, spiraling. And I was hosting a game in New York, and there was $5 to $7 million on the table.
+- I made a lot of mistakes.
+- I would love to raise a fund or get some awesome empowered women together and put together an advisory board to get behind female entrepreneurs.
+- I kept these games pretty intimate. You know, with this much money on the table, with this much risk, you wanted to make people feel safe. They don't want to feel like they're part of a spectator's sport - well, the winners do, but the losers do not.
+- When I was making the most money at the top of my game, driving Bentleys and all that, I felt so existentially empty.
+- I logged into my bank accounts, and they were all seized, all frozen. So that was a pretty clear indication that I was in big trouble.
+- I was bankrolling the games, vetting the players, extending the credit. My life was really stressful.
+- I lived across from a cornfield when I was growing up.
+- It took me three and a half years to go from being sentenced in federal court to going to the Oscars.
+- Ideally, I would like to not be in the public eye.
+- I felt invisible in my family, and I wanted to be significant like my brothers were significant. I wanted my parents to pay attention, so I went out into the world with that driving me, that grasping, that seeking validation.
+- I had a full-time driver, or I would take my Bentley. I'd have big houses in the Hamptons for the summer, taking seaplanes or helicopters out. I did a lot of flying privately to Miami. A lot of shopping.
+- I'm finally my dad's favourite because Kevin Costner is playing him.
+- My regular game in New York City was a $250,000 buy-in, no limit. So people were burning through that, a lot of times in the first 30 minutes.
+- I know for sure that you have to re-define power as power that comes from within. Success needs to be more comprehensive and attached to something with meaning.
+- I'd spent life so terrified of failure that when it happened, it was very liberating.
+- My father is a psychologist who wouldn't let fear stop us. Particularly with me, he was hell bent on requiring us and teaching us to walk through fear. I don't know if I would've become someone who taps into their ability to push through those tough situations without him.
+- When I'm in a hectic crowd of people, I don't feel great. I'm looking over my shoulder. I feel exposed.
+- I believed that writing my story was my best shot to be able to pay my mom and my attorneys back and pull myself out of this massive crisis that I had put myself in.
+- I approach everything, including sobriety, with the same mentality I approached sports with. You're going to put in the time. You've got to suit up, show up, and keep your eyes on the win.

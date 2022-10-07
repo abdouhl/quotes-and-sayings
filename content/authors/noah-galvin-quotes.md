@@ -1,0 +1,16 @@
++++
+author = "Noah Galvin"
+title = "Noah Galvin Quotes"
+quotes_len = "10"
+description = "the best 10 Noah Galvin Quotes"
++++
+- Since I was a child, I've been playing children. When I was little, I was the kid that you'd hire to do the reading or workshop of your new material.
+- I think Matt Shively is one of the funniest humans in the world.
+- I'm an actor and I'm able to do a lot of things and play a lot of characters.
+- Because I'm a good reader, I'm a confident actor.
+- I was always playing the weird best friend.
+- I don't have like 30 IMDb credits. I have one.
+- I think holiday spirit can mean many things and I think holiday spirit is just sort of your state of happiness during the holidays. You could say the same thing about spring spirit or summer spirit.
+- Auditioning is a skill. There are actors who are not very talented but know how to audition and know how to be really confident in the room and are confident enough to be able to charm the pants off anybody.
+- I stopped eating dairy; it's hard, being from New York I have a soft spot in my heart for pizza.
+- I want to do everything. I just want variety and longevity. I've never filmed a movie before, I want to do that. I want to come back to theater at some point. But I was in New York for like ten years, grinding. I'm ready to be in L.A. for a little while, and really experience film and television.

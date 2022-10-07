@@ -1,0 +1,25 @@
++++
+author = "Justin Guarini"
+title = "Justin Guarini Quotes"
+quotes_len = "19"
+description = "the best 19 Justin Guarini Quotes"
++++
+- The film I think was a good film for what it was designed for. It was for kids. Unfortunately the critics slashed it before it even started but that is just the way the cookie crumbles.
+- For the second album I look forward to doing a lot of serious collaboration and taking the experiences I've had over this last year, good and bad, and working it into the album.
+- I've been working on something, just some jazz, relaxed stuff. It will be standard, just piano and voice. It started out as a fun project for me though, I'm still not sure about releasing it.
+- With Whitney she has such a unique sound and powerful instrument that she made those songs her own. She might as well have written them because she brought such a power and passion to them that were very unique. She has a great gift.
+- Jazz is not the format where I want to stay, but it really is a starting point for me.
+- I'm not unknown, yet I'm not super famous where I can't go anywhere.
+- And it's not a finger-pointing issue to me; I take as much responsibility as I can. It was more just me not really knowing what I wanted to do and how to get it done.
+- I am very conscious of what I say and do when I go out because the media is quick to make that a story.
+- I'm very new to the industry. I'm not on the Billboard 200 and that is alarming to me. But when I sat down with my management they said it's not a big deal and that it happens all the time.
+- Directly after the show people might have responded better to it, but who really knows. It did what it did and while it seems like a failure to most but it was a success for me and has given me so many opportunities.
+- The one thing I seek above all else is understanding. Sometimes I'm so frustrated and I don't get it. But I'm lucky to have a good management team and people around me who explain things and answer my questions.
+- Success is like a high-rise building I'm on the first floor. There are a lot of people in the basement or the parking lot but I was lucky enough to have made it to the first floor and I'm looking to make it to the penthouse.
+- They look at what's more important, like subjects to help with the SAT's, etc. They miss that music is vital. It offers a break from a stressful day of science and math and it's different.
+- I would love to be like a Brian McKnight. Shoot, I'd love to be Brian McKnight.
+- When you have a very hot single there is no reason why it can't drive album sales. People fall off and come back on. I'm looking forward to coming back on with a vengeance.
+- There is a fine line between assertiveness and being relaxed.
+- There are a million things I can think of that I would I want to do. Reporting like you, would be one. A talk show host maybe, also. I want to do a lot.
+- Even though other people wrote my songs I put my stamp on them. I have a connection, but there is no truer connection than an artists and their own song.
+- Either positive or negative comments are good because it shows I am still relevant.

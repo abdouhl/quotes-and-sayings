@@ -1,0 +1,15 @@
++++
+author = "Mike Medavoy"
+title = "Mike Medavoy Quotes"
+quotes_len = "9"
+description = "the best 9 Mike Medavoy Quotes"
++++
+- The entertainment business is and always has been about money, and it's about, 'Does that person merit that salary?' The fact is that that the business, in my view, has been somewhat bankrupt for years - only the new media made it viable.
+- The Constitution separated the ideologies and values of the Church from the State, and leaders of the State were thus educated in matters pertaining to the State. These leaders proved themselves time after time with their pragmatic intellectual capacities.
+- I have lived the American dream, and that is the dream I want for our children and all children everywhere.
+- During the Clinton administration, America's image was that of a strong, confident and kind world leader.
+- Calling oneself a hero after making mistakes shouldn't earn public trust.
+- It is an oftentimes dangerous world, and not all of the people in it are nice, sweet and benevolent. It is the nature of man to behave otherwise, and we must find leaders who can show us a better way and still maintains a balanced view.
+- I am a legal immigrant whose parents went from Russia to China to Chile to finally reach the United States and thereby give me a chance to have a better life. I served six years in the U.S. Army Reserve, went to college, have a successful career and have dedicated my life to being a good citizen.
+- The forefathers of the United States were children of religious bigotry and persecution, and, as a result, fled Britain to create a new approach to life and government. They valued intellect and education. In fact, they outlined the principles of the United States' democracy to establish intellectual freedom from the Church.
+- We can't allow our leaders to play the old 'do as I say, not as I do' game.

@@ -1,0 +1,16 @@
++++
+author = "Masahiro Tanaka"
+title = "Masahiro Tanaka Quotes"
+quotes_len = "10"
+description = "the best 10 Masahiro Tanaka Quotes"
++++
+- I don't speak English, so I'll just have to win the trust and confidence of the fans with my performance on the field.
+- I really didn't have one particular athlete I liked growing up.
+- For me, it's just going up on the mound and trying to get outs.
+- I don't look at myself as one of the best pitchers in the world.
+- I watch golf, just looking at the pros, and I'm in awe of how they play. Not one particular player - maybe all the players.
+- Every time I take the mound, I try to win. So that's what I'm trying to do.
+- I do feel very honored to get all this attention. Basically, what I need to do is to go out there and perform. That's what I'm intending to do.
+- I do want to learn the way to do it over here. I'm not really looking to just go about my way and do it in the Japanese way that I've been doing. Basically, I'll try to get some advice, learn the way it's done here and go about it.
+- I give everything I have every time I take the ball. With that, I also know that there will always be a risk of injury when playing this game that I love.
+- I just go into a game and try to look at the situation and what needs to be done. I try to execute.

@@ -1,0 +1,43 @@
++++
+author = "Marilu Henner"
+title = "Marilu Henner Quotes"
+quotes_len = "37"
+description = "the best 37 Marilu Henner Quotes"
++++
+- Foods high in bad fats, sugar and chemicals are directly linked to many negative emotions, whereas whole, natural foods rich in nutrients - foods such as fruits, vegetables, grains and legumes - contribute to greater energy and positive emotions.
+- Being in control of your life and having realistic expectations about your day-to-day challenges are the keys to stress management, which is perhaps the most important ingredient to living a happy, healthy and rewarding life.
+- However, don't let perfectionism become an excuse for never getting started.
+- I also think stress is related to control. When you're in charge of your life, you tend to not care about losing control of things that don't really matter like traffic jams.
+- I eat all of the time... at least five little meals a day.
+- I love the producer, Joel Rice. We worked together years ago putting a project together.
+- It took me about eight years to put together the program that I have been living for twenty years.
+- I like getting up early. I get up around five.
+- We tend to connect bad food and bad habits with romance and sex.
+- Feeling a little blue in January is normal.
+- The biggest reason most people fail is that they try to fix too much at once - join a gym, get out of debt, floss after meals and have thinner thighs in 30 days.
+- You know, one of the biggest thrills I have is when famous people recognize me from Taxi.
+- If I'm right in the middle of a deadline, I'm up really early.
+- I totally changed my life, changed my lifestyle.
+- I took anatomy classes. I went to medical libraries and talked to doctors and nutritionists. I did the whole thing before using myself as a human guinea pig.
+- The more prepared I am, the more I'll be in control, less nervous, less stressed and more focused.
+- I always say centered food equals centered behavior.
+- Most of us start out with a positive attitude and a plan to do our best.
+- Silence and solitude are more distracting to me than chatter and commotion.
+- Research has shown that even small amounts of processed food alter the chemical balance in our brain and cause negative mood swings along with noticeable dips ill energy.
+- I'm a girl who loves to share information, especially empowering, life-changing, information.
+- It's important to determine which surroundings work best for you, and then build that environment to suit your needs.
+- Because I work with so many people on the east coast, I get some work done before I get the kids up.
+- Resolutions are popular because everyone feels they could use a little improvement.
+- Lack of time is a real health killer.
+- Often when a person can't get past stress, she will turn to overeating, drinking or smoking, which can become a greater problem than the stress itself.
+- Stress is an important dragon to slay - or at least tame - in your life.
+- I play the unsinkable Molly Brown, which is where she got her name from, because she survived.
+- It is now common knowledge that the average American gains 7 pounds between Thanksgiving and New Year's Day.
+- We're always bombarded with images from magazines of what looks cool and sexy.
+- Like it or not, the world evolves, priorities change and so do you.
+- I definitely enjoy being in front of people which gives me that exciting immediate rush.
+- Everyone thrives most in his or her own unique environment.
+- You just have to stoke that furnace throughout the day.
+- When a child is bruised physically or emotionally, parents often reward him with a treat.
+- Babies act out when they're hungry, cold, tired. They do this for survival.
+- Healthful whole foods improve our brain function as well.

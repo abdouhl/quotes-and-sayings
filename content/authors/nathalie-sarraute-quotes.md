@@ -1,0 +1,22 @@
++++
+author = "Nathalie Sarraute"
+title = "Nathalie Sarraute Quotes"
+quotes_len = "16"
+description = "the best 16 Nathalie Sarraute Quotes"
++++
+- One can't write for all readers. A poet cannot write for people who don't like poetry.
+- Those who live in a world of human beings can only retrace their steps.
+- Television has lifted the manufacture of banality out of the sphere of handicraft and placed it in that of a major industry.
+- It's the duty of all novelists, all painters, all musicians, all people who try to make art move: to look for something they feel authentically, without paying attention to styles.
+- Literature is always trying to show other parts of this immense universe in which we live. It's endless. I'm sure there will be other writers who will discover new worlds.
+- All psychological research is completely barred by the interpretations of the psychoanalysts. Everything happens in the unconscious, and I don't know what this unconscious is.
+- I have never sought the reason why I write.
+- One can't write without having read - you have to read before beginning to write - and universities offer a very good opportunity to read.
+- The act of writing is a kind of catharsis, a liberation, but I never really concerned myself with that. I write because it interests me.
+- The reader has to be creative when he's reading. He has to try to make the thing alive. A good reader has to do a certain amount of work when he is reading.
+- The novel moves like all the arts. It's transforming itself all the time.
+- I have often heard that the novel is dead. But I see novels produced, I don't know how many a week, in France. I have the impression it's carrying along quite well.
+- Suspicion is one of the morbid reactions by which an organism defends itself and seeks another equilibrium.
+- It's a question of not copying the masters, to look for something, good or bad, for oneself. To enter this liberated state of mind, one cannot copy the others.
+- Women have seen that they have locked themselves up with feminist writing.
+- I don't admire Freud as much as some people do. Imagine Shakespeare being aware of the Oedipal complex when he wrote Hamlet. It would have been a disaster.

@@ -1,0 +1,26 @@
++++
+author = "Tim Holden"
+title = "Tim Holden Quotes"
+quotes_len = "20"
+description = "the best 20 Tim Holden Quotes"
++++
+- But despite their heroic acts, the Vietnam Veterans of America continued to struggle to establish a combat badge in honor of these brave pilots and medics.
+- A variety of national and international studies indicate that the broad-based deployment of information technology can have a substantial impact on our nation's economic productivity and growth as well as the educational and social success of our citizens.
+- However, lifestyle intervention requires discipline with a tangible end result that is within reach. It requires personal resolve, a lifelong commitment.
+- Acts of anti-Semitism in countries throughout the world, including some of the world's strongest democracies, have increased significantly in frequency and scope over the last several years.
+- Penn State University is also nationally recognized for the exceptional research and patient care provided at the College of Medicine, located in my Congressional District in Hershey, PA.
+- Coal research and development provides huge benefits for the nation, and pay for itself many times over through taxes flowing back to the Treasury from expanded economic activity.
+- Today, diabetes is now epidemic, according to the Centers for Disease Control, the National Institutes of Health, the American Diabetes Association and other national healthcare leaders.
+- One of our priorities should be to reduce our dependence on foreign oil.
+- While approximately one in every 400 children and adolescents have Type I diabetes; recent Government reports indicate that one in every three children born in 2000 will suffer from obesity, which as noted is a predominant Type II precursor.
+- Accordingly, it is our task to ensure that the Government formulates policies that foster the continued development of the IT sector while also providing for citizens' access to technology and opportunity for economic advancement.
+- Chapter 11 is an expensive process that does not accommodate the special needs of farmers.
+- Since its founding in 1854, Penn State has proven to be a leading institution of higher learning.
+- And almost half of American oil consumption is for motor vehicles.
+- We should be increasing research and development into our fossil fuel program.
+- The Holocaust also shows us how a combination of events and attitudes can erode a society's democratic values.
+- The Holocaust illustrates the consequences of prejudice, racism and stereotyping on a society. It forces us to examine the responsibilities of citizenship and confront the powerful ramifications of indifference and inaction.
+- For over 15 years, through the clean coal programs of the Department of Energy, the Federal Government has been a solid partner, working jointly with private companies and the states to develop and demonstrate a new generation of environmentally clean technology using coal.
+- Here in the United States, we have between 250 and 300 years of a coal supply. That is more than the amount of recoverable oil contained in the entire world.
+- Penn State has also continued to be a leader in Pennsylvania's largest industry: Agriculture.
+- In 1997, the National Bankruptcy Review Commission recommended that chapter 12 of the Federal Bankruptcy Code, the chapter that contains bankruptcy protection for family farmers, be made permanent.

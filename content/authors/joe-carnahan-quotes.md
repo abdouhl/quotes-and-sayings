@@ -1,0 +1,51 @@
++++
+author = "Joe Carnahan"
+title = "Joe Carnahan Quotes"
+quotes_len = "45"
+description = "the best 45 Joe Carnahan Quotes"
++++
+- It's like I don't have any one genre, I guess. I think you'd be hard-pressed to get me into a rom-com, but who knows?
+- I look at Las Vegas, and I see the absolute best of what we are as Americans, and I see the absolute worst, in the same city.
+- I did a pilot for Fox years ago called 'Faceless,' with Sean Bean. I always thought it was such a cool show because it was really raw. I thought we were pushing it. This was back at a time before there was the 'cable standard.'
+- I hope I can become a good enough filmmaker where I can take a script that I'm not 'heart and soul' into, but I could still make something really great out of it.
+- In terms of big spectacle, I thought 'Captain America 2' was phenomenal. I really loved that movie, and it was a great movie as a stand-alone.
+- You can't stand at the Bellagio and watch these seven story fountains and not go, 'That's something of extraordinary man-made beauty.'
+- I don't know if I'm the most religious guy, but I think I'm a spiritual man, and these are the things I think about a lot. In terms of the film, I think 'The Grey' is very much a non-denominational kind of film. I don't think it's something that relies on a particular religious bent to tell the story.
+- With 'The A-Team,' it was like, 'Alright, I'm going to do a big popcorn movie and see how that feels.'
+- I can never kind of fathom a character's journey beyond the moment when you go to black, any more than when people ask me what Jason Patric did with the tape recorder at the end of 'Narc,' you know what I mean? Even in 'Blood, Guts,' like, what happens down the road with these characters?
+- I'll spend the rest of my life chasing that feeling I had on 'The Grey,' because I think we're all aware that, first and foremost, we were having an adventure, and we were also making this movie at the same time.
+- 'The A-Team' compared to making 'Narc' was a breeze. There's a whole other skill set and whole other kind of bone structure that goes into making a movie like 'Narc' versus 'The A-Team.'
+- I love the ambiguous kind of endings. I think, oftentimes, that's what life really is - there's no concrete path for you to take. It's always kind of a jumble of variables. Behind this door could be a beautiful woman, and behind the same door could be a tiger, you know? You don't know.
+- I always look for... hopefully look for a challenge. And you're always looking for the next summit to hit. Even if it's a personal one. It needn't be some great sense of monumental... It just has to be important to you and big enough and special enough and individual enough that you get up for it. And that can be anything.
+- To be honest, most of the time you leave the theater, and you're like, 'Well, that was nice, but where did I park?' It doesn't really stick with you.
+- So much of Hollywood is this kind of overly machismo, nonsensical view of masculinity, which I just don't find honest. I think it's this idea of - you know, we're told, well, 'Be a man, be a man.' But what does that mean, exactly? Does that mean you can't carry yourself with any fear? That you can't acknowledge that you're scared?
+- On 'State of Affairs,' we're going after some names that you wouldn't think would traditionally do TV. A show that shoots in Los Angeles is such a rare bird in hand that I think we're gonna have the pick of the litter.
+- I got 'The Grey' made because Liam Neeson wanted to make that movie.
+- 'Killing Pablo' to me - as much as I love 'The Grey''s script - 'Killing Pablo' to me is the best thing I've ever written.
+- If 'The Blacklist' taught me anything, it was kind of open-ended intrigue and leaving questions unanswered. Creating this kind of mystery by virtue of depriving the audience of these easy answers was what I was kind of into.
+- Early '90s, I was big, big into Sinatra. I was in college. I was fascinated.
+- If I can do a romantic comedy with women, that's Everest to me.
+- I obviously love 'The Grey'; that was a pleasure to make. It was also very difficult. Listen, I love 'Smokin' Aces.' That was a lot of fun to make. Completely different part of your brain, I guess. Some would argue the part that they don't want you to use.
+- I always thought that as much as I love 'White Jazz,' it became almost unfilmable at some point, because there are so many strands, so much, and it became so psychotic... that's what made it such a great book, but those things would not carry over into the filmic realm, I thought, with ease.
+- As much as I love Antonioni films, I love the Three Stooges.
+- Be open-minded and available to everything and not just saying it's Jesus Christ or bust. So much of the world will do that. I find it troubling... Don't be dogmatic.
+- 'Raising Arizona' is maybe my favorite comedy of all time. What's great about it is that as slapstick as it gets, it has great moments of emotion and caring. Them bringing the baby back and Trey Wilson's character. I love that, man.
+- I guess I much prefer the path of the contrarian: the guy who goes against the grain a bit. The careers of the people who I admire deeply - like the Coen brothers and Soderbergh - don't repeat themselves, and they make radically different films at times, and I think that's wonderful.
+- To me, still my favorite 3D film is 'Dial M for Murder.' I thought that was great. Hitchcock used it, could put you in the room, which I thought was fantastic, but I'm still not a devotee of 3D.
+- There's a vast difference between marketing a movie and the movie itself. You try to cast as wide and broad a net as possible.
+- 'The Blacklist' was really right place, right time. I read the script and met with Jon Bokenkamp, John Eisendrath, John Fox and John Davis, and we just hit it off. They understood that I was not so much trying to adapt to television, but adapt a cinematic style to the things that we were gonna do.
+- My hope, my real hope, is that whatever you hold in your heart, whatever you truly believe, and you've put your faith in, that that's what 's waiting for you. I think that'd be wonderful. You know what I mean? I think that would be the culmination of the life of the devout, or the believer.
+- In TV, you can carve out a beautiful little niche like 'Breaking Bad' did. Like 'The Wire' did. Like 'Homeland' did.
+- I don't conduct my career for when I'm dead and people say nice things about me. I conduct my career for the here and now, and what excites me, and what interests me.
+- I was not a gigantic fan of 'The A-Team' as a kid. I was a huge 'Miami Vice' fan. So for me, not necessarily to say that I put a 'Miami Vice'ish spin on 'The A-Team,' but for me, what I was most intrigued by was this notion of these four guys, these four kind of special operators.
+- Regardless of the medium, be it television or feature or documentary, I'm not gonna distinguish and worry about my particular canon, whatever that means.
+- I am fascinated by that notion of people are never as they seem. And that doesn't make them good or bad. It's just we don't ever really show ourselves if we don't have to.
+- I'm pretty rigorous about the drafts I turn in. I don't turn in something that's so ungodly they go, 'What the hell is this?'
+- There's a duality of a guy calling on God: 'Where are you when I need you?' and then, at the same time, 'God helps those who help themselves.' I think that contradiction does exist in all of us, those of faith and those who profess to have no faith.
+- If I was ever gonna remake a Peckinpah film, it would be 'Bring Me The Head of Alfredo Garcia.' That's my favorite Peckinpah film.
+- I have a very warm feeling about Kickstarter 'cause I think it's the best of what we can be. It's people who actually help out our fellow artists. We actually kind of go into our pocket for something. It's very rare.
+- I think as a filmmaker and as a director, you shortchange yourself if you inhibit the ability of your actor to bring their own personal experiences to the characters.
+- To me, the bones of 'Smokin' Aces' is in the Coen brothers. 'Barton Fink' and 'Raising Arizona.' Those two movies, if you look at them, that's where a lot of that comes from.
+- I wish I'd made 'Warrior,' and I wish I'd made 'Drive.'
+- Think about a guy like Bob Mitchum, with his kind of chest gut not defining itself one way or the other. Was there anybody tougher? Lee Marvin was a marine sniper during the Second World War. They had this sense of themselves, and they had this product of being a man in a masculine way.
+- There's a film that I wrote that I want to do called 'The Grey,' which is about a group of pipeline workers in Alaska flying back into civilization after being remote for a number of months. The 737 they're on goes down, and they begin to be hunted by a pack of rogue wolves.

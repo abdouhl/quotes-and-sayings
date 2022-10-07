@@ -1,0 +1,172 @@
++++
+author = "Joe Biden"
+title = "Joe Biden Quotes"
+quotes_len = "166"
+description = "the best 166 Joe Biden Quotes"
++++
+- Here at home, when Americans were standing in long lines to give blood after the attack on the World Trade Center and the Pentagon, we squandered an obvious opportunity to make service a noble cause again, and rekindle an American spirit of community.
+- I'm not big on flak jackets and tie-dyed shirts. You know, that's not me.
+- When the stock market crashed, Franklin Roosevelt got on the television and didn't just talk about the princes of greed. He said, 'Look, here's what happened.'
+- In my neighborhood, when you've got something to say to a guy, you look him in the eye and you say it to him.
+- Other than being crazy enough to press a button, there is nothing that Putin can do militarily to fundamentally alter American interests.
+- This nuclear option is ultimately an example of the arrogance of power.
+- The Iraqis have become invested in their nationhood.
+- Barack Obama is probably the most exciting candidate that either the Democratic or Republican party has produced at least since I've been around. He's fresh, he's new, he's insightful.
+- The American public's a lot more sophisticated than we all give them credit for. And on complicated issues, I'm going to give them straight answers. And if it takes more than three minutes, I'm going to do it.
+- It is my view that we cannot conduct foreign policy at the extremes.
+- My dad always said, 'Champ, the measure of a man is not how often he is knocked down, but how quickly he gets up.'
+- Income inequity has to be addressed.
+- Look, freedom is an overwhelming American notion. The idea that we want to see the world, the peoples of the world free is something that all of us subscribe to.
+- Global energy security is a vital part of America's national security.
+- You are twice as likely to be struck by lightning as you around to be affected by a terrorist event in the United States.
+- America doesn't have health insurance.
+- Let's just be smart this time. I'm looking for smart.
+- I consider myself to be as informed on American foreign policy as anyone in America.
+- I didn't play soccer; I played that other football in grade school through college.
+- No fundamental social change occurs merely because government acts. It's because civil society, the conscience of a country, begins to rise up and demand - demand - demand change.
+- My recollection is - and I'd have to confirm this - but I don't recall paying any money to go to law school.
+- Our future cannot depend on the government alone. The ultimate solutions lie in the attitudes and the actions of the American people.
+- Anyone who's traveled with me to Afghanistan knows why I love this book: 'War,' by Sebastian Junger.
+- You've all seen over the last eight years what President Obama means to this country. He is the embodiment of honor, resolve, and character - one of the finest presidents we have ever had.
+- I have 'Parents' magazine in my home.
+- Abe Foxman has been a friend and advisor of mine for a long time.
+- I have a really close relationship with Mike Bloomberg.
+- Most Americans think there's already universal background checks. They don't understand why there wouldn't be a background check to purchase a weapon.
+- In Delaware, the largest growth in population is Indian-Americans moving from India. You cannot go to a 7-11 or a Dunkin Donuts unless you have a slight Indian accent. I'm not joking.
+- No nation should threaten its neighbors by massing troops along the border.
+- The moral disapprobation of society has an impact on behavior in societies.
+- In my heart, I'm confident I could make a good president.
+- Romania can be a linchpin in delivering gas to its neighbors and even become an energy exporter for its neighbors across Central and Eastern Europe.
+- Unions did in fact build the middle class. And here's what that did. That built the United States of America as we know it.
+- Fighting corruption is not just good governance. It's self-defense. It's patriotism.
+- No one doubts that innocent men, women and children have been the victims of chemical weapons attacks in Syria. And there's no doubt who is responsible for this heinous use of chemical weapons in Syria: the Syrian regime.
+- Given a fair shot, given a fair chance, Americans have never, ever, ever, ever let their country down. Never. Never. Ordinary people like us. Who do extraordinary things.
+- America's experience, like many others, teaches us that fostering entrepreneurship is not just about crafting the right economic policy or developing the best educated curricula. It's about creating an entire climate in which innovation and ideas flourish.
+- Every Republican's voted for it. Look at what they value and look at their budget and what they're proposing. Romney wants to let the - he said in the first 100 days he's going to let the big banks once again write their own rules - unchain Wall Street. They're gonna put y'all back in chains.
+- My dad used to have an expression - 'It is the lucky person who gets up in the morning, puts both feet on the floor, knows what they are about to do, and thinks it still matters.'
+- During the 60's, I was, in fact, very concerned about the civil rights movement.
+- America's commitment to collective defense under Article 5 of NATO is a sacred obligation in our view - a sacred obligation not just for now, but for all time.
+- We're close friends - the American people, the Israeli people, our governments. There's absolutely no daylight - none - between us and the Israelis on the question of Israel's security.
+- ISIS is not an existential threat to something happening to someone in the United States of America. It's a serious problem overseas, but it's confusing and frightening.
+- Folks, I can tell you I've known eight presidents, three of them intimately.
+- You're president, if you conclude my judgment is not the right judgment, I abide by that, but I want an opportunity to have an input.
+- You know, my Grandpop Finnegan used to have an expression: he used to say, 'Joey, the guy in Olyphant's out of work, it's an economic slowdown. When your brother-in-law's out of work, it's a recession. When you're out of work, it's a depression.'
+- We Americans think, in every country in transition, there's a Thomas Jefferson hiding behind some rock or a James Madison beyond one sand dune.
+- I was kind of secretly hoping one of my kids would go out and make a million bucks. So when they put me in a home, at least I'll have a window with a view.
+- I know what I believe, I know what I want to do, and I'm just comfortable saying it, and laying it out there.
+- Failure at some point in your life is inevitable, but giving up is unforgivable.
+- I exaggerate when I'm angry, but I've never gone around telling people things that aren't true about me.
+- For too long in this society, we have celebrated unrestrained individualism over common community.
+- Two million felons have tried to buy a gun and, because of the background check, have been denied.
+- Quite frankly, Russian aggression in Ukraine and its illegal occupation of Crimea remind us that we still have a good deal more work to do to guarantee the strategic vision of a Europe whole, free and at peace.
+- You've got to reach a hand of friendship across the aisle and across philosophies in this country.
+- The devastating punch we took on September 11th still reverberates throughout American society.
+- We're going to be OK because of the American people. They have more grit, determination and courage than you can imagine.
+- I don't say very much I don't really think through. I know that sounds inconsistent with Joe Biden.
+- We don't want two-tier people in America. Those who are legal but not citizens, and citizens.
+- A gaffe in Washington is someone telling the truth, and telling the truth has never hurt me.
+- You should be attacking the carbon emissions, period, and whether it's cap-and-trade or carbon tax or whatever, that's the realm in which we should be playing.
+- Well, I thought the deal was, when you went to work for the government you weren't supposed to make money!
+- Over the objections, where they sound like squealing pigs, over the objections of Romney and all his allies, we passed some of the toughest Wall Street regulations in history, turning Wall Street back into the allocator of capital it always has been and no longer a casino. And they want to repeal it.
+- Don't hold against me that I don't own - that I don't own a single stock or bond. Don't hold it - I have no savings accounts.
+- Nowhere is it written that there must be conflict between the United States and China.
+- Life is a matter of really tough choices.
+- I ran for the Senate six times. And one of the things I know about Senate races off years and on races, and on years, the same as governor's races, is it's all local. It all gets down to what the specific issues in that - in that district or that state is.
+- I have an expression I use as I've gone around the world through my career: 'You never tell another man or woman what's in their interest. They know their interest better than you know their interest.'
+- A diplomatic solution that puts significant and verifiable constraints on Iran's nuclear program represents the best and most sustainable chance to ensure that America, Israel, the entire Middle East will never be menaced by a nuclear-armed Iran.
+- It's overwhelmingly in the self-interest of the United States of America to have a secure, democratic friend, a strategic partner like Israel.
+- There's only one person in this race who will be there, who's always been there for you, and that's Hillary Clinton's life story.
+- I have never left another senator out to dry. Never.
+- Corruption is a cancer: a cancer that eats away at a citizen's faith in democracy, diminishes the instinct for innovation and creativity; already-tight national budgets, crowding out important national investments. It wastes the talent of entire generations. It scares away investments and jobs.
+- The White House isn't the place to learn how to deal with international crisis, the balance of power, war and peace, and the economic future of the next generation.
+- Social Security's not the hard one to solve. Medicare, that is the gorilla in the room, and you've got to put all of it on the table.
+- It is no secret that I believe my son, Attorney General Beau Biden would make a great United States Senator - just as I believe he has been a great Attorney General. But Beau has made it clear from the moment he entered public life, that any office he sought, he would earn on his own.
+- Prime Minister Netanyahu has, as Minister Livni knows, has been my friend for over 30 years. We drive each other crazy. But he has truly been a personal friend for well over 30 years. He acknowledged this.
+- The Qataris have cut off support for the most extreme elements of terrorist organizations.
+- You want to know whether we're better off? I've got a little bumper sticker for you: Osama bin Laden is dead and General Motors is alive. Osama bin Laden is dead and General Motors is alive! Osama bin Laden is dead and General Motors is alive!
+- There's one advantage in having been around as long as I have. Everybody in the Senate knows me, and - I'm going to say something presumptuous, to repeat myself - I think most respect me.
+- I support immediate financial assistance to the newly elected Palestinian president. Now, I don't know what those numbers will be, and I don't know how it's going to be framed.
+- On the way back from Mumbai to go meet with President Xi in China, I stopped in Singapore to meet with a guy named Lee Kuan Yew, who most foreign policy experts around the world say is the wisest man in the Orient.
+- The Middle East is hopeful. There's hope there.
+- I've been waiting over 40 years to come to Cyprus, and it has not disappointed - the birthplace of Aphrodite, the Crossroads of Civilization, and, I might add, a genuine strategic partner to the United States of America.
+- Just talk to me as a father - not what the Constitution says. What do you feel?
+- When we wrote the Constitution, the intention was to give the commander in chief the authority how to use the forces when you authorize him to be able to use the forces.
+- Except for the title 'father,' there is no title, including 'vice president,' that I am more proud to wear than that of United States senator.
+- I used to say to my late wife, 'I have great faith in the American people.'
+- This is absolutely bizarre that we continue to subsidize highways beyond the gasoline tax, airlines, and we don't subsidize, we don't want to subsidize a national rail system that has environmental impact.
+- Putin sought to destabilize Ukraine's economy.
+- There is no inherent power in the office of the vice presidency. Zero. None. It's all a reflection of your relationship with the president. I mean, Kennedy never let Johnson in the office.
+- Folks, you're the reason that the automobile industry is back. Whether it was the wage freezes, the plant closures, folks, you sacrificed to keep your companies open. Because of your productivity, the combined auto companies have committed to invest another $23 billion in expansion in America.
+- Innovation can only occur where you can breathe free.
+- You get a lawyer whether you're in a military tribunal or whether you're in a federal court, number one. The attorney general decided that the court with the biggest - with the greatest venue, with the best jurisdiction was the New York court. That was the right decision to make.
+- We are America, second to none, and we own the finish line. Don't forget it.
+- The Recovery Act is working, but it's going to continue to work. It's not over. A lot's going to happen this summer. And even after the summer, there's more to come with the act.
+- In the 21st century, the countries that thrive will be the ones where citizens know their voices will be heard because the institutions are transparent.
+- As a matter of fact, I didn't make a political speech outside of my state for 20 years.
+- I always wonder when it was that I was embraced.
+- The greatest gift is the ability to forget - to forget the bad things and focus on the good.
+- I can die a happy man never having been president of the United States of America. But it doesn't mean I won't run.
+- The American people are so much stronger, so much more resolved than any enemy can fully understand.
+- Look folks, we know who built this country and we know who is going to rebuild it. It's you. Instead of vilifying you, we should be thanking you. We owe you.
+- Remember, no one decides who they're going to vote for based on the vice president. I mean that literally.
+- I've been really, really fortunate.
+- Corruption is just another form of tyranny.
+- In this world, emotion has become suspect - the accepted style is smooth, antiseptic and passionless.
+- I have no doubt that Russia will and should remain a major source of energy supplies for Europe and the world.
+- In the good old days when I was a senator, I was my own man.
+- In the middle of a recession, where we're just climbing out of it, where the economy -unemployment is still at 9.7 percent, the idea of raising taxes and reducing spending is a prescription for disaster.
+- There's a lot of revisionist history that goes on these days about Iraq.
+- In Romania, American forces have found a devoted NATO ally.
+- I graduated from the University of Delaware with a double major in history and political science.
+- The American people have not become heartless.
+- Let me tell you what I literally told every world leader I've met with, and I've met them all: It's never, never, never been a good bet to bet against America. We have the finest fighting force in the world.
+- Most liberals think of civil liberties as their Achilles heel. It isn't.
+- Well, I was 29 years old when I came to the United States Senate, and I have learned a lot.
+- Arafat's departure has created an awesome opportunity.
+- We didn't crumble after 9/11. We didn't falter after the Boston Marathon. But we're America. Americans will never, ever stand down. We endure. We overcome. We own the finish line.
+- I know I'm not supposed to like muscle cars, but I like muscle cars.
+- I've known and continue to know every one of these major world leaders by their first names, and I have access to them.
+- I was not an activist.
+- I know why we're strong. I know why we have held together; I know why we are united: it's because there's always been a growing middle class.
+- We must rekindle the fire of idealism in our society.
+- I used to stutter really badly. Everybody thinks it's funny. And it's not funny. It's not.
+- El Salvador, Guatemala, Honduras have all agreed to send additional consular officers from Guatemala, from Honduras, from El Salvador, send them to the U.S. border so that we can more quickly and humanely identify unaccompanied children and process their individual removal.
+- Reality has a way of intruding. Reality eventually intrudes on everything.
+- Hillary Clinton is as qualified or more qualified than I am to be Vice President of the United States of America. Let's get that straight. She's a truly close personal friend. She is qualified to be President of the United States of America. She's easily qualified to be Vice President of the United States of America.
+- Presumptuous for me to say, but at least - at a minimum - I've been able to influence the direction of the Democratic Party on foreign policy. And I've been relatively - presumptuous to say - relatively successful legislatively in the Senate, being able to win a lot of Republican friends, and being able to cross the aisle.
+- You know we're going to control the insurance companies.
+- My father used to have an expression. He'd say, 'Joey, a job is about a lot more than a paycheck. It's about your dignity. It's about respect. It's about your place in your community.'
+- The United States, to state the obvious, is greatly concerned by the startling number of unaccompanied minors that - children and teenagers who are making a very perilous journey through Central America to reach the United States.
+- 'Obama and Biden want to raise taxes by a trillion dollars.' Guess what? Yes, we do in one regard: We want to let that trillion dollar tax cut expire so the middle class doesn't have to bear the burden of all that money going to the super-wealthy. That's not a tax raise. That's called fairness where I come from.
+- I believe the American people have a genuine and justifiable fear of government intrusion in what they instinctively know is going to be an ever more intrusive world.
+- But I was amazed at how organized the Palestinian election authority was, how competent they were in setting up their polling places and the poll workers they had.
+- No one ever doubts that I mean what I say. The problem is I sometimes say all that I mean.
+- The United States supports a strong, united Ukraine with productive and peaceful relationships with both the East and the West, with both Russia and Europe.
+- The Chinese have figured out that they have a giant environmental problem. Folks in Beijing, some days, literally can't breathe. Over a million Chinese die prematurely every year because of air pollution.
+- Al Qaeda is almost all in Pakistan, and Pakistan has nuclear weapons. And yet for every dollar we're spending in Pakistan, we're spending $30 in Afghanistan. Does that make strategic sense?
+- For any young democracy, the most difficult but important step is burying the legacy of tyranny and establishing an economy and a government and institutions that abide by the rule of law. Every country faces challenges to the rule of law, including my own.
+- You never make fun of anybody with a club foot or a withered arm, but it's open season on anybody who stutters.
+- There used to be an old bad joke. I hope it's not so much a good joke anymore. 'Everybody's from Scranton; no one's in Scranton.'
+- If you need more than 10 rounds to hunt, and some argue they hunt with that many rounds, you shouldn't be hunting. If you can't get the deer in 3 shots, you shouldn't be hunting. You are an embarrassment.
+- People everywhere in the world are hungry for economic opportunity. And it's about a lot more than being able to make money.
+- I guess every single word I've ever said is going to be dissected now.
+- It's presumptuous to say you know how somebody feels.
+- The only thing I know is I ain't changing my brand. I know what I believe. I'm confident in what I know. And I'm gonna say it. And if folks like it, wonderful. If they don't like it, I understand.
+- If you're in a confined aircraft; when one person sneezes, it goes all the way through the aircraft.
+- No one making less than $250,000 under Barack Obama's plan will see one single penny of their tax raised, whether it's their capital gains tax, their income tax, investment tax, any tax.
+- No nation should stoke instability in its neighbor's country.
+- The 21st century is going to be the American century. Because we lead not only by the example of our power, but by the power of our example. That is the history of the journey of America.
+- There's no political point worth my son's life.
+- Foreign policy is like human relations, only people know less about each other.
+- Putin sought to keep Ukraine weak through corruption.
+- When you go to your local police officer, your police chief in the town you live in, big or small, he will tell you the vast majority of the weapons recovered at a crime scene are either stolen weapons, and/or they have been 'lost' or stolen.
+- If I don't run for president, we'll all be OK.
+- I love that Cadillac ATS!
+- When my first semester grades came out, my mom and dad told me I wouldn't be playing football.
+- People should not be in a position where their children have access to weapons and ammunition.
+- You're looking at a middle-class guy. I am who I am.
+- No matter how you cut it, this real debate on personal accounts is about the legitimacy of Social Security; it's not about the solvency of Social Security.
+- The effects of climate change are real and must be acted on.
+- One of the things I've never been accused of is not caring about people.
+- Now, people when I say that look at me and say, 'What are you talking about, Joe? You're telling me we have to go spend money to keep from going bankrupt?'. The answer is yes, that's what I'm telling you.
+- Saudi Arabia has allowed training on its soil of American forces.

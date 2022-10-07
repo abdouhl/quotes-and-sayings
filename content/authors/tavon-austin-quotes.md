@@ -1,0 +1,88 @@
++++
+author = "Tavon Austin"
+title = "Tavon Austin Quotes"
+quotes_len = "82"
+description = "the best 82 Tavon Austin Quotes"
++++
+- For a minute, I thought I had a learning disability.
+- I'd like to be two inches taller, but it just ain't happening.
+- At the end of the day, I'm a playmaker. That's how I describe myself.
+- Now I think since I've hit the scene and did a little bit more, other teams are saying I'm one of the guys they have to stop.
+- The league is changing. There are a lot more small receivers now. I could see myself maybe in a slot like Wes Welker.
+- I don't care what I'm being called as long as I'm playing, that's all that matters. You can call me anything you want as long as I'm playing.
+- I'm about the wins and any time I get to touch the ball, hopefully I can make something good happen with it.
+- I've been a little guy my whole life.
+- I'm just the type of guy who wants the ball in my hands any type of way.
+- It feels good that teams appreciate my versatility and think that I can step in and be that player, making plays all over the field.
+- If you talk to my former coaches, they'll tell you that I'm really smart on the football field.
+- For me, it's more about the mental game, learning coverages, learning the whole offensive playbook.
+- I've never really been in a steady place.
+- I kinda motivate myself and keep me on my toes.
+- A lot of people told me the NFL would never happen, but I didn't listen to them.
+- Combine speed is overrated. It might give you a good look to see what you can run in a straight line, but football's not played in a straight line.
+- I'm cool with it, running back, receiver, punt returner, it really doesn't make a difference to me.
+- I might not be producing that much with the ball in my hands, but my fakes, my jet sweeps, it's doing numbers, and that's the main thing about it.
+- I'm a true running back at heart, to be honest. That's what I played my whole life.
+- I'll do whatever I need to. I'm not selfish.
+- I just hope the coaches give me an opportunity to show who I am deep inside.
+- I always want to do something to help a person.
+- Teams are not crazy. They definitely know what they're doing, and they know the guys they want to take out of the game.
+- It feels good to have your own name on something.
+- I wanted to go away from home, but not too far from home.
+- Baltimore is definitely still home. It's always going to be home for me.
+- I think it's real big to be honest just because of how the media say I'm a bust and all of that stuff. I really don't pay too much attention to it but I know one thing about it is when I'm focused, I'm focused.
+- I've never been a captain of a team. But people always listen just because of my work ethic.
+- I believe that just because of my size people are always saying, 'You can't do this, you can't do that.'
+- I can block, I can catch and I can run. It's about being in the right spot at the right time.
+- I understand the plays, the depth, the routes, the splits and everything. I just feel good that I can make some plays. Definitely, the game's slowed down for me.
+- I kind of approach every game the same. At the end of the day, it's another game.
+- I'm not really a 'me' guy.
+- I'm the flag man. That's been happening to me since I've been in the league.
+- I can definitely see myself coaching, I'm not sure what level, but I do love teaching and giving back what I've learned on this journey of mine. Yeah, Coach Tay does have a nice ring to it.
+- Coach Cignetti has got a good scheme, good plan for me, going to try to get the ball in my hands as much as possible.
+- Baltimore is a tough place, but I love every bit of it.
+- I've tried to learn what everybody is doing, not just my one position. If you know the whole scheme, it's easier.
+- I just come in, do my job, walk off the field, that's just me.
+- To me, it's about being smart, knowing when to go down and if you're on the sidelines knowing when to go out of bounds, and I think I do a pretty good job of doing that.
+- I gave my blood, sweat and tears over here - the St. Louis Rams, then coming to the L.A. Rams.
+- I've always been passionate about giving back, not just anywhere, but to my city specifically. That's extremely important to me.
+- I love the Rams to death.
+- My career has been up and down through injuries, through different coaches that I played for.
+- Nobody can take too many big hits, not even comparing someone 5-foot-8 'cause some of the 6-foot-3 guys still get knocked out, too.
+- I'm a little guy, but I play big.
+- A lot of people feed off my energy. I have to keep that up. I can't just be loud one day and the next day saying nothing.
+- One thing I can say is I'm thankful. It's been a long road for me through my injuries.
+- I'm going to keep on going, day in and day out, be the same Tavon Austin.
+- At the end of the day, there's only one ball.
+- I definitely will take the role on being in leadership.
+- I'm strong. A lot of people don't think I'm that strong, but I am.
+- If I'm in the rotation, I'm in the rotation. If I'm not, I still will support the guys like I am in the rotation. But when I do get my turn, I definitely will make the best of it.
+- I don't really care where I'm at on the field. I just want the ball and a little bit of space and let me create and I'm going from there.
+- If we're losing, I probably won't be talking as much. I'll probably be more talking to my pads.
+- I've seen a couple mock drafts that have me going to the Baltimore Ravens. And if it happens like that, it'll be a blessing. But I'd like to go anywhere that calls my name.
+- Goals after football would consist of continuing to build my family.
+- I'm kind of hard on myself.
+- You're always going to feel disrespected because you're getting traded. Evidently, you ain't doing something right or you ain't getting it done or they don't believe in you.
+- A lot of people say small guys can't get it done. But at the end of the day, it depends on how big your heart is.
+- There's always going to be a chip on my shoulder.
+- I'm the type of person, you know, I don't throw nobody under the bus for nothing.
+- One game, you can get 15 touches, and the next game you might not touch the ball.
+- I grew up as a Ravens fan, and I liked the Patriots, too.
+- The Rams believed in me and I believed in them.
+- I look at it this way: If the defender gets the chance they'll lay it on you. So for the most part I just try to go out there and bring it to them like they would try to do to me.
+- I think I'm the all-around best player in the draft.
+- It's all about patience and I'm sure my time will come. I'm learning what it takes to be successful and I'm doing the things the coaches tell me.
+- Defenses know how to take you out of the game. I definitely don't get discouraged about it.
+- You've always got to have a chip on your shoulder. No. 1, I'm a small player, so I've always had that chip on my shoulder my whole life.
+- My mom was pretty young, and she did what she could do.
+- The same way I run now, I swear, is the same way I ran when I was 6 years old.
+- I am a receiver, I am an athlete, at the end of the day. So, I can play any position that the coaches draw up for me and put me in the best position to make plays.
+- I just know that whenever my name gets called, I'm happy, and I'm ready to get in there.
+- That's something I've done my whole life. That's still my first position. It's all about whatever the coaches need. Running back is still in my heart.
+- A lot of teams are looking for that type of player to do multiple things on the field, and I think I'm that guy.
+- Since the first time I touched the football, people always told me I was blessed, that I had something special.
+- Size doesn't really matter. It's all about the mental aspect of the game and having the heart. I have a lot of heart and I take a lot of pride in what I do. That's what got me over the hump.
+- My whole time at Dunbar, I've had great players around me. My teammates, my coaches.
+- I wasn't a person to cry or point fingers or find any sympathy.
+- All I can do is come in and work hard and hope my number is called.
+- Speed is always good, speed always kills. That's the type of offenses I've been in anyway. That's a good thing.

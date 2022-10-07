@@ -1,0 +1,32 @@
++++
+author = "Mike Lowry"
+title = "Mike Lowry Quotes"
+quotes_len = "26"
+description = "the best 26 Mike Lowry Quotes"
++++
+- It was awesome because we were doing Ramones songs.
+- And in a democracy, when we say we're mad at what's going on, what we need to be saying is we're mad at ourselves.
+- Believing that our greatest need is for the general public to be able to get better information, to have an opportunity to learn better the real issues of the less fortunate, we centered the activities of the Fairness Project on that.
+- There are so many songs that we just don't play anymore.
+- The Fairness Project is endeavoring to try to do what we can to make a fairer society.
+- I think the market driven economic system is the most productive system, but to have that work in the world, you've got to also have social investments to go along with that.
+- The end game is you change that law to making that law better, whichever law you're talking about.
+- We wanted to sit down and conceptually work out songs.
+- Enterprise Washington is economic development in areas of high unemployment around the state of Washington.
+- I think a lot of it is that we used to tour so much that we never really had time to write songs.
+- We have always wanted to write songs and be experimental in that way.
+- You can say that Wayne Coyne sounds like Neil Young.
+- I was way into Primus in high school so hanging out with him was a thrill.
+- We became good friends with Galactic as well.
+- We listened to a lot of Rolling Stones and Beatles records when we were recording. They were really good at not playing loud, but generating really big sounds out of everything.
+- Well lately I have listening to a lot of movie soundtracks.
+- We ought to be doing that with decent standard housing but if we have people who are absolutely on the streets in this case, I think it makes sense that tent cities are preferred to not having tent cities.
+- I don't want to feel like people are imposing limits upon you.
+- It's definitely an influence, I mean how can you not say you are influenced to play rock.
+- I just feel like there hasn't been enough time away from all this other stuff and into this new world or sort of big world that it hasn't worn off yet.
+- A great thing about these trees is that they are excellent for cleaning, both groundwater, and of course, air.
+- We have an electronic vein we have tapped and applied it to a rock setting like tons of bands out there.
+- We need to have the social investments by which to quote unquote distribute some of that wealth.
+- If somebody comes to a neighborhood coffee hour, or goes to a discussion group, and they have a discussion, I do think that people really walk away with a real understanding of the issues.
+- What's wrong is that we are not participating to make this the type of government it needs to be.
+- Well, we played with Soul Coughing once for like two days, that was pretty cool. I mean they were all good, you can pull a great experience from everything.

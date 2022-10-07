@@ -1,0 +1,27 @@
++++
+author = "Jamie-Lynn Sigler"
+title = "Jamie-Lynn Sigler Quotes"
+quotes_len = "21"
+description = "the best 21 Jamie-Lynn Sigler Quotes"
++++
+- I have been very fortunate, working a lot in TV, and have been able to dip into the film world a little bit here and there.
+- I have never taken a road trip. Unless you count Los Angeles to Vegas.
+- My parents trust me.
+- I really like the whole urban farming idea, because I grow my own produce in L.A., and I think it's great to teach people here in Manhattan so they can do the same.
+- I wasn't scared of childbirth. I educated myself and did my fair share of research, and that made me feel a little more prepared.
+- Being pregnant is the most natural thing our bodies can do. Our grandparents did it without all these books, and they came out okay.
+- I think with drama, at least for me, my process, there's a lot of thought. I do a lot of back story. I listen to a lot of music. I'm very committed to a process when it comes to drama, but with comedy, I think it's really about letting loose.
+- I have a scar on my forehead. I was three years old, jumping on the bed with my brothers, and I fell off and hit my head on the dresser and cut it open, went to the hospital, got stitches, came home, went back on the bed, jumped with my brothers, fell again, and reopened the stitches.
+- I grew up pretty fast. I had more responsibility than most 9-year-olds, and I've always been independent.
+- I'm a boots girl. The most I've ever spent on clothing is a pair of Ralph Lauren boots that go over the knee but can also fold down.
+- Birth is really judgy, and people get really opinionated. Everyone's entitled to the experience they want.
+- Gay marriage is absolutely something that I am in full support of and a big advocate of, and I think it's an important issue, but there's a reason that I don't talk about politics and why I'll never be in politics. I am not the person to ever do that.
+- I hate bugs.
+- I have something called exercise bulimia, which is where you rid of your calories by over-exercising.
+- I'm strong and spiritual, and I know that everything will work out for a reason.
+- I watch 'The Bachelor'. It's one of those things where I always think if it didn't exist and it was on 'SNL,' we would think it would be a ridiculous, funny idea. But it actually exists... It's a glorious train wreck that I love to watch.
+- I can loop my tongue into multiple rolls.
+- I think comedy I've learned is really just about relaxing and trusting yourself and allowing yourself to fail.
+- I went through phases of odd hairstyles and tank top-over-tee outfits and stuff like that.
+- My first car was a BMW. A white BMW.
+- I like being upbeat, positive, happy, enjoying family.

@@ -1,0 +1,76 @@
++++
+author = "Jaylen Brown"
+title = "Jaylen Brown Quotes"
+quotes_len = "70"
+description = "the best 70 Jaylen Brown Quotes"
++++
+- I don't want to come into a situation like the NBA and have to develop for two or three years. When I come in, I want to be a superstar.
+- Embarrassment is where growth happens.
+- I always have a point to prove where I have a chip on my shoulder at all times.
+- Often, everybody is comfortable with their role in life, and they forget about the people who are uncomfortable.
+- I've taken thousands of shots in the corner. It's all mental. That's all it comes down to, is to be ready, wait for your opportunity, and execute.
+- I don't have any fear of failure whatsoever. I used to, and I told myself I wouldn't allow myself to anymore.
+- Why, when an athlete says something, why is it downplayed or considered not OK? I've always challenged that notion.
+- I'm just trying to establish myself, play the game the right way with my teammates, have fun, make the right plays, and get adjusted to the pro game. It's different from college. It's a little bit faster, so I'm just trying to get as comfortable as I can on the court.
+- The chips fall into place, but the educational experience I had at Cal, second to none.
+- LeBron's probably the best player in the world, so you just have to make it tough for him, make him take tough jump shots and things like that.
+- Some people think racism has dissipated or no longer exists. But it's hidden in more strategic places.
+- I hate taking pills. Like, I probably haven't taken a pill in over 10 years.
+- I just want to develop and be the best player I can be.
+- I try not to think about the things I can't control.
+- At Berkeley, you wore a hoodie and pajamas and Birkenstocks, and that's swag. I was so thrown off. What I thought was cool wasn't cool no more, so I thought about what I actually liked. I started experimenting. I started wearing Birkenstocks. I wanted to dive into the culture.
+- I don't know if I like getting hit, but I try to draw contact.
+- I'm not really worried about anybody or anything. I think I have a lot to offer. It's just, with your rookie year, your body, it's just a lot. It may seem foolish, all those dunks and stuff: they look cool, but it takes a toll on your body, for sure.
+- I really like black. I love wearing black, different aesthetics and shades. I like earth tones. Those are my go-tos.
+- Playing in front of your home crowd, they can almost be like the best sixth man in the league, especially being in Boston.
+- There's this idea of America that some people have to win and some have to lose, so certain things are in place to make this happen. Some people have to be the next legislators and political elites, and some have to fill the prisons and work in McDonald's. That's how America works. It's a machine which needs people up top and people down low.
+- I just think Trump's character and some of his values makes him unfit to lead. For someone like him to be president and in charge of our troops? It's scary, to be honest.
+- At the end of the day, basketball is basketball. You've got a whole life to live.
+- I'm not a guy that's going to shoot 10 3s a game - I like to get to the basket. But some of those shots I do gotta take. Some of those shots I gotta let fly.
+- I definitely feel like you have an influence. I'm 21 years old, and I'm thinking about the kids that are from my neighborhood, from my community, that are looking up to me and seeing me handle myself a certain way, so I do feel a responsibility in that sense to handle myself a certain way in front of those guys.
+- Jae Crowder, he's like my big bro.
+- Everything is educational.
+- The way the NBA is going forward with versatility and everybody being able to play multiple positions, I'll fit right in.
+- One of the most subtle but aggressive ways racism exists is through our education system.
+- I'm strong enough to guard the big guys and have enough heart to lock them down.
+- I just try to be respectful of everybody.
+- A lot of people didn't know why I went to Cal. The Bay Area, Silicon Valley, I wanted to put myself in that position where I'm not only successful on the court but off the court.
+- Sports is a unique thing in our country. It's so influential. It's almost like a sacrament for religion.
+- I'm just trying to be the best basketball player, the best student, the best son, friend, etcetera. I'm just trying to get better in every facet.
+- I'm not trying to be different. To me, I'm just being myself.
+- I disagree that an athlete can't be intelligent. Some people think that, in basketball, we have a bunch of masculine adults who don't know how to control themselves. They're feeble-minded and can't engage or articulate ideas. That's a narrative they keep trying to paint.
+- I'm overly confident. I believe in myself 100 percent. I believe in my game, and I believe in my work ethic.
+- Before you can lead anybody else, you gotta put yourself in the right position to be successful.
+- Athletes aren't allowed to have an opinion. It's tough. Athletes are evolving right in front of our eyes. You see athletes who are politicians, etc., and still, we're told to shut up and dribble.
+- I had attached my life to basketball so closely that it made me physically ill.
+- I can remember back when I was getting ready for the NBA, going through media training, going to certain camps - they almost teach you to not say anything that will get you any backlash or not say anything out of the norm, and what you're saying could be true to yourself.
+- I think it's becoming cool to have mental toughness or to meditate. It's a thing, but I don't think people really understand the value of it.
+- Who's to say because you're just a basketball player, or you are a basketball player, who's to say you can't chime in on other subjects or other important topics?
+- When I open my mouth and talk, sometimes people say they are amazed of my intellect. I don't know if that's because I truly speak in a way that people can understand or feel a certain way, or because they don't expect it. I don't know. That's something I am curious about.
+- I would go to games like I go to dinner. If I come and wear something crazy, I'm just trying to be myself.
+- I think that's kind of who I am. I just try to be vocal and try to lead by example.
+- I don't believe in holding your tongue, especially if it's something you can directly benefit from or some people need to hear.
+- People will come at me telling me to wear this or wear that. If I don't like it, I don't like it. They couldn't pay me to wear it. If it's something I can rock with, I'll rock it. I'm more interested in being completely authentic to me. In my opinion, being myself is making a statement.
+- So basketball has always taken me places that I could have never imagined.
+- Athletes have all the influence in the world. Everyone wants to hear what you have to say.
+- Sports and education, I think they overlap.
+- A lot of players get to a certain point they don't want to make mistakes. They just want everyone to see how great they are. That ends up being their downfall. You put a cap on yourself.
+- You've got athletes who are politicians, venture capitalists, musicians, rappers, etcetera. It's becoming more of a popular thing to have other interests outside of basketball, and I think that's normal. Just like when people work day jobs, they have interest in sports, they do investments, they do all these other types of things.
+- In life, if you stay quiet, you'll get left behind. So I had to learn to be more vocal and outgoing.
+- I'm emotionally and physically ready for anything.
+- I really feel like there's nothing I can't do on the floor.
+- I wake up every day doing what I love to do. I love to play basketball.
+- Reading is looked at like it's corny or lame, but you'd be surprised what you can find in a book.
+- LeBron's a good player, but I look at him as just a regular guy to me.
+- I've worked on my shot because that's what people have been critiquing me on my whole life. I've gotten a lot better at it, and I continue to get better at it.
+- More people care about LeBron James than some religious leader.
+- I learned to play chess at a young age, and I think that's where learning to plan things out and put things in position, that was the best thing for me.
+- There's bigger threats in my neighborhood than LeBron James, so I have no fear whatsoever of LeBron.
+- I'm just going to keep working to show people what I can do.
+- If I want any shot at getting on the floor, I gotta know what I'm doing defensively.
+- When I got to Cal, they tried to put me in safe classes, things I could succeed at. I went to Cal for an education. That's definitely problematic. You see athletes taking majors that don't add up to anything.
+- I'm not saying that players should go out and say random things, especially if they don't know anything about it. But I think players do know more than people give them credit for. People do research, and people are entitled to their own opinions.
+- David Ortiz is almost like a superhero. The type of love that he gives and everything, the positivity that's around him - a lot of people admire him and respect him.
+- I've been blessed to have a lot of mentors in my life that just have been good people and hard workers. Jae Crowder is one of them; Jimmy Butler is one of them.
+- The fans care about somebody who cares about them. It's not all about somebody who can put the ball in the cup. I think that's my calling.
+- I want to understand everything so I can put myself in a position to be successful.

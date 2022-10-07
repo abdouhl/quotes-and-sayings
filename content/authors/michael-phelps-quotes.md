@@ -1,0 +1,77 @@
++++
+author = "Michael Phelps"
+title = "Michael Phelps Quotes"
+quotes_len = "71"
+description = "the best 71 Michael Phelps Quotes"
++++
+- I won't predict anything historic. But nothing is impossible.
+- I like to just think of myself as a normal person who just has a passion, has a goal and a dream and goes out and does it. And that's really how I've always lived my life.
+- Even in high school, I'd tell my mom I was sick of swimming and wanted to try to play golf. She wasn't too happy. She'd say, 'Think about this.' And I'd always end up getting back in the pool.
+- I consider myself normal. I've spent 20 years in the pool. I consider that something that's normal.
+- I think sometimes I guess you see records, say you want to get there and use that as motivation. In a way, it's kind of cool if there is a possibility to rewrite history and be up there with the greats of Olympic history.
+- It's cool just because I've had this dream of changing the sport of swimming and it's finally happening.
+- I have the opportunity to be part of swimming history. To take the sport to a new level would be an honor for me. There's no better time to try this than now.
+- I can't remember the last day I didn't train.
+- I'm so sick of the water.
+- Swimming is normal for me. I'm relaxed. I'm comfortable, and I know my surroundings. It's my home.
+- I listen to music before my competitions to get me pumped up. It helps me stay focused.
+- I want to be able to look back and say, 'I've done everything I can, and I was successful.' I don't want to look back and say I should have done this or that. I'd like to change things for the younger generation of swimmers coming along.
+- I've been able to get an excitement back in the water.
+- I wouldn't say anything is impossible. I think that everything is possible as long as you put your mind to it and put the work and time into it.
+- There were times I wouldn't come to practice, because it didn't excite me. It wasn't interesting. I was kind of going through the motions.
+- For so long, I looked at myself as literally a kid who was talented who would go up and down the pool. That's it. Nothing else. Very few people knew who I really was.
+- Why is it such a big deal what I'm swimming?
+- My mom put me and my sisters in the water to feel comfortable, to have water safety.
+- For the millionth time, I'm retired. I keep saying it, and people keep answering, 'Well, maybe he doesn't mean it this time.' But I do.
+- I usually try to eat lot of calories. With so many events, it is important to sustain a high level of energy through the entire meet. I usually eat two hours before a meet.
+- I want to go to the World Cup. I want to go to the Masters. I want to go... anywhere.
+- It doesn't matter what else is going on. When you walk into your arena or your - whatever you excel at, you're there to take care of the job that you have to do.
+- I want to retire how I want to retire - and I have a great opportunity to do that.
+- I can only control my own performance. If I do my best, then I can feel good at the end of the day.
+- I eat pretty much whatever I want. I don't have a strict diet. It's all about cramming in as many calories into my system as I possibly can.
+- This is my 20th year in the sport. I've known swimming and that's it. I don't want to swim past age 30; if I continue after this Olympics, and come back in 2016, I'll be 31. I'm looking forward to being able to see the other side of the fence.
+- I have reached a place in my life where I need to sit down and say, 'Well, what do I do? What's best for me?' I need to look into options for the future.
+- People say to me, 'You're so lucky. You get to see the world.' But I don't. I go to the hotel and to the pools and back again. That's it.
+- I'll be working with kids for the rest of my life.
+- I've never lifted a single weight in my life.
+- My goal is one Olympic gold medal. Not many people in this world can say, 'I'm an Olympic gold medalist.'
+- You can't put a limit on anything. The more you dream, the farther you get.
+- I think everybody pees in the pool. It's kind of a normal thing to do for swimmers.
+- The more you dream the more you achieve.
+- Every day after I wake up, I think, 'Wait... this can't be real; I'm still going to wake up.'
+- Yeah, my friends call me Mike, Michael or just my last name.
+- I'm a Dunkin' Donuts kind of guy. I also like Cadbury's.
+- I learned how fast you can go from being an international hero to being a reference in a joke on a late night talk show.
+- I believe in God; I'm not saying I'm highly religious.
+- I'm the same kind of guy before all this happened.
+- Once I retire, I'm retiring. I'm done.
+- There is a one woman in China that claimed she paid $50 to get my e-mail address. It was pretty shocking. I got one this morning from Scotland. A girl's requesting a signed photo of me.
+- If I bring back only one gold people are going to say it's a disappointment. But not too many of them own an Olympic gold medal so if I get one I'm going to be happy.
+- Any Olympic sport is great to watch.
+- There are too many kids who are drowning for lack of water safety. That's something I'd like to do. Teaching kids to live an active lifestyle.
+- I think goals should never be easy, they should force you to work, even if they are uncomfortable at the time.
+- I want to test my maximum and see how much I can do. And I want to change the world of swimming.
+- I haven't swam in any of the rivers outside of Baltimore. I try to keep it in the pool.
+- I live a pretty conservative life, so I probably really haven't done anything crazy.
+- Being compared to Ian Thorpe, that could be one of the greatest compliments you could ever get in swimming - being compared to him and Mark Spitz.
+- I want to continue the sport of swimming. I'm not going to give up until I think it's reached where I want it to go.
+- I have a lot of goals, but I think that I just want to take it day by day.
+- I try to separate my personal life from swimming.
+- So, you know, if, if I wanted to get up and just play golf one day, I would just get up and play golf. If I wanted to go to Vegas, I would just get up and go to Vegas.
+- I think to be - for me to be an American is - you know, it's one of the greatest things in the world for - you know, for me just because I've been able to grow up with everything. The freedom. You know, in my eyes this is the greatest country in the world.
+- If you want to be the best, you have to do things that other people aren't willing to do.
+- I am 26 and, and I don't recover as fast as I have in the past.
+- Growing up in high school, I wasn't hanging out with friends every day or on the weekends. Doing normal high school kid things was something I was willing to give up.
+- I feel most at home in the water. I disappear. That's where I belong.
+- I still remember the days, not wanting to see anybody, not wanting to talk to anybody, really not wanting to live. I was on an express elevator to the bottom floor, wherever that might be.
+- I know it won't be eight medals again. If you want to compare me to that, that's your decision, not mine. I'm going out there to try to accomplish the things that I have in my mind and in my heart.
+- I got a Cadillac Escalade. Put some rims on it, threw a couple TV's in there, and installed a system. I stuck my Xbox in there. I had to go for it.
+- If I didn't swim my best, I'd think about it at school, at dinner, with my friends. It would drive me crazy.
+- And, you know, being able to wear the stars and stripes, when you step up on one of the blocks or, you know, when you step off of an airplane or when you hear the national anthem play, you know, it's one of the greatest feelings in the world because you know that there are people at home who are supporting you and watching you.
+- I used to always go to church on holidays, but I don't go much any more.
+- Once I'm already in my room, I still have to open a door to get into my bed. It's like a giant box. It's like the boy in a bubble.
+- I think that everything is possible as long as you put your mind to it and you put the work and time into it. I think your mind really controls everything.
+- I think the biggest things I am looking forward to is getting new faces into the sport. Getting kids who could be afraid of water to feel comfortable in the pool.
+- Every sponsor I've had has been something that fit my lifestyle, fit my personality.
+- I got the stamina. I can close.
+- I always thought, it would be neat to make the Olympic team.

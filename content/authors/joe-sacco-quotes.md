@@ -1,0 +1,28 @@
++++
+author = "Joe Sacco"
+title = "Joe Sacco Quotes"
+quotes_len = "22"
+description = "the best 22 Joe Sacco Quotes"
++++
+- I don't often go to a place just to check out all the cultural sites of a city.
+- When I went to Bosnia, I was there to tell someone else's story and I was more methodical.
+- I try to ask visual questions. I'll ask what someone was wearing, if that seems relevant. If possible, I'll walk over the same ground that they're depicting. Of course, I can never get it precisely as it was.
+- I'd rather go to a place and spend a couple of months, get to know it, get to know the people.
+- It's a visual world and people respond to visuals.
+- And I think I find, I know a lot of people around, in different cities, and so it's not - it might sound strange - but it's not that hard to say good-bye, because I know there's other people where I'm going. I can sort of fit in in a lot of places.
+- I don't like just traveling in for a short time. I've done that before, because sometimes you work for magazines and they have a budget, and if you're working for them, they want something by a certain time.
+- I'm not a good tourist, I don't like tourism.
+- With comics you can put interesting and solid information in a format that's pretty palatable.
+- It became clear to me that I had to push it toward a more representational way of drawing.
+- I'd much rather hang out in a cafe. That's where things are really happening.
+- When I was there, something clicked in my head; I found myself interviewing people, searching out facts and figures. Later on I became much more self-conscious of what I was doing.
+- I think I'm generally a good listener anyway.
+- There's probably one more story about Bosnia that I'd like to do, because I spent a fair amount of time on the Serb side of the lines, which isn't apparent in the other books.
+- I will interview bigwigs if I get the chance, but you are seldom surprised by people in power - you've got to get awfully damn close to get anything new.
+- And, in some ways I like traveling, in other ways I'm sort of fed up by the whole notion.
+- I think any journalist who spends time in a place realizes that there are lots of stories around beyond their primary story. You meet so many interesting people and have all kinds of experiences.
+- Oh, it's essential. I mean, you have to - if I'm writing about the Middle East, I have to go there, and if possible, stay long enough to get a real feeling for what's going on.
+- Of course, I'm drawn to a place like Iraq because It's the biggest story of our generation.
+- I tried to draw people more realistically, but the figure I neglected to update was myself.
+- My guide had a copy of Palestine on my last trip to Gaza. He'd bring it out and show people what I was trying to do. That usually went over pretty well.
+- Robert Crumb is an influence on how I draw, but not on the subject matter I take or my approach. One thing I do like about Crumb is that he's chronicled his age, his times, and I think that is what artists should do.

@@ -1,0 +1,67 @@
++++
+author = "Jonathan Krisel"
+title = "Jonathan Krisel Quotes"
+quotes_len = "61"
+description = "the best 61 Jonathan Krisel Quotes"
++++
+- You can tell a lot about a person by what comedians they like.
+- Nobody sets out to be evil. They're insecure, and they make bad decisions.
+- Once the big lights come in, you can feel self-conscious. How can you capture the scene without ruining it and freezing people up? You keep it small and lean.
+- I loved 'Welcome to the Dollhouse.' That was one of the most influential movies ever. You know that genre with the nerdy girl, and she redeems herself in the end. Like 'Napoleon Dynamite.' And in 'Welcome to the Dollhouse,' she doesn't. She sucks. It's like, that's what's real. That's what's heartbreaking.
+- I am huge fan of Australian comedy. 'Strictly Ballroom' is one of my favorite movies. Definitely the British Commonwealth's sensibility is where I draw a lot of my influences.
+- For me, I love and hate Costco. I think it's ruined America and made America great.
+- I went to film school, and I came in when video art was king, weird stuff was king, and there, you don't have a script as your bible.
+- Louie Anderson thinks my thing is the absurdness of reality. That's what we do on 'Portlandia' all the time. I try to bring that absurdness of reality to everything.
+- Things that people are doing constantly but aren't thinking about. That's the ultimate 'Portlandia' concept.
+- 'Portlandia' is 100 percent improvised, and I came into this business not knowing anything.
+- If you have, especially with siblings, something like the competition for mom's affection, it just never goes away.
+- With all the outlets, if you have a strong comedic voice, there's a venue to do your thing. It's a bit of a meritocracy, where the best stuff rises to the top.
+- Different actors have different rhythms. My goal as a director is to let these guys get their best work out.
+- In Portland, it rains all the time - but who cares? That's not funny. That's not universal.
+- In your twenties, you might want to be radical and change the world, but in your thirties, you might just want to be happy and ground yourself.
+- 'Fawlty Towers' was a huge influence on me. I mean, it was so slapstick, too. 'Are You Being Served?' was on 15 times a day, it seemed like, and I loved it.
+- My whole thing is, you listen to the actor and help them bring out their best thing.
+- I think any person who is starting out in a creative endeavor is not going to be good at it right out of the gate.
+- Everything else was snarky and high concept, while 'Roseanne' was just a normal family.
+- Certain shows, when it's all comedy, it's like when you eat something that's too sweet and it just tastes gross. You need that salted caramel.
+- When people feel vulnerable, they make slapstick decisions.
+- Comedy is like horror - you have to shock something in the viewer's system to make them feel it.
+- Portland is a place where everyone closes their eyes and crosses their fingers and hopes for a better community. They keep it small and local, and usually they think if they just make great coffee, it's the best thing for the neighborhood.
+- As the director, you have it in your mind how you want the part done, how you want someone to do it, and so sometimes you just say, 'Why don't I do it myself?' So for a little role, I'll just do it.
+- Portland is utopia. My favorite thing would be it's earnestness. I am earnest, too.
+- A lot of the 'Portlandia' characters and a lot of the moments aren't really TV-worthy, but that's what is so refreshing about seeing them.
+- The end goal is to make a piece that everybody has ownership over and everybody's proud of because everybody contributed to it. I think there's a communist, socialist vibe to 'Portlandia' to make it work.
+- There's a good family of actors in 'Portlandia.' It's a small community with people who pop up again and again. The show's a little weird show, and you want to grow with the people who are in it, like Dana who plays the chicken waitress, and Ellen who was the adult babysitter.
+- I love the beige, tan, stucco world where the sun bleaches things out to the point that it can look somewhat ugly.
+- I know comedy; I know how to do crazy, off-the-wall stuff that makes me laugh out loud.
+- I love awesome mixed drinks.
+- I know, especially in my family, people's feelings get hurt over the tiniest things. I'm sure that's true in every family. But, for instance, one year, I came a little bit late to Thanksgiving, and I was supposed to bring a salad. And I just brought a bag of lettuce, and put it in a bowl. Five years later, I heard that my mom was incensed.
+- I always want to push myself.
+- When you make a pilot, you've never seen the show before; you don't know what it is.
+- My brand of comedy is taking a serious approach to silliness. Small moments of modern life and human behavior make me laugh. At least that's where everything starts, and then my other through line would be a dry absurdity that exponentially spirals out of reality.
+- There's some moments in your life where you're just like, 'I need something just funny.' That's the noble thing you can do. Make someone forget about their life for 22 minutes.
+- One second here and there will make all the difference between something being funny and not being funny. That's why I like going, 'Well, we wrote that six months ago, and it was funny one time we read it, but it's not funny anymore. So what? Just dump it.'
+- A huge part of making something work is getting along with people you work with. You want them to succeed; you want them to bring their ideas to life as much as possible.
+- On 'Baskets,' I'm not sure what the demographic is.
+- You see a lot of comedic content that's not funny, and you can tell that it's supposed to be funny, but it's actually not funny.
+- You can use cheap technology to get a great look.
+- It's how you define yourself. It's not Nirvana or Pearl Jam: it's, 'Do you watch 'Portlandia' or 'Amy Schumer'?' It relates to a specific sense of humor. And, 'Do you know the hidden gems?' Like, if you knew the Pixies in the '80s.
+- I look at a show like 'Roseanne.' That's super influential on me. It's very funny, very real, with real problems. That was a big influence, and I don't know if you see that all the time in the network world.
+- With comedy, I've always had a pretty good sense of what I like and how to execute it well, but drama has its own rules.
+- There's a thing in comedy where you take one step into a bad idea, but if you take 10, then it becomes a good idea again.
+- I saw Sleater Kinney perform back when I was in college.
+- The Internet is a good way to try some stuff with no big crew and no money being spent. Since there are no stakes to it, you can try to be a little experimental.
+- I want to work with extremely, genuinely charismatic people.
+- Bands on tour are very good cultivators of what's the avant-garde of comedy.
+- I'm a huge 'Twin Peaks' fan.
+- Everything on TV is perfect, and it's so boring.
+- I love working with nonactors.
+- There is no 'recycle too much.' That's an oxymoron.
+- I always look at 'Monty Python and the Holy Grail.' They talked about how they wrote this movie with horses, and then they realized that horses are super-expensive and time-consuming. 'Why don't we just change it to coconuts?' That's part of my process.
+- It's exciting being in the present. You're always reading emails, talking about the future, looking at pictures on Facebook of the past. But living in the present? It's almost a dead medium. I almost want to do a sketch about being in the present.
+- I'm never trying to make something esoteric; it just happens.
+- My dad did show me interesting movies at a young age. I remember he showed me 'A Clockwork Orange,' and my mom said, 'I never want to see this movie in my house again.'
+- I like dry-to-the-bone stuff. I don't know what it is. I was raised on PBS showing weird British comedies.
+- I definitely feel the pressure to keep things fresh and original.
+- I'm not a big 'scripted comedy' person necessarily. I'm open for wherever comedy can be found.
+- I think when you work with people who are super exceptional, there's simplicity to it because everybody is on the same page in terms of tone.

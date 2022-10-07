@@ -1,0 +1,118 @@
++++
+author = "Kaya Scodelario"
+title = "Kaya Scodelario Quotes"
+quotes_len = "112"
+description = "the best 112 Kaya Scodelario Quotes"
++++
+- When I was growing up, we didn't have much money. What was important in my house was to have food on the table, be happy, and have our family.
+- I'm not a girly girl. I don't brush my hair.
+- It's very strange: I watch a lot of interviews with other actors that I know saying, 'Oh we had a great time; we're best buddies,' and I know for a fact that they didn't, and they actually hated each other.
+- I can't wait to take my son to see 'Wonder Woman' - I can't wait to show him all the female characters can be well-rounded people.
+- I've wanted to produce for a long time. I'd love to get a bunch of my girlfriends together - a female writer, a female director - and create something. Creatively, it's a different dimension. Why wouldn't people want that?
+- I've always had confidence issues; I just get scared of doing things wrong.
+- Kids will pick up on weakness, and I was very shy growing up. I was skinny and flat-chested; I didn't have the latest clothes. For me, it was about being left out and not having any friends and being laughed at. I was very lonely, but that happens to so many people.
+- Being asked to memorise a script in one day when you have dyslexia is the same as having a broken foot and being asked to dance. You have to make exceptions for it.
+- I've missed London so much for its fashion. No disrespect to the girls in Manchester, but some really do look like clones - there's a lot of hair extensions and fake tans. You're free to experiment down here.
+- I love dressing up, but I do find the red carpet thing quite stressful. When I went to Venice Film Festival last month to promote 'Wuthering Heights,' I told my boyfriend beforehand 'I will be a nightmare, I will cry, I will be nervous.' Actually once I was there, it was fine.
+- I wasn't good at anything very much at school, but I did like drama.
+- Everyone asks, 'What's your goal? Do you want to win an Oscar? Do you want to work with Meryl Streep?' No! I want to buy my mum a house. I want to make her proud.
+- The way I work, I didn't hold the accent all day.
+- It's nice to know that a studio is willing to put a female in a film without expecting the character to have a love interest.
+- I didn't tell anyone in school that I was going to be in 'Skins.' I was terrified of them putting me down.
+- I would have loved the opportunity to have gone to drama school, but it just didn't work out for me; there are always several paths, and there's a reason why I've been down this path.
+- I had a really honest conversation with my husband about equal pay because we met on a movie where he was paid more than me just because of gender.
+- We lived in a council flat, and I spent most of my time on estates. My mum was very strict. I used to hate it.
+- As a teenager, you're still discovering who you are, what your life is about, and who you want to be as a person. It's very intense.
+- My mother is Brazilian, and her grandfather was Italian.
+- I don't stay in accent or anything, but internally, I get quite dark and destroy myself a little bit. But that's what I do, and I enjoy it. It's how I do my work.
+- It was hard to go into the world and start auditioning as real actors. Having to pay bills was rather scary, too.
+- My friends still see me as the girl they went to school with. We're very much home bunnies.
+- What attracted me to 'The Maze Runner' is its pure action.
+- I'd love to find a really good Brazilian project, an up and coming director or something. I wouldn't want to do the typical favela story, Brazilian cinema has a lot more to offer than just that.
+- I don't know any women who are one-dimensional, so why would I play one?
+- Clothes are my drug. I love Camden market - I have so many vintage pieces from there it's unbelievable. Clothes are really important to me, they give me that feeling of happiness. I love being a bit free with it all and not giving myself rules.
+- On 'Skins,' we only ever filmed for a couple of months in the summer. When I wasn't on set, I was doing my normal things.
+- When I'm at work, I do try and embody it as much as possible.
+- 'Skins' was the university for me. It was the best years of my life, really. We were all just a bunch of friends.
+- I'm not the best auditioner.
+- I'm the unhealthiest person in the world. I'm not fit at all.
+- We should just be good humans.
+- I think really good drama comes down to real human emotion. That's what makes us all tick, and that's what I've always been drawn to when it comes to scripts is real human emotion and dealing with that.
+- I'm lucky: I've got one of those fast metabolisms where I can eat whatever I want, and I don't put on weight. But I know that's only when you're young. It'll probably hit me when I'm 30.
+- Considering what the 'Fifty Shades of Grey' film is about, I wouldn't be able to play Anastacia.
+- People don't realise how dyslexia affects your confidence and how brutal it can be. People think you're dumb, and you know you're not. it's just how your brain works.
+- I'm a Londoner, so I'm a bit feisty.
+- I was incredibly shy and insecure as a child. I was bullied. I was dyslexic. I had an immigrant single parent. I was the opposite of that kind of ideal, cool girl thing.
+- Most people think of 'Wuthering Heights' as romantic; it's really not about that at all.
+- I had to learn to jog because I run like a fish. All my friends found the thought of me running on screen hysterical because I do absolutely no exercise.
+- I remember doing my first school play. We were doing 'Oliver Twist,' and I was cast as Oliver. It was the first time I ever felt brave and confident and truly happy about something.
+- Acting's such a good job in that you're stimulating and pushing yourself constantly. I'd never want to do anything comfortable.
+- Mum built a life for me in a difficult place at a difficult time.
+- Do the little things that make you feel normal and happy, even if that's just getting in your pyjamas and watching 'X Factor' at the weekend.
+- I like to work. I feel blessed that I'm working.
+- I had no confidence as a child; I still really don't. Acting is the only thing I've ever felt comfortable doing.
+- I wore an Urban Outfitters dress on my wedding day. It was one I had in the back of my wardrobe. It was white. We went to City Hall here in New York. I wore it with blue velvet boots my husband bought for me. I loved it. It was my favorite thing. It was chilled and spontaneous.
+- I'm not comfortable doing nudity. That's something quite personal.
+- At 21, you've come out of the craziness. Maybe you've been to university, but now it's time to get serious. It's the age where you make decisions about your life.
+- We come from a very humble background. A lot of my paycheck from 'Skins' went to paying the bills and getting us a new sofa.
+- My mom always let me watch movies that were probably slightly too mature for my age, but she wanted me to see different stories. We grew up with quite a hard life, so she wasn't afraid to show me that in movies.
+- I like to have fun. I'm also a bit of the crazy one. All my friends are boys. I was bullied a lot by girls in school. There was also too much drama and demands.
+- 'Skins' wanted to create a new thing by actually casting real teenagers. I think it was very brave of them. They also wanted to give the opportunity to people who didn't go to drama school.
+- I like working with new and young directors.
+- I think of women as an all-being creature.
+- There are so many things that you're supposed to conform to as an actress. Keep your mouth shut. Look pretty. Be a fashionista. I'm not stylish. I don't want to become this character.
+- 'Skins' was such a great platform for young actors. They had this whole thing about getting people who weren't trained, this new generation, this new culture.
+- I love my job every day. So whether it's for four years or for two weeks, it's still... And when you're working on a set, it feels like a family straight away.
+- I like the idea of up-and-coming actors nowadays being a little different and not necessarily the drama-school stereotype, being a bit more edgy.
+- Who doesn't want to shoot for 'Vogue?' I remember updating my Facebook status to say 'Doing 'Vogue' today', it was so exciting. I thought it would be really intimidating, and I don't like photoshoots, but that was the most relaxed one I've done.
+- I find it easy to act being in love. I've experienced that and analysed it.
+- My mother is amazing. She moved from Surrey to London, taught herself English, and found a job.
+- I played American when I was, like, fourteen, and I was awful. I cringed the whole way through.
+- The best part about doing 'Wuthering Heights' was you were completely in that world. It could not have been done with CGI. You had to be there.
+- I think a lot of people, when they don't quite fit in in the world, use humor to combat that and to find their place in society.
+- I'm not good at dressing up. I always feel a bit out of place. It's just not me - high heels and designer dresses - and I can't seem to get used to it.
+- 'Skins' was never about sending a message. It was showing you everything there was and letting you make a decision.
+- I don't think there is enough youth employment or enough push for youths to kind of do want they want to do.
+- I believe there are some things meant only for you and the person you love.
+- I don't like to make predictions, because my life's been pretty unpredictable so far.
+- I do have a lot of respect for the girls in 'Hollyoaks.' It takes a lot of effort to look like that constantly. I couldn't do it.
+- A lot of my friends back home are boys, so I do well with boys I like.
+- I wanna make my mark, and I wanna be part of something!
+- I was painfully shy as a child; I was dyslexic. I had a single mother who's an immigrant. I just didn't believe acting was something that people like me could do on a professional level.
+- I am quite proud that I managed to prove that you don't have to be able to afford drama school or have the right connections to do well.
+- It's important to enjoy the moment.
+- I got incredibly lucky, and you have to be if you want to be quite successful.
+- 'Skins' is actually a part of who I am as a person, so I was really focused on making sure the scripts and the story lines were right.
+- She had to play the role of mother and father at the same time, and she did it to perfection. I managed to find a way through because of her. My mother is my biggest inspiration.
+- I really take a lot of influence from London style.
+- I think, like every actor, you've just to pick what you're interested in.
+- It was really cool to work with Dakota Fanning. I've watched her grow up and I've always loved her films, loved her. It was amazing working with someone who was American as well, because obviously it's going to be a different energy straightaway. We got on really well; she's so professional and hardworking.
+- I was bullied; I was kind of a girl in the corner. So acting was a great outlet for me by pretending to be someone else.
+- I've just made a cancer drama, called 'Now Is Good,' directed by Ol Parker and starring Dakota Fanning. We filmed in Brighton and it's about a girl dying of leukemia, although it's not as depressing as it sounds.
+- I'd like to think that even if I wasn't acting professionally, I would still be doing it for free. It helps me get through the day.
+- I was very hesitant about doing a period film. It was very much out of my comfort zone; I'd never done anything like that before.
+- I like movies because I've been getting leads, and TV is more about ensemble casts.
+- I think if someone was really rude to me in an audition, even someone quite important, I think I'd be, 'What are you doing? Don't talk to me like that!'
+- Every job I take, I really want to learn something.
+- I consider myself a Londoner first, and then I consider myself Brazilian before I consider myself English.
+- When someone shouts 'Skins' at you, its funny the first time. But after a hundred times, you think, 'I do have a name.'
+- I'm lucky to have fallen into this trade, and I'm still fighting to stay in it.
+- I would love to make a Brazilian film, but it would have to be something very close to my heart. It's such a personal thing, so I'd want to do my family proud. I'd want to do justice to Brazilian cinema. I think Brazilian cinema is brilliant. I would really love to do something, but I'm just waiting for the right thing.
+- My first secondary school was in East Finchley, and I was one of only five white people in the year. I was really skinny and flat-chested with frizzy hair. I don't consider myself posh, but my mum brought me up to speak properly, and they picked up on that, as all kids do.
+- The moors have this weird energy. They trap you.
+- My hair was always frizzy. I always wanted to be blonde with lovely straight hair. I was very skinny. I was quite tomboyish, just very quiet. I always wanted to fit in; I just couldn't.
+- I want to play Keith Richards.
+- I felt there needed to be a show for teenagers that didn't make them feel judged. 'Skins' never tried to preach. It allowed young people to make their own decisions about what to do and whether it was right or wrong. Young people really respond to that, and that's what sets 'Skins' apart.
+- 'Southcliffe' is extremely dark. It's an extremely depressing, intense story, but the shoot was like being at Disneyland. It was unbelievably different from what we were filming.
+- My mum is Brazilian and very proud. I'd love to do a Brazilian film. I've been brought up in the Brazilian culture. My mum brought me up on my own, I cook Brazilian food, I've never spoken a word of English to my mother.
+- We're all lucky to be working, and I'm glad to be employed.
+- 'Skins' has been such a great thing for our generation - I don't want it to become a parody of itself.
+- 'Skins' meant so much to so many people. It was so much part of its time, and I was so young.
+- I'm finding a lot of actors my age now who are a bit more like me, and not as posh or brought up in a certain way. There's now people of all sorts of kinds of backgrounds.
+- My mom raised me on her own, so I decided to take her name 'cause she was my mom and my dad.
+- The thing you think is going to be huge ends up not being huge at all, and the most minute thing you do is talked about for the rest of your life, so I try not to have any expectations at all. I think that helps, if you're just focusing on the project at hand.
+- In England, there is this tradition of the upper classes going to very expensive drama schools and then going on having careers. I knew that wasn't an option for me. My mother would never have been able to afford that.
+- My mum has told me that I have to work with Antonio Banderas just so that she can meet him and try and marry him.
+- I love that kind of edgy, rock n' roll punk thing that we do so well in England. But my style adapts to where I am. When I'm in Los Angeles, suddenly I'm like, 'I need a sandal, and I need a beige dress, and I need some flowers in my hair.'
+- I was incredibly nervous about doing a period drama. I thought that to play period, you had to be English-looking and blonde and very well spoken, and have gone to drama school.
+- The fight for equal rights or pay has become this thing where people expect actresses to talk about it. Why they feel that a man is worth more is an important issue to discuss - we are moving in the right direction, but we need to continue to talk about it and continue to label it as an issue.

@@ -1,0 +1,105 @@
++++
+author = "Tricky"
+title = "Tricky Quotes"
+quotes_len = "99"
+description = "the best 99 Tricky Quotes"
++++
+- I don't believe in death. I just don't think all that love and all that energy can just disappear into nothing.
+- My background was Rude Boys, Teddy Boys, rockabillys and skinheads. I was into reggae and Blondie and The Cure, and especially The Specials - these black and white guys getting it together. Extreme personalities. Extreme talent.
+- I never considered myself a funny person.
+- I used to see a psychiatrist in New York but I got bored.
+- The royal family don't mean nothing.
+- People can't work out my music, but neither can I. I just put it together. I don't know how it happens.
+- I think Kylie's underrated... Cool is knowing yourself and I think Kylie Minogue really knows who she is and doesn't try to be anything else.
+- There are certain things you can talk to a partner about and it's someone to lean on. But I refuse to get into a relationship just for the sake of comfort.
+- I've a kinship with women. That's why I've always put women in strong positions in music.
+- What I consider normal ain't really normal.
+- I'm straight-up with people.
+- I have no time for perfection.
+- I grew up around a lot of angry men.
+- My head works a little faster than people around me sometimes and it can be quite painful. It was a problem for me in school because I couldn't sit down long enough. I couldn't concentrate. So I didn't go to classes very much.
+- I've had my differences with Massive Attack, but you can't deny what they've done. They've changed the face of music. They should make up an award for them even if there ain't one.
+- This ain't bad-guy talk, cos I'm not a bad guy. But people don't realise what fear can do. I've had situations where I've been so scared, where I can't sleep, I can't eat, and it's gone on for weeks and it's ruining my life. It makes you sick, it makes you mentally ill.
+- The Queen wanted me to do the music for the 2000 celebrations at the Dome. I went down to these offices at Buckingham Palace and had a meeting with these people, and I was like, 'Alright how much?' And they said, 'Well no, it's for the Queen.' They thought because it's such a huge thing, I'd do it for free! So I turned that down.
+- 9/11 is probably the main reason I didn't release an album for five years.
+- I can't just be thinking about what people like.
+- She ain't my queen. My grandmother is my queen, and my auntie, my cousin, my daughters... the Queen's never done anything for me.
+- Trip-hop? That's never existed and they say I invented it. Trip-hop is just hip-hop with a girl singing on top.
+- I didn't want to be just a Top 20 artist.
+- I'm forced away from what I would call my music. I can't do another thing like 'Maxinquaye.' But if people didn't go out and copy it, I might have done another three or four 'Maxinquayes.' Which is terrible.
+- I always thought you went out and entertained people and got nothing back in return. But in the last year, I've realised that what the crowd gives you is so amazing, that sometimes I just stand onstage and cry.
+- If I had made another 'Maxinquaye,' I'd have had ten times as much success. I ain't going down that path, because that way you're totally controlled by people around you. I don't want to be controlled.
+- My manager told me that a kid who was in a coma woke up after ten days when they played him one of my songs. That now means more to me than winning any award.
+- I spend 70% of my time laughing. I don't walk around all dark. I might take my photos like that because I'm not a clown. But I'm a really soft, feminine, gentle, normal guy.
+- I'm like anyone else, if I'm not having a good time you'll hear it.
+- I'll play about with different sounds in the studio with no concept of music at all. I'll just build up a song in layers and when it sounds all right and gives me a vibe, that's enough, and I'll add vocals and move on.
+- I'm not just a kid from Knowle West trying to build a future, I have some experience, I can experiment... and honestly, musically, I can't be touched.
+- Surviving in music is the same as surviving in a place like Knowle West - sometimes you need to be low-key, but sometimes you need to make your presence felt.
+- People put you into a category and if you don't fight it you're stuck there for the rest of your life.
+- Yes, well, on stage I'm a different person, very aggressive, very tense. That's not me because I'm humble and polite, unless someone is rude to me.
+- To be honest with you, it was almost like I could do no wrong after 'Maxinquaye.' And when I was putting together 'Nearly God,' I was thinking, 'Will you stay with me if I put out something that radio cannot play?'
+- I've got one younger brother who can do prison like his breakfast, but I'm not built for it.
+- People used to talk about my lyrical content and not about my music, and to be honest, I think I have got lazy with my lyrics over the years.
+- I'm not going to be pretentious and two-faced to get a good review. But that's the kind of thing which gets you a rep in this business.
+- When I'm not on tour, my band have to do pantomime. I want to do big gigs to earn them money.
+- I can remember arguing for two days with Mark Saunders about 'Strugglin'.' He said: 'This can't work. It's not musically correct.' And I said: 'If I can hear it in my brain you can't tell me it can't work.'
+- I've had a bit of a crazy life. So writing lyrics in songs is easy for me.
+- I never compromised myself musically.
+- I never sold out. I never made an album to buy a house.
+- A guy threw a stone at my head when I was eight. I told my nan, and she said, 'Get a bigger stone.' That's what I got programmed into me. And sometimes I find it a struggle to get it out of me.
+- Success has got nothing to do with being happy. I've been very rich, and been unhappy, and I've been very poor, and been happy.
+- Sometimes I walk down the street and hear people whisper 'that's Tricky' and I look back, and I see them looking back, then that affects everything I do - the way I walk the way I talk. It stops you being real.
+- I've always loved rock music. I've always loved stuff like the Specials and the Breeders and things like that. But it was hip-hop that really got me into music.
+- Madonna working with Justin Timberlake is supposed be cool but I don't think there's anything cool about it.
+- I was never part of the Bristol scene. My sound was a Knowle West sound. Massive Attack wouldn't come to my area because they know they'd have got beaten up there.
+- I have my routine. In the evenings I watch 'Seinfeld' and 'Frasier.' That finishes about 11.30 and then I go to bed. I get up at eight o'clock every day, and I'm on the phone straight away, doing business.
+- I would work with someone humble like that guy Peter Andre than Madonna.
+- Unity makes you stronger - you need that in this business.
+- Well, the truth is that we are all mystical and that there is something going on that can't be explained. Outside of the day-to-day stuff like getting up going to work, we all have something going on within us, and we all know that there is something going on - we're spiritual creatures and we are very powerful.
+- I've met a couple of total wrecks who've loved Bjork and ended up broken hearted. I didn't love her.
+- Sometimes I could do with a shoulder to cry on, someone to come home and talk to.
+- I get bored very quickly.
+- The Internet is incredible!
+- Someone at Hollywood Records said, 'Are you into Alanis Morissette?' I said 'Yeah, she sells 26 million albums, of course. It would be perverse if she works with me, but I don't think you can get her.' A week later they say she's coming down the studio.
+- As a musician to hang out with a politician, I think it's disgusting.
+- Fear can be very dangerous. You should never make someone too scared of you.
+- This album, 'ununiform,' I didn't even have to record it if I didn't want to.
+- I'd love to be part Apache Indian. But I'm from Bristol. No Apaches there mate.
+- For a child, it's not so much scary, it's surreal; there was a lot of fighting in my great-grandmother's house; you'd go there and then someone would meet up and there'd be a fight; I've seen my uncles fight in the street, I've seen my grandmother fight in the street, it becomes normal.
+- Because I didn't come from money I didn't know to manage it.
+- A lot of young people have not a clue what being famous entails. When you lose your anonymity you can't walk down the street without people looking at you.
+- I've never been shown how to get rid of my anger. I think I do it through my music.
+- School is about who you know, but I think it's a form of brainwashing. I learnt to read and write and that was enough.
+- If someone is cool to me, I'll be cool to them.
+- I wouldn't work with Damon Albarn again.
+- The music I should be doing is music that you haven't heard before - whether you like it or not. I don't want to just repeat.
+- I can experiment, I can be honest, and honestly, musically, I can't be touched.
+- Oh, I still like dresses. I've still got plenty of them. It's just that I don't put them on specially for photo-shoots anymore. It's just part of my everyday life.
+- I lived in New Jersey in a massive house, not a 50 Cent mansion, but four bedrooms, and I had acres of land.
+- I'm hard work to live with. Someone who wants to be my girlfriend has to be totally devoted because I don't give very much back.
+- The Internet is like walking into a room in your house you never knew was there and, like, it's full of thousands of people who have been listening to everything you've been doing and saying the whole time! Scary.
+- First off, I absolutely hate the term 'trip-hop.' It was a term that made it seemed like I was trying to turn the music into something else. I was always influenced by New York hip-hop, since forever, since I was a kid.
+- I would rather hang out with a cleaner than a celebrity.
+- There's bound to be turbulence in any situation if you're with someone for long enough. Especially if you're with someone like me.
+- There's a certain type of success you can have where it means nothing. You're just becoming someone in Hello! magazine and no one knows what you actually do any more... the only way to escape that is to go back underground.
+- I never like something too live or too electronic. I'll take a bit of both.
+- Schizophrenia runs in the family.
+- I have loyal fans, really loyal fans.
+- I had an uncle who adored Al Green. He was white, but he only listened to black music.
+- England is very regimented. Go to work, come home from work, go to the pub.
+- I'm not very good with roughing it.
+- I can be anything I want when I do an album. I can be vulnerable, I can be weak, I can be nasty, I can be strong, I can be good, I can be bad. They're all in there - but in society you don't get to use all these personalities because you're trained.
+- I grew up in a mixed-race family in Bristol. My cousin was this white guy who was interested in Parliament, Marc Bolan, Bowie. His friends were football thugs and while I was getting ready for bed, they'd be listening to all that music. When I was older, I'd go to a Jamaican sound system and there were no white people.
+- When my mother died, we had the coffin at home. Like, old-school - you have the coffin at home so all the people can come and see the person. And her coffin was next to my room, so I used to go in and stand on a chair and look at her. You know, it's open coffin and stuff.
+- I can't afford to take advice.
+- I don't like creepy-crawly stuff. Girls can pick up a spider and just chuck it out of the window. No way, I'm not doing that. I actually scream.
+- Sometimes I'm in a bad mood, sometimes I'm in a good mood. It's like everyone else.
+- If I'd lived in Bristol, I'd probably be doing building site stuff, plastering. Probably not the plastering. It would have been mixing. I could always get work from friends who did construction. But I wasn't into getting up at seven in the morning.
+- I was quite... feminine. Not in my actions, in my ways. If one of my uncles had trouble at school, they'd go to that person and thump him. It's all a man thing. They got sent off to boxing when they were kids. You live in a tough area, you get off to boxing. My auntie tried to do that to me. I lasted six minutes in boxing.
+- Bjork was so good to me. She's very independent and she doesn't suck your energy. She lets you be you. She's a free spirit so she knows how to be with a free spirit. That's the only sort of woman I could see myself staying with.
+- I cry at absolutely anything. 'Lethal Weapon,' the fight scene at the end - you can see it on YouTube.
+- Being naive I think is how you construct new music. When you start thinking too much what is it you're doing? You're just making an album. You're not doing brain surgery. If you take it too seriously you start taking yourself too seriously.
+- If I wasn't doing music, I might have been a builder.
+- I've learned to enjoy a very simple lifestyle.
+- When I lived in Knowle West, I must have been the same person I am now. It wasn't like someone came and sprinkled superstar dust on me. So that means all the kids who come from that kind of background can do what I'm doing. They're superstars just waiting to happen.
+- My music life is great. It's in the real world, that's where I have the problem, sometimes relating to people. I can be angry, you know, still really dark in my mind.

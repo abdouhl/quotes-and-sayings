@@ -1,0 +1,26 @@
++++
+author = "Tim Walberg"
+title = "Tim Walberg Quotes"
+quotes_len = "20"
+description = "the best 20 Tim Walberg Quotes"
++++
+- Do we really want the FCC to conduct investigations and issue warnings to radio talk show hosts nationwide who simply discuss the important issues of our time? The Constitution says 'freedom of speech,' not 'freedom of government-approved fair speech in rationed amounts.'
+- I take President Obama at his word that he is a Christian and was born here in America. Now, it's time that we focus on the real issues facing this country.
+- Americans are hard working, innovative, proud people who want bad government policies and high taxes to get out of the way so they can take care of their families and pursue their dreams.
+- If you want to pray at a town hall meeting or a school board meeting or in the halls of Congress, that ought to be acceptable in the United States.
+- Experience tells us that we do not need more overspending or higher taxes to grow jobs. We do not need more regulations or more government control - such as the government takeover of health care or the restrictions in domestic energy production.
+- My contention is that if we expand the patient-centered health care approach, we'll have less people that have to go the medical clinic that provides free service or go to the emergency room - they can have their own health care plan.
+- Good intentions can often lead to unintended consequences. It is hard to imagine a law intended for the workforce known to Henry Ford can serve the needs of a workplace shaped by the innovations of Bill Gates.
+- I've found my sweet spot here in public service.
+- Motorcycle riding has been a passion of mine since my 20th birthday, and as a proud member of the American Motorcyclist Association and the Harley Owners Group, I can attest that responsible riding has many unique recreational benefits for millions of Americans.
+- If businesses are being given relief, shouldn't the same relief be given to the American people?
+- I'm 100% pro-life.
+- Talk radio is an asset to our nation because it encourages strong and healthy debate about public policy, and there is no reason to affect that debate with government legislation.
+- The desires of adults are not more important than the needs of children.
+- It's been said that members of Congress love receiving pats on the back weekdays in Washington, D.C., but they would benefit greatly from going home regularly to receive valuable slaps on the back of the head in their districts.
+- The Republican name used to be synonymous with limiting the size and scope of government, and we need to re-establish that reputation. We must work to eliminate government waste, make certain taxpayer dollars go to meaningful programs, and leave resources directly with the people.
+- Residents of my district continue to stress to me that they want health care decisions to be made by patients and doctors, not by the government and insurance companies.
+- Voters never have to question where I stand - my principles or priorities. I am a pro-freedom, pro-America and pro-life conservative.
+- I believe that government is too large, costs too much, spends too much, and has too much regulatory power in our lives.
+- I have always held the conviction that American citizens should keep as much of their hard-earned money as possible.
+- During Governor Jennifer Granholm's administration, Michigan has experienced job losses, declining personal incomes, diminishing home values, and the highest unemployment rate in the nation.

@@ -1,0 +1,106 @@
++++
+author = "John Layfield"
+title = "John Layfield Quotes"
+quotes_len = "100"
+description = "the best 100 John Layfield Quotes"
++++
+- You look at right-to-work states: a lot of car companies are relocating down to the South so they don't have to deal with the unions or the legacy cost or any of those things, and that's what manufacturing's done.
+- I retired because I had to, not because I wanted to. The temptation to get back in the ring is very much there.
+- I'm a part of major league rugby. We had a league meeting to decide what to do with anthem protests, and even though I personally agree with what they say they are protesting as inequality and judicial system and incarceration rates among minorities, we decided all should stand and respect every national anthem.
+- I work with kids every day, and I preach to them how much more they make and how much easier it is to get a job when they get a college education.
+- If we had an immigration policy, sanctuary cities would not be the symptom that manifests itself.
+- I buy companies I want to own. I buy companies that make a lot of money, that don't have a lot of debt, and that I can understand.
+- I should be a poster child for CTE.
+- That's one of my issues with the pharmaceutical industry - they believe pharmacy is a panacea for absolutely everything.
+- I had seen the ethos of rugby, and I was very much an admirer. For us, it's a beautiful sport, what I guess what Pele called soccer in Brazil. It's so simple; it's easy to understand. You can play five on five or 15 on 15.
+- If you're selling t-shirts as a heel - you're selling them - then you've failed miserably.
+- When people are able to live at home, they have more disposable income. That part is good for the economy.
+- I've been to over 70 different countries, all seven continents. It's been just a wonderful ride, and all that is because of professional wrestling 100%.
+- If we lose Saudi Arabia because of sanctions or by avoiding them, they're going to China; they're going to Russia.
+- We have a mass incarceration among minorities that is disproportionate to our population. It's a travesty what's going on with our mass incarceration specifically of minorities.
+- The major thing of our government is to protect the people.
+- When people look at Bermuda, they see the beautiful beaches, the golf courses, the fishing, and that's what they should see. That's Bermuda. What they don't see is the almost predominant black-on-black violence that is unfortunately pervasive throughout the local neighborhoods.
+- I'm supposed to incite the crowd.
+- You want to change Saudi Arabia? You send something like WWE.
+- You want to get something changed, you send sport. Look what happened when Pee Wee Reese puts his arm around Jackie Robinson. That did more for racial relations in the United States through sport.
+- To me, you get into this business to make money and to make a name for yourself. And the fact that you're on the indies for 15 years is not a badge of honor.
+- I draw the line between me and my character.
+- I don't think people realize how good Fit Finlay was. He was the best heel and probably the best worker I'd ever seen.
+- The biggest rivalries I've had were with Eddie Guerrero and The Undertaker. I had long, long feuds with both of these men, and both were groomsmen at my wedding.
+- Brexit is a disaster, Italy won't be real about its debt, and the European Union is in trouble.
+- I enjoyed the Bradshaw character - the beer-drinking character from Texas. It was just fun.
+- I grew up a huge wrestling fan. My grandfather, who was a minister and retired when I was a young kid in Sweetwater, Texas, lived right near us. He was a big wrestling fan.
+- I've spent 7 Christmases in Iraq and Afghanistan with WWE.
+- I started up this program here in Bermuda, working with what society deems under-privileged kids, at-risk kids.
+- Walmart has stores in almost every city in North America. When they go to same-day delivery, they don't have to build warehouses across North America like Amazon has to do. It is so much cheaper for Walmart to use existing stores as distribution centers.
+- Invest in good, solid companies in good sectors.
+- When I got hurt - I broke my back in a match in London, England - I had to retire and became just a commentator.
+- I don't know what happened to the millennials. I think too much coddling is not a good thing.
+- I've always been a news junkie.
+- I do a mind game every day. I play chess, sudoku. I learn something different: a language, a few words of a different language.
+- I'm a kid from a small town in West Texas, and I've gotten to travel the world. I got to live all over the world.
+- Triple H and I have wrestled many, many times, but never on a real meaningful stage. I would really enjoy that.
+- I feel very strongly about our flag and our country.
+- When the Miz came in, most of the hazing was me working. Me on the mic, me talking to him. I gave him as much advice as I possibly could because I thought he had the ability to be a good heel. But I'm not going to apologize for hazing him.
+- There is so much talent! Now, we may not have at the moment that transcendent next-level 'Stone Cold' or The Rock, but I assure you, they're there.
+- When I was a kid, I always dreamed about climbing mountains. I read every book about it. I formulated this plan to accomplish it.
+- I think, Randy Orton, he has obviously been around a long time, but I think Randy Orton can be a terrific heel.
+- I had some physical problems with my back that caused me just some really bad problems.
+- You can't use the tax code as a penal system because you don't like what a country is doing.
+- We've always gone to other countries where there's been different standards and different practices you have to adhere to. WWE is like any other company, a global company.
+- I think The Miz can be a terrific heel. Miz enjoys being a heel, and I think he's actually very good at it. People look at him and want to hate him. That's what you want.
+- We must deal with Chinese theft of intellectual property, though no one is sure that tariffs are the solution.
+- I think people really liked Bill Clinton. They'd like to see him get elected, but Hillary's just a different animal.
+- I got the honor of traveling some with Kerry Von Erich. He was as close to a rock star as I've ever seen. He had a presence that when he walked into a room, it was like Elvis walking into the room.
+- Colleges take kids' money. It's that simple.
+- My belief is that the U.S. is looking at the world through a short-term lens of tariffs and elections, while China is looking at a 25-year plan of becoming the dominant global power.
+- Ron Simmons had a lot to do with Rock's success.
+- Why is it a badge of honour to say you spent 15 years in AA ball?
+- Did I haze the Miz? Hell yes!
+- I'm doing cardio five days a week and will do anywhere from 30 minutes up to an hour each session, but never under 30 minutes.
+- Government needs to stay out of nearly everything.
+- Guys do dives because they don't know how to work. Guys do flips because they don't know how to work.
+- I'm happy about the fact that I got to do what I wanted to do since I was a kid. The fact that I got to live the dream that I wanted to live.
+- My back's not great, and I can't wrestle a full schedule.
+- I just don't think our best are in politics. I think these guys are inept.
+- Do you want to talk about matches that matter? Randy Orton can go out there, John Cena can go out there, AJ Styles can go out there and put together matches that matter and not have to do silly dives because they don't know how to work.
+- Most of my promos are straight out of Pat Buchanan's run for election.
+- In West Texas, where I grew up, I had a wind farm planned. I'd gotten the turbines bought and the land acquired, and then the renewable energy credit imploded, and it killed the margins, so the deal never worked, but the investment bank I was working with asked me and said, 'We really like what you did. Would you come to work for us?'
+- I grew up a big fan of the J. R. Ewing character of the 'Dallas' TV show, and I grew up around people who were very similar to J. R.: they had come into a ton of money. And they loved to flaunt it and loved to drive fancy cars and wear the big cowboy hats and nice suits.
+- The 'One Belt, One Road' initiative has been dismissed by some as not working. But America could be becoming weaker by ignoring what is going on right under our noses.
+- Look what we did with Cuba. You isolate a country, and all you do is impoverish that country.
+- I didn't have a ton of success as Justin Hawk Bradshaw, but it wasn't a failure, either.
+- I fly every single week, sometimes up to four days a week, and I see incredible inconsistencies in TSA throughout our country.
+- When I first retired, I had short-term memory loss, and I started reading about neuroplasticity in the brain, about how the brain can regenerate itself, and I don't know if it can or not.
+- Rugby is just a ball. I would be much more versed to coach American football, but you need 22 players and all of the equipment. With rugby, all you need is some green grass, a ball, and a bunch of kids who want to run into each other really hard, which they enjoy.
+- You can't be critical of Dana White.
+- For all these internet fans out there that want to hate Roman Reigns and say, 'No, we're standing up because we don't like him...' Few people in the history of this business walk into an arena and everybody stands on their feet - everybody.
+- Walmart is going to be very good at this e-commerce game.
+- If you have a problem, the NYPD is the greatest police force to the world.
+- We knew that AJ Styles might be the best in the world. We didn't realize that until he got to WWE.
+- Second homes are an investment.
+- I really enjoyed working with Michael Cole. I think he's a great play-by-play guy.
+- I told myself after my football career was over that if I ever started making good money again, I would invest it wisely.
+- Money goes where it's rewarded. Money goes where it is needed the most.
+- Presidential scandals have traditionally and historically no effect on the market.
+- I tore my biceps and had two hernia surgeries.
+- A lot of people want to talk about me and my hazing. Yes, I did. I make no apologies about it whatsoever.
+- So if you ask those people who say they're standing up to boo Roman Reigns because, 'We don't like him,' 'Okay, would you pay to see Roman Reigns get beat?' 'Oh, absolutely! I'd love to see him get beat.' He's doing his job because people pay to see him.
+- When I broke my leg in college my first year, they were worried that I wouldn't walk straight again. In fact, I'm pretty pigeon-toed, and most people think I don't walk straight anyway.
+- 'Stone Cold' came in with a monster push as 'The Ringmaster' with Ted DiBiase. That didn't work out.
+- I always wanted to try Mt. Everest since I was a kid. I never thought I would be able to do anything like that.
+- Whether you love him or whether you hate him, Roman Reigns has earned his spot, and I'm hot at all these little crybabies out there going, 'We just stand up and boo him because we really don't like him.' Oh, really?
+- My dad was a banker, and I've always had an interest in it.
+- When I got cut from the National Football League, I had nowhere to go. I moved in with my parents until I got on my feet again.
+- Texas was a hotbed for professional wrestling when I was growing up.
+- I wrestled all over the world, in carnivals and tents in Europe and in Japan over 50 times.
+- The problem is the for-profit colleges. These guys are absolute criminals.
+- It's been a part of my entire life: I've wanted to be a wrestler since I was a little kid. I don't think that ever leaves you.
+- The JBL character, I had had in mind for a long time, a character very similar.
+- Leaving college early to play pro football was the best thing that happened to me. I got to drop the most boring poetry class. Dumbest thing I did was being in that class.
+- If a guy has served time and served his sentence, he deserves the right to gainful employment, but he does not deserve the right to be put at the front of the list.
+- When I started, guys were hazed, and for good reason.
+- You look at something like Russia, or you look at something like China, where you actually allow free markets to go in. And you haven't seen the change that we, in the western world, would probably like. You still have a bit of a dictatorship - some people would say more than a bit of a dictatorship - in Russia and in China.
+- Shawn Michaels I just think the world of. I would love the opportunity to be in a meaningful match with him.
+- I went to work on Wall Street for about three or four years with an investment bank, got certified: series 3, series 7, and all this stuff.
+- I played a little pro football, didn't make much money.

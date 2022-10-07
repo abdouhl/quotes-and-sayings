@@ -1,0 +1,106 @@
++++
+author = "Ted Dibiase Sr."
+title = "Ted Dibiase Sr. Quotes"
+quotes_len = "100"
+description = "the best 100 Ted Dibiase Sr. Quotes"
++++
+- We have all said things in anger in a moment that we don't mean.
+- Even in a given territory what would work in one city in front of one crowd might not work in front of another crowd. Every crowd is different in what they are looking for and what they'll respond to.
+- I always looked like an athlete but I didn't look like Charles Atlas.
+- To be in this business and be a star, not just be on the card, to be a star puts a demand on your time.
+- Yeah, the first television match that I'm going to have, I got put out there with Danny Hodge and I was scared to death.
+- Wrestling is an art form.
+- WCW started basically buying talent created by Vince McMahon because that's what they did with Hulk Hogan, Kevin Nash, Scott Hall and myself and gave us contracts.
+- I was not a big fan of the Attitude Era. Some of the things they did were very good and very funny but I was never a fan of the sleazy stuff.
+- I made a promise to myself that I wouldn't stay too long. I would get out at the top of my career and not be one of those guys who's body had started to go away and sag and look like and old man trying to still make a living.
+- You've got to have new stars and you need people to pass the torch to build those stars.
+- Stan Hansen is arguably the most popular, most famous, foreign wrestler in Japanese wrestling history. One of the absolute biggest names in wrestling.
+- When I first went to Georgia Championship Wrestling, the promoter at the time Jim Barnett brought in Robert Fuller, who later became Colonel Rob Parker in WCW, as the booker. Everybody has their own style and way of doing things, and I was just not impressed with Robert Fuller. As a booker. As a talent he was fine.
+- Usually a manager is put with someone who has got good rings skills, but is not necessarily good on the mic. So I have no idea why they put me with Steve Austin, he didn't need any help!
+- The truth is, the WWE has changed incredibly since my wrestling days. The work schedule is not as demanding overall, and the compensation is much better.
+- I did make 'Stone Cold' Steve Austin the Million Dollar Champion on Raw. You know I saw the talent in Steve and I remember telling him - because a lot of people were telling him 'You need to do more' - I remember telling him, 'Don't do anything different, because what you do is believable, it's real.'
+- Wrestling fans are the best, because they are so loyal. You can play on emotion. The good guy gets knocked down, and the bad guy takes advantage. And the good guy comes back from the very bottom to make that explosive comeback and overcome.
+- By the time Vince McMahon called upon me to become this character, the Million Dollar Man, I had already been wrestling for 12 years.
+- My dad was a wrestler, so I grew up old school.
+- I guess what I'm trying to say is that Eric Bischoff doesn't know that much about wrestling. This guy was selling meat out the back of a truck and became a ring announcer for Verne Gagne and I've always wondered how he ever got a job.
+- Well, the mission statement of Heart of David is that we're a ministry of evangelism and encouragement. Evangelism meaning that I evangelize I travel on a weekly basis to churches not only churches but I find myself doing a lot more men's events, I talk to a lot more men and I go to a lot of prisons.
+- I became an authentic Christian.
+- I was supposed to be the mouthpiece and financial backer of the NWO but what really happened as this thing got hotter, Eric Bischoff saw where he could slip himself into the role that he hired me for. And that's what he did.
+- No matter how many times you get beat, you don't mind seeing them get beat again. That's what a good heel is in our business. I think JBL did it just as good as anybody.
+- The reason that I discouraged my boys as I was discouraged was not because of wrestling itself. The reason I discouraged them as a father was from having lived the lifestyle - like my father did - and understanding the hardships that come along with it. It's not the wrestling itself. It's the 90 percent divorce rate.
+- It's just one of those things. When you're a wrestler you're thinking about one guy, yourself, your character and whatever guy it is you're working with. When you're a writer and you're kind of in a booking type role, you're thinking about the entire roster so you're thinking about wrestling 24 hours a day.
+- I had, back in March of 92, Wrestlemania 8, just after that is when I had a major confrontation at home and very nearly lost my family and I wrote a book about it.
+- The owner of Mid-South Wrestling, 'Cowboy' Bill Watts was and is extremely intelligent and unbelievable at understanding the psychology of our industry and I probably learned more from him then just about anybody.
+- Wrestling is sports entertainment for sure. But to be really good at what we do you have to be both an athlete and an entertainer. And actually, if you're going to be lacking in one, then be more of an entertainer and less of an athlete.
+- So I went to WCW for three years and quite frankly, it was the most miserable three years of my life in terms of business.
+- It doesn't take a lot of preparation for the Rumble compared to how you would prepare for a match where it's you and another guy.
+- When you're a celebrity, you don't have to find trouble because it will come find you.
+- Being a good worker in WWE is the worst curse that you can have. Instead of being given the title for being a great worker, they give it to someone who isn't and have that person work with the good worker, so they look good in the ring.
+- You can't promote change standing on the sidelines.
+- Business is business and I take it very serious.
+- I travel all over the United States basically in evangelism, speaking in churches, speaking in prisons, speaking in rehab centers wherever I can basically sharing my story of redemption and the turnaround in my life.
+- I am a minister and I preach forgiveness all time.
+- I tell everybody all the time: I had a 25-year wrestling career, and I'm most known for laughing.
+- My father died when I was 15, and my dad was a professional wrestler but as well as a national amateur champion at the University of Nebraska.
+- The real art of what we do, at least back in the old-school days, was improv. If you were a great worker, you were able to adapt and that skill developed over time because of all the traveling and working in different areas. You learned how to read a crowd.
+- As a boss I can't complain, I know Vince has given a lot of guys that had differences with him second chances. I know when I left to go to WCW he wasn't particularly happy with me but he brought me back, we buried that hatchet and everything is fine.
+- Well, I think everyone would agree that Vince McMahon, although he doesn't get it right every time, he gets it right most of the time, and he is a marketing genius.
+- I tell young guys, you need to build accountability into your life to avoid the pitfalls.
+- I've always believed that for kids who that grew up in the industry that it's not just a job, but it's something they fell in love with and something they've known all their lives.
+- When I left the WWF after SummerSlam '93, I didn't leave there thinking this is the end of my career. A couple of months later, when the neck injury took place and everything and I had that conversation with the doctor, I took the insurance and I got out of the ring.
+- The Million Dollar Man the character is actually a Vince McMahon original. It was presented to me and Vince kind of started laying it out.
+- I remember one time I got one of my front teeth knocked out, and so I got a partial where they have the deal where they have the thing that slips in and slips out.
+- As a young man, I had a strong faith in God. It dwindled and I pretty much abandoned it when I went to college. Basically, what I tell everybody is what took over my life was my pride.
+- Alberto Del Rio is doing a pretty good job.
+- The difference between Eric Bischoff and Vince McMahon is Vince McMahon knows how to create a star. Eric took a company and took it down.
+- I've been asked many times, do you regret never having been the world champion, you know? I kind of laugh. I say well, you know, this business is a work. It's like, none of those guys are ever really the world wrestling champion. The titles are props in this business.
+- We got in the ring and wrestled almost every night and didn't have many days off... The only thing I knew for certain when I got in the ring was exactly how I went in. We told a story and the match was the story.
+- Dusty Rhodes was a great athlete. Actually, he was a baseball player as well. He played football but he played baseball. That was his number one sport. He wasn't always heavyset like he is. But Dusty Rhodes, The American Dream he just gets charisma.
+- I remember when I was in Mid-South and they used to tape interviews every Wednesday morning, and I wasn't required to go to the interviews because I was a rookie and I wasn't cutting any interviews - I was a curtain jerker. But I went every Wednesday anyway because I was going to watch those guys and I was going to glean from them.
+- I taught my boys it is easy to follow a crowd. Anybody can do that. It takes a man to stand up for your principles. You cut your own path in life. Chase after whatever your heart's desire is, and instead of following the crowd, let somebody else follow you. That takes a little guts.
+- Wrestling is a business, it is show business and wrestling championships are props.
+- I have wrestled in front of 80,000 people at Wembley Stadium, and that is a pretty big thrill.
+- If I had to feel one thing towards Jim Hellwig, I guess it would be pity a little bit.
+- My son wanted to become a wrestler because I was a wrestler. I was his hero. I didn't want them to wrestle. It was the same reason my dad didn't want me to wrestle. It's not the wrestling. It's the lifestyle that goes with it and the demands it puts on you. It's not so bad for single guy.
+- I was smarter when I was 15, 16 than when I was 18 to 26, because instead of caving in to being cool, I stuck close to my convictions and I was rewarded.
+- I feel like my era was an era in which guys learned their trade the old school way.
+- Some of the top grossing movies now are children's animated features, they're making more money than action movies. And you'd never find a Hollywood A-lister years ago doing voice-overs for those films and they do now. You know why? Because everybody's got a price.
+- Bill Watts, who has mellowed out somewhat over the years, he was kind of like a Vince Lombardi in that you learned from him through fear and intimidation. But he was very good. I mean, he came out of the Eddie Graham school of wrestling, so to speak.
+- I didn't understand Warrior. When you come into my business, but you join the family, and that's something that Jim never did. It didn't seem to me that he was grateful for the things that people did for him.
+- Everybody makes mistakes.
+- Mid-South is what started my whole career.
+- Initially, when I saw some of the things Vince was doing, I thought he was killing the business. There was the comedy stuff, the wedding on TV.
+- I have the love and respect of my wife and my kids. I could look in the mirror and I'm happy with that guy now. He's okay. He's not a schmuck.
+- The road can become a very lonely place. It's not what it's cracked up to be. Of course, it's what you make it.
+- I was real close with Jim Duggan and Jake Roberts. We all came out of Mid-South, so we all had that in common.
+- Bobby Heenan was as quick-witted off the cameras as he was on the camera and just as funny. A great guy and I just thought the world of him as a person.
+- I walked away from a lot, I could have stayed in the industry in some capacity and had a fairly cushy income, and I chose to follow God. If it happened all over again, I would do that same thing.
+- I'm not that kinda guy to hold a grudge.
+- There's people that have labored and labored and it takes them a long time before they get that break and then they get it. Then sometimes, I've seen guys with a lot of talent never get it. It's the nature of the beast.
+- You look at all the athletes who come out of high school and college into professional sports. And they hit it big, they make money, and instead of saving their money, instead of doing the right thing, they go out and buy the biggest house, and the finest car, and then they get hurt, and it's gone.
+- The Million Dollar Man thought he could buy anybody or anything and that was the essence of the character. About as evil as you can get!
+- The Million Dollar Man was to professional wrestling what Ebenezer Scrooge is to Christmas. He was like a rich bully. He bullied everybody with his money, and his motto was 'Everybody's got a price.'
+- Jake Roberts started in Mid-South as a referee. We're pretty close, and we come from the same school of thought when it comes to the psychology of wrestling.
+- I understand the psychology of the business. I understand who I am and I know how I interact with other people, but that's a gift, the storytelling. Not everybody has that gift and it's kind of like the way I work.
+- I was fortunate. I probably could have saved more money, too. But, it's like, even though I'm not really the Million Dollar Man, I have a retirement account, I saved some money, and I did some right things.
+- Reality is, I could have made Japan a career. I could have just gone to Japan and I'd have been great.
+- I'm a minister, I preach forgiveness all the time.
+- I really spent the better part of the first 12 years of my career wrestling for Mid South. Fond memories, but a grueling territory.
+- When you talk about running big venues, obviously the WWE has sold out arenas all over the world throughout the years and it seems like every WrestleMania sets a new record. But, I believe l and I'm not mistaken that the first guy to run a dome was Bill Watts when he ran The Superdome.
+- I tell people all day who say 'When you going to retire?' I said I never found the word retirement in the Bible, so I'm going to keep going till I'm not here.
+- My first WrestleMania, which was WrestleMania 4, was a milestone.
+- People always ask 'What was your greatest match. What was your favorite moment?' Not realizing, you wrestle so much in a career that you can't pick one.
+- If there was a regret, the one thing I didn't get to do before he died, was bury the hatchet with Ultimate Warrior.
+- I am Heart of David because Heart of David Ministry, the Ministry is a Ministry of evangelism. It's like I'm the chief cook and bottle washer. What the Ministry is is it's me going out, it's me going to churches. I go to prisons. I go to foreign countries and I share the gospel.
+- It is funny that fans will come up to me constantly asking when I'm going into the Hall of Fame. I respond, 'Well, I don't know. I know they listed me in the Top 50. So sooner or later, I guess.'
+- When I left the WWE then I wasn't unhappy with the company at all.
+- I don't think Vince McMahon is evil or the devil. I think he's a very shrewd business man.
+- My strength was my ability to talk and my work in the ring.
+- The last thing I thought I would be doing is traveling the country and traveling the world preaching the gospel of Jesus Christ, but God had a plan and nobody is more surprised than me. A lot of people who knew me before have been equally surprised over the years.
+- I was ordained into the ministry through my local church in February of 2000. I had already been doing a lot of speaking. So basically, my vocation in life changed and I went from a professional wrestler to a itinerate preacher.
+- Well, you know, I was a top heel in the company for a long time and whether I was moved over to a tag team with Mike Rotunda, you know, we were a top heel team.
+- There's a lot of guys that made big money in wrestling because they just projected such a realistic character. And they weren't necessarily great athletes. Junkyard Dog played football, Junkyard Dog the wrestler, mechanically in the ring he was just not that good. His gift was, unbelievable work on the mic. He had charisma coming out of his ears.
+- Bobby Heenan to me, he was the best. Of all the guys that have been managers that can pick up a microphone and talk, he was a natural and so good. His character like mine was so hated, it was like a little weasel.
+- Vulgarity, in my mind, is not cool.
+- When I tagged with Andre, and I loved tagging with Andre, but Andre started having some physical issues, so I did all the bouncing around in the ring, and I did it joyfully.
+- I think with a lot of comics, their gift is improv. They don't have a script. They'll have a couple of good ideas they start with, and go from there. And it's the same in wrestling.

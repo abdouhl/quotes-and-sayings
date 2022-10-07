@@ -1,0 +1,14 @@
++++
+author = "James Howe"
+title = "James Howe Quotes"
+quotes_len = "8"
+description = "the best 8 James Howe Quotes"
++++
+- When I'm with other people who inspire my silliness or sense of humor, I'm funny. When I sit down to write, it's hard not to be funny.
+- Humor is the most precious gift I can give to my reader, a reminder that the world is not such a terribly serious place. There is more than video games and drugs and nuclear threats; there is laughter, and there is hope.
+- I became an author because I love words. I enjoyed playing with them when I was a kid, writing stories and plays, and doing whatever I could think to do with words. I kept my love of them growing up and still love to see what they can do.
+- I can no more separate my serious concerns about the world from my cockeyed way of seeing it than I can keep apart my personal and professional selves.
+- I was lucky in getting my first book published; my first book was 'Bunnicula,' which I wrote with my late wife Debbie, for the fun of it.
+- My family was always playing with words. It is little wonder that even after I got serious about writing, I've had a hard time getting serious about words.
+- Words played an important part in my growing up. Not only the written word... but words that flew through the air: jokes, riddles, puns.
+- I like to read fiction, and I particularly enjoy reading young adult fiction. But I also read children's books, adult books, current authors, and classics, but I like fiction the most.

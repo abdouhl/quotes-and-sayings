@@ -1,0 +1,20 @@
++++
+author = "Mattia Binotto"
+title = "Mattia Binotto Quotes"
+quotes_len = "14"
+description = "the best 14 Mattia Binotto Quotes"
++++
+- F1 has to be the pinnacle of motor sport in terms of technology and performance.
+- Certainly a driver, to perform to the maximum, needs to feel comfortable - within the team, with the car.
+- F1, we have all sorts of teams with different characteristics. They operate in different countries, under different legislation and with their own ways of working.
+- If there are any decisions that need to be taken in some circumstances, they should be in the favour of the most experienced driver.
+- I think I will not follow all the races, even in 2020 I am already considering eventually skipping some of the racing in the last part of the season starting from Turkey.
+- To win, or to create a great group with winning mentality, you need first stability, but serenity as well. And it is only by creating an internal and mutual trust that you can achieve it.
+- Because at the end, when you're responsible for an entire team, certainly the race event is important, but the entire... management of the entire team is even more important.
+- I know that leading Ferrari carries with it a high responsibility, but the pressure is more from the outside rather than internal.
+- You need always to balance your tasks at the racetrack and at the factory. Still the factory is important where we are developing the car, preparing the cars.
+- People should judge me for what I've done in 25 years. I'm not a rookie in F1.
+- One should not forget that companies play a role in the social fabric of a nation. They are not just there to make a profit.
+- I know I have the support of my managers. But I questioned myself. I reflected on whether I can be suitable for the role of team principal.
+- An organisation is always a very dynamic situation, you always need to improve yourself and organisation is one of the tools you've got.
+- For a driver in a Ferrari, anyway it is a lot of pressure, especially if you are a rookie.

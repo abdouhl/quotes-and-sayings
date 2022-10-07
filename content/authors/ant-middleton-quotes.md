@@ -1,0 +1,68 @@
++++
+author = "Ant Middleton"
+title = "Ant Middleton Quotes"
+quotes_len = "62"
+description = "the best 62 Ant Middleton Quotes"
++++
+- I was never one to think about why I need to go running or go to the gym - it just came naturally to me.
+- I don't stick to a routine, because I like to mix things up, which stops training becoming boring and helps shock muscles into firing up.
+- When you're in the military, you teeter on the edge of that line of life and death. The reason you feel so alive when you come through is because you know you've cheated death - and that and the adrenaline rush is addictive, no question.
+- I'm from a generation of Iraq and Afghanistan. Our battleground was where we learned. It's not like the old generation where they used to train and train and train, and then suddenly an operation would come up, and they'd go on it.
+- When I first joined the army, I felt I had to be part of the alpha male culture. But I didn't.
+- I was very selfish when I was in the military - a very selfish man.
+- The Special Forces is an aggressive and violent organisation. I wouldn't want to see a woman going through that and getting shot at.
+- If you mind tells your body you can't do it, you will quit. If your body is giving up, but you think you can carry on, you will naturally keep putting one foot in front of the other.
+- What's next? Let's do it! My life is chaotic and spontaneous, which is the way I like it.
+- I wanted a challenge, wanted to be self-sufficient, so I thought, 'Go and join the army,' at a young age, and I just happened to be good at what I done and went up the ladder and went up to the top.
+- I don't like to overthink. I tackle situations and problems head-on.
+- One minute, you're dropping your teenage son off to a festival, and the next, you're changing a nappy, but I love the versatility and challenge of being a father.
+- Whatever I turn my hand to, I put in the effort to be the best.
+- Being polite, being respectful, having manners, and being a socialite - they're key life skills that people take for granted. Being able to communicate with all people on all levels is what's got me so far.
+- The one thing I've always said is I don't want them growing up without a father, and they're my inspiration to make sure I'm the best man I can be. I want them to have the father figure that I never had.
+- I was point man, which meant I was the first through the door, hunting down Taliban commanders, knocking down forts every night.
+- You come on my course and enter my world - I don't care who you are or where you're from - you're a number until you prove yourself otherwise.
+- Followship is just as important as leadership. It's very important that you'll know if you're a great leader because you will have awesome followship. And the people behind you will take that burden of responsibility.
+- I'm an extreme do'er - I'm not an intellect; I'm not a bookworm. I do, do, do, and nine times out of ten, I fail, but I learn from that.
+- I'm very confident with who I am and how I lead, and I'm a problem solver and like to keep myself on my toes.
+- In the SAS, if you're not good enough, you're graded out of it.
+- I never looked for trouble, but when it found me, I wouldn't hesitate.
+- Basic training was hard, but I made it - because I wanted to be the best me. Sometimes you have to learn that being the best you is being the second best you. I learned the hard way that the army doesn't want people who always come first. Otherwise, there would be only one person in the army.
+- On a 60-mile trek with a 200-kg. bergen on my back, I felt my ankle break. Some might have given up. I broke my other ankle to even up the pain. And carried on.
+- It's asking that never-ending question, 'Who am I?' which motivates me and takes me on a constant journey of self-discovery that teaches me so much. Will Everest make me more cautious? In reality, probably not.
+- I joined the Marines, passed Special Forces selection, and became a young leader in the military.
+- Dad was wiped from our lives. The day after he died, every photo of him disappeared from the house. It was as if he'd never existed. Me and my brothers weren't even allowed to go to his funeral. His death was made absolute.
+- Don't try to be me. No one but me can be me. But you can be you. Look inside yourself and get to know who the real you is. And then be that person. The best version of you.
+- I hate it when people are late, and I hate being late.
+- The kids have got their iPads, but they prefer to get out climbing trees and coming out with me. That's the kind of learning I want them to have: experiences.
+- I love dogs, but they are a big responsibility, and with four children, having one would be too much.
+- I'm more about mind over muscle. My mindset needs to be the fittest, because it drags my body through whatever needs to be done. A lot of people neglect training their mind and their self-belief, but I believe that's crucial.
+- In Afghanistan, getting shot at was a regular occurrence. I viewed survival as a numbers game. As point man, every time I entered a Taliban compound first, I played the odds in my head.
+- When I was younger, if I got into arguments, I'd become aggressive and violent, but I learnt the hard way that was only going to end negatively.
+- I wanted people to know that I'm human, and I'm only successful because I've learned the hard way. I've been in so many dark places, but I got myself out.
+- When it comes to Everest, psychologically, you have to be in the red. If you're not, it doesn't matter how fit you are. I've seen the fittest of people, who I thought would steam up the top of Everest, allow the pressure to take over their body.
+- Some are happy with where their comfort zone is, but I like to be constantly tested, and I think it's good.
+- No trooper, no special forces operative wants to sit behind a desk. We joined up to kick some doors down.
+- When I left the military, I thought I would not have any problems with the transition - I'm very adaptable and very versatile - but I was wrong.
+- When you're challenged to the extreme, you learn so much about yourself. And when you're willing to give that ultimate sacrifice, when you're willing to tackle a job or a task or a mission head-on and give 100%, you can achieve amazing things because you're almost fearless.
+- I'm used to being in uncomfortable situations. I actually thrive in uncomfortable environments.
+- Never, ever command respect. Always earn it. A leader steps into the arena, and a great leader should never ask anyone to do anything that they haven't done or they haven't experienced.
+- If you start to pass blame or responsibility on to others, that's when I'm going to start to get really angry.
+- A lot of people want to go out there, help people, and save the world. Sadly, half the time they can't even help themselves.
+- Some jobs are for women, and some jobs are for men. It has nothing to do with how capable women are.
+- I'm 5' 8,'' and my weight's a steady 82 kg. I fuel my body with the right nutrition, and vitamins like Berocca, to leave me feeling energised and focused to overcome any tough day.
+- I don't really miss anything, I'm so focussed on what I have to do - I'm so focussed on my work - that I don't miss any creature comforts.
+- Men are very protective, and women are nurturing.
+- I trained my whole career to fight. I loved my job - I prioritised by job over my family, over my children.
+- I eat healthily as much as I can - meat, protein, carbs as well. I like my pasta; I like my rice. I like to have that sort of sustenance in me, because I'm always thinking of survival.
+- A lot of people these days are very much too wrapped up in cotton wool: people aren't pushed to their limits, and that's why we should find out where our limits lie.
+- If I've got a message to the younger generation, it's this: don't be scared of failure. Get out there, try things, and never be afraid to ask for help.
+- I want to see you use your brain. Get the job done efficiently. I want to see an intelligent operator at work. And apart from that, to stay on my good side, just do as you're told.
+- The lowest point for me was ending up in prison after a violent event. I realised I was way out of my depth.
+- I joined the army because I was a very self-sufficient young man. I always wanted to stand on my own two feet.
+- When I'm at home, I am in full Dad mode, and I love it.
+- When I took on Everest, I'm not there for the views.
+- There's nothing glorious about combat. I've been there and done that.
+- I might wake up in the morning and go out for a six- to eight-mile run, and then in the afternoon, I might swim two or three kilometres. The next day, I'll mix it up and do a military circuit. I don't stick to a set programme.
+- We have a responsibility as ex-soldiers to realise we're no longer in the military. All this 'once a soldier, always a soldier', that's all well and good, but that attitude doesn't work in society.
+- The military was appealing because I could just get away and do my own thing. I could have a roof over my head, be fed, and with the little bit of money I got, I could start to build me own life as I wanted to.
+- I had a tough childhood after my father died when I was five, and I had a very difficult stepfather. I want to give my children what I didn't have - a good role model.

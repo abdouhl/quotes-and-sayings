@@ -1,0 +1,81 @@
++++
+author = "Marcos Alonso"
+title = "Marcos Alonso Quotes"
+quotes_len = "75"
+description = "the best 75 Marcos Alonso Quotes"
++++
+- It's good to play in different ways.
+- I had some other offers from other teams from Italy and Spain but when Chelsea came to get me, I did not think twice.
+- Both when you defend and when you attack it needs to be about possession and positioning is vital.
+- Twenty-four hours a day football was a topic at home. I've always loved to play the game.
+- The English fan is educated.
+- I'm very happy with my career and I want to improve even more.
+- Chelsea are a club that had always attracted me.
+- I grew up with football in my house.
+- All my life I had played in a back-four, at Real Madrid Castilla and at Bolton.
+- I didn't know too much about Bolton but I knew other Spanish players were here. I didn't talk to them but I heard good things about Bolton.
+- It was a great two years in Italy, I played a lot of games and gained experience in a different league. So you pick up new stuff, new ways of doing things, on and off the pitch, and I think that has made me a better player, and also more mature mentally.
+- The only thing that counts is hard work.
+- Other than football, I think I'd pick tennis and golf as my favourite other sports.
+- Bolton was another important stage for me. I learned a lot, even if I didn't fight for any titles. We were not too close, only one semi-final of the FA Cup and then I went to Sunderland for only four or five months and we fought relegation.
+- My father is a massive Barcelona and Atletico fan because he used to play in those teams.
+- It is hard for a young player at Real Madrid, they will always buy in new players and not look at the youths. If I stayed I could have been in the reserves for years.
+- It's normal when you play in four competitions there are so many games, and because of this there is more risk of injury or tiredness.
+- Before I retire I'd like to play in La Liga.
+- My natural position is left-back in a four-man defence, but you have to be ready to help the team in the way the coach wants.
+- In England I feel very well known, not only by Chelsea's fans, but also by other teams.
+- Everything I can do to help is good for the team and good for myself.
+- I want to score more goals, I want to give more assists, I want to do more tackles.
+- The best way to make a name for yourself is to do well on the pitch.
+- Wembley is one of the top stadiums in the world.
+- I remember a Greek player from Sevilla, Vassilios Tsiartas. He was the best free kick taker I have seen in my life, I think. I learned from him in training. I used to hit the ball, like, five metres from goal because I couldn't reach! But I remember him telling me, 'When you are 14, 15 years old, you will take free kicks like me.'
+- It's important to start games well and then we could keep control of the game.
+- You learn more when it's hard than when it's easy.
+- Every season with Chelsea, we have to fight for every competition and every game and we will go for it.
+- When you are a kid, you aren't mature and you want to get up and play every week.
+- I'm not a massive basketball fan but I follow some of the Spanish players.
+- After playing my father used to coach, we used to follow him around Spain. We used to travel with him to many cities.
+- Before Bolton I played for Real Madrid and I was getting involved in the first-team training since I was 16 and then I played with the first team at 18.
+- Football is like this. The better the team you play for, the more fans follow you and there are millions of coaches and managers around the world! Some of them understand football one way; some of them have another opinion.
+- I am very happy to be at Fiorentina and I hope to help the team to fight for the first positions.
+- It's never easy to get the points at the beginning of the season and even more with a new manager.
+- I am the best to judge when I play well and when I don't.
+- Real Madrid was my home for a long time and I've not forgotten it. I grew up there, I met a lot of people and I made my debut. There's part of me that will always be there, I can't deny it. To play for the first team was a dream.
+- Conte is a hard trainer, who likes to work on the physical and tactical aspect. When you are training you suffer, but then you thank him in the field.
+- I don't know why someone would go to Bayern Munich.
+- All you can do is keep working hard, keep training and try to be ready for when the chance comes.
+- Pedro is a very good friend and I like to catch up with him after training.
+- I decided to join Bolton because I didn't get lots of minutes at Real Madrid.
+- I always try to work hard every day, because today you can be at your best, but tomorrow you can be no one.
+- Wherever the team needs me to help I will try to do my best, and it's good to be able to play in more than one positon.
+- I really like the Premier League and to have the opportunity to play for Chelsea and win titles.
+- Here at Fiorentina there are great players with whom I can train and learn, like Mario Gomez, Guiseppe Rossi and Massimo Ambrosini - there is a big difference compared to Bolton.
+- I want to keep improving and to work hard to be one of the best.
+- I don't really care about the critics or when people talk good about me. It can't affect you. I'm one to trust myself and to look for more.
+- Italy is a very competitive league, where most of the teams wait for you.
+- From my early years at Bolton I knew that Chelsea were a great club and the truth is that I was right to come here.
+- When I am on the pitch it is easier. When I used to stay home it was not easy to help the team.
+- To win games sometimes I need to get more in attack, and sometimes I need to defend more, but the main thing is to focus on getting the three points every game, and I will manage when to go forward more and when to help the team in defence.
+- Everyone tries to give 100 per cent for the team. If you can help with goals or assists then it's even more important.
+- I liked playing in lanes, especially because of the offensive opportunities you have in that position.
+- Football is a sport that changes very quickly.
+- To be honest, I don't care who scores the goals.
+- In modern football the position, the placement of the team and occupying spaces is important.
+- Of course I would love to play every minute and to always be in there.
+- Luis Enrique has shown at Barcelona that he is a great coach with many qualities and I believe he would be good for any club, but I do not know him a lot on a personal level.
+- I'm very happy at Chelsea but I would like to return to Spain one day.
+- I learnt a lot at Bolton. At Sunderland I had six months. When I arrived they were bottom of the table and we got to the League Cup final and finished the season in 14th.
+- I was training with Cristiano Ronaldo, Kaka, and I was only 16 or 17 years old. I was going 120 percent! It was a dream come true.
+- It's modern football - having the ball, controlling the game, and being well positioned when you lose possession.
+- Italians work hard physically and tactically.
+- I don't ever think I am going to go out and die on a football pitch.
+- I'm very happy about my career, and I'm proud of having played in Bolton and Sunderland.
+- I'm always looking for more, looking to improve and get better. That's something inside me, I know I have to work for it.
+- It is easy to work during the week if you are winning.
+- People were used to see me in a 3-5-2 because in Fiorentina that was also where I played. But the hard thing was to adapt to that when I arrived in Italy.
+- I was 11 or 12 when I had my trial with Real Madrid.
+- Football forgets everything very quick.
+- I do my best every time I play to put pressure on the manager and try to play more.
+- It's like after uni when you go to do a master's. Italy is like that for defenders.
+- It is not easy to bring the methods of a new manager to the Premier League.
+- My only focus is to give my all on the pitch and do the best thing possible.

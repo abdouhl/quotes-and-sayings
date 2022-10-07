@@ -1,0 +1,39 @@
++++
+author = "Juan Manuel Santos"
+title = "Juan Manuel Santos Quotes"
+quotes_len = "33"
+description = "the best 33 Juan Manuel Santos Quotes"
++++
+- That has been the concept to my life - setting very high objectives and trying to fulfil them.
+- We want to be a country with a competitive edge in the world. And a country with a solid democracy. To do that, we need to attack the social problems, and extreme poverty is probably the worst of those.
+- Colombia has a huge variety of plant and animal species, and we have enormous potential. Small and mid-sized companies should come to Colombia. From here, they have access to the entire Latin American market.
+- Protectionism is something that will hurt everybody, but especially the United States.
+- Uribe and I have very good relations. I owe him loyalty, I admire him, he did great things for our country, and I think that because of what he did, I can now concentrate on different issues, different from what he concentrated on.
+- I remember in 2000, when President Clinton came to Cartagena just before Plan Colombia started, the country was on the verge of becoming a failed state. Today, we are one of the most solid democracies, where institutions are working, where the scandals such as false positives have come to light because of those functioning institutions.
+- It's in the interest of the U.S. to maintain a strong democracy in Colombia.
+- I am a believer in free trade, fair free trade.
+- Democracy is like three oxen pulling a plough. The oxen are the independent powers, but you have to walk in the same direction; otherwise, you cannot plough and that is what was happening in Colombia. One ox was walking in one direction, the other in another direction, so the democracy was not working.
+- My ideal - and here, the sky is the limit - is to attract foreign investment via concessions.
+- Europe would be well advised to pay more attention to Latin America. The emerging economies are the engines of the global economy. Colombia has done too little to improve its reputation in Europe.
+- During the Cold War, tensions between the West and the Soviet Union affected virtually all countries worldwide. As a result, throughout Latin America, guerrilla groups emerged, seeking to destabilize military dictatorships and attain democracy, freedom, and policy reform - goals that they believed could not be achieved peacefully.
+- People in the U.K. don't imagine what it is to live in extreme poverty here in Colombia or anywhere in the so-called Third World.
+- I say that building peace is like building a cathedral. You have to have a solid base, and then you do it brick by brick. But the process is irreversible. There's no way back.
+- Anybody who doesn't see the impact of climate change is really, I would say, myopic. They don't see the reality. It's so evident that we are destroying Mother Earth. This is not the problem of one country or a few countries: it is the problem of mankind. We need to work together to stop this. Otherwise, our future generations will simply disappear.
+- That's what peace processes are about - changing bullets for votes.
+- There is land in Colombia, fortunately, for everybody. We don't have to expropriate land from people who are cultivating that land legally.
+- The FARC has given up their arms. They are now a political party. They are now doing politics, which is what a peace process was all about.
+- That is why every military officer fights - so that there may be peace.
+- Corruption is one of the high priorities of my agenda.
+- Simply to have peace brings huge investment.
+- If you go around Colombia or Latin America, without doubt you will find that 80 per cent of the time, you're discussing the past and only 20 per cent about the future.
+- I want total peace for Colombia.
+- We in Colombia always hope for Venezuela to prosper.
+- There have been many examples in the world of people doing crazy things because they want to keep war going.
+- I think that we are trying to move towards the First World slowly but surely. But we must do a good job for the people left way behind. That's why extreme poverty, for us, is a priority.
+- You will never hear me denigrating other countries.
+- Ten years ago, we were seen as a virtually failed state, but today we are a vibrant democracy. You can walk safely through the streets of Bogota these days.
+- There is a lot of inequality in Colombia. We have to correct that.
+- When I was defense minister, I was very popular, and now that I'm president, I'm unpopular because I'm trying to make peace. It's much easier to make war and get trophies.
+- Believe me, it is much harder to make peace than war.
+- No one has hit the FARC harder than I. But all wars have to end at some point, and that requires a negotiated solution.
+- Good friends don't have to visit each other every day.

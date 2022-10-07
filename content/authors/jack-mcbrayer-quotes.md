@@ -1,0 +1,45 @@
++++
+author = "Jack Mcbrayer"
+title = "Jack Mcbrayer Quotes"
+quotes_len = "39"
+description = "the best 39 Jack Mcbrayer Quotes"
++++
+- I gotta say, I know my strengths, and I know my weaknesses, and, well, Fix-It Felix, I'm not too far from that kid.
+- I did plays in high school, and I usually got cast in the comic role, which I really enjoyed.
+- I never would have guessed that I would get a job for the way I sound. I would get notes about how I should lose my accent, and part of me thinks, 'How dare you! This is who I am! Millions of people want to sound like me!' But it's sensitive, and I have tried to change it, with little to no success.
+- In college, I didn't perform so much, but when I graduated is when I discovered Second City. Then I realized, 'Oh, there are people who can focus on comedy and especially improvisational comedy and make a career out of it.'
+- Can I eventually take classes and eliminate my accent? Sure. I guess anybody could. But this is who I am, and this is what I got. And there are millions of people who sound just like me. Millions. It's not like this is some novelty.
+- I got fired for giving coffee away. It was just my regulars. I'd say, 'Don't worry about it,' and they'd put down a dollar tip. Technically, I was stealing. Ethically, I was boosting morale!
+- The first job I ever had was at a pool-liner-manufacturing plant. Minimum wage was $4.25, and that's what I was making. It was this huge, hot, un-air-conditioned factory staffed with all women and me. This is in Georgia, during the summertime, so it was pretty ridiculous.
+- If you get a chance to be part of a Judd Apatow film, you just say yes.
+- I do love my work, but Daddy likes a little break, too.
+- I did one touring show with Horatio Sanz. We went to, I think it was Iowa State University, and we were in this field house, so people were sitting on the floor. It started out with 2,500 people in there. We delivered the most mediocre improv, and it went from a crowd of 2,500 to 250 people in the course of 45 minutes. It was grim.
+- Every now and then I get angry, but fortunately, when I do, it's like watching a little dog try to attack something - it's something I'm not very good at.
+- I love Niecy Nash. I would take a vacation with the lady. She is just delightful.
+- When I was working at Teleflora, I got booked to do 'Talladega Nights,' so I went and did that. That was really my first big break ev-er. I made as much from my per diem during the three-month shoot as I did for the entire previous year.
+- Old habits die hard. I don't like spending money willy-nilly.
+- I'm one of those people who really liked high school. I know that might not be a popular thing to say, but it was fun, and I enjoyed my friends.
+- I'm an easy date. I meant cheap date, cheap date!
+- I would never shoot down any opportunity to challenge myself or stretch myself.
+- You know what would be a fun game? If Pac-Man was on a beach, and he was chomping coconuts. You could see how tan you could get your Pac-Man.
+- For one thing, there is absolutely nothing wrong with being nice. There is nothing uncool about it; there's nothing wrong with being kind.
+- I'm a little bit anally retentive, a little bit OCD, but a whole lot clean.
+- What all my years in improvisation taught is that - if you're going to grow as a performer - you have to try some new things. You've got to be willing to take a few risks.
+- I love summertime more than anything else in the world. That is the only thing that gets me through the winter, knowing that summer is going to be there.
+- In cartoons and in improv, anything can happen. You can be any character you want. The rules of real life don't always apply.
+- I have always prided myself on if, hypothetically, the entertainment industry just dissolved, just went away today, I feel that I have enough marketable skills that I could still contribute to society and make a difference. I'm a very good typist.
+- One cool thing is because Mom and Dad aren't into the Hollywood scene, they don't read 'US Weekly' or anything like that. They give me space. They don't care. They just want all of their children to be doing something that they love to do and be able to pay their insurance.
+- For me, if I'm just killing time, I play solitaire. I'm also guilty of playing Snood. I like games where I can shoot balls and match colors.
+- I'm still walking around New York like a tourist staring up at all the skyscrapers. I wave at people, I shake hands, I help ladies with strollers.
+- I love doing improv, and I swear by it, and I encourage people to take classes, and blah blah blah. But it's always been interesting how it doesn't necessarily translate to television.
+- I was under the assumption that the first job you get out of college is the job you have for the rest of your life. That's how my parents were; my parents have been teachers for as long as I've known 'em. I was worried that I'd gotten into something that I was going to hate.
+- When I was a kid, I had an Atari 2600, and I would play Pac Man, Frogger, all that kind of stuff. And I did enjoy going to the arcade.
+- My degree was in theater administration. So I can sell the hell out of a ticket at the box office.
+- The life of an actor is never one to get comfortable.
+- I was studying theater management, business stuff. About that time, I realized I really didn't like that, and it threw me into a panic attack a little bit. I was under the assumption that the first job you get out of college is the job you have for the rest of your life.
+- To me, it's weird when people review improv at all.
+- Sometimes you have to be okay with what you are to the world, where you are in the world, and make the most of it.
+- You have to understand that I'm not just some guy who voices characters in animated movie and TV shows.
+- I think I'm a nervous laugher. Like, when you're in a situation that you don't know what's going on, you go to laughter more than anything.
+- I think that I, Jack McBrayer, am somewhat of a people pleaser, and I do enjoy being good at my job. But I would never endanger my life with gullibility or naivete.
+- I think any actor just wants to keep working, and for me, I want to work on projects that are with fun people.

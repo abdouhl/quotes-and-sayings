@@ -1,0 +1,15 @@
++++
+author = "Theodore Isaac Rubin"
+title = "Theodore Isaac Rubin Quotes"
+quotes_len = "9"
+description = "the best 9 Theodore Isaac Rubin Quotes"
++++
+- I must learn to love the fool in me - the one who feels too much, talks too much, takes too many chances, wins sometimes and loses often, lacks self-control, loves and hates, hurts and gets hurt, promises and breaks promises, laughs and cries.
+- Health is relative. There is no such thing as an absolute state of health or sickness. Everyone's physical, mental, and emotional condition is a combination of both.
+- Have you considered that if you don't make waves, nobody including yourself will know that you are alive?
+- The problem is not that there are problems. The problem is expecting otherwise and thinking that having problems is a problem.
+- Happiness does not come from doing easy work but from the afterglow of satisfaction that comes after the achievement of a difficult task that demanded our best.
+- Feeling angry is a universal human phenomenon. It is as basic as feeling hungry, lonely, loving, or tired. The capacity to feel angry and to respond in some way to that feeling is in us from birth.
+- Sometimes the routes leading to feelings of anger are so convoluted and circuitous that it takes enormous skill to discern their original source, or fountainhead. But regardless of the reason for or the source of the anger or the relative ease or complexity in perceiving either the anger or its source - everybody, but everybody, gets angry.
+- Kindness is more important than wisdom, and the recognition of this is the beginning of wisdom.
+- Children are extremely perceptive and absorb what goes on around them long before they can talk or even comprehend language. They are like finely tuned receivers that pick up much more than is merely said. They are receptive and attuned to every mood, feeling, and change that goes on in people around them.

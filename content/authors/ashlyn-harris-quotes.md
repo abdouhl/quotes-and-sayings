@@ -1,0 +1,50 @@
++++
+author = "Ashlyn Harris"
+title = "Ashlyn Harris Quotes"
+quotes_len = "44"
+description = "the best 44 Ashlyn Harris Quotes"
++++
+- I did learn that there's a bigger picture than just being the best at your sport.
+- I prepare for every game the same.
+- Let's just say every day I'm unapologetically, authentically me.
+- I've had a fantastic career. I can sleep at night, and I'm happy with that.
+- I have to show up and do my job every day; that's my focus.
+- I'm not a blender. I don't like people who blend into society.
+- You've got to understand that on all my club teams, I've been an impactful player.
+- I like people who are authentically themselves, and they own it, and most importantly, they own their story.
+- We all carry extreme heartache and demons. Instead of pretending like we don't, I like to be honest and real.
+- When we're at work, we're there to work.
+- I was always taught to keep things private.
+- It's hard being on the best team in the world.
+- I train with Marta every single day, and I still have no idea what she's going to throw at me. She's one of those players - anything can happen at any given moment.
+- You kind of have to hit rock bottom to really rise to the top. That's just the way I feel about it.
+- Every time I get the ball, I have to kick it as hard and as far as I can.
+- There have been women who have pioneered and paved the way for me to be able to sit here and to have a platform. And it's my job and my duty to continue to push the boundary for equality on all spectrums.
+- I don't think life is this Instagram fairytale everyone makes it out to be. Life is super heavy.
+- I graduated college with a 3.5 GPA, when I came into college barely able to get in.
+- We all make decisions, and within those decisions, we have consequences.
+- I think I have a really good work ethic.
+- I've done a lot of great things playing for this country and this national team in the youth stage.
+- We don't ever show up trying to throw games.
+- Just because I give you a piece of me doesn't mean you get it all. There's very few people in my life who get it all, and that's sacred to me.
+- I expect to push my teammates as much as I can, and I expect them to do the same with me.
+- I went to college in North Carolina, so something about being in the East Coast is home for me.
+- We don't ever show up trying to plan who we play.
+- Every team I'm on, I expect to win.
+- How many times do you get to play in Portland in front of how many thousands of people? That's the kind of environment we want to be in.
+- I need everyone else around me to be impactful in my life in some way, and I think my fans need that, too. And I choose to accept that role.
+- Competition is everywhere here. I think it's a valuable thing. I think it's a good thing.
+- My path might not be the same as everyone else's, but I had to find a way. It's not by chance. It's not by coincidence. It's because I work hard for it... and I have to continue that to be successful.
+- We show up to win.
+- I wouldn't be doing my job, or holding myself to that standard that I see fit, if I just shut my mouth and played the game.
+- You don't score, you don't win games.
+- It was important for me to have something to fall back on and not just rely on my athletics to get me through everything because, clearly, at any point, something could happen.
+- What I love so much about being a part of Umbro and the partnership is they authentically let me be me.
+- Style is everything. You look good; you feel good.
+- It's good to be rewarded with all the training and emotions I've gone through.
+- My first memory of Umbro was when I refused to take off my orange and purple Umbro checkerboard shorts for church at five years old. I won that battle, and that drive to express myself and stay true to myself, even as a kid, is why I'm so excited about my partnership with Umbro.
+- I've failed a lot in my career.
+- I just have to wake up every day and be content with the decisions I make.
+- It is more important for us to get exposed so we can learn from it and build than skate through all these tournaments and never have any issues and then feel it in the World Cup.
+- I don't believe in luck.
+- When I'm training, and I'm in games, and challenges or things aren't going my way, I literally am so happy to go home to the family I'm creating.

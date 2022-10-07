@@ -1,0 +1,106 @@
++++
+author = "Maxine Peake"
+title = "Maxine Peake Quotes"
+quotes_len = "100"
+description = "the best 100 Maxine Peake Quotes"
++++
+- It's great having time to just sit back and work through things in my mind. It helps put life into perspective.
+- When I graduated, I was my biggest ever: 15 stone, with a boyfriend - my first - of just 11 stone. I was 23 years old. It wasn't just affecting my career: it was a health issue as well.
+- I don't have massive ambitions to be anywhere other than in this country doing good work.
+- I look up to the older generation of men - Arthur Scargill, Tony Benn, Jeremy Corbyn - but my main role model has been my step-granddad Jim. He's brilliant, very political, quite eccentric.
+- I care about my work, but I don't care about getting it wrong. The more you do, the more you realise nobody's going to die.
+- As I've got older, I've got slightly more fussy. You've got less time; you need to use it wisely.
+- A few things make a person stylish: honesty, imagination with a sprinkling of humour. I still keep an eye on trends, but I don't follow them any more.
+- When I'm going to work, I often stop and wonder how I've got here. I don't mean literally, but just thinking back to when I first had the idea of being an actress, it seemed so unreal, so unlikely. People like me just didn't become actresses. Every new job I get comes as shock. It's almost as if I'm waiting to be found out.
+- After my mum and dad got divorced, I was entitled to free school dinners, but my mum said, 'Under no circumstances,' because she was proud.
+- I get very irate with actors when they talk about how distressing it all is. I mean, it's only acting. Please.
+- For me, politics is about passion. It doesn't matter what you know; it's your actions that count. I meet people who say they're socialists, and that's not what they carry out in their everyday life.
+- I get easily distracted and become a bit of a giddy giggler. I'm not good at taking myself seriously, and laughing at myself helps ease the pressure.
+- You don't want to bash viewers over the head with a blunt message or lecture them - they'd soon get bored with that.
+- My favourite outfit is a giant bunny suit. I wore it in a music video for 'Are You One?' by the Chanteuse & the Crippled Claw and got to keep it.
+- 'Toast of London' is a must-watch. Matt Berry's off-the-wall humour is slightly surreal and a little bit deviant. That's why I also love 'House of Fools.'
+- I used to think the store detective had followed me all the way home and would knock on the door and go, 'Hello, is this your daughter? She's got three blue lipsticks and a moisturiser from Boots in her bag.' We just used to nick crap. Not even stuff we wanted.
+- Often, when I am playing difficult roles, I have a problem sleeping because I can't leave the character behind.
+- I joined the Communist Party when I was 18. When I was 10, there was the miners' strike, and the Cold War was going on; it was quite a potent time to get involved in politics. I got involved through my grandfather, who was a member.
+- I'm always an advocate of 'acting is reacting,' which can be difficult.
+- I was told, 'Your career's made by what you don't do,' and that always stuck with me. I drive my agent mad!
+- My kind of work is very intense. The trouble with me is that I completely fling myself into it. I get giddy. I get terrible crushes on jobs.
+- Generally, I am losing faith in telly, as we do have good dramas but not as many as there should be.
+- I'm not a fan of reality TV.
+- If I were to appear in a programme like 'Sex and the City,' I'm sure I'd be cast as the downtrodden one staying at home and having seven children while the others jet-setted around the world.
+- Cooking, you can keep. I've not the slightest interest in it.
+- I actually used to compete at show-jumping when I was a young'un.
+- As a human, if you're in a scary situation, you pretty much forget about everything else! You just try and survive.
+- I love hoovering. People go to therapists; I've got a Hoover.
+- I wasn't an obvious actress in any sense of the word.
+- People will always respond to high-class drama.
+- There aren't that many great female roles in Shakespeare - none that I'd be desperate to play.
+- Unfortunately, at the end of the day, when you watch yourself on the screen, you are always you.
+- I remember when New Labour got in. I was at Salford Tech studying drama, and everyone was jumping up and down, and I was so upset, I went to a phone box and called my granddad.
+- I was a tomboy. I had a pudding-bowl haircut; I wore big Doc Martens and dungarees.
+- What is male and what is female? I don't always feel female.
+- They always said to me that I needed to be more feminine. I think it's so wrong. Being boisterous doesn't mean you are not feminine.
+- For me, I'm still always that kid from Bolton.
+- I'm really unimaginative - once I like something, I fix on it.
+- I think people expect me to dress a bit like Veronica from 'Shameless,' in vest tops and denim skirts.
+- I went to Salford Tech. They did a two-year performing arts course. I went there singing and dancing - I had a terrible time. I turned up in green dungarees and German power boots. I was into prog rock at the time - Gong and Hawkwind - and I was clumping around.
+- I do, in a strange way, care deeply what people think.
+- I'm inspired by films from the early '50s, especially Jean Simmons in 'The Clouded Yellow' - and by vintage swing, psychobilly gigs, sea shanties, and English folklore.
+- I've always had pop-star crushes. I had a huge crush on Ian Brown.
+- In my 20s, I was going round seeing agents who were patronising because I was fat and a girl, which was a double whammy. I knew what it was to feel out-of-the-loop.
+- What's wrong with wanting the best for everybody?
+- I find these dramas fascinating - it's a world that many of us fortunately don't dip into. The legal system is all around us, but the majority of us don't have to go into a court, so it's a way into another world that is unusual.
+- Male? Female? It's not always relevant to some people. They are who they are - they might not fit into a specific box.
+- I think with 'Silk' there's something there for everyone: it's a legal drama, but it's human as well - you get to dip into the lives of the barristers and clerks.
+- Nobody's impressed back home. All my friends were going, 'Oh right, so you're doing a play up in Leeds? Another depressing one is it? Do you mind if we don't bother coming?' I love that.
+- I think all things are political... How women are portrayed - that's a big thing for me. What is this role trying to say about women? Is this woman weak or victimised, and, if so, do we get to understand why?
+- I love 'Splash!' and 'Take Me Out.' Not that I'd ever do 'Splash!' It's the parading on British TV in a swimming costume I couldn't handle.
+- I get angry about the way women are forced and bullied into what the male ideal is.
+- Pay in the acting world hasn't kept up with inflation.
+- When I was a little girl, there was this unbelievably cool female bus driver who'd work near us. I remember thinking I'd like to be her when I grew up.
+- I think an actor's process should be very personal and private, and sometimes I have thought, 'Oh, please, put it away now.'
+- I think you can tell a lot by someone's footwear - cowboy boots would put me off, as would a man in Ugg boots or Crocs.
+- The women I play don't sit in the corner eating lettuce leaves and talking about what designer shoes they have.
+- I must admit I don't usually buy a daily paper, although I will get one if there's an interview I want to read.
+- I have recurring dreams about losing my temper, which become quite violent. I dread to think what that says about me.
+- Sometimes the darker the work, the more fun you can have.
+- I am an actor. I love acting, and I absolutely love what I do, but I don't want it to be every waking hour.
+- I reckoned my accent and class would count against me; I didn't see actresses as being working-class.
+- I'd rather go down with an almighty bang than play it safe.
+- We still have an underclass in this country who are constantly ignored and vilified.
+- I went to the Old Bailey, and I met a judge, and I was petrified, but they were like, 'Oh, you're an actor, well, great.' It was a bit like we're cut from the same cloth a little bit.
+- I'm unusual in that I've worked more as I've got older.
+- When I was growing up, because I was a bit overweight and boyish, I thought I wasn't attractive to the opposite sex, but I have since met lads from my school who said I just seemed unapproachable.
+- I'm a big comfort eater, so if I'm feeling sorry for myself, I'll just stuff my face.
+- Sometimes it feels like the feminist movement never happened.
+- I've always fancied being a bit of warrior, on a horse swinging a sword around, sorting out the men... Oh yes, that sounds lovely.
+- If I feel like if there's a few too many people on that path with me, then I want to jump off and find another one.
+- I take bits and pieces from everything. But I think the Method can be very isolating, and sometimes it's more about ego than playing the character truthfully.
+- When we were doing 'Criminal Justice,' they were filming 'Clash of the Titans' nearby and we kept nicking off to their catering tent and going, 'Look what they've got!'
+- I was a tomboy. In my clubbing days, my friend Lucy Davies-Hunt - half-Iranian, looked like Yasmin Le Bon - could wear catsuits, while I was the one in the sweatshirt, jeans, and Fila boots.
+- Everybody's in a situation; everybody has a story. It's about finding out why.
+- I think, as a woman, you've got to make so many sacrifices.
+- If I dress up, I try to wear something that's still a bit me, but then I regret it when I see that everyone else has dressed up more and looks amazing.
+- The films, the music, the telly that I like is always a little bit more on the margins.
+- It's interesting when people say, 'You always play strong women,' because as far as I'm concerned, women are strong. I think that's what women are. We have got that vulnerability, but we have got that strength. We are survivors.
+- When I'm not acting, I don't feel like an actor.
+- You want to go to your deathbed saying, 'I didn't sell out.' But it's a tough business to keep to what you believe in and get through and do well.
+- We need a wider sense of community because we're all on the same planet.
+- Every job still feels like the first time.
+- At drama school, I was told, 'Lay off the chips, or you'll never play Juliet.' Sometimes, in the stock room of the set of 'Dinnerladies,' I'd put away three or four Mars bars while waiting for a scene. Then, at 24, I lost five stone.
+- Crying does not equal good acting.
+- We shouldn't still be asking, 'Have you got children? Why've you not got children? Ooh, you must have children!' Bog off, d'you know what I mean?
+- Food is important in working out a character. How she eats is a window into her temperament. If I think she likes her food, I'll put on a few pounds, or lose a few if she lives on her nerves.
+- People think I'm clever, which is hilarious. I'm like, 'When did this happen? People used to think I couldn't string a sentence together.'
+- I watch 'Take Me Out' mainly for Paddy McGuinness. When we were younger, we worked together as lifeguards at the Bolton Leisure Centre.
+- I didn't have my first serious boyfriend until I was 23. Then after that, I went out with a guy I'd been best friends with all through drama school.
+- We take things at face value, don't we? You form an opinion about something immediately, but you ought to step back a bit. Take in the vista first.
+- I'm quite cautious in most areas of my life, but I'm always happy to gamble when it comes to acting. I'm not frightened of falling on my face.
+- I know I sometimes come across as being quite dismissive about acting. But I'm not. It's like people reading their diaries in public. I don't want to talk about how I create characters. I find it self-indulgent.
+- The 'Bolton News' is the best place for online comments. They say I'm an absolute idiot and a communist anarchist. I was never an anarchist; I was a communist!
+- Music is a huge inspiration to my style. I first got into it when I was 10: the new wave mod scene.
+- The first posh meal out I had was on my 10th birthday.
+- I don't really engage with that world of technology, which might be to my detriment.
+- I'm very independent, probably quite selfish, and like being able to disappear at the drop of a hat without having to explain myself - most men would find that a pain, wouldn't they?
+- I'm a big techphobe. Someone else helps me run my Twitter; I wouldn't be able to trust myself.
+- I left the North when I was 21 to go to drama school in London, and I stayed there 12 years.

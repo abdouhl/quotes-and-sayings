@@ -1,0 +1,19 @@
++++
+author = "Ted Demme"
+title = "Ted Demme Quotes"
+quotes_len = "13"
+description = "the best 13 Ted Demme Quotes"
++++
+- I'm at Miramax now, where I've actually been treated like a Prince.
+- You know, I think everything I do cinematically for the rest of my life will probably have some direct route back to Jonathan. But I love him to death. He's like my best friend and my big brother.
+- I think, on a larger note, that filmmakers and studios should start to tuck it in a little bit, because films wouldn't have the pressure they have if the word wasn't out about how expensive they were.
+- There are a lot of films that are drug dramas, and we didn't want to tell Scarface again.
+- But my humble opinion is, I'm not quite sure where I stand on the legalization of drugs - though, if tequila is legal, pot should probably be legal.
+- That's why I'm really trying to produce my own stuff. This film was so good, because I produced it myself, and developed it, and made it with New Line, which is a smaller studio, so I was in control of a lot of stuff that I wasn't in control of for my other films.
+- And then we watched an amazing number of movies from the late '60s and '70s, which is my favorite time, and we studied their camera movements, their stocks, the way they lit stuff, the colors they used.
+- I felt that as long as we were being honest, and that we didn't bend the truth to accomplish another goal, to be entertaining or to be a happy ending, I was confident that we'd be able to tell the story the way it happened.
+- I tried to stick to my game plan, which was always being aware of what my A story was - the love story between a father and his son, and that son and his daughter.
+- I was influenced by European movies, old Fellini, old Kurosawa - any sort of foreign film.
+- What I think happens today is that a lot of filmmakers look at other films that are retro pieces, like L.A. Confidential, and say, oh, that's period. We didn't want to do the stereotypical stuff.
+- The thing that's great about those guys at Miramax is the Weinstein brothers. They are the two funniest guys I've ever met in my life.
+- The older I get the more I realize there's no real good guys or real bad guys, and I'm curious about how the good guys got good and how the bad guys got bad.

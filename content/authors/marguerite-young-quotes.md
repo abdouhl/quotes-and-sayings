@@ -1,0 +1,37 @@
++++
+author = "Marguerite Young"
+title = "Marguerite Young Quotes"
+quotes_len = "31"
+description = "the best 31 Marguerite Young Quotes"
++++
+- All the books I have written have been one book, from the beginning.
+- If there is no certain reality, the idea of following a leader must be scrutinized.
+- There were also some cruel reviews by women, but the tone of the male reviewers, sometimes hysterical, was different. I have suffered, but I don't want to name names-but there have been men who have seemed to want to destroy me or my writing, men I don't even know.
+- At the age of 18 all young poets are sure they will be dead at 21 - of old age.
+- Life has no beginning, middle or end.
+- All creatures are flawed, but out of the flaw may come the universe.
+- I don't believe there can be a poetic novel without political consciousness. I have a strong political conscience.
+- If you don't have obsessions, don't write. my characters are obsessed.
+- When the dream came into being, I always pursued it.
+- The first money I ever had was when I received an award from the American Association of University Women.
+- All my writing is about the recognition that there is no single reality. But the beauty of it is that you nevertheless go on, walking towards utopia, which may not exist, on a bridge which might end before you reach the other side.
+- A good writer cannot avoid having social consciousness. I don't mean this about small pieces of writing, but about a big book. If it's a big book, there has to be more than one undertow.
+- I've been willing to go for years without publishing. That's been my career.
+- Some of the poetic writers who insert passages of realism in their texts have no underlying philosophy to uphold them, and revert to realism.
+- I believe that all my work explores the human desire or obsession for utopias, and the structure of all my works is the search for utopias lost and rediscovered.
+- I never fantasized or invented a thing, not one thing. I knew every single thing I ever wrote about.
+- I think most people don't like others who, without a voice of their own, emulate the other. I certainly don't want anybody just to pick up my thoughts and hand them back to me.
+- Is it experimental to have been influenced by the Bible? By Saint Augustine?
+- If you know anything about James Whitcomb Riley, you know that Little Orphan Annie is one of the most fantastic characters who ever lived in America before Charlie Chaplin.
+- I would teach from nine to four, sleep an hour, and write from six until midnight, night after night.
+- I would never write realistic prose. I don't like people who try to write in a poetic style, but in the course of their book abandon it for realism, and weave back and forth like drunkards between the surreal and the real.
+- I think there is a rage against women. I've come to see that now although at the time I did not notice it. I was preoccupied with my teaching and my writing.
+- I knew Anais Nin, who called me after I had been away for a few years. She was seeking help because at that time no one would give her a decent review. She was made fun of.
+- A lawyer I once knew told me of a strange case, a suffragette who had never married. After her death, he opened her trunk and discovered 50 wedding gowns.
+- I'm quite sure that most writers would sustain real poetry if they could, but it takes devotion and talent.
+- I would say my theme has always been paradise lost, always the lost cause, the lost leader, the lost utopia.
+- If you understand hallucination and illusion, you don't blindly follow any leader. You must know if the person is sane or insane, over the abyss.
+- The first poem I ever wrote, about loss, when I was 5 years old, expressed the themes of everything I would ever write.
+- I'm as much influenced by Joseph Smith and the Mormons as I am, more so, than by Eliot. Actually, I'm much more influenced by the poetry of the Mormons.
+- Dreiser... I love... and almost wouldn't speak to anyone who ever attacked him.
+- I never thought of myself as either a woman or a man. I thought of myself as a person who was born to a writer, who was doomed to be a writer.

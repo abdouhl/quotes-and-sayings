@@ -1,0 +1,94 @@
++++
+author = "Kevin Systrom"
+title = "Kevin Systrom Quotes"
+quotes_len = "88"
+description = "the best 88 Kevin Systrom Quotes"
++++
+- I'm always in awe of people who are artists in their fields - people who understand that simply by taking ideas and translating them into reality, they've created value in the world.
+- If you've got an idea, start today. There's no better time than now to get going. That doesn't mean quit your job and jump into your idea 100% from day one, but there's always small progress that can be made to start the movement.
+- Back in the day, I actually studied photography in Florence for a few months, and my photography teacher took away my digital camera and said, 'No, use this - it's analog and it's square.' It was a Holga camera, a very cheap $3 or $4 plastic camera. And that's what inspired 'Instagram'.
+- You can build a filter app get people really excited, but the way to keep them is to provide long-term value. Long-term value is, in fact, being its own network.
+- If you're a journalist, and you want to see live photos happening at any location in our system, you can simply type in the location, and up comes the page.
+- Instagram is a media company. I think we're about visual media.
+- There's a natural set of constraints with mobile phones that force you to be a better photographer by acknowledging and observing the world around you.
+- On average, people miss about 70 percent of the posts in their 'Instagram' feed. What this is about is making sure that the 30 percent you see is the best 30 percent possible.
+- 'Instagram' is great if you want to share photos, but you're not that technical. Or, if you're not interested in sharing publicly, 'Instagram' becomes a place where you can not only consume photos and videos from musicians, or whoever, but send them directly to your friends.
+- I don't foresee a future where people don't have some sort of phone that's like a computer. I don't foresee a future where those phones don't have cameras in them. That spells a future where smartphones are the status quo. You have to ask yourself how you allow people to communicate what's in their lives.
+- The printing press did something really big for the world when everyone could get books in their hands and read.
+- 'Instagram' doesn't exist in a vacuum. We're not a bunch of siloed individuals. It's a bunch of people coming together on topics, fashion, you know, youthful teens, creatives, photographers, foodies, everyone coming together and building a community around the things they love, communicating visually.
+- It is cool to see that the fashion world has really taken to 'Instagram,' but, again, it is one of the many examples of many communities, whether you are a chef, a skateboarder, a surfer, a skier.
+- Every photo you take communicates something about a moment in time - a brief slice of time of where you were, who you were with, and what you were doing.
+- The major reason why Instagram works is that you can follow anyone out there and start following their photos immediately.
+- 'Instagram' is a media company. I think we're about visual media. I explain ourselves as a disruptive entertainment platform that enables communication through visual media. I don't think it's just photos.
+- There are billions of dollars spent every year on traditional media. The majority of people are spending more time every day on the Internet, especially on mobile. You're starting to see a shift of that spend go to mobile, especially to things like 'Instagram'.
+- I run a business and go all over the world doing things for that business, things that are fairly orthogonal. But my job is to run my company, not to be the best Instagrammer. I'll let other people be awesome at it.
+- People interact with their phones very differently than they do with their PCs, and I think that when you design from the ground up with mobile in mind, you create a very different product than going the other way.
+- If it's one thing we do really well as a company, it's that we take big change slowly and deliberately and bring the community along with us.
+- A platform is the base from which something big happens. In our case, we're an entertainment platform in the sense that there are people signing up like MTV, Burberry, folks like Taylor Swift and Justin Bieber. And why? Because it's their channel to control their entertainment to their fans.
+- I do believe that Instagram has put a stake in the ground and we're growing more quickly than anyone. Is there something in there we could do to make it a multi-billion dollar business? I think we can figure out something along the way.
+- If you focus on producing a great experience for anyone, that's how you get big.
+- Just so everyone knows, we're not a photo-sharing company. I don't see photos on 'Instagram' as art. They're much more about communication.
+- I can't imagine that companies are uninteresting if they don't have a billion users. But I do believe, to have mass scale, you have to be in the many-hundreds-of-millions-of-users range, and there are not that many companies that get there.
+- I think not focusing on money makes you sane because in the long run it can probably drive you crazy.
+- I actually think some of my best moments in life have been while I was with people from Instagram - whether it's super late nights getting a release out or being able to travel to places I'd never visited and meeting some of the most interesting people I've ever met.
+- 'Instagram' reached 13 million users in just 13 months.
+- When people say that college isn't worthwhile and paying all this money isn't worthwhile, I really disagree. I think those experiences and those classes that may not necessarily seem applicable in the moment end up coming back to you time and time again.
+- Someone once described entrepreneurship to me as a series of happy accidents.
+- Good companies are always fundraising. Whether you're meeting people or considering firms, you're always fundraising.
+- When you open up 'Instagram,' you need to know that you're seeing the real Tony Hawk, the real Taylor Swift, the real Burberry.
+- Really, we're just taking people and shifting them from taking photos anyway to taking them on 'Instagram'.
+- I've always had a passion for technology, photography, startups, and connecting people. Bringing those aspects together made me successful.
+- I'm a huge fan of what 'Hipstamatic' is doing and all they've accomplished.
+- All of us in social media and regular media, we're all competing for the same thing, which is this gap between something happening in the world and you knowing about it.
+- In the past, people have looked at photos as a record of memory. The focus has been on the past tense. With Instagram, the focus is on the present tense.
+- I believe photos is one of the underlying things in every social network that becomes successful.
+- Mobile has created a totally different dynamic for discovering apps. You're sitting in a bar, and your friend is taking some pictures, and then you ask what app they're using.
+- 'Instagram' Direct is a really interesting feature because it's grown significantly since we launched it. People continue to use it to communicate more privately.
+- People don't work in a dotcom because they have to. There are many professions that don't require that sort of time. But people sign up because they want to make world-changing differences, to build something that affects millions of people.
+- Instagram was created because there was no single place dedicated to giving your mobile photos a place to live and to be seen.
+- As a kid, creation was something that I always loved. Creating worlds for video games, creating businesses that didn't make any money, selling lemonade, etcetera. In my fourth grade classroom, I even instituted a government structure because I was really interested in people having positions and there being law.
+- It's funny: I was a photographer before I was a programmer.
+- When you're introducing a mobile app, you look around and say, 'We could be doing 15 different things, but how do we communicate to someone why they would want to download and even sign up for this thing?'
+- It turns out that no undergrad class prepares you to start a startup - you learn most of it as you do it.
+- The way people communicate is changing, and no one knows this better than teens. We are using images to talk to each other, to communicate what we're doing, what we're thinking, and to tell stories.
+- I like to say that the one thing that all people who succeed in changing the world have in common is that they at least tried.
+- I like to compare 'Instagram' to the Library of Congress.
+- I own a Canon 20D, though I don't remember the last time I used it. Ever since the iPhone 4, I've been completely absorbed in taking photos from my mobile phone.
+- I grew up as a photo nut. Every Christmas I would get a new camera. It's a huge part of my life.
+- One of the earliest requested features was to do premium filters where a brand could sponsor a filter. It's just not in our wheelhouse. It doesn't feel 'Instagram'-my in the way that the high-quality brand ads do.
+- Working at a startup to make a lot of money was never a thing, and that's why I decided to just finish up school. That was way more important for me.
+- Chobani did a really wonderful yogurt campaign on 'Instagram' to shift perceptions away from the fact that they were just yogurt. And they had a 7-point incremental lift on shifting that perception through a brand advertisement on Instagram.
+- I've always been into taking my photos, cropping them square, putting them through a filter in Photoshop.
+- There are a lot more companies with a lot younger people. It is just like 23-year-olds are starting companies, and they are scaling really quickly.
+- 'Instagram' is an app that only took 8 weeks to build and ship but was a product of over a year of work.
+- 'Instagram' is definitely becoming a new entertainment source for people day after day.
+- Mike Krieger and I started talking, and he decided he liked the idea of helping start the company. Once he joined, we took a step back and looked at the product as it stood.
+- Traditional businesses can say, 'We're going to sell widgets to people, and it will make X amount of profit.' But new business models are hard.
+- People are hungry for what's happening right now in the world.
+- There are a lot of apps that are fun to use - they're utility apps; they're fine. But there are a fraction of apps that are in the cream of the crop. You just need to be in the cream of the crop to get noticed.
+- It's wonderful when you pair entrepreneurs together because they can share experiences and in some ways push each other to build better products going forward.
+- Do what you love, and do it well - that's much more meaningful than any metric.
+- Our goal is to allow people to use whatever app they want to get photos into 'Instagram'.
+- A photo app is a utility. It's like comparing 'Twitter' to Microsoft Word. If you want to be an author, you're not always going to constrain yourself to 140 characters.
+- 'Instagram' can engage generations of people that may not be on Facebook yet. I think that's true with 'WhatsApp,' and I think that will be true with things like Oculus.
+- Calling 'Instagram' a photo-sharing app is like calling a newspaper a letter-sharing book, or a Mozart grand era symphony a series of notes. 'Instagram' is less about the medium and more about the network.
+- I care deeply about craft: the quality of how something is made and the experience it enables.
+- Our goal is really to make sure that 'Instagram', whether you're a celebrity or not, is a safe place and that the content that gets posted is something that's appropriate for teens and also for adults.
+- There are fun parts of running a startup and not so fun parts, and Facebook handles the not so fun parts, like infrastructure, spam, sales. The real questions are, how big can 'Instagram' get? Is it 400 million, or bigger? Can it be a viable business if it is that big? These are at the top of the list for everyone in Silicon Valley.
+- Facebook's campus has a lot of creative spaces: an analogue print shop, a candy store. It's a dynamic place and one of the best environments I've been in, period.
+- The best companies in the world have all had predecessors. 'YouTube' was a dating site. You always have to evolve into something else.
+- Photos were seen as the most private type of content, and 'Instagram' really flipped that on its head and said photos can be really public.
+- I try to list the top three things to get done every day, and I'll be lucky if I hit all three, but it's amazing what that does to keep you on track.
+- A lot of the earliest 'Instagram' celebrities took really beautiful photos. But you're starting to see a change where it's not about beauty; it's about the story that you tell.
+- Great products sell themselves.
+- Videos are a very difficult medium to be good at and also a difficult medium to consume quickly.
+- Most photo apps before asked something of the users. They said, 'You produce, act, and perform.' 'Instagram' said, 'Let us take care of the secret sauce.'
+- It helps to see the world through a different lens, and that's what we wanted to do with Instagram. We wanted to give everyone the same feeling of discovering the world around you through a different lens.
+- Whether it's an ad or organic content, video provides a new creative dimension for storytelling on 'Instagram'. Video lets people convey the power and beauty in a moment through sight, sound, and motion.
+- Brands, musicians, and public figures were among the first to embrace video on 'Instagram', and we've been impressed with how brands have extended their reach with video ads.
+- Products can introduce more complexity over time, but as far as launching and introducing a new product into the market, it's a marketing problem. You have to explain everything you do, and people have to understand it, within seconds.
+- I don't think you should ever start a business and move in a direction where you can't see it becoming a business.
+- Every startup should address a real and demonstrated need in the world - if you build a solution to a problem lots of people have, it's so easy to sell your product to the world.
+- I think it's hard to compare 'Twitter' and 'Instagram'. Twitter has a more mature business.
+- I think Instagram at its best is where you feel like you're getting the most authentic version of the person on the other side of the camera. Someone who does this wonderfully well is Lena Dunham.
+- Imagine the power of surfacing what's happening in the world through images, and potentially other types of media in the future, to each and every person who holds a mobile phone.

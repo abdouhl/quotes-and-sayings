@@ -1,0 +1,41 @@
++++
+author = "Max Beerbohm"
+title = "Max Beerbohm Quotes"
+quotes_len = "35"
+description = "the best 35 Max Beerbohm Quotes"
++++
+- All fantasy should have a solid base in reality.
+- Incongruity is the mainspring of laughter.
+- To mankind in general Macbeth and Lady Macbeth stand out as the supreme type of all that a host and hostess should not be.
+- Men of genius are not quick judges of character. Deep thinking and high imagining blunt that trivial instinct by which you and I size people up.
+- People who insist on telling their dreams are among the terrors of the breakfast table.
+- We must stop talking about the American dream and start listening to the dreams of Americans.
+- As a teacher, as a propagandist, Mr. Shaw is no good at all, even in his own generation. But as a personality, he is immortal.
+- When hospitality becomes an art it loses its very soul.
+- No fine work can be done without concentration and self-sacrifice and toil and doubt.
+- You will find my last words in the blue folder.
+- You will find that the woman who is really kind to dogs is always one who has failed to inspire sympathy in men.
+- A hundred eyes were fixed on her, and half as many hearts lost to her.
+- Of all the objects of hatred, a woman once loved is the most hateful.
+- Anything that is worth doing has been done frequently. Things hitherto undone should be given, I suspect, a wide berth.
+- To give and then not feel that one has given is the very best of all ways of giving.
+- I have known no man of genius who had not to pay, in some affliction or defect either physical or spiritual, for what the gods had given him.
+- Good sense about trivialities is better than nonsense about things that matter.
+- Most women are not as young as they are painted.
+- It seems to be a law of nature that no man, unless he has some obvious physical deformity, ever is loth to sit for his portrait.
+- I need no dictionary of quotations to remind me that the eyes are the windows of the soul.
+- Some people are born to lift heavy weights, some are born to juggle golden balls.
+- Humility is a virtue, and it is a virtue innate in guests.
+- It is easier to confess a defect than to claim a quality.
+- To destroy is still the strongest instinct in nature.
+- There is much to be said for failure. It is much more interesting than success.
+- People are either born hosts or born guests.
+- No Roman ever was able to say, 'I dined last night with the Borgias'.
+- The Non-Conformist Conscience makes cowards of us all.
+- Only mediocrity can be trusted to be always at its best.
+- One might well say that mankind is divisible into two great classes: hosts and guests.
+- I was a modest, good-humoured boy. It is Oxford that has made me insufferable.
+- To give an accurate and exhaustive account of that period would need a far less brilliant pen than mine.
+- To say that a man is vain means merely that he is pleased with the effect he produces on other people.
+- The delicate balance between modesty and conceit is popularity.
+- Nobody ever died of laughter.

@@ -1,0 +1,41 @@
++++
+author = "Miriam Toews"
+title = "Miriam Toews Quotes"
+quotes_len = "35"
+description = "the best 35 Miriam Toews Quotes"
++++
+- There are people who are just suicidal, regardless. They are built to self-destruct. It seems, in my family, like a virus that's resistant to any kind of help or care or medication.
+- All the books I've read, I've read at the right moment.
+- The theme of sisters - of missing sisters, of needing sisters, the special love that sisters share or the antagonism sisters share - is something that is very close to me.
+- I have a problem with beginnings... and endings... and middles. But I don't know what else I would do. I find it very, very difficult to write. It takes everything; it's physically and mentally and emotionally exhausting for me. And my neighbours. And my dog.
+- Writing helps me to create order out of chaos and make sense of things. It helps me to understand what I've experienced, what I've felt and seen, so it becomes a little easier to handle. On the other hand, I don't want it to be just a cathartic experience, an outpouring of grief or whatever it is.
+- My father died beside trees on iron rails... He had 77 dollars on him at the time, and we used the money for Thai takeout because, as my friend Julie says about times like this, 'You still have to eat.'
+- 'Irma Voth' is my sixth book, but it's only the third time I've featured Mennonite settings and characters.
+- A person might see that I've blurbed a certain book and decide they want nothing to do with it! Like, 'If that reprobate Toews likes it, forget it!' So, it's a crapshoot. But it feels good to be able to praise a book that I love or that has been written by a new writer.
+- I spent 18 years in a small Mennonite town in the middle of the Canadian prairies.
+- I don't see any division between the comic and the tragic. I feel like I'm writing about serious things, and humour is one of my tools. It's not contrived, just part of my world, part of the way things are to me.
+- The requests for blurbs seem to come in waves. I'm not sure what precipitates them. I think it must be excruciating for editors to draft those elaborate letters asking for a blurb, and I know it's torturous for us writers to ask directly. But publishers encourage us to. Rock and a hard place.
+- Ignore all advice about writing. Leave your blood on every page. Every page!
+- There was no freer soul in the world than me at age nine.
+- Like every Canadian, I have been taught that one of the most important functions of art is to supply and elaborate the myths and narratives of nationhood.
+- There are so many things in my life that would be completely not on within the conservative church. And yet I think of myself as a reasonably decent human being. With all sorts of flaws, you know, but still reasonably decent. If I did believe in Heaven and Hell, I would really, honestly, believe I was going to go to Heaven.
+- You don't need a religious background to strive for something good, for genuine compassion and love for others.
+- In writing fiction, I can be free. I can use my life. The raw material is my experiences.
+- A depressed person is often a person who will push others away. If you are pushed away and pushed away and pushed away, you have to have an enormous amount of inner resources to keep going back.
+- A writer is always, always searching, even against her will, against all her better instincts, for the thread of a story. Everything is fodder. Everything is fuel. You can feel it coming on like the tingling of a sore throat. The brain never stops struggling to reshape every experience and feeling into a coherent narrative.
+- This is a cliche, but in fiction, I feel it is easier for me to get to some sort of truth, some kind of more honest writing.
+- I stare out the window and reflect on the similarity between writing and saving a life and the inevitable failure of one's imagination and one's goals and ambitions to create a character or a life worth saving.
+- At one point in my life, I wanted to do a master's degree in Irish literature, but I ended up getting pregnant instead.
+- I would never want to deny my Mennonite background and culture; I'll always feel like and be identified as a Mennonite and therefore possess that little extra authority on our beliefs. I also see myself as a Canadian writer.
+- 'Cue for Treason,' by Geoffrey Trease, radicalized my young girl brain and made me want to be a gender-bending, sonnet-writing anarchist. It really made something roar to life inside of me.
+- With my father and sister being very depressed for most of their lives, it was incumbent on me to try to make them laugh, in this ridiculous way. They were the wittiest people I knew, but to get a smile from them was like winning the lottery.
+- I remember a very nurturing, safe environment: everybody knew who I was, who my parents were, who my grandparents were, what part of Russia we were from originally. That was a really comforting feeling. Non-Mennonites, when they see that aspect of it, think it's a beautiful thing, and it is, but there's so much going on besides.
+- The whole notion of pain, and how every individual experiences pain, is up for debate. We don't know how another person experiences pain - physical pain or psychic pain. Some of these clinics where assisted suicide or euthanasia is practiced, they call it 'weariness of life.'
+- When a person becomes a legend, the very thing that makes them human and knowable is killed off, so it's like being killed over and over and over again, for all eternity.
+- The British are actually a lot more appreciative of the comic. In Canada, if you're perceived as a comic writer, there's a real snobbery, and you can't be serious. You're not a big hitter.
+- I don't even know what 'successful' means. We're all failures. Look at the world. We're all complicit.
+- The writing life is one long, never-ending search for narrative. Well, it's not even a conscious searching. It happens even while you're busy buying groceries and when you're fast asleep. It's a curse.
+- We don't choose the books we write; they choose us.
+- A lot of times, people think that it doesn't make sense for people to be depressed when they have everything, a loving husband, a successful career, fame and fortune. I wanted to make this point that profound despair can strike anybody.
+- When everything does seem out of control, writing fiction is a way I can order that chaos and restore some sort of meaning. I like the playful aspect of writing fiction. You know how it is when we are kids and we make up our worlds: You be this guy, and I am going to be this guy, and we are going to go slay dragons.
+- Canada has, at times, represented itself as a country in a valiant struggle against powerful and menacing agents that are indifferent to its special practices and sensibilities - most especially American culture. It's the old, outdated garrison mentality.

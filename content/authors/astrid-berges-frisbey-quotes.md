@@ -1,0 +1,20 @@
++++
+author = "Astrid Berges-Frisbey"
+title = "Astrid Berges-Frisbey Quotes"
+quotes_len = "14"
+description = "the best 14 Astrid Berges-Frisbey Quotes"
++++
+- For me, taking care of your skin is the most important step. You can cover it with all the makeup you have, and it's still not as nice as beautiful skin.
+- People call me a 'model-actress,' when I just never started with that... it's not my story.
+- We live in a vacuous world, yet we do so with a feeling of urgency.
+- I don't think my eyes are stunning as some people's are.
+- I think it's important to understand the concrete ways things work and to respect that. But some things shouldn't be explained, and you have to respect that, too.
+- I'm very conscious of the luck I've had. It's important to have this in your mind and remember it.
+- When I'm working on my characters, that's something I pay a lot of attention to: how their body works, how they move, how they articulate.
+- The subject I was best at in school was biology.
+- I remember the feeling of a tweed Chanel jacket because my mom used to wear one to work.
+- For me, Chanel just makes sense - like a story or a film. It's part of my life.
+- My mum used to work for the Chanel store in Paris, so for me, I've always been very familiar with the brand because of her. I remember when I was very, very, little, our flat had Chanel shoe boxes, makeup, and some jackets.
+- One of my favourite items is a very old jacket - it was my mum's uniform from when she was working 15 or 20 years ago.
+- I grew up in the countryside riding horses, and I also ride every holiday in Spain, which is where I was born. It's a big part of my life.
+- Working in water is so difficult. But I liked having something very physical to do - you realize you're strong. It's a really good feeling.

@@ -1,0 +1,36 @@
++++
+author = "Mel Robbins"
+title = "Mel Robbins Quotes"
+quotes_len = "30"
+description = "the best 30 Mel Robbins Quotes"
++++
+- Sexism is bad enough when it's men demeaning women. When women do it to other women, it's even more deflating.
+- Life is about growth and exploration, not achieving a fixed state of balance. You have a very limited time on earth to experience all that you can. Figuring out how to squeeze the most out of your family, work, and spirituality is your life's purpose. Go do it.
+- When Trump says no one loves women more than he does, what exactly is he referring to? Fantasizing about them on the 'Access Hollywood' bus? Placing them only in professional roles that answer to him?
+- If you show up every day to a job you hate, and you are doing nothing to change that - you've got no one to blame but yourself.
+- I believe that 'passion' is another word for energy. That's it. What energizes you? And that - we naturally have a tremendous amount of body wisdom about that, and that every one of us has a internal fuel tank that is either empty or full. And if you're empty, you feel depleted. If you're full, you feel energized.
+- You would not hang out with people that talk to you the way you talk to yourself. So get out of your head! Your feelings! Your feelings are screwing you! I don't care how you feel! I care about what you want! And if you listen to how you feel, when it comes to what you want - you will not get it. Because you will never feel like it.
+- While younger women are told to be thinner and prettier, ads for older women emphasize looking younger and wrinkle free - tapping into the insecurities that many of us have about getting older.
+- I believe I am a brilliant and gifted guide, that I have been given a tremendous intuition.
+- The more generous you are, the easier and more satisfying and fun your life is. And it took me so long.
+- You always know. You have basic needs, and when they aren't met, your body sends signals. Hunger, loneliness, exhaustion, thirst, and fear are all signals that something is missing, and you need to act on it now.
+- Trump crossed the line all the time. Flustered during the debate because he couldn't out-debate Clinton on policy, he just leaned into the mic and dismissed her entirely: 'nasty woman.'
+- A Hillary Clinton presidency would have represented an important step away from the country's lagging acceptance of women as powerful, full participants in our democracy.
+- Finding meaning in your work is your responsibility. Any job can be better when you actively work to find meaning in the work.
+- Graphic public service announcements about texting and driving or drinking and driving serve a purpose: to see the imagery in your mind so your behavior will change.
+- There's a lot of buzz words in the business world these days - Design thinking, innovation, fast-failure, disruption, cross-functional leadership - and at the heart of every one of these concepts is the ability for people to make small moves forward, learn, iterate.
+- Consider the record: In Trump's world, a woman is not in front of a man; her place is behind, under, or on his arm.
+- We want to believe that we live in a world where our daughters can do anything and be anything. And you'd think they could - they outnumber boys in college, graduate school, and the work force.
+- Everything about your life, about your body, grows! Your cells regenerate; your hair, your nails, everything grows for your entire life. And your soul needs exploration and growth. And the only way you'll get it is by forcing yourself to be uncomfortable. Forcing yourself to get outside, out of your head.
+- There is no shame in wanting to age naturally or wanting to 'age gracefully' with a little help from products or procedures.
+- The moment you feel yourself hesitate on something you know you should do, count 5-4-3-2-1 to activate your prefrontal cortex and interrupt the habit of overthinking, self-doubt, and fear.
+- You have something unique that no one else has - your life experience. That's the power of you.
+- Never in my lifetime has there been more misogyny on display than during the 2016 election. It was disgusting. The biggest offender: Donald Trump.
+- In Trump's world, men get to play by different rules. Even the witch hunt over Hillary Clinton's emails exudes a double standard. George W. Bush 'lost' 22 million emails during his presidency. We can't even go back and look at the communication regarding the decision to invade Iraq.
+- My job gives me the permission to ask really great questions, like, 'Are you sure you're not pissed at him?' or, 'Is the eating really about food, or does it have something to do with your mother?' or, 'How is your sex life? I mean, I know we're here talking about your job, but I can tell this has to do with your sex life.'
+- 'Time Magazine' declared Hillary Clinton the 'perfect' age to be president because she's a postmenopausal woman who is 'biologically primed' to lead.
+- I realized I wasn't a good employee because I was too busy listening to people's personal problems to do work.
+- If science doesn't convince you, just Google 'cheating politicians' for the long and sordid list of men - like Arnold Schwarzenegger, Mark Sanford, and John Edwards - whose hormones got the best of them.
+- You can quit smoking and lose weight at the same time.
+- Our nation, our economy, and our families would be much stronger if half of our companies were run by women and half of our households were run by men.
+- We make decisions based on what we feel in the moment.

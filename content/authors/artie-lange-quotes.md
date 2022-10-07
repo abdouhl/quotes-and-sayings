@@ -1,0 +1,64 @@
++++
+author = "Artie Lange"
+title = "Artie Lange Quotes"
+quotes_len = "58"
+description = "the best 58 Artie Lange Quotes"
++++
+- Eddie Murphy said once in an interview that nothing is offensive if it's funny. I sort of agree with that, but if something's funny and you're the subject of it, sometimes it's more offensive. If someone's insulting you, you want them to sound like an idiot.
+- Woody Allen stayed so good because he never left New York. Howard Stern stayed so good because he never left New York - Mel Brooks when he just got out of New York was doing 'Blazing Saddles;' when he left New York he started doing stuff like 'Robin Hood Men In Tights' - he was in L.A. too long. He lost the edge.
+- When I got on Stern I realized that this was the one job where you could be really honest and open, almost like Richard Pryor or something. You can be honest about your life and get laughs.
+- I'm a comic, so I like to stay nocturnal. I work 10 p.m. to 1 a.m.
+- I never went through a period were I wanted to be a doctor, a cop or even a rock star. All I wanted to do was play short stop for the Yankees from the time I was about 5. Then I turned 15 and realized how silly that was and just gave up on it.
+- I'm very resilient. The only thing I'm missing right now are abs.
+- A weekend in Vegas without gambling and drinking is just like being a born-again Christian.
+- I used to be a longshoreman. I didn't go to college. I have a voice that when I say something, it can sound way meaner than you think it is.
+- The point of drinking in moderation is that sometimes you don't drink in moderation.
+- It is funny because the guy who is my boss now, Howard Stern, has a similarity there. He got big being a regular guy. He wasn't the greatest looking guy in the world.
+- I wish I was this dark genius artist - like Richard Pryor or something.
+- Historically, a successful life in comedy is a dream that's as equally pondered and unpursued as being an astronaut.
+- It's weird because standup can be like therapy. Comedians can't be satisfied with just having fun with our friends. We've got to figure out a way to do it on stage.
+- When you're an adult, when times are good, entire years go by in what feels like the space of one season. But the worst trick time plays on you is just how slowly the worst times in your life take you to live through.
+- To tell you the truth, there are all these websites predicting my early death, and it's starting to work on me!
+- My father was a really good athlete, so his pop-ups really were sky high. Eventually I learned how to judge them properly and catch them well. It was great training for when I started to play on teams, which I did all through school.
+- Richard Lewis is the master at taking a joke that he's told a million times in a row in the past year, on the road, and making it look like he's pulling it out of thin air.
+- And now it looks like I'm probably going to shoot a movie that I wrote. I got the money to do it, and I would star and all, because of being on Howard.
+- Everytime I go to Vegas, I seem to incur some kind of fine.
+- I'm like the master of ceremonies being funny, and then sometimes people you're with, girlfriends and stuff, are like, 'God I wish I had the person on stage to be with all the time.'
+- Whiskey will always be a part of my life.
+- When political correctness first started coming around, it ruined Andrew Dice Clay and Eddie Murphy's stand-up career. Sam Kinison died at just the right time, 'cause no one was going to tolerate what he was saying anymore either.
+- The Howard Stern Show is a big hit because it entertains dumb and smart people at the same time for different reasons.
+- My dad was Superman to me, and in my mind he always will be.
+- I got into comedy so I could stay out all night.
+- I was always a thin kid; I was an athlete.
+- You know you're on stage being the life of the party and trying to get laughs, and then, in a lot of ways, you don't have anything to give once you give it to the people.
+- The road is a lonely place, and that sounds like a cliche, you know, like what is my life?
+- I once dealt with a prima donna on a movie set. I won't say who, but his first name is a country. A communist country. Run by Fidel Castro.
+- It's a life of five-card draw, and you know what? When God asked me - I'm fine with the card I got. I'm gonna play this.
+- Have you ever Googled yourself? I did, most depressing thing ever. People have websites hoping I die at 38.
+- Only when you're in that ditch, lying there in the muddy runoff you've made of your life, gazing up at the peak you fell from, do you truly know how small you are and understand how tall you used to be.
+- I got cast on 'MADtv' as one of eight permanent cast members chosen from 8,000 comics who'd been screened. For any comic trying to make something of themselves, that was like hitting triple 7s-jackpot.
+- I am not the easiest guy to live with. It is probably the lack of stability in my life.
+- Of course in show business there are two ways to play it and I am not politically correct so I am not going to get endorsements or anything like that.
+- When you're on the road a lot, you're in perpetual search of a good night's sleep.
+- To tell you the truth, I always wanted to be a sketch comedian and a comedy actor.
+- As a child, as far as I was concerned, my dad had an amazing job, and we had all the money we needed. My life was so fun and carefree that I didn't realize at all that we weren't rich - until I met someone rich. Still, I've never met a rich kid who grew up as happy as I did.
+- Comedians, we're just people who whine. But we happen to be funny when we whine. Like, if Jerry Seinfeld wasn't funny, you'd want to punch him in the face; he'd just seem like a whiner to you. But the fact is that he's funny.
+- The regular guy still relates to him and Howard is a $500 million guy now who dates a model and drives about in a limo all day. But Howard still knows how to make a plumber laugh and those guys still have him on in the morning, because he is a real talent.
+- Artie is going to do what ever Artie wants to do.
+- Vegas means comedy, tragedy, happiness and sadness all at the same time.
+- By the time I am Howard's age I hope to be long retired. I don't plan on working that long.
+- When you did impressions on 'MADtv,' the producers gave you a Walkman that played huge sections of whatever movie was being parodied, with your character's catchphrases recorded on a loop. You'd wear this thing around during rehearsals and for a week listen to the voice you had to impersonate over and over again. It drove all of us crazy.
+- Comedians, we're just people who whine. But we happen to be funny when we whine.
+- It's good to be alive.
+- When I became a standup comic, my hero, one of them, was Richard Pryor, and you know, I think that comedians, like, comedians talk about hacks, and what a hack is, is someone who does stuff that's not original.
+- Googling me, you talk about being depressed. First of all there's 18 websites that predict my early death.
+- When I encountered rich people for the first time, I discovered that not only do they holiday in places that are hard to find on a map, but that they also use the names of seasons as verbs. When they asked me, 'Where did you summer and winter growing up?' I would usually say, 'As a child? The same place I springed and autumned.'
+- You know you have a gambling problem when it's 4 A.M. at the Mirage Sports Book and you're walking around going, 'Hey you get the lacrosse scores?'
+- Unlike a lot of comics, I didn't care about getting on 'Saturday Night Live.' That show had such history and was so established that I didn't see the point.
+- I have been in a lot of movies, but none of them are critics' darlings, you might say.
+- 'Course the world of sports takes itself way too serious. Sports writers are all high and mighty.
+- I ain't apologizing for anything, especially if it's a joke.
+- People are so nice, you know. It's such a credit to Howard Stern - the audience base that he created is such a special thing. It took him a long time to create this family of fans, and I was lucky to be a part of that for a while.
+- All I can say is that you only realize how big your mountain is once you're laying motionless, helpless, and hopeless in the valley below. No one goes there on purpose, if you get what I'm saying, because the only way to find your personal low is to slip and roll down that mountain of yours, straight through to the bottom, no holds barred.
+- Richard Lewis has this incredible ability to look like he's just... you know it's an act that's been honed. What you have to do in standup is create spontaneity, somehow; even though you've done this act a million times, you gotta look like you're almost just thinking of it now, to make it entertainer.
+- Thank God I have a financial planner who is really conservative.

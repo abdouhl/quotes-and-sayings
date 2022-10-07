@@ -1,0 +1,38 @@
++++
+author = "Nick Flynn"
+title = "Nick Flynn Quotes"
+quotes_len = "32"
+description = "the best 32 Nick Flynn Quotes"
++++
+- In life you get one take, and it's perfect. It's strange, afterwards you might think I shouldn't have reacted that way, but that's the way you reacted. That's your take; that's all you get.
+- That Dick Cheney is pro-torture surprises no one; he freely admits it.
+- Everything we do, I'd imagine, influences everything we will do.
+- I can weep pretty easily. I can get tears in my eyes from a beautiful work of art.
+- Here's a secret: Everyone, if they live long enough, will lose their way at some point. You will lose your way; you will wake up one morning and find yourself lost. This is a hard, simple truth.
+- On a good day I write, all day.
+- The first book I could call mine, my first book, was a picture book, 'The Magic Monkey' - it was adapted from an old Chinese legend by a thirteen-year-old prodigy named Plato Chan with the help of his sister.
+- When I was a child, writing was the worst possible choice of a career in my family. My father had always identified himself as a writer to my mother when they met. When they met, he was writing this great novel, there was no doubt about it.
+- Change is one of the only constants in Buddhism; as meditation became the way I breathed in the days, this became apparent.
+- My father had always identified himself as a writer to my mother when they met. When they met, he was writing this great novel, there was no doubt about it. Part of why she left him was this delusion of greatness and identifying it very directly with being an artist.
+- Certain stories we carry with us, events in our life, they define who we are. It's not a matter of getting over anything; we have to make the best of it.
+- When I was a child, writing was the worst possible choice of a career in my family.
+- What I do is write, and I try to write as closely as I can into what I call 'the mystery.'
+- That's the thing about a book: You're in the public life for a little bit, and then you sort of go away for a little while - several years, in my case - and then you come out again, hopefully.
+- I'm not sure why working at a homeless shelter made sense to me, except that I needed to immerse myself in some sort of larger real-life situation to get me out of the cage of my mind, in some ways.
+- If you're going to write about someone's life, you don't just use them for wallpaper. You have to honor and respect that life.
+- That soldiers do terrible things during wartime should not surprise us.
+- You come to realize people are not simple.
+- The attention one gets from being a poet isn't great.
+- I get inspired by my friends, and if a friend is a writer, that is even deeper.
+- The only strategy I know of is to write every day, which I don't always do, because sometimes I just can't, for various reasons that seem out of my control.
+- Our job as writers, as far as I can tell, is to attempt to express what seems inexpressible.
+- For the first few months, I was a comically inept parent. The first night home from the hospital, I held her bare body against my bare chest until a friend who was a doctor came by and asked what I was doing, and told me to put some clothes on that baby.
+- I believe poetry has very little to do with memory.
+- I had to steel myself against this psychic devastation - to see your father on the street. It's hard enough to pick up somebody you don't know from the streets, and then to actually have other people pick your father up - it was psychically devastating.
+- For years before I became a father, I would try to spend as much time as I could with my friends who were parents and their kids. And I was really impressed. They all sort of managed to do it, and do it gracefully.
+- To be honest, in my five years as an electrician, I never got the license.
+- I became an electrician after high school. But I always had this thing in me to write. But it was always a little shameful. To say you were a poet was saying you were kind of crazy, and I carried that around for a long time. I still kind of carry that. And I think it might be true, actually.
+- I'd always imagined that one day I would be a father, but mostly it was off my radar. I admired friends who had somehow figured out how to cross that threshold.
+- It takes an entire book to tell you what it was like. To see Robert De Niro play your father - it's not a simple answer. To see Julianne Moore play your mother. To see Paul Dano play you - that's an even more inscrutable question... he's amazing, he's totally amazing, but I can't really say if he's a good me or not.
+- There's this sort of male energy that we have that can seem very destructive. But it doesn't have to be. It actually can be a very positive force.
+- In life you get one take, and it's perfect.

@@ -1,0 +1,75 @@
++++
+author = "John Shelby Spong"
+title = "John Shelby Spong Quotes"
+quotes_len = "69"
+description = "the best 69 John Shelby Spong Quotes"
++++
+- Our English language really says if you're not a theist, the only alternative is to be an atheist. What I'm trying to do is develop a language that will enable us to talk about God beyond the, what I think, are sterile categories of theism and atheism.
+- Religion is a mixed blessing.
+- Mother Nature is not sweet.
+- If you begin to give people hope that there is a brighter future, there is a new tomorrow, then the people who were yesterday's terrorists become tomorrow's elected officials and they're part of the system.
+- I believe that God is very real.
+- The audience that I try to reach are members of what I call the church alumni association. Now they are people who have not found in institutional religion a God big enough to be God for their world.
+- You learn that you either are going to have a police state where you don't have any freedom left, or you're going to build a world that doesn't create terrorists - and that means a whole different way of 'getting along.'
+- It's just not easy enough to say that I pray and God will accomplish.
+- My sense is if the Episcopal Church can't stand challenge within its own ranks, then it is not a church I would want to be a member of anyway.
+- If I were a child of Tibet or of Arabia, I suspect the path I'd walk would be the Buddhist path or the Muslim path. And I don't mind saying that I don't invalidate any of those paths.
+- I experience God as the power of love.
+- I believe that God is very real. I believe that I live my life every day inside the reality of this God. I call this God by different words. I describe God as the source of life and the source of love and the ground of being.
+- The Christ path is the path I've walked all my life, so it's normal and natural. And I have no reason to abandon it because it leads to where I want to go.
+- The way that I see Christianity is that its role is to enhance the life of every person.
+- The church is not going to survive if they are going to tell people that they have to twist their minds into 1st century pretzels.
+- Whatever diminishes life is evil, and whatever enhances life is good.
+- Terrorism is a real despair. These are people for whom life has been so negative that they're willing to die if they can take down some of their enemies.
+- I think one of the things we've got to look out for is human beings claiming that they know how God operates.
+- I don't think much about my physical body going off into the long, green fairways of Heaven to play golf.
+- I find that children have very little trouble understanding non-literal stories.
+- I admire our ancestors, whoever they were. I think the first self-conscious person must have shaken in his boots. Because as he becomes self-conscious, he's no longer part of nature. He sees himself against nature. He looks at the vastness of the universe and it looks hostile.
+- I want the traditional family upheld, but I don't want it upheld to the detriment of other people.
+- Many of the characters who appear in the pages of the Fourth Gospel are literary creations of its author and were never intended to be understood as real people, who actually lived in history.
+- Was Judas Iscariot a figure of history? I do not think so. There is no mention of him in any source before the 8th decade.
+- In academia, I discovered that issues and insights, commonplace among the scholars, are viewed as highly controversial and even as 'heresy' in the churches.
+- God is a presence that I can never define but I could never deny.
+- I do not live in a world where people can walk on water, or still a storm, or take five loaves of bread and feed 5000 men plus women and children. If that is a requirement of my commitment to Jesus, I find it difficult to stretch my mind outside the capacities of my world view.
+- I am a child of the 21st century.
+- I cannot possibly conceive of my planet Earth as the centre of a three-tiered universe. I know rather that the sun, around which my planet Earth revolves, is a middle sized star in a galaxy called the Milky Way that has over a hundred billion other suns or stars within it.
+- Christianity is not about the divine becoming human so much as it is about the human becoming divine. That is a paradigm shift of the first order.
+- Inequality for gay and lesbian people is no longer a debatable issue in either church or state.
+- I believe God is real, but I believe God calls me beyond myself to take responsibility for my life and to try top work to allow other people to be themselves and to take responsibility for their lives.
+- I never really liked the Gospel of John because I never could find the humanity of Jesus in it. I thought it presented Jesus as a visitor from another planet; in addition, John's gospel is and has been interpreted as a document that fuels anti-Semitism in the church.
+- I live on the other side of Copernicus and Galileo; I can no longer conceive of God as sort of above the sky, looking down and keeping record books.
+- Christianity is, I believe, about expanded life, heightened consciousness and achieving a new humanity. It is not about closed minds, supernatural interventions, a fallen creation, guilt, original sin or divine rescue.
+- It appears to be in the nature of religion itself to be prejudiced against those who are different.
+- Perhaps the most telling witness against the claim of accurate history for the Bible comes when we read the earliest narrative of the crucifixion found in Mark's gospel and discover that it is not based on eyewitness testimony at all.
+- The Christians tried to separate themselves from the Jewish crowd so they wouldn't be the recipients of the persecution of the Romans. And the way they did it was to say, the Jews killed our hero too. And so Christians began to define themselves over against the orthodox party of the Jews as a way of surviving against the Roman onslaught.
+- I can only give away the love that I have received.
+- I learned early in life that you get places by having the right enemies.
+- I live on the other side of Charles Darwin and I can no longer see human light as having been created perfect and falling into sin, I see us rather emerging into higher and higher levels of consciousness and higher and higher levels of complication.
+- The cross reveals that we're called to a deeper, fuller experience of what it means to be alive and open to new dimensions of life which our religious boundaries - creeds, atonement theologies - have kept us from experiencing.
+- Almost any poll of regular churchgoers will reveal that their favorite book in the New Testament is the Gospel of John. It is the book that is most often used at Christian funerals.
+- The ultimate meaning of the Bible escapes human limits and calls us to a recognition that every life is holy, every life is loved, and every life is called to be all that that life is capable of being.
+- There is no way that the Fourth Gospel was written by John Zebedee or by any of the disciples of Jesus. The author of this book is not a single individual, but is at least three different writers/editors, who did their layered work over a period of 25 to 30 years.
+- The Bible interprets life from its particular perspective; it does not record in a factual way the human journey through history.
+- Apologetic explanations do not develop unless there is a reality that has to be explained and defended. Jesus was undeniably a figure of history.
+- I think the best way to view the Gospels is to view them as a magnificent portrait being painted by Jewish artists to try to capture the essence of a God experience that they believe they had with Jesus of Nazareth.
+- The way you become divine is to become wholly human.
+- All religion seems to need to prove that it's the only truth. And that's where it turns demonic. Because that's when you get religious wars and persecutions and burning heretics at the stake.
+- I think that anything that begins to give people a sense of their own worth and dignity is God.
+- The biblical texts that we Christians have used for centuries to justify our hostility toward the Jews need to be banished forever from the sacred writings of the Christian church.
+- A lot of people hear me attacking their certainty. I don't have any interest in doing that. I'm interested in penetrating the meaning of certainty.
+- Jesus represents the possibilities of a new dimension of existence that transcends all the boundaries that restrict us from opening ourselves to God and allowing this source of love to flow through us.
+- I was baptized as an infant. I was confirmed as an adolescent; I was active in my church's youth group and in my university student group. I was married before the church's altar; trained at the church's seminaries, ordained deacon and priest at age 24.
+- I am trying to understand what it means to be a Christian without being religious.
+- Let me say that I consider myself a deep believer in the reality of God. I might define God quite differently from the way some people in the Christian faith would do so, but I do not doubt the reality of that experience.
+- My basis of morality is this: does this action enhance life, or does it denigrate life? Does it build up or does it tear down?
+- When I'm asked to define God, I'm almost wordless.
+- The Bible tells me that every life is holy; the Bible tells me that every life is loved; the Bible tells me that every life is called to be all that it can be.
+- Plenty of people out there think of me as the Antichrist or the devil incarnate because I do not affirm the literal patterns of the Bible. But the fact is I can no more abandon the literal patterns than I could fly to the moon. I just go beyond them.
+- You can't have a world where 50 percent of the people are dieting and 50 percent of the people are starving if you want stability.
+- We've got to deal with the fact that the church has been violently prejudiced against gay people. We've murdered them; we've burned them at the stake; we've run them out of town for something over which they have no control. And that's immoral.
+- The God of the Hebrews is a God that human language, we're not even supposed to speak the holy name. We were told in the Second Commandment we could make no images of this God, and I don't think that means just building idols, I think that means also trying to believe you've captured God in your words, in the Creeds, in the Scriptures.
+- I believe that is what the God experience does for us. It calls us beyond our limits into the fullness of life - into a capacity to love people we are not taught to love - and into an ability to be who we are.
+- When I grew up in the South, I was taught that segregation was the will of God, and the Bible was quoted to prove it. I was taught that women were by nature in inferior to men, and the Bible was quoted to prove it. I was taught that it was okay to hate other religions, and especially the Jews, and the Bible was quoted to prove it.
+- In the first gospel, Mark, the risen Christ appears physically to no one, but by the time we come to the last gospel, John, Thomas is invited to feel the nail prints in Christ's hands and feet and the spear wound in his side.
+- Oh the Christian church has encouraged enormous immaturity among the peoples who are its primary adherence.
+- I spend my life studying that book, and every book I've written has in some sense been a book about the Bible, and that's what I mean by reclaiming its value and its essence for a world that no longer treats it literally and no longer reads it traditionally.

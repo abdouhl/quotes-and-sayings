@@ -1,0 +1,12 @@
++++
+author = "Manny Jacinto"
+title = "Manny Jacinto Quotes"
+quotes_len = "6"
+description = "the best 6 Manny Jacinto Quotes"
++++
+- My dad is literally - and I love him so much - he is my number one fan.
+- Asian parents, or a lot of parents in general, they have no idea what goes on in this industry. Mine were born in the Philippines, where it's different, because it is about who you know, and who knows what you have to do to get to the top? So they had a lot of that skepticism.
+- Once acting hit me, once that bug hit me, I just... took the jump and dove right in.
+- There were definitely auditions and even bookings and jobs where I played your typical Asian model minority: an IT tech guy or something of that nature. It's tough sometimes, especially when you're starting out, because they make these roles sound as if they won't be a typical nerd.
+- In terms of my childhood, it was normal. You go through school, do well in school, and then I went to university. The performance arts aspect was never really an option because it was never in my family. Nobody was there to teach me anything about that. It wasn't until maybe my second year of university that I got inspired to dance.
+- If I ran into myself maybe seven years ago and told myself that I was gonna be an actor, that I'd be in L.A. working at Universal Studios with these amazing people, I'd be like, 'Get out of here. There's no possible way.'

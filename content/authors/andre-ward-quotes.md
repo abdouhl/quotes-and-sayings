@@ -1,0 +1,106 @@
++++
+author = "Andre Ward"
+title = "Andre Ward Quotes"
+quotes_len = "100"
+description = "the best 100 Andre Ward Quotes"
++++
+- If something happens and you're behind, and you get hit in the mouth early like that, you have two options: You can either pack it in mentally and internally and go into survival mode and quit, or you're going to get up and go to work.
+- I went to a nutritionist; my diet is pretty clean, but I wanted to get some more knowledge and understanding in some areas. My two favorite things, Clif Bars and lattes, she just destroyed in our first meeting. Coffee is fine, but soy is the most genetically modified food that we eat.
+- Whether it's Alexander Brand or Sergey Kovalev, I approach every situation the same way.
+- My question is why does every African American fighter have to be the villain?
+- I typically do the opposite of what people think I am going to do.
+- My mom had struggles. My dad had struggles. He raised me as a single parent. I rebelled and almost quit amateur boxing, but my faith in God had a lot to do with me slowly getting my life together.
+- I'm a Christian who happens to be an athlete, not the other way around.
+- I still don't think the world has seen the best Andre Ward. Initially, I just wanted to get in there and win.
+- I'm a very respectful fighter, I don't get out of character and start talking crazy, but if you don't want to fight a fighter, or you don't think it's a good style, or it's just not time, then say that.
+- The British fans, they are very festive; they support their people.
+- The game plan might be different based on the opponent, but the approach is the same.
+- Boxing is a lonely sport.
+- Being a champion is not just being a frontrunner and being ahead, but it's facing adversity.
+- A lot of times in America, we work on bully muscles. We want the big muscles and the stuff that looks good. But we don't focus on the little things. But that's the stuff that sustains you and keeps you strong.
+- I spar with Nick and Nate Diaz... those boys know what they're doing; they can throw their hands.
+- Not fighting, avoiding talking to fans... that's when the thoughts creep in about retiring and moving on to something else.
+- Sometimes the biggest statements you can make are by living something out.
+- I don't have one polarizing message. It is just about being consistent over the years.
+- It's not just fleet of foot or speed. It's about who gets caught and gets knocked out.
+- He was competitive in every fight and brought his best every time out, so I have nothing personal against Froch. I actually like him a lot because he reminds me a lot of myself with his competitiveness.
+- I don't think anyone in that Roc Nation office gets eight hours of sleep; I highly doubt it. They're constantly working, and they're on top of everything, and they have a department for everything.
+- You don't stay undefeated without being a little stubborn.
+- I don't like to lay down on my food - it's not good for you. I like to take a walk, then meditate and read the Bible.
+- When you make a stance, sometimes there are consequences.
+- People are entitled to their opinion. I respect them, but it doesn't mean they're right.
+- Getting hit is not cool.
+- Once you go up in weight, I will never go down; you just don't do it.
+- My personal goals are to fight and beat the best opponent possible.
+- I don't necessarily think fighters should fight killers every time, but at some point in time, fighters should be fighting the best in their division, period.
+- My legacy is almost like a personal challenge to go as far as I can go.
+- I don't owe any explanations for anybody I'm fighting.
+- You don't get points for leaving the chin open.
+- A lot of boxers have too much on their plate.
+- You're going to face adversity. It's not if - it's when.
+- Anytime you fight a champion, you got to watch the tape closely and study him closely.
+- I was not intimidated by Kessler's record.
+- I see sometimes how guys may make a buffoon of themselves to sell a few more tickets. They create this image, and when it's all said and done, it's like everything falls out from under them. They have no stability. I never wanted to be one of those guys.
+- Did I have rough days? Days I didn't want to train? Days I thought my career would never get back off the ground and possibly be over? Absolutely.
+- Boxing is not that complicated. If two guys want to fight, it's not hard to make a fight. If the fight's not made, it's because one party doesn't want that fight, or maybe both parties don't want it.
+- I have never won big fights just doing one thing, being one-dimensional.
+- Anyone can be a Son Of God if they wish to be and have the faith. I need to articulate this so everyone understands.
+- More time than not, athletes, specifically fighters, have a 15 or 20-year career, and unfortunately, we end up right where we started when it's over. All we have is maybe a round of applause when we walk in a room - Hey, there's the champ! That's great; I want that, but I've got to have something tangible to show for it, too.
+- The guys that I beat in the 'Super Six,' every one of those fights was tough, even if I did dominate some.
+- I have showed things in sparring and camp that I don't show in fights.
+- I don't come from a position that I am better than everybody; I come from a position that I had a tough upbringing. And I don't always highlight it, because I just never wanted to be that person with another rags to riches story.
+- I'm just being me. If I'm not enough, I don't know what to tell you. I'm not going to apologize about it.
+- My fans are truly my friends.
+- I spar in the gym, and I take pride in my sparring. But I'm a better fighter when the lights come on because it's right now - there is no tomorrow.
+- My thing is that if you love the sport, appreciate the sport as a whole. If you love the sport, you love the slick boxer; you love the guy who can box and punch. You love the brawler.
+- That's why I train the way I train. I don't like to lose.
+- It's a beautiful thing when you come to fight week and you know that you haven't cut any corners.
+- It's not all the time, but you get a sense when you're reading something that it's no longer about boxing or the performance. It's personal.
+- I want to be a champion for a long time, and I want to take the least amount of punishment possible doing so.
+- Going through a long legal battle is not what you sign up for as a fighter.
+- When people ask me, 'What do you do for fun?' - it's my family. That's it.
+- I got an old school coach who's more of a teacher than a coach.
+- There's always great things that champions do. It can be inside fighting, this person uses his range well, this person has a great right hand - anytime you fight a champion, there's multiple things that they do well, and you have to try to take those strengths away.
+- I'm not going to throw chairs; I'm not going to cuss. I'm not going to do that kind of stuff, because you don't have to do that. You don't have to act like that, and you don't have to live like that in order to be successful.
+- One of the reasons why I signed up with Roc Nation was because of their ability to not just have a vision of doing things but the actual ability and resources to carry that vision out.
+- My mind-set is my major attribute.
+- You have to change on the fly. You have to adapt. It's what I do. It's what wins for me.
+- Once a fighter becomes enamoured with another, to the point where they can't perform and compete, you have got problems.
+- It takes time for people to respect you.
+- I do feel at times like I'm always proving myself. But I also feel that I'm proven. I've proven I can get to the mountaintop.
+- I get the headlines for being slick and different things like that - which is part of my game - but it's just amazing to me that a lot of times, the people don't see the other things that go on in that ring. But a lot of times, when my opponents figure it out, the fight is over. It's too late.
+- Dad couldn't train me. He was too high-strung, like, 'Throw your jab!' and I'd start crying.
+- I'm not a dirty fighter. Everybody knows that.
+- I want to be able to look back and say that I stood where I was supposed to stand. I fought where I was supposed to fight, in the ring and out of the ring.
+- There are times and places for tune-ups and stay-busy fights.
+- Sounding bitter is not a good look. Less so if you're retired.
+- People don't realize I tore my rotator cuff when I was 12 or 13. At that time, being so young, we decided just to not have surgery.
+- I wouldn't call myself a brawler.
+- Chasing greatness - it's what I'm about.
+- Sometimes you're going to win close fights, and that's the way it is.
+- I want to be the light heavyweight champion of the world.
+- Monsters have always been built in this sport. I just don't believe the hype. You've got to show me.
+- People who know me know that I'm not going to open my mouth and say something if I don't mean it. I'm very short and sweet. I'm old-school when it comes to it: I say what I mean and mean what I say, and then get off of it. It's simple as that.
+- Manny Pacquiao has a whole country behind him. His journey and his rise, from a career standpoint, he was fortunate to have a lot of great opponents and rivalries for years. People forget about Barrera and Morales and those guys. That's how he built his legacy. Plus he had a country behind him.
+- Pilates is phenomenal.
+- I talk to amateurs, up-and-coming guys, fighters older than me, and we compare notes to teach each other how to leave this game on top from a legacy and financial standpoint.
+- My legacy is so, so important to me.
+- If people are honest, they'll admit that I do have a fan base.
+- This is called prizefighting for a reason.
+- I only ever give praise to elite fighters.
+- I was surprised at how slow Froch was. We were able to beat him to the punch.
+- I'm just trying to get those marquee victories and continue to get those accomplishments so when the time comes and the vote is cast, hopefully my spot is secured in the Boxing Hall of Fame.
+- In terms of PPV, you've got to have the right dancing partner.
+- There's a lot of ways to win a belt, but taking it from a champion is very important to me.
+- I'm a big person when it comes to doing what you believe in.
+- I know I'm a good fighter, probably a great fighter. I've fought the best in the world since I was a kid, and I've been fortunate to come out on top.
+- I'm hungry. Always have been, my whole career.
+- From my position, obviously I want to maximise my potential and go as far as I can go and as high as I can go, but I'm not chasing fame. I get enough of that.
+- You have to be able to adjust on the fly, and that is what the great ones do.
+- For me, it's about trying to be the best in a sport where there's little room for error.
+- No disrespect, but I don't make decisions based on opinions.
+- I just want my career to be ran a certain way. When you get the sense it's not, that your voice is not being heard, then, unfortunately, you have to do certain things to make a stand to fight what you believe in, even if you do have to sacrifice time.
+- At the end of the day, the great ones - well, they rise, and that's what I want to do.
+- This has nothing to do with ego. It is solely about my religion and me being a devout Christian. I chose my ring name because I regard myself as A Son Of God.
+- I didn't need to get knocked down to know the fortitude that I have in me.
+- I'm a five-time world champion in two different weight classes. Man, it's amazing.

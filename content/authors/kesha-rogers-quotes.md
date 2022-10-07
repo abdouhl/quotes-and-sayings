@@ -1,0 +1,16 @@
++++
+author = "Kesha Rogers"
+title = "Kesha Rogers Quotes"
+quotes_len = "10"
+description = "the best 10 Kesha Rogers Quotes"
++++
+- Barack Obama is a threat to the continued existence of the United States, and he must be impeached, or resign.
+- What made me decide to run was the dire state of the economy and the non-leadership of President Obama. At that point in time, my campaign put a mustache on Obama as part of the national campaign drive.
+- Make no mistake: Obamacare is a pro-death 'health' program.
+- I'm a Democrat because I represent the true traditions of the Democratic Party.
+- One of the most beautiful things that recruited me to join the LaRouche movement is its emphasis on Classical singing and composition, especially with the Negro Spirituals, adding a new depth of profundity to songs I had sang while growing up.
+- Texas Democrats should be more concerned about what President Obama is doing to destroy the party, and the nation, than about what I am doing in going after him for that.
+- We know that the next several generations need a better world to live in, which can only be a post-Obama World.
+- In 2010 and 2012, I won the Democratic nomination in the 22nd Congressional District on the program 'Save NASA Impeach Obama,' without any organizational or financial backing from the party.
+- After graduating college in 2001 with a B. A. in Political Science and Speech Communications from Texas State University - San Marcos, I realized that my generation and those younger had been given no future and had been maliciously robbed of the knowledge of principles and methods necessary for building one.
+- If Obama commits thermonuclear war, I won't have to worry about November and neither will you.

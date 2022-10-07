@@ -1,0 +1,49 @@
++++
+author = "Matt Leblanc"
+title = "Matt Leblanc Quotes"
+quotes_len = "43"
+description = "the best 43 Matt Leblanc Quotes"
++++
+- I keep waiting for the roof to cave in. I was raised to follow the Golden Rule, you know, treat people the way you wish to be treated. That's kind of the way I live my life. Maybe someone up there likes me for that.
+- In comedy, you have to be unafraid to hang from the tree branch naked in the high wind and you have to be absolutely unafraid to look ridiculous and silly.
+- I've grown tremendously as an actor by being there. It is comic writing the likes of which I don't know that I'll ever see again and it's been a great, great experience.
+- Comedy is just to me, maybe it's a natural knack, if I can see where the joke is in the writing and I can see where the setup is and I can tell this is the way to make it.
+- I am not afraid if people think Matt LeBlanc in 'Episodes' is who I am - my friends and family know who I am.
+- I remember when my daughter, Marina, was born. The second I laid eyes on her, I was in love, and I had never felt that way before. I couldn't believe it.
+- Misery is manifold. The wretchedness of the earth is multiform.
+- When I was younger and studying acting, I never ever saw myself in the sitcom world; it was drama that really turned me on and still does.
+- I have funny bones. If there's ever any kind of tension, I'll always be the one to try and be funny to loosen things up.
+- Having kids has been great for me. I have two beautiful step- kids, as well as my own new daughter. They've really helped me to keep my feet firmly on the ground, and life is good. I feel like I'm the luckiest guy here.
+- You basically have a group of four spies who are chosen for a mission they feel for the fact of how competent they are and how their expertise and they're the right one for the job. But ultimately they find out they've been actually chosen for their incompetence.
+- People will speak slowly to me sometimes. And they always ask me if I'm all right, because I'm much more low-key and reserved than my character in 'Friends'.
+- But I'm kind of spoilt when it comes to comedy. I was on 'Friends', which was one of the funniest things on television.
+- People call me Joey all the time. I take it as a compliment. There's no point in correcting them. But I'm much more even-keeled and subdued and relaxed than Joey Tribbiani.
+- I started going gray in my early twenties.
+- I could build and roof a house, though electricity is not my thing.
+- Everyone in my family used to work with some kind of tool in their hands every day. That's what we do. That's what I did before I got into acting.
+- The majority of my background is multi-camera format, which is very broad and a very arch perception of reality. Whereas single camera tends to be more truthful and a little more intimate of a medium.
+- I don't like producing. It's a lot of meetings you sit through that amount to nothing.
+- This whole acting thing was always just for me and was always an absolute shot in the dark. If it didn't pan out, I had my hammer and tool belt, banging nails again tomorrow if I had to.
+- You know, I think British comedy is very smart comedy. You don't get too much dumb comedy over here. Or at least I haven't seen it. If I'm wrong about that, I apologize to all the dumb comedy makers over here.
+- When there's writing that you really trust, it's very freeing as an artist.
+- 'Friends' was an education in intelligent comedic banter; in intelligent vernacular. It was an education in scene study. It was an education in group dynamic. I came out of there with a master's degree in comedy.
+- I'm much more low-key than the characters I've played.
+- And if you have great writing, it's really easy, but if it's not so great and you have to work a little harder, I could tell where the work needed to be done but comedy is just fun.
+- Why do you have to break up with her? Be a man. Just stop calling.
+- The way I look at it, everything is a trade. You acquire some money, so then you've got no financial burdens, but everyone wants your money and so who can you trust? Or you've got no money and you can trust anyone, but then you've got the worry to pay bills. Which is worse?
+- I believe that laughter is the best emotional Band-Aid in the world. It's like nature's Neosporin.
+- I grew up in Boston, so it's a nice change to be cold after living in California.
+- You always question people's intentions. That may be a combination of having money, having fame, and being a little older.
+- The phone's not ringing off the hook, but that's ok by me. I feel very fortunate, work to me has become a kind of hobby.
+- Work to me has become kind of a hobby. I was a part of something that gave me financial independence and the rent is paid. Now it's just about projects that turn me on.
+- Still, on 'Friends', we had some guest-stars who were less than spectacular, not the stunt-casting, but just regular guest-stars, and they weren't particularly great actors, but the material was so good that they scored. It's the writing.
+- 'Friends' was a true ensemble. There really was no star of the show.
+- I am not bisexual. I am not gay. I have never had sex with men.
+- You can't be funny if you don't have good material.
+- As an actor, the biggest compliment you can get, in my book is for someone to believe that you're the character.
+- It's funny - nowadays people that are famous get chased by paparazzi. They have this fame, but they don't have the money to hide from it.
+- I find the earth to be a place of misery in which I am surrounded by the conformity that kills society.
+- I don't like silk underwear. They don't do the job, you know?
+- I really like the half-hour comedy. I really do. I know people that are in movies all the time and they, you know, they don't see their families as much. And that takes its toll over time.
+- I'm not in a rush to do anything. And I wouldn't say I pick and choose. When it comes to producers picking people for roles I don't think it's between me and Tom Cruise, do you know what I mean?
+- The more cynical you become, the better off you'll be.

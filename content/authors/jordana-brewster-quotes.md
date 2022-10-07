@@ -1,0 +1,38 @@
++++
+author = "Jordana Brewster"
+title = "Jordana Brewster Quotes"
+quotes_len = "32"
+description = "the best 32 Jordana Brewster Quotes"
++++
+- The ocean is 20 minutes away. Nature surrounds me 24/7. I wake up to the sounds of birds chirping. I also love that I can go out to dinner in jeans and flip-flops.
+- I think the play on words for 'Punky' Brewster has definitely played itself out.
+- I think that unless you grew up in New York or Chicago or Los Angeles, you're sheltered.
+- Women always want to be what they're not: If you're the pretty girl, you want to be the quirky girl. If you're the smart girl, you want to be the pretty girl.
+- I feel like directing is an innate talent.
+- My dream car would be a Maserati. That would be amazing.
+- I had to take driving lessons in New York, which were really weird because it's not the safest thing in the world.
+- I miss the anonymity that comes with New York because everyone around you is so immersed in their own journey.
+- You need the audience to become invested in the characters and in order to become invested, they need to identify with the characters... and that's why the characters need to be real.
+- At school, I basically wear one pair of jeans and sneakers for months on end.
+- I will not go on a blind date.
+- Oscar night is a ridiculous night where you go to these parties and you see everyone that you've ever wanted to work with and admire.
+- There was one day when I just didn't feel like I could do weight training after my cardio, so I didn't. You do have to know when to stop, or you can hurt yourself.
+- When I do my own makeup, I keep things pretty simple.
+- I think escapism is really important.
+- I work out with a trainer five days a week.
+- What I love about New York is that everyone is in their own world. It's the opposite of L.A. - there, everyone is looking outside of themselves to see who's next to them. What's great about New York is that you get to be anonymous.
+- I'd love to be a Bond girl. I mean, if you're going to be stereotyped, there are worse things to be stereotyped as.
+- I like having a routine, because everything else... is so unpredictable.
+- I meditate, which I really like. Just 20 minutes twice a day and that really helps.
+- Parking is a nightmare for me... I still have sensors on my car that help me park.
+- When I was really young. My sister and I would create different characters with our Barbie dolls - I'd be the crazy diva Barbie and she'd be the homeless Barbie.
+- Even now that I'm married and 28, my room's still intact the way it was when I went to high school.
+- I love working out, but I need my brain to be someplace else as my body does the work.
+- People spend so much time in their cars, and it's a legal way to have fun by speeding a little bit or testing yourself a little bit, and you get to invest in your car. For some people, it becomes their baby.
+- I like action more than anything touchy-feely.
+- I'm saying my rosary every day.
+- I already have a production company called J Squared and we're working on two projects.
+- I once owned a really, really ugly pair of white leather boots. They were so bad. It was back in the '80s! It was just a really tacky fashion choice when I was in middle school, and I thought it was cool. I'm really embarrassed.
+- I moved to New York when I was 10, from Rio de Janeiro. So there was no need for driving: I took the subway, cabs and the bus.
+- Well, I was lucky in that my being an actress totally overshadowed my having some kind of a... legacy at Yale, so that was kind of great.
+- Also, when you think about a show that you used to watch as a kid or as a teenager, you look at it through sort of rose colored glasses when you remember it.

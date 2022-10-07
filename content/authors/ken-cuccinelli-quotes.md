@@ -1,0 +1,96 @@
++++
+author = "Ken Cuccinelli"
+title = "Ken Cuccinelli Quotes"
+quotes_len = "90"
+description = "the best 90 Ken Cuccinelli Quotes"
++++
+- On the issues the Tea Party cares about, I land right in their bull's-eye.
+- We need all the transportation options that we can get in Virginia - especially options where the private sector carries all the risk and all the cost.
+- I guess blustery liberal Republicans flock together.
+- I love algebra. Love it.
+- People in this country don't realize how tyrannical the Left is. It is phenomenally intolerant of any views other than its own, and it must label them as bad, evil, malodorous in some way.
+- Even without mandatory sentences, judges are still capable of levying tough penalties for serious offenses - and just as in states like Texas that have 'tough on crime' reputations, this can be done without jeopardizing public safety.
+- In the Republican Party, we talk all the time about the importance of free markets and open competition. It seems to me that if we don't practice what we preach, we won't have much credibility with others.
+- I didn't run for office to make friends.
+- One of my unique features as a politician is that I am so blunt and so forthright, and I put my cards on the table to such a degree people aren't used to, that there's nothing left to hide.
+- When Eric Cantor lost, being the only majority leader in history to lose a primary, that was pretty - and still is - earth-shattering in Virginia and across the country.
+- I have a serious concern about middle-class families being able to afford college.
+- The media is really failing the American people.
+- When you run on something definitive and then win by a significant margin, you have a mandate.
+- Because the Advanced Placement Examination test is the required end-of-course examination, it cannot reasonably be viewed as a service or program for which a fee may be levied.
+- I ran for attorney general to be attorney general.
+- I learned as a mascot that rules don't really apply to you. As long as you don't go crazy with that. You want to go be the 12th man on a football play, they might have an objection, but otherwise, if you stay out of the way of the game, you can do most anything.
+- I think it was in 1971 or 1974, the Supreme Court ruled marriage is not a subject that the federal government can exercise jurisdiction over, including the courts. To do that, we would need an amendment to the Constitution.
+- It borders on inconceivable that Clinton didn't know that the emails she received - and, more obviously, the emails that she created, stored and sent with the server - would contain classified information.
+- Elections are about choices.
+- I like being home for dinner.
+- If a corporation can express opinions and be protected in doing so by the First Amendment, then there's no reason logically one wouldn't think they could undertake to enjoy the other rights protected under the First Amendment.
+- Ethics reform is about restoring the public trust. When that is in doubt, nothing is more important than restoring it.
+- It's hard to make me speechless.
+- An e-cigarette does not function in manner of a traditional cigarette because it functions electrically rather than via combustion of a material such as tobacco.
+- I absolutely believe that President Obama was born in the United States. I don't buy into the claims that he wasn't.
+- Conservatives are the heirs to the Founders' vision. But we have to act like it.
+- I have been approached to consider an appointment to the Virginia Supreme Court. I am humbled and honored to be considered for such a position, but it is not something that my wife and I have previously contemplated.
+- Let's help take back our country with our wallets, and don't forget to contact your senators and congressman to let them know that you don't want amnesty for illegal aliens, that you want them to restore our borders and our sovereignty.
+- Put simply, no one in state government can create new specially protected classes except the General Assembly with the concurrence of the Governor.
+- I don't go hunting with kings and princes.
+- We need to move back toward a free market.
+- The very purpose of Clinton's server was to intentionally retain documents and materials - all emails and attachments - on the server in her house, including classified materials.
+- Am I happy with the choice? No I'm not. But I'm going to make my choice, and I expect to vote for Donald Trump.
+- My view is that homosexual acts - not homosexuality, but homosexual acts - are wrong. They're intrinsically wrong. And I think in a natural-law-based country, it's appropriate to have policies that reflect that... They don't comport with natural law.
+- Competition's a good thing.
+- I'm the most pro-liberty elected official statewide in my lifetime. It isn't even a close call, so for people who care about protecting liberty, there's never been - again, in my lifetime in Virginia - a statewide elected official who's been as aggressive and consistent about doing that as I have.
+- The notion that those of us that are pro-life because we love children - is that so terrible? Really? Is that so terrible?
+- One of the beauties of the Tea Party movement - and the many, many like-minded citizens that don't participate in the Tea Party movement - is the fact that it is independent.
+- We can agree that keeping serious criminals in prison is an effective means of preserving public safety, but we must also recognize that the axiom of 'putting people in jail and throwing away the key' does not apply to all offenders universally and can actually be counterproductive.
+- Every time you blow the whistle, half the people are going to be mad at you.
+- Incarcerating non-violent offenders in the same population as more dangerous criminals has the effect of inculcating the former into a culture of criminality common among the latter, making them more of a risk to public safety upon release than when they originally went in.
+- I've always been one of those folks who think competition is actually a good thing. And if we're going to preach it as a party, we need to practice it.
+- I don't mind knife fights. I just want the knives to come to the front.
+- When you file an amicus brief, and you represent a state, the court reads your brief. It is a powerful position to make the legal assault from.
+- Strategies that do show evidence of effectiveness include policing that's focused on high-risk individuals or geographic areas, and/or deterrence-based approaches that hold entire gangs accountable should individual members engage in criminal behavior.
+- I want very much to see some sort of compromise reached in the area of immigration... so that we could move on to other issues.
+- I don't mind fighting as long as it's for a good cause.
+- Simply being secretary of state didn't allow Clinton to authorize herself to deviate from the requirements of retaining and transmitting classified documents, materials and information.
+- Senator Cruz has done well in Republican states.
+- The first thing in my oath is to uphold and protect the U.S. Constitution.
+- I was the first attorney general to court to fight Obamacare - about 30 minutes after the president signed the bill.
+- I'm more of an engineer with a law degree than I am a lawyer with an engineering degree in terms of how I think.
+- I don't get to sue just because I don't like something.
+- I would rather we limited - for the sake of transparency - we limited the number of taxes that we had and we were right up front about what they are, how much they are, and so forth.
+- I start with a concern about the growth of federal government. I start with a perspective concerned about the growth of that power, and containing it within the bounds of the Constitution.
+- The one thing that even my staunchest opponents will admit is I'm a straight shooter and that I'm a man of my word.
+- I will be the first to admit that I've made my own mistakes when it comes to Virginia's disclosure requirements.
+- I was one of the founding members of State Legislators for Legal Immigration.
+- One of the reasons Americans hold Washington in such low regard is the perception that nothing ever gets done. Whatever the issue - no matter how urgent - they always seem to be 'working on it.'
+- In Virginia, we want to have our own opportunity to control our own destiny, control our own market.
+- There was a time that I questioned the government's role in abortion.
+- I look Italian, but I act Irish.
+- My wife's a gardener. I'd put Astroturf down everywhere, but I get outvoted one to one every year.
+- We don't have a free market in health care. We need to connect customers up with the cost of care. And to drive innovation that way.
+- Giving public sanction to homosexual marriage ends up redefining marriage, and it's certain to harm children.
+- There are just some things about being president that are difficult.
+- Unlike in Washington, Virginia's leaders don't run from serious problems. We tackle them.
+- For all the criticism of me, there's one thing you won't hear anybody say, and that's that I've pulled the wool over anyone's eyes.
+- There's nothing conservative about allowing ourselves to become so inured to a 'tough on crime' frame of mind that we would abandon tested alternatives that can yield better outcomes.
+- I do think a focus on fiscal restraint is a central element of the Tea Party, and thank goodness for it!
+- What we can do where we live is advocate again to bring back to life the 10th Amendment, to bring back to life those boundaries in our constitutional system that were supposed to be the critical checks in the checks and balances system. Without them, we lose - gradually, we lose our liberty.
+- When one person does something, you look like an outlier. And whether it makes sense or not, the states get a certain level of respect from the courts that other people don't.
+- Telling the public, 'We'll get to it later,' is inadequate. That's what the federal government does.
+- I was an attorney general. That was - that matters to me, and if you won't obey your own rules, there's no reason to think you'll obey any others.
+- It is my opinion that a local school board cannot impose a mandatory fee on students taking advanced placement courses for the required taking of the Advanced Placement Examination.
+- The truth is our friend.
+- If you give me enough questions honestly answered, I can get you to the hollow core of any liberal position.
+- Really, given that God does judge nations, it's amazing that abortion has run as far and foully as it has without what I would consider to be a greater imposition of judgment on this country. Who knows what the future holds?
+- I have not always held the position I do today on the life issue.
+- We have a battle over the fundamentals of our country.
+- We are moving the debate in a more limited government direction. And in a more rule of law direction, a more conservative direction.
+- I don't play golf with presidents.
+- What to do about these increases in crime? Plenty of laws already exist to punish violent criminals, and research questions the level of correlation between longer sentences and lower crime rates.
+- It is hard to argue that the conservative movement is not having success.
+- One of the challenges for lawyers can be explaining, first of all, what the legal issue is and, second, its significance. And both of those are important.
+- A media-only campaign has its advantages, but it also has its very severe disadvantages.
+- I don't believe you back off being pro-life: You don't stop being pro-life because they say you're mean because you're pro-life.
+- They spend us into the dirt and lie like crazy, and, my gosh, I have never seen an opponent who just lies like he's taking a drinking of water like Terry McAuliffe. It is nothing to him.
+- Every liberal position is built on a fallacy.
+- There's some bells you can't unring.

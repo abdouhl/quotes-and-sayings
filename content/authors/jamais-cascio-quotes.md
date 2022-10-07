@@ -1,0 +1,72 @@
++++
+author = "Jamais Cascio"
+title = "Jamais Cascio Quotes"
+quotes_len = "66"
+description = "the best 66 Jamais Cascio Quotes"
++++
+- Most of us who work as professional futurists never really stop gathering information - you never know when a provocative, potentially disruptive new development might appear.
+- There's no doubt: The iPad is a beautiful, extremely well-designed device.
+- Futurism is almost like a vaccination. You inject a little bit of a denatured pathogen to prepare your body in case you encounter it for real.
+- Greed, accident, or malice may have harmful results, but, barring something truly apocalyptic, a resilient system can absorb such results without its overall health being threatened.
+- Many of the cognitive enhancement drugs serve to increase focus and concentration. But 'letting your mind wander' is very often an important part of the creative process.
+- The notion of the Internet as a force of political and social revolution is not a new one. As far back as the early 1990s, in the early days of the World Wide Web, there were technologists and writers arguing forcefully that the Internet was destined to become the most important tool for cultural change in human history.
+- I have to admit it: I'm not a huge fan of the cloud computing concept.
+- In the U.S., we are free to speak our minds and to spend money without being forced to reveal our identities - except when using the Web. Browsing the Web leaves digital tracks everywhere in the form of log files, and anyone who hosts a Web site can be easily traced.
+- Back in the 1500s, the culture that we had built in the West embraced multigenerational projects quite easily. Notre Dame. Massive cathedrals were not built over the course of a few years, they were built over a few generations. People who started building them knew they wouldn't be finished until their grandson was born.
+- It's remarkably easy to dig up enormous amounts of information about individuals, without their consent.
+- Human beings are social animals; we devote a significant portion of our brain just to dealing with interactions with other humans.
+- Trying to do what your competitors are doing but basically a little bit better is probably not going to be the winning strategy. The problem is finding what your competitors wouldn't even consider doing.
+- Foresight turns out to be a critical adaptive strategy for times of great stress.
+- Human civilization has been changing the Earth's environment for millennia, often to our detriment. Dams, deforestation and urbanization can alter water cycles and wind patterns, occasionally triggering droughts or even creating deserts.
+- Everything we think about regarding sustainability - from energy to agriculture to manufacturing to population - has a water footprint. Almost all of the water on Earth is salt water, and the remaining freshwater supplies are split between agricultural use and human use - as well as maintaining the existing natural environment.
+- Crackdowns on Internet content make clear the need for an anonymized Web. Now, someone just needs to implement it.
+- Is there a better example of natural selection in action than 'Project Runway?'
+- Participatory complexity may well be the key descriptor of the 21st century - in our economies, in our politics, and in our everyday lives.
+- By ignoring tomorrow, we undermine today.
+- Many futurists use a checklist approach to make sure they're covering a sufficiently wide set of topics in terms of both research and brainstorming during a foresight exercise.
+- Entrepreneurs need to recognize that, especially in the digital domain, they are unlikely to come up with something that is going to be permanently on top, that impermanence and ephemerality is the nature of the beast.
+- Much as Cold War nuclear strategists could argue about winning a nuclear war by having more survivors, advocates of a Global Warming War might see the United States, Western Europe, or Russia as better able to ride out climate disruption and manipulation than, say, China or the countries of the Middle East.
+- Simply put, the Internet undermines the ability of an institution to control its own narrative.
+- My own suspicion is that a stand-alone artificial mind will be more a tool of narrow utility than something especially apocalyptic.
+- To be clear, geoengineering won't solve global warming. It's not a 'techno-fix.' It would be enormously risky and almost certainly lead to troubling unforeseen consequences.
+- The reality is that de-carbonisation is not happening fast enough.
+- Carbon dioxide isn't the only greenhouse gas out there. Other substances, such as water vapor and nitrous oxide, also trap heat to varying degrees.
+- Remember, the goal of structured futures thinking is to come up with a picture of possible futures that will help to inform strategic decisions.
+- A good scenario doesn't make a good science fiction story - but it's a setting within which a good science fiction story might be told.
+- I understand that most iPhone users want a phone that can do other nifty things, not a general purpose computer that happens to make phone calls. Strict control over apps minimizes the chances that someone will find their phone hacked or virus-laden.
+- Geoengineering involves humans making intentional, large-scale modifications to the Earths geophysical systems in order to change the environment.
+- Cloud computing offers individuals access to data and applications from nearly any point of access to the Internet, offers businesses a whole new way to cut costs for technical infrastructure, and offers big computer companies a potentially giant market for hardware and services.
+- As useful as websites and journals are, there's real value in books, too.
+- The cloud computing model may be a wonderful system when it works, but it's a nightmare when it fails. And the more people who come to depend upon it, the bigger the nightmare.
+- In entertainment, zombies are so played out. I have a gut sense that people are getting tired of apocalyptic scenarios.
+- Nature stopped being natural decades ago.
+- It's a pretty widely-accepted notion that the atmosphere is a ridiculously complex system, and the best we can do with our models is a rough approximation.
+- Preventing global warming from becoming a planetary catastrophe may take something even more drastic than renewable energy, superefficient urban design, and global carbon taxes.
+- Blended-reality technology could play in a limited, walled-garden world, but history suggests that it won't really take off until it offers broad freedom of use.
+- The highest compliment I can give a science fiction book is that it's 'plausibly surreal' - it manages to feel like a relentless extrapolation from today even as it overwhelms with unexpected consequences of that extrapolation.
+- Being connected to the Internet means being vulnerable to coordinated actions that can knock down walls of secrecy and shatter mechanisms of control.
+- Don't expect to be able to upload your cat's brain into your Roomba any time soon.
+- I don't think that a Singularity would be visible to those going through one. Even the most disruptive changes are not universally or immediately distributed, and late followers learn from the reactions and dilemmas of those who had initially encountered the disruptive change.
+- Fluid intelligence doesn't look much like the capacity to memorise and recite facts, the skills that people have traditionally associated with brainpower.
+- The Internet is not kind to established institutions.
+- You need to recognize that the copyright date on a book reflects when it came out, not when it was written - assume that the information in the book is at least a year older than the copyright date, and possibly two.
+- Resilience is all about being able to overcome the unexpected. Sustainability is about survival. The goal of resilience is to thrive.
+- I do think that fashion may end up being the 'killer app' for wearable augmented reality systems. This is in part because it's not simply task-oriented - like finding a restaurant or where your friend is currently lounging about - but experience-oriented. It becomes part of your life.
+- Even if we were to stop putting out greenhouse gases right now, we'd still face decades of warming.
+- Technologists and futurists call the mashup of digital info and physical space 'blended reality.'
+- Neodymium is one of 17 'rare-earth metals,' and these elements have turned out to be critical to the rapidly-growing green technology industries.
+- Nobody's going to fix the world for us, but working together, making use of technological innovations and human communities alike, we might just be able to fix it ourselves.
+- Computer programmers, biotechnologists, environmental scientists, neuroscientists, nanotech engineers - all of these fields, and more, should have at least a course in ethics as part of their degree requirements.
+- The biggest potential and actual crises of the 21st century all have a strong, long, slow aspect with a significant lag between cause and effect. We have to train ourselves to be thinking in terms of longer-term results.
+- Thinking about the future is fundamentally important to dealing with the challenges of today.
+- Future forecasting is all about testing strategies - it's like a wind tunnel.
+- As our various electronic devices gain more and more sensory awareness, we open up the potential for entirely new forms of interaction. Not just new interfaces - tapping and shaking and whatnot - but a shift in presence.
+- In a Photoshopped world, only the skeptical eye prevails.
+- With increasing fervor since the 1980s, sustainability has been the watchword of scientists, environmental activists, and indeed all those concerned about the complex, fragile systems on the sphere we inhabit. It has shaped debates about business, design, and our lifestyles.
+- Nearly every communication method we invent eventually conveys unwanted commercial messages.
+- Futures thinking is hard work. Fortunately, you do get better at it with practice. It's worth the effort.
+- When we developed written language, we significantly increased our functional memory and our ability to share insights and knowledge across time and space. The same thing happened with the invention of the printing press, the telegraph, and the radio.
+- Intelligence augmentation decreases the need for specialization and increases participatory complexity.
+- We've already seen digital picture frames pre-loaded with viruses; I'm not eager to have my refrigerator hacked or my alarm clock turned against me.
+- Sustainability is a seemingly laudable goal - it tells us we need to live within our means, whether economic, ecological, or political - but it's insufficient for uncertain times. How can we live within our means when those very means can change, swiftly and unexpectedly, beneath us?
+- Fragile economies and weak infrastructures tend to worsen the results of climate disruptions, a problem exemplified by Bangladesh's vulnerability to monsoons, accelerating desertification in northern China, and, most visibly, Hurricane Katrina's devastation in New Orleans.

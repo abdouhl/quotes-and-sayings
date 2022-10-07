@@ -1,0 +1,106 @@
++++
+author = "Jazz Jennings"
+title = "Jazz Jennings Quotes"
+quotes_len = "100"
+description = "the best 100 Jazz Jennings Quotes"
++++
+- It means so much to me to see Caitlyn Jenner coming out, just by being her authentic self, staying true to who she is, and just living her life.
+- Acceptance is so important because we cannot go through this journey alone. I am fortunate to have a very supportive family, but not all trans kids are so lucky. I recommend seeking out a friend or an adult who you think will accept you and telling them how you feel.
+- Being transgender is not just a medical transition.
+- I look at people for their souls, and I can see myself falling in love with anyone after getting to know them and developing a relationship.
+- On every single picture on my Instagram page, you'll find a negative comment. My supporters will normally stand up to that hateful person, and then it will become a big argument, and it's just a lot. I try to tell myself not to listen to the haters, and I try not to read the comments because it's not worth it.
+- I want people to feel happy in their own skins and feel accepted by society.
+- I'm an average girl with an average family - and I hope people can see that.
+- Having such a supportive family has really shaped the person that I am today.
+- I know that one day all transgender individuals will have the freedom to be who they are, no matter what. And we won't have to face the cruel judgments of society. We can just live our lives and be treated and respected like everyone else.
+- I wouldn't change anything about myself. Not because I'm being cocky or anything, but because this is who I am, and I'm proud of who I am.
+- Kids can be annoying. Especially teenagers - oh my gosh. They can be cruel.
+- I have a bunch of transgender friends, but they're all spread out across the country.
+- Seeing states like North Carolina enacting these bathroom bills that are banning transgender individuals from using the restrooms they identify as... it's complete discrimination.
+- Progress can't happen just from trans people being out in the open. Society also has to truly accept transgender individuals. If society is capable of treating us equally, then we can and will live authentically.
+- I feel really honored to be part of The #seetherealme campaign. It's really amazing, as it helps many teen girls who are struggling. It helps them to find themselves and be true to who they are.
+- I'm so happy trans visibility has increased immensely.
+- In the end, everyone just deserves the right to be their authentic selves, just be who they are.
+- I've always known exactly who I am. I was a girl trapped in a boy's body.
+- I think I've been able to find happiness, and I've learned to love myself. That's a huge accomplishment for anyone, learning to love yourself.
+- A lot of people - boys - look at me differently. They think that if they date me, they are gay because they are dating another boy. In instances like this, I feel almost excluded, if that's the right word. I feel like I'm being put on a different shelf.
+- Often, when a girl has a crush on a boy, her friend will dare her to speak to him or ask for a pencil, or better yet, let him know that she has a crush. Pretty risky stuff... It happens thousands of times a day in the lives of teenagers everywhere. Putting yourself out there. Daring to expose your true feelings.
+- There are so few books for little kids that actually mention the word transgender and explain what it is in simple terms.
+- I've always known exactly who I am, but growing up has always been a struggle. I've even been called an 'it.'
+- I'm open, and I'm out there, but I also enjoy being alone, relaxing.
+- A lot of insurance companies don't protect transgender people because they think it's medically unnecessary, but we deserve to be covered, and this is life-saving treatment.
+- I'm weird: I like science and math but also like English as well.
+- I share my story to help other people. I know people need someone to be a role model and help them along the way.
+- A lot of straight and transgender boys get in touch with me through my website and social media. They tell me I'm inspirational and beautiful. It boosts my self-esteem.
+- If people are going to judge me without fully understanding the content of my character, then their opinion just isn't worth it.
+- I want to show people they don't have to be scared of being different.
+- Falling in love. Being in love. It's something I dream of, something I want to feel.
+- The more words I learned, the more I started to verbalize my feelings. Whenever my mom or dad would compliment me by saying something like 'Good boy,' I'd immediately correct them. 'No. Good girl.'
+- With my own videos, I definitely have more control over what I want to put out there and what I want to say. With the TV show, I'm not the editor. There's always things that I wanted to put in there. My dad has the final say in everything on YouTube, but I can be more expressive.
+- I've always loved mermaids!
+- It's something you're born with, and you realize that you're trapped in the wrong body. It's not like one day you're like, 'I want to be transgender!'
+- I have no idea what I want to do for a career. But in terms of my advocacy work, I'm definitely going to continue.
+- My family has always provided me unconditional love and support.
+- For me, Caitlyn Jenner is such a huge role model. She's really making a difference in our society by just being brave and sharing her story. People say she's not brave and courageous, but to me, she is so brave and courageous.
+- If you don't have the love and support of your family, you need to find someone out there who you can confide in and share your concerns and worries with. And someone who can lift your spirits and make you feel valuable and strong and powerful.
+- I think that's important - that transgender individuals are just like everyone else. We have our interests, our hobbies, our things we like to do. And people have to understand that.
+- Just like everyone else, I'm not perfect; I go through challenges as well.
+- I love experimenting with different hair styles and going clothes shopping.
+- I definitely think it's important to share my process when it comes to the bottom surgery, because that information really isn't out there.
+- Having transgender characters leads to more visibility, which creates education. Education can hopefully lead to everyone treating our community with acceptance and love.
+- I definitely feel that society sets expectations for transgender people to fit in and makes us feel as if we have to dress a certain way so that we blend in with everyone else. But I believe all transgender individuals should be able to wear whatever they want and not worry about fitting in.
+- I feel like so many people invalidate the experience of transgender girls thinking that they aren't regular girls, but I am a normal girl.
+- If someone is judging you without knowing the content of your character, don't listen to them.
+- I definitely think when I'm feeling super down or having tantrums or not able to participate in any activities, I have to control myself. I have to tell myself, 'No, focus, focus, focus, do this, do this, do this.' Instead of shutting down, I encourage myself to think positively and move towards the light.
+- I'm a normal person, and I'm going to make mistakes. I think people have to accept that.
+- From the moment I could express myself, I acted like a stereotypical girl and insisted that I was a girl. I wasn't just a boy who liked girly things - I knew I was a girl.
+- I want it to be that transgender is normal. Let us live our lives. Let us be happy. The world will be a better place when we have that freedom. I think I'm going to be alive to see it.
+- I'd like to think I'm funny.
+- I was never a boy. I always was a girl in my heart, and although I was presented as a boy to the public, inside I was feminine. It was OK to be that because that's just who I was, and I can't change that. I was born that way.
+- As I began to grow, my family thought my obsessive interest in girly things was just a normal developmental phase.
+- So many transgender people in the community are being covered with this umbrella of misconception that we are going to hurt someone. But we are not trying to hurt anyone.
+- 'I Am Jazz' was more for children to understand what it means to be transgender, but with 'Being Jazz,' I wanted to get the universal message across that we are all just people, and we have to live our lives authentically.
+- Who knows? Maybe someday I'll be living in the White House.
+- I hope to stop discrimination against young transgender people.
+- I'm a patient person. I can wait for my prince charming.
+- Being transgender has completely turned boys off from liking me.
+- I definitely secretly dream of being a mermaid.
+- Let's face it: your average straight, cis-gender teenage boy isn't going to pursue a relationship with a trans-girl.
+- When I first appeared in the media, it was rare to see trans people on TV, and young trans kids were unheard of.
+- It's so important to look out for your child and protect them.
+- For transgender kids who are struggling, I want them to know they're not alone. They shouldn't be afraid to step out of their shadows.
+- Mermaids are just the most whimsical, mystical creatures of all time.
+- I think that a lot of people don't understand how much discrimination transgender people actually face. They think that we're just kind of saying it to put it out there and get sympathy, but that's not true at all.
+- I don't really care what people think of me.
+- I define myself.
+- If someone says something hurtful to you or makes you feel down on yourself, then you just gotta stay positive and keep moving forward because they might not know much about you, or they may not understand the situation.
+- Bathrooms have always been a big issue in my life. My parents fought for me to be able to enroll in elementary school as a girl, which I did. But I still would not be allowed to use the girls' room under any condition.
+- Bras should be comfortable. I hate when you have all those bras with all that wiring that poke into your ribs, and you take it off at the end of the day, and it feels good. It shouldn't feel good to take off your bra at the end of the day. It should be something that feels good throughout the day.
+- I'm just attracted to people for who they are on the inside.
+- Being transgender is more than just medical books and everything, procedures. It's something spiritual in which you're finding yourself and really discovering who you are and learning to love yourself.
+- I think we should have unisex bathrooms.
+- I don't care how people treat me. I care about my message living on through other people.
+- If someone's OK with being the 'transgender girl,' that's fine, but that's not me.
+- The only opinion that really affects me is my own opinion of myself because I determine the way I am, not anyone else.
+- As I got older, I learned about how some people treated their transgender children, and I was shocked. I couldn't understand how someone would leave their child and throw them on the street. I was always taught you give your kid unconditional love and if you don't, something's wrong with you, for real.
+- I want to help transgender individuals who might be struggling realize that they have to love themselves and stay true to who they are because if they keep moving forward, and keep a positive attitude, then things will get better.
+- Ever since I could form coherent thoughts, I knew I was a girl trapped inside a boy's body. There was never any confusion in my mind. The confusing part was why no one else could see what was wrong.
+- There are so many trans kids who are struggling with who they are. I want them to know that one day, they will find the light. No matter what, we have to be who we are. Once you love and accept yourself, then others will slowly do so as well.
+- In the morning when I wake up, I'll exfoliate. Then at night when I shower, I'll also use an exfoliating scrub. My routine is easy, and I just get clean skin.
+- As a transgender child, I was always looking around for someone like me, because I thought I was the only one. It's hard to feel like that. But having support from my family changed everything. They helped me love myself and embrace who I am.
+- GLAAD has so much information and outlets about LGBTQ people and some of the issues we face and who we are.
+- I think being a teenager is a difficult journey in and of itself, but being transgender makes it that much harder.
+- I'm the youngest of four siblings and the baby of the family. My family just treated me like anyone else growing up. They taught me that everyone has a special and unique trait about them, and that mine is that I have a girl brain and a boy body.
+- I'm definitely going to make sure that I just continue to live my life authentically.
+- We just want to help people understand that it's okay to be transgender, and they're just like everyone else.
+- As a 15-year-old teenage girl, I can attest to the fact that boys dominate most conversations between girls my age.
+- I see myself maybe being, like, a movie producer or screenwriter or a novelist or a scientist or mathematician.
+- I really just want to spread my love and happiness toward other people.
+- I know, for me, when I was depressed, I didn't want to talk to my friends at all when I was depressed. If they tried to help me, I would kind of back away from them.
+- I wouldn't change myself at all. Being transgender makes me who I am: a strong person, a confident person. Being transgender gives me my personality.
+- I always say I want to leave this world in a better state than when I arrived, and I continue to live by that message. So I'm going to do what I can to make the world a better place but also just make sure that I'm happy as well.
+- Hormone blockers changed and saved my life.
+- Haters are our ammunition. They motivate us to continue fighting for our rights. That's why I continue to share my story.
+- I wish everything was gender neutral. I wish we weren't separated by boundaries like pink and blue and little things like that. I wish we could choose how we express ourselves without hate.
+- The real me is happy and proud to be who I am.
+- Being transgender isn't a medical transition. It's a process of learning to love yourself for who you are.

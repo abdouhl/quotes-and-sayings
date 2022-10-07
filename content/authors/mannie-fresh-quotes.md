@@ -1,0 +1,84 @@
++++
+author = "Mannie Fresh"
+title = "Mannie Fresh Quotes"
+quotes_len = "78"
+description = "the best 78 Mannie Fresh Quotes"
++++
+- The name Hot Boys was based on a time in New Orleans where if you were really doing something or if the police were looking for you, people would be like, 'He hot. That boy hot.'
+- If you do street music, do it. So be it. That's not me.
+- I'm from the '80s, man. I got ideas; that's what we do.
+- I don't trust nobody, and I mean that.
+- We still have money issues. We will always have them as long as Cash Money is selling anything that has Mannie Fresh on it.
+- All throughout Cash Money, I never abandoned the SP 1200. At the end of the day, I still use my SP 1200 'cause I like the way the drums sound.
+- I've had some bad business lessons and learned some things. It's not always about going platinum. So long as I know who is buying my records and I generate revenue that's mine, then it's cool.
+- When a lot of people are calling it a night at 2 A.M., New Orleans is coming alive.
+- My dad is my biggest fan.
+- You had Cash Money: that was just the flashy dudes. Like I said, you had different genres of rap, and we were just one of them. So that's how we fit in. What makes it all confusing - and this is where it's the gift and the curse - we never set out for hip-hop to turn into just something flashy. That was just our thing. It wasn't everybody's thing.
+- When I know it's like a bass song, I gotta go with my SP-1200.
+- I thank God I've never burned no bridges with nobody, and when it's time for me to call in my favors, they're coming.
+- That's what I'm tryin' to achieve. I want to be a heavyweight in this game, and I'm tryin' to get the big money. By the same token, the title 'Big Money Heavyweight' applies to everybody in the world. That's what everybody's tryin' to achieve.
+- 'Bling Bling' was originally a Big Tymers song.
+- The Cash Money sound pretty much changed the era. It kind of put the business into rap. It was like, 'Get your money, dude. This is a billion dollar business.'
+- 'Solja Rag' was designed for Juvenile. It wasn't one of them beats where I was gonna chop it and see who I was going give it to: it was Juvenile all over it.
+- I think I have automobile skills and musical background.
+- With Dr. Dre, he's a perfectionist. A lot of people ask why 'Detox' is taking so long. It's because Dre is somebody that is trying to top what he's done. Will he do it? I don't know if he ever will, but I respect that he's trying to do so. You have to wait for a masterpiece.
+- I get most of my reading done whenever I'm in the airport waiting on a flight, have some time to kill, and I have a book with me.
+- The single 'Tha Block Is Hot' was a song that was true to life.
+- It's weird being a DJ and you have a playlist of your own songs that you could hold it down for an hour.
+- For those from my era, my age, that 2Pac vs. Biggie war will go on forever about who is the greatest. But I was more of a Biggie dude.
+- I'm really working hard at regaining Mannie Fresh as a household name. But for me, it's always been the long road. What the long road means is if I gotta go city to city, town to town or whatever it is, that's what I gotta do.
+- The reason that I like 'Game of Thrones' is because it's based on all these royal families. And it's cutthroat - just like hip-hop. It's all about positioning and figuring out who's going to last.
+- If you stay around good people, then they'll look out for you.
+- Music is all I know.
+- When a movie based on a book comes out, people always say that the book is always better than the movie. So I'm always interested in reading the book, too.
+- What made '400 Degreez' great is that Juvenile already had those raps. He already knew them. It was something that he knew every one of those raps.
+- The cool thing about G.O.O.D. Music is it's a bunch of great ideas, and I'm one of those ideas.
+- I've got different drum machines that I use for different things, but I think the older ones are always the best when it comes down to getting that 808 bass.
+- The streets buy records, but they don't really buy records in incredible numbers.
+- I always got ideas.
+- B.G. was just like his lyrics.
+- If you know Down South production, Roland 808 is in almost everything.
+- 'Macbeth' is one of those books that demand all of your attention.
+- I always say that I'm a hip-hop fan, and I'm definitely a Drake fan.
+- 'Hood Rich' was super important to Cash Money.
+- New Orleans just embraces people who love music.
+- I knew Kanye way before he was signed.
+- The thing about Big Tymers was if they said they had it, they had it.
+- 'Chopper City in the Ghetto' - a lot of it was B.G.'s real story.
+- I see how attorneys are, and nobody is really on your side. It's about money. The attorney is not chasing after your money; he's chasing after his fee.
+- With Hurricane Katrina and all that kind of stuff happening, you needed somebody to rally for your city, to tell that story. Since Hurricane Katrina, we didn't really have nobody that said, 'I'm gonna tell New Orleans' story, and I'm gonna stick to New Orleans.'
+- Don't just sit around and wait for it to happen. 'Get Your Roll On.' If you're going to buy some rims, graduate from college, or whatever, get your roll on and make something shake.
+- We recorded 'Chopper City in the Ghetto' in a house that we was living in.
+- I've always found some way to kind of incorporate second-line music in what I did.
+- I have some songs on 'Tha Carter V,' but if I hear a song five times, I don't like it no more.
+- I did albums for Cash Money. I didn't do singles - I did whole albums for Cash Money - and at the end of the day, I'm saying I wasn't paid for albums, so its like you're doing 10 songs, and somebody pays you for 1.
+- By the age of 17, Wayne was confident. He knew, 'This is what I am. I'm an MC.' You had Missy Elliott saying she loved Lil Wayne. Lyrically, he was getting better and better.
+- There will never be another Biggie ever again.
+- Hey, you gotta love a gangsta girl. Even the suburban and preppy girls wanna be gangsta girls. That's the whole gimmick to it. Everybody wants to be a gangsta girl.
+- I always felt like the trumpet or trombone player was always the coolest dude in the room.
+- Money makes everybody evil when you think about it.
+- To have Run-DMC acknowledge you, something like that, you're like, 'Oh, I'm that dude.' To have Jay-Z do a verse, you that dude. To have Jay-Z shout you out in an intro, you're that dude. Like, it doesn't get any greater than that. Nobody can take that from you.
+- If I was working on Michael Jackson if he came back to life, I would be ready. I would be ready. 'The Resurrection' Michael Jackson album, I would be ready.
+- Kanye inspires me through his work ethic and his approach.
+- There are so many talented people that are on G.O.O.D. Music that it's nuts.
+- To me, Def Jam put my career on hold. I was used to making 13-14 songs a year, and they trickled that down to nothing.
+- There's been enough building of fences with labels trying to categorize artists, limiting artists' ability to be themselves.
+- I'm doing bass trap; I'm doing EDM songs.
+- A lot of artists are scared when they see trumpet players show up - they like, 'Nah, that ain't what I want.' I try to tell them, 'Dude, I'll give you trademark Mannie Fresh, but it's not about keyboards and a drum machine.'
+- I don't bash Cash Money, Birdman, or none of them.
+- I'm saying nobody's got the guts to be a J. Cole. Nobody's got the guts to be a Kendrick Lamar. We need more of them... Everybody wants to go the easy route.
+- Even before anybody liked the 808, Mannie Fresh was on the 808.
+- When 'And Then What' was made, Jeezy already had a street appeal, but 'And Then What' put him on the national appeal.
+- With a lot of young entrepreneurs, it always start rotten, but then something good happens - but do you keep it good?
+- With time, everything changes. I know I'm not the same person who I used to be. I totally get that.
+- I remember that my dad worked on cars from the '70s and '80s, and that's where my love came from: appreciating - even if it was a piece of crap - how much he loved American muscle.
+- I'm too old to be making dis songs.
+- Flow Tribe is a great bunch of New Orleans guys who have that funkiness to them.
+- Cash Money really had no intentions of being a rap label because when it started, it really was based on bounce. It was one bounce song after another. I started to doing bounce songs for them, and they jumped off.
+- 'Chopper City in the Ghetto,' real talk, it's what changed Cash Money from a Bounce label to a Rap label.
+- I can see how paperwork and foolishness can destroy something.
+- I've always had good connections with cars and always knew how to fix them, so I didn't have trouble with breakdowns.
+- I love to have fun when I do a song.
+- B.I.G. was like the Alfred Hitchcock of rap. Like, this dude's story form was so nuts.
+- Just look at the name of Kanye's label: G.O.O.D. Music. That's what it's all about, creating good music.
+- The whole '400 Degreez' album was inspired by what Outkast was doing, Organized Noize. That was what I was listening to around that time.

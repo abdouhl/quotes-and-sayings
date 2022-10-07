@@ -1,0 +1,21 @@
++++
+author = "Jejomar Binay"
+title = "Jejomar Binay Quotes"
+quotes_len = "15"
+description = "the best 15 Jejomar Binay Quotes"
++++
+- Hopefully, my administration will be known as a healing and unifying administration.
+- My detractors would be mistaken to believe that the allegations against me that had no basis and were all lies would distract me. I continue to do my job.
+- Coal is cheap, but up to what extent are we going to allow coal plants to operate?
+- Believe it or not, I say my prayers in the morning and in the evening.
+- I will always think about uplifting the lives of the poor because I know what they feel. I have not heard about poverty; I have not read about poverty: I have experienced poverty.
+- I have repeatedly called for respecting institutions and the democratic process. Once the process is completed, we should always respect the outcome.
+- The rich do not want people who come from poor families to rise to the highest position in the country.
+- Should Filipinos decide to have me as their leader, I will ensure that just like in Makati, everyone will benefit from whatever development our country would attain. No one will be left behind.
+- I wish I could renounce politics.
+- There was never a time that I thought of renouncing my Filipino citizenship. I never abandoned my country. I've been here through thick and thin. Jojo Binay is a Filipino.
+- I'm a lawyer. The right to life is important.
+- I have traveled to three-fourths of the Philippines.
+- I don't like this kind of life where every month you are faced with some kind of a coup.
+- Jojo Binay will not change.
+- Spending on infrastructure will help employment.

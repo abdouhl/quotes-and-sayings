@@ -1,0 +1,105 @@
++++
+author = "Nidhhi Agerwal"
+title = "Nidhhi Agerwal Quotes"
+quotes_len = "99"
+description = "the best 99 Nidhhi Agerwal Quotes"
++++
+- My film with Pawan Kalyan sir, 'Vakeel Saab,' came in theatres and collected humongous figures in the first weekend. It was a celebration for people. Then it released on an OTT, and people still watched it, it garnered high TRPs.
+- At the end, if you are good in your film and you have more films coming your way and good characters to play, nothing else counts.
+- I have a photographic memory.
+- There are so many platforms you can work on, in so many languages. There are so many different roles you can do.
+- Telugu films have opened a new world to me.
+- I have no personal life.
+- I am very happy at home, I am grateful.
+- I genuinely am a very extreme person.
+- I have learnt a lot of fitness-related things.
+- For acting, a two-week workshop helped me break my shyness and made me able to perform in front of people.
+- We are always over-critical about our own stuff.
+- I had a neighbour who was a photographer, and he'd always say, 'I am going to shoot you' and I would always cry.
+- I just love films, whether they release on OTT or in theatres.
+- I accepted that it would be very difficult to become an actor and it's even tougher once you become an actor.
+- I really enjoy visiting stores and shopping. I don't mind the staff and other customers at the stores recognising me either; it's a great feeling when people tell you they love your work.
+- There is always time for love.
+- I think being a part of a Pawan Kalyan film is a larger-than-life experience. There is a certain aura around the man and the moment he steps on to the sets, people stop what they're doing and look up.
+- I think even if you do five films, some people would be like 'yeah, no big deal.'
+- Rumours of link-ups with co-stars have become an easy publicity exercise for production houses. It takes the focus away from the film.
+- I realised that we must be grateful for the things we have in this world.
+- I just know one thing that hard work is the key to success and I believe in this.
+- I have gotten so used to my dogs that it is tough to spend a day without them.
+- I've noticed that Hindi films do well in the north, but they don't do that well in the south. But, I want everything! I want the north and the south.
+- It was my childhood dream to become an actress, and I've worked hard to get to this stage. So I am enjoying the life of an actress.
+- After 'Mr. Majnu,' I can now choose to do movies that have a strong character.
+- When you're in the process of becoming an actor, you think that you just need to get that one film. But once you get that one film, the stress increases.
+- All our paths are different.
+- I do get a lot of comments, messages and whenever people meet me, they say 'I know you are working in the south but we miss you in Hindi.'
+- Well, we're a Hindi speaking Marwari family, but everybody in my family understands Telugu and talk Telugu films all the time.
+- It is harder for an outsider to make an entry into the industry, but that also does not mean star kids have it easy.
+- The Telugu industry and their scripts are extremely nice.
+- I am always looking for a good script.
+- I've learned ballet for seven years and Kathak and belly dancing for some time.
+- I had many hobbies but now I only work on myself. I have to become the best dancer and actor and have the best personality.
+- Usually, when people are sick, you go and help them, but Covid is such that you cannot be around them, but help from a distance. I think that hit me. Some people have nobody to go out and buy things for them, nobody to make any food.
+- The admiration and love that the audience has been showering on me is amazing.
+- Surprisingly, dialogues haven't been a problem for me. Even in 'Savyasachi,' it was easy.
+- I live in Mumbai and work everywhere.
+- With my fashion knowledge, I do stitch things randomly at times.
+- There are few options that come by you and you get selected for when it comes to making a debut.
+- During my modelling days, I would hear there's no dearth of female models aspiring to be actors.
+- I always try to be the best version of myself regardless of success and failure.
+- At times, I felt bad because while giving a shot, I would just forget facing the camera, or knowing the right angle.
+- I feel good when I see someone from fan clubs on Instagram make a card for me.
+- I continue to keep doing my work and remain level-headed.
+- Actors don't like promotions, but I love it because I feel someone is actually interested in knowing me!
+- I am a trained dancer.
+- I don't go out partying.
+- I started doing modeling and continued for good three to four months and then I started getting Kannada movies. Then I realized that I really want to try getting into acting. A lot of people started saying that have 'I have a Bollywood face.'
+- We should just focus on people getting into the phase of making films, and seeing how and where will they release later, depending on the situation.
+- I always pick out my own clothes, 'cos I love hitting the stores, be it in India or abroad.
+- As I didn't belong from a filmy background, I didn't know how to become an actor.
+- When I used to visit my relatives' places in Hyderabad, I would keep seeing the posters of Telugu films. It's not a different world for me.
+- Besides Kannada, I also know Telugu and Tamil fairly well.
+- If you're hard-working and meant to be loved by millions, you'll have it.
+- Do I wish I had it easier being an outsider in the industry? Yes, of course, I wish had it easier. Why would we choose the difficult path. But I would not want to sit and talk about it and get affected about it. I would rather just accept it.
+- With Farah ma'am on sets it's always fun.
+- My whole family is in Bengaluru and I have nothing but my ambitions to live with in Mumbai.
+- People did not want to rent out their place to me. My dad had to come and meet my landlord. He had to assure him that he and my mom would keep coming to visit me.
+- You need someone to guide you otherwise you end up taking wrong decisions and that doesn't really help.
+- It's certainly not easy for an outsider to make a mark because they don't know anyone. You don't get written about as nobody knows who you are. So, you don't get that much attention when you are doing something compared to people that the media is aware of.
+- If there's one thing Nawaz sir taught me, it's how to just relax. He's not your method actor who will ask not to be disturbed on set if there's a serious scene to shoot. He just comes and does his thing.
+- I've always been an ambitious girl and I make no qualms in admitting that.
+- Nothing can be bigger than family and health.
+- I am aware of Telugu cinema and I have never felt that it's a different one.
+- Nepotism exists everywhere.
+- I have spoken about wanting to do something for kids and dogs in my interviews.
+- If I want to watch a film, I will watch it irrespective of the medium it is available on.
+- Since I am not a trained actor, and I act spontaneously, I thought getting some training in acting will definitely help me take my performance up a couple of notches.
+- Star kid or not, every actor has to stand the test of time.
+- Savyasachi' is an action romantic film and I'm getting to work with some very nice people. I play the role of a simple girl who's very innocent and independent.
+- I think change is always good.
+- So many times, when I would do a lot of retakes, I used to say sorry to my director and co-actors.
+- I've been dealing with link-up rumours even since I was in school.
+- When you are the favourite it is amazing, but when you are not, it sucks.
+- My parents are very trusting. They have always supported my decisions. Sometimes I feel they trust me too much.
+- Farah ma'am is so technically strong. She is such a good director and one of the most fun directors.
+- To be honest, I'm a very spiritual person - I go to temples regularly, do a puja every morning and I know the Hanuman Chalisa by-heart.
+- I am the one to always look at the positive side of life and effect of things.
+- I don't even have a formal fans association.
+- Pay disparity is something I don't like honestly. I feel it depends on say, if any actress and actor at the same level bring in same number of people into theatres, they should be paid equally. That's just what I believe in.
+- I wanted to get a formal training before entering the film industry, so I moved to Mumbai. I stayed there for two years, got training and gave two auditions.
+- My parents have so many Punjabi friends in Delhi, and they are my guide when it comes to knowing the city.
+- I have been watching all kind of films and I am a bit familiar with Kannada, Telugu and Tamil.
+- Chaitanya and Akhil are very contrasting personalities. Akhil is fire, Chaitanya is water. They both are well-mannered. I like both of them.
+- I am either working or I'm at home.
+- I remember I would watch the same film thrice a day for an entire month.
+- I have done my BBM and a small course in fashion. Then I started out to be a model.
+- Casting couch is a demon of the world! It is just that in the industry just because people know them, it is just talked about much more but it should be completely eliminated as a concept.
+- I was well aware that I am just a normal girl and it's not like filmmakers are waiting to offer me films. No designers are dying to give their clothes to me. I knew I was making my debut opposite a star kid who was already famous, and it would be difficult for me to get noticed.
+- My dad is into business and quite established. But I decided to pursue acting. Had I joined him I would've become the CEO of the company and things would've been easier for me.
+- Either I want this world where there is so much stress and pressure or I want to live in a jungle where there is peace of mind, without any network or social media.
+- I used to watch television the entire day and want to be on screen.
+- As an outsider, it appears that celebrities lead such a glamorous life but once you are a part of it, you realise the hard work hidden behind that glitz.
+- I would not like people to worship me since I myself worship so many Gods.
+- I am a simple girl from Bangalore.
+- I realised that Delhiites have a very different style of talking, which is sweet, but only a Dilliwala can speak like that.
+- My dad is known as the king of tyres in the tyre industry and he is a completely self-made man. And if I were to join the business, I would be called the queen of tyres the next day.
+- Spending quality time with my closed ones is always on my wish list.

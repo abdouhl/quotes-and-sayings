@@ -1,0 +1,33 @@
++++
+author = "John Barrowman"
+title = "John Barrowman Quotes"
+quotes_len = "27"
+description = "the best 27 John Barrowman Quotes"
++++
+- I did archery when I was in high school. In our gym class we had two weeks of archery, and I remember taking the bow and arrow and firing it up and across the street into a car parking lot.
+- 'Desperate Housewives' was a good experience, though, as I got to play the bad guy for once. My only complaint was they had me in a lot of sweaters.
+- My humour and my work ethic definitely come from my Scottish side, and I have to say the sense of humour doesn't really translate when I'm in America.
+- I've always said in my career and in my life I only do things I'm interested in.
+- In everything I do, I find some of myself, or a lot of myself, and put it into the role.
+- I think my biggest appeal for fans is probably the fact that I'm honest. I'm up front about who I am. I'm a little naughty. I have a naughty side and everybody knows that. But I know when to use that and when not to.
+- I find with television, you have to play personality, whereas onstage, everyone talks about 'the character,' and what you do. It's a very different thing, because stage is much bigger, but on television, for things to come across to the public, I think you have to play a bit of your personality.
+- If you do something and it goes wrong, you learn from it and you move on.
+- I don't call myself an actor, I call myself an entertainer, because I don't just do one thing.
+- I have a real passion for driving. Earlier on in my life I wanted to be a race car driver. But I don't pay an extortionate amount of money for cars. I'm pretty frugal.
+- Have I ever been the shy retiring type? Never. Not since the day I was born.
+- For some reason I seem to be a massive hit with middle-aged women. I seriously don't know what it is.
+- It wasn't until I got involved in 'Doctor Who' that I started doing dramas on television.
+- Wherever I am, I will embrace the life and the lifestyle. I've lived in Hollywood before, and we've moved into the old neighbourhood in West Hollywood. I love California.
+- When I was younger I wanted to be an airline pilot, but that lasted for about 30 seconds.
+- Whenever I'm in Glasgow I go and stand outside the front of the house I grew up in, which is in Mount Vernon.
+- I'm one who will always speak my mind and say what I feel!
+- I'm really passionate about pantomime because it is often the first introduction for a child to theatre, and if that child has a great experience at a pantomime they will continue to come year after year.
+- When I was a kid growing up in the States in the late '70s and early '80s, as soon as 'Dallas' came on on a Friday night on CBS at 9 P.M., we stopped everything from that moment on as a family.
+- I'm lively when I perform and I always put everything into a show, but when I get home I love lying down in front of the TV and relaxing.
+- You know, every year 'Torchwood' has become something a little different than it was before. It's still sci-fi, but it doesn't just deal with spaceships and aliens all the time, because we've done that. Our science fiction is more psychological.
+- I don't feel sorry for myself, because I'm living my dream. Even when I was a little boy I used to stand in the playground and pretend I was on 'Opportunity Knocks.'
+- My first professional job was actually at a place called Opryland U.S.A., which no longer exists, but I've been performing since I was a kid.
+- The one thing that makes 'Torchwood' work so brilliantly and makes it a little bit above the rest of all other sci-fi dramas out there is that we have a sense of humour.
+- What I can say that's different in American television... in Britain, they wouldn't cancel something after a couple of episodes. In the States they would. They would just decide it's not working, take it off and put something else in on the fall schedule.
+- I was the one who taught my sister and my niece how to walk in high heels.
+- You have to do bad things in order to become a hero. You have to make sacrifices.

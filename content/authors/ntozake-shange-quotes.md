@@ -1,0 +1,32 @@
++++
+author = "Ntozake Shange"
+title = "Ntozake Shange Quotes"
+quotes_len = "26"
+description = "the best 26 Ntozake Shange Quotes"
++++
+- Multiculturalism isn't about culture, it's about power.
+- If anything is life-changing, being the descendant of a slave is.
+- I think art is a healing force, and if we give in to the joy that can be found in art, then we are able to sustain ourselves in spite of ourselves.
+- There was quite a ruckus about the seven ladies in their simple colored dresses. I was truly dumbfounded that I was, right then and there, deemed the biggest threat to black men since cotton pickin', and not all women were in my corner, either.
+- There was nothing to aspire to, no one to honor. Sojourner Truth wasn't a big enough role model for me. I couldn't go around abolishing slavery.
+- I'm a firm believer that language and how we use language determines how we act, and how we act then determines our lives and other people's lives.
+- Before I went to college, I went to the S.N.C.C. office three times a week to offer my services and catch up on my 'Liberator' magazine. The other two days, I went to the Lycee Francais to keep my French crisp. I felt comfortable in the diversity of my worlds.
+- I remember that my mother used to take me to see ballets, especially if there were black people in them.
+- My family moved around a lot, so I don't have any friends that I had all my life, but I did have annual trips back to Queens.
+- It still amazes and fascinates me that women of color have kept my work alive for these many generations.
+- Luckily, my father and my mother liked us to talk, so they encouraged us to talk, so that the girls in my house, they're all very powerful speakers and powerful agents of their own will, as is my brother.
+- I had - there were three strokes, and I lost my ability to read and write and speak, and it really put me by the wayside for a number of years.
+- I was constantly being sought after for money. And the vitriol that came my way from many who felt threatened by controversial aspects of 'for colored girls' was often frightening.
+- I've still got my characters in my head, and I can still hear them. When I go to the grocery store, I hear them.
+- Multiculturalism is a white people joke.
+- Art gives us the opportunity to have clarity as well as hope that we might be able to survive a situation, or hope that we can find a way out of it without too much more injury to ourselves.
+- I never intended to go to Broadway. I was very happy being in an Off Broadway theater and having an Off Broadway life. What it did to me is try to fit a round peg - that's me - into a whole bunch of square buildings. I just didn't fit.
+- I hadn't published a book of poetry in over a decade because I've been very ill. As I got better and started to write, I said, 'Wow, even as an old woman, I could have a selected book of poems.'
+- My characters don't talk necessarily in a normal American way of talking. They talk a little different.
+- Spell-check ruins my work. It fixes all my slang and dialect into standard English. So I'm caught in a tangle of technology that feels very foreign to me.
+- White people use their literature to maintain culture. That's why you find references to Milton and Spencer and Shakespeare and Dostoyevsky in contemporary novels.
+- Sisterhood is important because we are all we have to stand on. We have to stand near and by each other, pray for one another, and share the joys and the difficulties that women face in the world today. If we don't talk about it among ourselves, then we are made silent by the patriarchy, and that serves us no purpose.
+- I write for young girls of color, for girls who don't even exist yet, so that there is something there for them when they arrive. I can only change how they live, not how they think.
+- I started writing because there's an absence of things I was familiar with or that I dreamed about. One of my senses of anger is related to this vacancy - a yearning I had as a teenager... and when I get ready to write, I think I'm trying to fill that.
+- I was chastised for writing several obituaries for Malcolm X, exploring different aspects of his writing. One teacher in particular told me, didn't I think I was beating a dead horse? and dismissively threw my paper on my desk.
+- When I die, I will not be guilty of having left a generation of girls behind thinking that anyone can tend to their emotional health other than themselves.

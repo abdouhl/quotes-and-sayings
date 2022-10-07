@@ -1,0 +1,42 @@
++++
+author = "Jojo Moyes"
+title = "Jojo Moyes Quotes"
+quotes_len = "36"
+description = "the best 36 Jojo Moyes Quotes"
++++
+- I find my best writing time is actually 6 A.M., before the detritus of the day - the fish fingers and the school uniform and dogs and bills - have had a chance to clog up my brain. I can usually get 500 words done before 7 A.M. But it is difficult, and the Internet, and social networking, are terrible timesucks.
+- My go-to winter recipe is beef and butternut squash stew, cooked in the slow oven all day.
+- In 'Me Before You,' the two characters popped into my head fully formed, which is really strange and unusual. Other books, I sit on them for two or three months. I have a whole routine: I buy a nice book; I hand-write all their characteristics. I put them through little tests just to see how they would react to things.
+- Try to write at least 500 words a day. You may ditch 499 of them tomorrow, but you will still be moving forward.
+- If I don't cry while writing a key emotional scene, my gut feeling is it's failed.
+- The fragrance I always wear is Coco by Chanel. I've worn it for 20 years. It suits me, it's classic, and I like the simplicity of only ever wearing one fragrance.
+- I have read books that are so cliched and lazy, my eyes have bled. But I also have read books marketed under the chick-lit umbrella that are so honest, clever and gritty that I've wanted to give up writing and paint walls instead.
+- I try to read writers who are better than me because it inspires me to be better.
+- Writers divide fairly cleanly into those who only work through what they hear and those who are more visual. I am the latter, where I lie down on my office floor and play scenes through my head to - cinematically, several times with different elements - to see what works. I can't write a scene until I can see it.
+- I think there is an awful lot of technology for technology's sake. I have yet to be convinced by my husband that persuading our mobiles to talk to our computers is going to be quicker and more straightforward than scribbling a note in our kitchen diary.
+- I always say that in any roomful of people, I could hive a novel out of any one person's family or life story.
+- Marriage is a decades-long experiment, conducted mostly in private; a test of will in the face of unexpected obstacles.
+- I have always written. I was one of those kids who would always fill exercise books with girls and telepathic ponies.
+- I started writing novels by not thinking about actually writing a whole novel - that felt altogether too daunting. I thought out a rough idea, then wrote chapter by chapter, and then by the time I'd hit 40,000 words, it was a challenge just to see if I could get to the end.
+- Novelists seem to fall into two distinct categories - those that plan and those that just see where it takes them. I am very much the former category.
+- We want a macho high-earner - with the sensitivity of Gok Wan. We want a man with Brad Pitt's six-pack - but one who's prepared to overlook our own muffin top. No wonder most men don't know if they're coming or going.
+- Unless you sell millions, I think it's very hard as a writer not to feel anxious about what you put out. I always feel I could do better.
+- Rejection is part of the process, so you can't let it crush you. My first three novels never made it into publication, but my fourth, 'Sheltering Rain,' was translated into 11 languages.
+- I write in all sorts of places; it's a legacy of my time as a journalist, where I could turn out copy in a hotel corridor. But I have a little office that I rent in my local town, and that's my ideal place.
+- If the characters are compelling, readers will follow anywhere.
+- If chick-lit really is taking a commercial battering, I'd suggest it's because the marketing has been done to death. Covering everything in girlie pink and putting chocolate in the title may once have been a clever Pavlovian device but now makes readers feel a bit sick.
+- You have to write the story that's at the front of your head. There is no point in trying to write for the market; it won't ring true.
+- For every book that I write... I develop a history for each person and make sure they are well rounded and flawed. You have to know everything about them from their shoe size, to where they went to school, to what their first pet was, to what they like to eat, to what they want out of life.
+- Love is the driver for all great stories: not just romantic love, but the love of parent for child, for family, for country.
+- We seem to live in an age where we are quietly appalled by the idea of appetites, whether they be for sex, food or diamonds.
+- My Writers Guild of America card is one of my proudest possessions. I was given it after being invited to write the script for a film of my last novel, 'Me Before You,' which is being made by MGM. Whenever I look at it, I think, 'I'm a Hollywood writer!'
+- My characters make incomprehensible decisions until you stand in their shoes. Then it makes more sense. Life is very rarely black and white, and most people are trying to do their best. I try not to judge.
+- My writing life has included the struggle to bring up three children. What I do three or four times a year is take myself off to a hotel room to unblock a problem.
+- A stylish person, for me, is one who draws your eye without necessarily being showy; they wear clothes that are beautifully cut, flatter the wearer, and show that they are not impervious to fashion, but not a slave to it either.
+- Don't set pen to paper until you know your main characters inside out. Create files detailing their appearances, likes, dislikes, and personal background. You may not use all the information, but it is a crucial step in planning your story.
+- What love is depends on where you are in relation to it. Secure in it, it can feel as mundane and necessary as air - you exist within it, almost unnoticing. Deprived of it, it can feel like an obsession; all consuming - a physical pain.
+- I always imagined a writer was someone who lived in an attic in Paris, but my mum instilled in me a belief that I could do anything - so I ended up writing my first novel while working nights as a news reporter.
+- Chick-lit may be staggering on its heels, but women's fiction is alive and kicking.
+- I wrote three books before I got one published. Most writers do. Have faith, and know that with each work you are getting better.
+- I've always been a focused person who knows how to get what I want.
+- I love 'To Kill A Mockingbird' - it seems to offer up new layers every time you read it. I also love Kate Atkinson's 'Behind The Scenes At The Museum' - that's the book that started me writing.

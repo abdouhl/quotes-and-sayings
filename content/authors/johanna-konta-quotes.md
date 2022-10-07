@@ -1,0 +1,106 @@
++++
+author = "Johanna Konta"
+title = "Johanna Konta Quotes"
+quotes_len = "100"
+description = "the best 100 Johanna Konta Quotes"
++++
+- When I was young, I associated playing tennis with being part of historic moments, being part of these epic battles and coming out victorious, having those trophy moments. That, for me, is what I saw and aspired to.
+- Before I started playing more on the WTA tour, I actually won most of my Challengers on the clay, especially at the very beginning.
+- I don't look for a fight or look for animosity or tension where it's not needed.
+- Australia is my birth home, so it will always be a home of some sort. But I'm very happy, very pleased to be representing Great Britain. That is my home, and that is where my heart is. That is where I grew up, essentially. So when people ask me where I'm from, where is home, that's where it is.
+- I definitely think about lifting the big trophies, and I dream about winning slams or making it.
+- I don't believe in perfect tennis or perfect matches.
+- I needed to go through certain life experiences, and not just on the court, to make me into the competitor that I am, and also the person.
+- Winning Wimbledon would be a childhood dream come true.
+- As I've got older, I've really had to dig deep and find where my happiness comes from. Why do I play tennis? You get a lot of incredible highs, but it can be very lonely with some dark lows. So the biggest thing I've learned is finding the reasons for my enjoyment.
+- I have grown a lot in this area, but I used to be quite rigid and found it difficult to accept change.
+- We made the U.K. our home, and I'm lucky enough that I get to call myself British and have such great support at home.
+- I don't know what it is to feel very British, but I feel that it's home, so I'm very happy to represent Great Britain.
+- I work differently. I enjoy creating a space around me and not getting too high or too low. But I am continuously looking to get better - not just as a tennis player but also as a person dealing with new experiences.
+- I think it's important for me to keep adapting.
+- When I go into the gym, I'm working on getting my muscles stronger, and I try to treat my mind in the same manner.
+- I've been raised with a decent head on my shoulders.
+- I don't think circumstances change who you are as a person. I don't believe they change your values - unless you willingly would like them to.
+- It's always nice to be in great company and to be among great players.
+- When I started training at the age of eight, my dad used to encourage me.
+- What is best to hope for and what everyone is working towards is to elevate the quality of women's sport and to bring it to a level where it is seen as something that is very entertaining, something to be admired, to be looked up to, to put it in that level playing field as a product to be sold equal to the men.
+- I guess I have a reasonable physique for the sport I do.
+- Not everybody gets a home slam; not everybody gets home events. I am part of a very select few who get that opportunity, so I can only really be grateful for that.
+- I definitely would like to go to university.
+- I take a lot of enjoyment out of imagining myself as... I dunno... a wall. I keep adding bricks to my wall or little house.
+- I haven't really looked at myself as someone that needs to prove a point to anyone.
+- Everyone gets motivated or inspired by different things.
+- If I'm ever in a position where I'm serving to win a grand slam, I'm sure that I will be feeling giddy inside. I will have sweaty palms.
+- Ultimately, I play for myself, and I take responsibility for my own actions.
+- We have seen plenty of first-time semi-finalists go on and win grand slams.
+- I strive to get better and better in understanding how the world works.
+- Everyone is trying to make that breakthrough into the top 100.
+- Winning is, of course, rewarding; who doesn't enjoy winning? But for me, it's about more than just winning: it's about knowing I'm putting in the day-to-day work to get a little bit better every time.
+- Everyone is out there to beat me, so I go up against every single player to have a battle.
+- I'm out there to play my sport, to showcase my sport. I'm not an actress.
+- I have always and will continue to put myself in the mix at the end of every tournament. That's what I play for.
+- I look to constantly be a better version of myself every time I step out on court. That has come out with some good wins and good things on paper, but if my ranking were to drop or to rise, it wouldn't affect my goals or how I want to keep improving.
+- In my experience, most players act the way they do in their own self-interest, in getting their emotions out and basically working with their own demons on court.
+- I think I'm a good athlete.
+- I made my older sister cry playing Monopoly once.
+- There's a great group of people around me, and I think it's the way they all work together with me which makes me a very lucky girl.
+- Tennis is a small world.
+- Results come and go; tournaments come and go.
+- There's a real difference between singles tennis and working as part of a team.
+- Winning matches on any surface will definitely give you a much larger element of trust in what you're doing.
+- When I play at my best is when I play with the least amount of inhibition, when I think less.
+- I'm a British citizen, and I'm incredibly proud to represent Great Britain. I've also represented Great Britain in the Olympics, so I'm definitely a British athlete.
+- One thing that is 100% certain is that emotions are always incredibly high in a match and, I would imagine, definitely more so in a grand slam final.
+- I would love to get my parents a house somewhere or a place in the country.
+- I was training in Spain for 15 months, and while I was there, my parents didn't want to be halfway around the world away from their 14-year-old daughter. So they migrated to the U.K. because they had Hungarian passports, and that's in the E.U., so they could work there.
+- I am getting better and more knowledgeable in how I hydrate and how I make my drinks and how I eat and things like that.
+- I had to experience many situations and emotions to develop, and I'm still striving to become the kind of competitor I want to be.
+- Meeting Bono was definitely a highlight of my life!
+- I'm constantly trying to be strong, to be calm when things get tough. The biggest part of that is keeping things in perspective, not being afraid of playing long matches, not putting too much pressure on yourself. It can't be all or nothing, right here, right now.
+- When I'm at home, I do get recognised more often, and I don't need to be in sports clothes to be recognised, which is different.
+- I didn't associate playing tennis with making a living until I was maybe 18 or 19.
+- I would love a big family. I have this vision in my mind where I have four or five children, and then, when I'm in my 60s, it's Christmas, and all my kids come home with their spouses and lots of grandchildren. By the end of it, there are 40 to 50 people in my house, and I look around, feeling totally happy, surrounded by my family.
+- When someone doesn't have a sense of humour, it kills me.
+- I don't really listen to music before I go on court.
+- I'm not a drama queen.
+- It's a safe bet most players would get nervous before a match. I do, too, but it's more excitement and more just wanting to get going, and I feel the same.
+- I really enjoy representing my country and think the principles of what Fed Cup is about and the team environment is a great thing to be a part of.
+- Everyone can play well. There's very few margins that set us aside from each other.
+- I have good people around me who guide me, tell me where I should put my money.
+- For me, it's just staying in the present, enjoying what I'm doing, and making sure I'm making the kind of improvements and moves forward that I want to.
+- I love competing in front of a crowd. I enjoy the performance.
+- Nothing quite beats playing on home soil in front of a home crowd.
+- I want to make sure I leave no stone unturned when it comes to my career.
+- I get quite stroppy if I lose - but I've developed skills with a mind coach to help deal with the highs and lows of tennis at this level.
+- For me, it's always been tennis. I haven't really explored any other avenues.
+- Number one consideration is always availability. Then it's about - for me and, I guess, for every player - the connection with the coach, like with any relationship: how you work together, the chemistry on court.
+- If you keep a healthy state of mind, you give yourself a great chance to bring out the best in yourself.
+- I've always wanted to become a grand-slam champion and to become the best in the world. Without that, the victories aren't as sweet or the defeats as motivating.
+- Honestly, I am in love with my dog.
+- When I was a little girl, I dreamt of winning grand slams and being No. 1 in the world. That dream stays the same as long as you're doing the career that you're on. I think it would be silly for that to change.
+- Not many people can say, 'I was top 150 in the world for something,' in any discipline.
+- When you're in the supermarket, you can usually tell straight away when someone recognises you, or they will come up to me and say, 'Well done,' or things like that. So it's nothing sinister or nothing super-crazy.
+- When I was five, I wanted to be a cleaning lady; when I was nine, I wanted to be the world's number one tennis player.
+- Spending time in airports and planes is probably my least favourite part of being a tennis player.
+- I had a lot of ear infections when I was younger, so I didn't learn to swim until I was about 14.
+- I'm very proud of my achievements, whatever they will be.
+- There are always going to be distractions, push and shove between players. It's about rolling with the punches and enjoying every situation, good or bad.
+- No matter how much you train, you can't replicate the stresses that the body takes when it's in a competitive environment.
+- It's really easy to catastrophise everything. I'd like to think as I've gotten older, I do a bit better with that.
+- My experience on clay is less than possibly on hard and grass courts, but in terms of my game style and my physical abilities, I think there's no reason why I can't adapt well to the surface and really try to maximize what I can do well on clay.
+- I spend most of my life in sports kit, so it usually shocks people when they see me in casual clothing - let alone dressed up with make-up on. I've walked past people from my own family who don't recognise me.
+- I'm not a fan of drama.
+- I was a decent 800 m. runner, not 400 - and I'm actually really proud of this: I beat the girls and the boys to win my school 800, so it was a big deal at the time; I was about 11. Then I won the district and made it to state, but I just never went, because I was training, and tennis was a big part of my life at that point.
+- I want to be at the end stages of every tournament that I play - every time.
+- I love potatoes - roast potatoes, mashed potatoes - I just love potatoes.
+- I try to stay very true to the kind of person that I want to be and the kind of athlete and the kind of professional I continually strive to be.
+- I think I've always loved playing in North America.
+- I feel confident that no player can step on court against me and feel confident that they will come out the winner. Every match I take part in, I have an equal shot of coming through as the winner.
+- If you look at the likes of Agnieszka Radwanska and Svetlana Kuznetsova, they've been around a long time and been successful for a long time. That speaks volumes for them.
+- It's the trials and tribulations that really test a person, and coming through those difficulties is what shapes a person's character.
+- No player can step on court against me and feel confident that they will come out the winner.
+- If you are able to enjoy what you do and doing it the best that you can, then you're on the right track.
+- My dream is to become the best player in the world.
+- I really play tennis for me, enjoy it for me.
+- I think every single girl you face is good at handling pressure. That's part of why they're successful on a regular basis from season to season and over a lot of years.
+- I was 14 in Barcelona, and when I initially went there, I didn't see my mum for six months and my dad for four months. Australia is far from Spain, but I don't remember how long or how short the days felt. I think what was most difficult for my parents was that if anything went wrong, they couldn't say, 'OK, we'll be there in a couple of hours.'

@@ -1,0 +1,41 @@
++++
+author = "Michael Fassbender"
+title = "Michael Fassbender Quotes"
+quotes_len = "35"
+description = "the best 35 Michael Fassbender Quotes"
++++
+- I keep everything very simple. I like telling stories.
+- Nobody wants to hear Metallica at lunchtime.
+- I just went off for two months traveling around Europe on a motorcycle and pretty much turned my phone off. I did 5,000 miles with my dad. We went through Holland, Germany, Austria, Slovenia, Croatia, Bosnia, Montenegro, Italy... and then I did Spain and France by myself.
+- There's so much going on in the world. There's so much information being thrown at us - so many things are being sold to us, and we're being told how we should appear and how to be more successful, blah, blah, blah. How does that manifest itself? In the pressures, the stress, this need to escape.
+- There's no point in swanning through and being cool as a breeze in every scene. It's not really that interesting. Even if you're a superhero.
+- What I find really interesting is to try and mix it up, to push myself and try different things. I don't want to stay in my comfort zone. I want to take risks and keep myself scared.
+- I don't know what's going to happen. I'm flavor of the month at the moment, but somebody else is going to roll around the corner in three months' time. I just want to keep working. I can't stop!
+- Everything I put my name to and take part in, I want to be good. That's not saying it will always happen. But I want to make bold choices.
+- I don't think peroxide-blond hair is a beneficial look for me.
+- Why does a three-year-old, and it's usually boys, want to drive the tractor or have machinery and be in control of it? I don't know. Why wouldn't you ask to boil a kettle or something? Maybe you would, I dunno.
+- I'm always interested in trying to investigate different personalities. I want to keep myself guessing and keep the fear element alive, so that I don't get too comfortable.
+- If there's friends around, I'll cook. Or if I have a girlfriend. But on my own I kind of fell out of the habit of it, and it's a shame really because I know it's good for me. It's something quite therapeutic.
+- Any good kitchen should be stocked up in oysters, shouldn't they?
+- It's more interesting isn't it, if I've got a hedonistic dark side?
+- We did a lot of that in drama school: intellectualising and maybe justifying your position. 'I am a thinking actor and I have thought this through' - well, just do it. I much prefer the doing aspect.
+- I came to Los Angeles and did auditions for television. I made a terrible mess of most of them and I was quite intimidated. I felt very embarrassed and went back to London. I got British television jobs intermittently between the ages of 23 and 27, but it was very patchy.
+- The arts are very alive in Ireland, so that had its influence on me. But I consider myself European, really.
+- People are complicated. Our behavior towards one another is strange. So I like opportunities to investigate that.
+- There's no point thinking, 'Well, my life's certainly worked out, I've got all the answers.' It would be wrong for me to say that I don't get seduced by certain things. That things don't become tempting.
+- Why not provoke some thought and get people talking about things? I like characters that are flawed because we all are. When people break up in a script, you think, Oh, right, there must be tears shed here. But maybe the fact of the matter is that they're both laughing.
+- Magneto has a whole lot of complexity to him. Emotionally, he's coming from a very damaged place. I like the ambivalence of it. I want the audience leaving the theater wondering, asking the questions themselves rather than being spoon-fed like a lot of these super-villain characters.
+- I guess in the independent market, I'd be getting offers, but in terms of big studio films, I still have to audition. I don't think my name is that well-known, I don't have much of a following to guarantee box office success yet.
+- We feel a lot of pressure about looking silly or appearing weak, whatever that means, or being a failure. You have to keep in your head: what's the worst that can happen?
+- You use words like 'introvert' and 'extrovert,' various traits of a personality. A lot of that stuff, we used in drama school, and that was kind of interesting, to realize my teachers sort of ripped off a lot of Jung. And how much of it is part of our society now, these phrases, introvert and extrovert, where it actually came from.
+- Scratch the surface of what's socially normal. I suppose in some way all of us have something we display to the public and things we feel too ashamed of or uncomfortable with to reveal to other people.
+- I'm fairly competitive.
+- Even if I'm playing a superhero, it has to be steeped in reality.
+- 'Hunger' definitely changed my life, in terms of being recognized by filmmakers, since that was very much a filmmakers' film.
+- I take my work seriously but I can't take myself too seriously. I'm in such a crazy privileged position.
+- I always approach film as a fan.
+- You know, it's amazing. I don't even have a car, would you believe it? I had a motorbike and it got stolen last year. So I've got to buy another one of those, I suppose. I can treat myself to that.
+- I've always been more inclined to go out to work than carry on with academic studies.
+- When I was four, I just wanted to drive, I collected toy cars. Where does that sort of thing come from? In hindsight you go, 'Oh, liked it because of this.' Maybe it's just the wheel.
+- My goal was for acting to become my main income. I would say to myself, 'I'm good enough.' That became my mantra.
+- As an audience member, those studio films are fun. I like an adventure tale, and I also like to go see something that has more of a social pulse. I like to keep learning and trying new things. And if the scripts are good, it doesn't really matter.

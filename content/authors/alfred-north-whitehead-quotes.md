@@ -1,0 +1,63 @@
++++
+author = "Alfred North Whitehead"
+title = "Alfred North Whitehead Quotes"
+quotes_len = "57"
+description = "the best 57 Alfred North Whitehead Quotes"
++++
+- I have suffered a great deal from writers who have quoted this or that sentence of mine either out of its context or in juxtaposition to some incongruous matter which quite distorted my meaning, or destroyed it altogether.
+- Speech is human nature itself, with none of the artificiality of written language.
+- Knowledge shrinks as wisdom grows.
+- The task of a university is the creation of the future, so far as rational thought and civilized modes of appreciation can affect the issue.
+- Fools act on imagination without knowledge, pedants act on knowledge without imagination.
+- Common sense is genius in homespun.
+- Fundamental progress has to do with the reinterpretation of basic ideas.
+- I have always noticed that deeply and truly religious persons are fond of a joke, and I am suspicious of those who aren't.
+- Philosophy is the product of wonder.
+- Religion is the last refuge of human savagery.
+- Ideas won't keep; something must be done about them.
+- Almost all new ideas have a certain aspect of foolishness when they are first produced.
+- I would be a billionaire if I was looking to be a selfish boss. That's not me.
+- Art attracts us only by what it reveals of our most secret self.
+- In formal logic, a contradiction is the signal of defeat, but in the evolution of real knowledge it marks the first step in progress toward a victory.
+- Simple solutions seldom are. It takes a very unusual mind to undertake analysis of the obvious.
+- There are no whole truths: all truths are half-truths. It is trying to treat them as whole truths that plays to the devil.
+- The guiding motto in the life of every natural philosopher should be, seek simplicity and distrust it.
+- Speak out in acts; the time for words has passed, and only deeds will suffice.
+- Everything of importance has been said before by somebody who did not discover it.
+- Periods of tranquility are seldom prolific of creative achievement. Mankind has to be stirred up.
+- No one who achieves success does so without acknowledging the help of others. The wise and confident acknowledge this help with gratitude.
+- Philosophy begins in wonder. And, at the end, when philosophic thought has done its best, the wonder remains.
+- But you can catch yourself entertaining habitually certain ideas and setting others aside; and that, I think, is where our personal destinies are largely decided.
+- Art flourishes where there is a sense of adventure.
+- When you're average, you're just as close to the bottom as you are the top.
+- Every philosophy is tinged with the coloring of some secret imaginative background, which never emerges explicitly into its train of reasoning.
+- If a dog jumps into your lap, it is because he is fond of you; but if a cat does the same thing, it is because your lap is warmer.
+- Art is the imposing of a pattern on experience, and our aesthetic enjoyment is recognition of the pattern.
+- An enormous part of our mature experience cannot not be expressed in words.
+- What is morality in any given time or place? It is what the majority then and there happen to like and immorality is what they dislike.
+- The safest general characterization of the European philosophical tradition is that it consists of a series of footnotes to Plato.
+- It requires a very unusual mind to undertake the analysis of the obvious.
+- Not ignorance, but ignorance of ignorance, is the death of knowledge.
+- Wisdom alone is true ambition's aim, wisdom is the source of virtue and of fame; obtained with labour, for mankind employed, and then, when most you share it, best enjoyed.
+- Civilizations can only be understood by those who are civilized.
+- Life is an offensive, directed against the repetitious mechanism of the Universe.
+- The art of progress is to preserve order amid change and to preserve change amid order.
+- We think in generalities, but we live in detail.
+- Without adventure civilization is in full decay.
+- Familiar things happen, and mankind does not bother about them. It requires a very unusual mind to undertake the analysis of the obvious.
+- Man can acquire accomplishments or he can become an animal, whichever he wants. God makes the animals, man makes himself.
+- The vitality of thought is in adventure. Ideas won't keep. Something must be done about them. When the idea is new, its custodians have fervor, live for it, and if need be, die for it.
+- True courage is not the brutal force of vulgar heroes, but the firm resolve of virtue and reason.
+- Seek simplicity but distrust it.
+- No period of history has ever been great or ever can be that does not act on some sort of high, idealistic motives, and idealism in our time has been shoved aside, and we are paying the penalty for it.
+- Human life is driven forward by its dim apprehension of notions too general for its existing language.
+- The deepest definition of youth is life as yet untouched by tragedy.
+- The absolute pacifist is a bad citizen; times come when force must be used to uphold right, justice and ideals.
+- It is the business of the future to be dangerous; and it is among the merits of science that it equips the future for its duties.
+- It is in literature that the concrete outlook of humanity receives its expression.
+- It takes an extraordinary intelligence to contemplate the obvious.
+- Our minds are finite, and yet even in these circumstances of finitude we are surrounded by possibilities that are infinite, and the purpose of life is to grasp as much as we can out of that infinitude.
+- The silly question is the first intimation of some totally new development.
+- Civilization advances by extending the number of important operations which we can perform without thinking of them.
+- Intelligence is quickness to apprehend as distinct from ability, which is capacity to act wisely on the thing apprehended.
+- The total absence of humor from the Bible is one of the most singular things in all literature.

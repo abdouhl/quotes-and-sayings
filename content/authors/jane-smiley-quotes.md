@@ -1,0 +1,81 @@
++++
+author = "Jane Smiley"
+title = "Jane Smiley Quotes"
+quotes_len = "75"
+description = "the best 75 Jane Smiley Quotes"
++++
+- Why are we reading a Shakespeare play or 'Huckleberry Finn?' Well, because these works are great, but they also tell us something about the times in which they were created. Unfortunately, previous eras and dead authors often used language or accepted as normal sentiments that we now find unacceptable.
+- Is human nature basically good or evil? No economist can embark upon his profession without considering this question, and yet they all seem to. And they all seem to think human nature is basically good, or they wouldn't be surprised by the effects of deregulation.
+- I readily admit it is easy to make of horses what we will. Silent, in some ways reserved, they allow us to train them, and to project our ideas upon them; to ride and drive them, and to make them symbolic, perhaps to a greater degree than any other species.
+- With horses, familiarity breeds comfort. If you haven't been around horses for a while (or ever), the best thing to do is to go to the racetrack, a horse show, a rodeo, or some other horsey activity, and watch the horses. Familiarize yourself with the way they move and behave themselves.
+- One of the profound effects of economics in our day is that the people with the money and the power have embraced the guilt-free, external-less, everything-will-turn-out-okay-in-the-end philosophy of economics in order to justify their own evil works. And the economists, for the most part, have sucked up to that money.
+- I think that the Cold War was an exceptional and unnecessary piece of cruelty.
+- Sinclair Lewis may be ripe for a revival; his books raise several interesting issues of art and fashion.
+- Novelists of a conservative or more purely aesthetic bent hold up better on the surface, but their novels go in and out of fashion according to relevance or irrelevance.
+- In my experience, there is only one motivation, and that is desire. No reasons or principle contain it or stand against it.
+- I loved the house the way you would any new house, because it is populated by your future, the family of children who will fill it with noise or chaos and satisfying busy pleasures.
+- Trollope wrote so many novels and other works that they tend to crowd each other out.
+- In December 1998, I considered myself an expert on love. I was almost a year into a relationship, one that had grown more slowly than I had wished, but once it flowered it was much more stimulating than any marriage or relationship I had known.
+- I learned why 'out riding alone' is an oxymoron: An equestrian is never alone, is always sensing the other being, the mysterious but also understandable living being that is the horse.
+- I was asked by an editor to consider writing something about an American inventor. I asked him if he knew who invented the computer. He said he didn't. In that case, I told him, I should write a book about John Vincent Atanasoff.
+- I wrote the Dickens book because I loved Dickens, not because I felt a kinship with him, but after writing the book it seemed to me that there was at least one similarity between us and that was that Dickens loved to write and wrote with the ease and conviction of breathing. Me, too.
+- We sort of read two or three big newspapers but we don't get the flavor of the local events, the local news as much.
+- Well, in fact everybody - everybody - in the entire nation has enough stuff in their life to write about that's interesting that they could write their autobiography. And in the end that's why I find people interesting.
+- I was an only child. I've known only children. From this experience, I do believe that the children should outnumber the parents.
+- It once amused me that it took me three tries to pass my driver's test and that my driving instructor told my mother that I was the least talented person behind the wheel that she had ever taught.
+- 'Ape House' is an ambitious novel in several ways, for which it is to be admired, and it is certainly an easy read, but because Gruen is not quite prepared for the philosophical implications of her subject, it is not as deeply involving emotionally or as interesting thematically as it could be.
+- When I came home for the summer after my first year of college, I told my mother that my best friend and I were driving to California. She laughed out loud - 2,000 miles in a what? Well, my best friend had an old Chevy. What could go wrong?
+- There can never be such a thing as a free market, because it is human nature to cheat, monopolize, and buy off others so as to corner the market.
+- Another thing I learned is that novels, even those from apparently distant times and places, remain current and enlightening, and also comforting.
+- I have reared, or helped to rear, five children and the scariest bit, bar none, is the learning-to-drive part. It has filled me with anxiety not only about the children, but also about my former self and my friends.
+- The brave view is that talking it out helps work it out. Maybe the realistic view is that talking it out inflames the issues further. But that is America, especially these days.
+- Combined families often get bad reviews, but the family my children got when they traded away 'the suffocating four-person' nuclear one is one that has benefited all of them.
+- I don't know - is everything the U.S. does a shocking embarrassment?
+- A theory of creativity is actually just a metaphor. A pool of ideas, a well of memories, a voice.
+- If American literature has a few heroes, Miller is one of them. He refused to name names at the McCarthy hearings, and his play 'The Crucible' analysed the hearings in the context of a previous American mass psychosis, the Salem witch trials.
+- Candy is my fuel. Ice cream, too.
+- Vets do what doctors used to - diagnose the injury or the condition, patch it up as best they can and remind you that these things happen and that in life we are also in the midst of death.
+- My mom was paranoid about my safety.
+- Ignorance and bloodlust have a long tradition in the United States, especially in the red states.
+- In his 30 years of broadcasting and publishing fiction, Garrison Keillor has set the laugh bar pretty high.
+- When a novel has 200,000 words, then it is possible for the reader to experience 200,000 delights, and to turn back to the first page of the book and experience them all over again, perhaps more intensely.
+- A child who is protected from all controversial ideas is as vulnerable as a child who is protected from every germ. The infection, when it comes- and it will come- may overwhelm the system, be it the immune system or the belief system.
+- Literature - novels, plays, and poems - can have an uncanny dual life, where they simultaneously represent something eternal and something historical, and this is often how they are taught in school.
+- When 'The Awakening' was published it was considered so scandalous it was banned in the author's home-town library, and she herself was barred from the Fine Arts Club in the same city. What the novel has to offer, among other things, is honesty.
+- I discovered that the horse is life itself, a metaphor but also an example of life's mystery and unpredictability, of life's generosity and beauty, a worthy object of repeated and ever changing contemplation.
+- I thought I might write mysteries for the rest of my life.
+- Before I write a novel, images float around in my head that work like icons - they are meaningless in themselves, but serve as reminders.
+- Gossip. The more you talk about why people do things, the more ideas you have about how the world works.
+- Not every novel that wants to be a tragedy gets to be one.
+- In many ways, being honest about 'Huckleberry Finn' goes right to the heart of whether we can be honest about our heritage and our identity as Americans.
+- All equestrians, if they last long enough, learn that riding in whatever form is a lifelong sport and art, an endeavor that is both familiar and new every time you take the horse out of his stall or pasture.
+- I gallop and jump and ride young horses with intense pleasure.
+- Your sons weren't made to like you. That's what grandchildren are for.
+- Most of my childhood revolved around wondering when we would be blown up by the Russians. I couldn't stand the news, I knew that if the missile were launched, mortality would arrive in half an hour, so I spent a lot of my childhood feeling that I was 30 minutes from being dead.
+- There are several methods for introducing your children to driving, and all of them are bad. Probably the worst is to put it off.
+- An urban novelist never minds a little decay.
+- Some novelists are luckier than others in the eras of their formative intellectual years, but all Weltanschauungs return, which means that most novelists have at least a chance of a revival.
+- Somehow, knowing that Alzheimer's is coming mocks all one's aspirations - to tell stories, to think through certain issues as only a novel can do, to be recognised for one's accomplishments and hard work - in a way that old familiar death does not.
+- There is a sociology of horses, as well as a psychology. It is most evident in the world of horse racing, where many horses are gathered together, where year after year, decade after decade, they do the same, rather simple thing - run in races and try to win.
+- There are hundreds of Frank Lloyd Wright buildings around the United States and in other countries, too. Wright lived into his 90s, and one of his most famous buildings, the Guggenheim Museum in New York, was completed just before his death. Wright buildings look like Wright buildings - that is their paradox.
+- Sometimes, a novel is like a train: the first chapter is a comfortable seat in an attractive carriage, and the narrative speeds up. But there are other sorts of trains, and other sorts of novels. They rush by in the dark; passengers framed in the lighted windows are smiling and enjoying themselves.
+- Write every day, just to keep in the habit, and remember that whatever you have written is neither as good nor as bad as you think it is. Just keep going, and tell yourself that you will fix it later.
+- Take naps. Often new ideas come together when you are half asleep, but you have to train yourself to remember them.
+- People are quite frequently eccentric.
+- The only siblings I have are half-siblings. My nuclear family would have been an extra-suffocating threesome. Instead, I have an interesting brother and sister, in-laws, and darling nephews.
+- If there's anything Trollope novels always take seriously, it is money - how it flows from one character to another, how it is managed, who has it, who deserves it, and what it means to a character, male or female.
+- 'The Good Soldier' is an odd and maybe even unique book. That it is a masterpiece, almost a perfect novel, comes as a repeated surprise even to readers who have read it before.
+- A love story, at least a convincing one, requires three elements - the lover, the beloved, and the adventures they have together.
+- Respect and fear are two different things.
+- With any novel that you begin, you can't foresee how difficult or easy it's going to be, and you can't really prepare yourself. You just have a take it one step at a time and know that it's all right to keep going - you can always fix it.
+- In the traditional urban novel, there is only survival or not. The suburban idea, the conformist idea, that agony can be seen to and cured by doctors or psychoanalysis or self-knowledge is nowhere to be found in the city. Talking is a way of life, but it is not a cure. Same with religion.
+- English majors understand human nature better than economists do.
+- I had spent years thinking about one thing while I was doing another. I had, in fact, prided myself on being able to do two things at once.
+- As Fallingwater demonstrates, Wright's genius was always specific, but also always lively, always daring.
+- The thing about Republicans is that they don't care so much about respect, but they love fear, at least in others.
+- If novels and stories are bulletins from the progressive states of ignorance a writer passes through over the years, observations and opinions about horses are all the more so, since horses are more mysterious than life and harder to understand.
+- Oh, that sound? I'm in the hot tub, reading a novel.
+- If to live is to progress, if you are lucky, from foolishness to wisdom, then to write novels is to broadcast the various stages of your foolishness.
+- Eavesdrop and write it down from memory - gives you a stronger sense of how people talk and what their concerns are. I love to eavesdrop!
+- Mom was a smoker. My grandfather was a smoker. My aunts were smokers. My uncles were smokers. I don't know any smokers now, not even my mom.
+- 'Lean on Pete' is the story of a boy and his horse, but it is never heart-warming - it ranges in tone from desperate to merely painful - and, while fascinating, it is never entertaining or redemptive. But if you want an unadorned portrait of American life (at least in some places) at the beginning of the 21st century, this is the book for you.

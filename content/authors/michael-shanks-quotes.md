@@ -1,0 +1,27 @@
++++
+author = "Michael Shanks"
+title = "Michael Shanks Quotes"
+quotes_len = "21"
+description = "the best 21 Michael Shanks Quotes"
++++
+- My brother had boxes of comic books. He was really the collector.
+- I was doing Hamlet in the off-season, and I had a specific idea in my mind about what I wanted that character to look like, and because it's going to lead into the next year, I knew that it was going to have to be established somewhere in the show.
+- There was concern whether SCI FI would want the show back with all the recent changes. But now, the changes have made it feel fresh, like starting over.
+- It was nice, though, to have the long term benefit to be able to pare away those things and eventually make the character my own and put my own unique stamp.
+- The environment on set is very encouraging.
+- I think that you can take things personally or get hurt feelings as a result of something not working out just because your psyche said it should or you deserve it, or whatever it is.
+- It's fun to play the character and then watch him later.
+- I've always found ways to bend the rules.
+- There's a way about it: tearing people down, but not tearing them apart.
+- We never thought the show would last this long.
+- For some reason, it popped into my head the notion that a lot of the Next Generation cast in the long run of that show managed to step behind the camera.
+- I think the writing on the wall is definitely there this year that this is probably our last year.
+- With network shows, writers can be so protective of every syllable.
+- But I don't bet the farm on any of those possibilities, either. I'm also preparing, intelligently, to walk away from this, and walk away from it happy to have had the experience.
+- It's absolutely true that it's almost impossible to play a character without having any affection for him.
+- In the meantime, I just have to create those realistic goals about the fact that I don't have a ton of options as an actor who's been on a science fiction show for 8 years.
+- By the end of last year we solved a lot of threads, and it's really good for this new way we're taking the show to really have these new people and these new energies, frankly.
+- I couldn't be playing him for this long if I didn't like him.
+- So already, you go from not having a job and thinking you're going to get fired after the pilot, to knowing that you've got a guaranteed job for 4 years.
+- I find directing more satisfying.
+- You know, if it doesn't work, we can always cut it.

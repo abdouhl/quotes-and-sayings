@@ -1,0 +1,27 @@
++++
+author = "Jacky Ickx"
+title = "Jacky Ickx Quotes"
+quotes_len = "21"
+description = "the best 21 Jacky Ickx Quotes"
++++
+- In the end I didn't get a top car any more. I had no toughness left. That was the reality.
+- Before the season begins, I had even damaged some frames, but Ken did not hold it against me and kept all his confidence. He was the one who incontestably changed my life, because without his help, I do not know what I will have become.
+- In this kind of situation, we tend to cling to his convictions, we believe that, by magic, we are going to recover. Then we agree to drive less good cars and we are fatally more exposed. It is what finally happened to me with Ensign.
+- My father was a motorsports journalist and a motorbike fan. He gave me my motocross bike.
+- The fact that I am still alive after 100,000 laps is my championship.
+- Nevertheless during these two seasons, Chapman impressed me a lot because he had the faculty to pull himself out of the most critical situations.
+- In the past, two colleagues died each season. It was generally accepted this could happen.
+- I believe to have been one of the rare drivers to have returned to Ferrari.
+- I drove long distances like the 24 hours of Le Mans for years. But even this racing is now over. I retired.
+- And luckily, therefore the good old days return. The traditional art of driving counts again, and it is all about good tactics, skills and reflexes instead of simple power.
+- I am infinitely grateful to the life which privileged me.
+- Happy to see that the Automobile Club of Monaco, opened its doors to the public to attend a considerable event. The promotion of this event will be made by the image and by the text, but still by word of mouth.
+- But due to the present regulations the other drivers have better chances again. This brings back the tension.
+- What fascinated me, it was not the glory, but the contact with the public.
+- In this sport luck and tragedy are only a few hundredths of seconds apart from each other.
+- The margin between success and drama is fractional.
+- That is why, as soon as I felt a real attraction for my first passion which was the motorcycle, and in spite of the danger it could represent, they encouraged me.
+- The existence is a tremendous curiosity, with in the course of the years, the discovery of yourself in your inmost evolutions. With the age you feel better than you are, what you represent. Which means a little at the planet's scale.
+- Everything was magnificent so far, even if I knew my part of dramas.
+- To be here recovers from a state of soul, from a state of mind. I have the memory of the heart. I know what I received. I must have the will to give back to others.
+- Fortunately, in the place where I went out, they had set up a little previously a fence which prevented me finally from smashing against trees. I went out with a broken leg only. A small price to be paid at the time for an accident of this kind.

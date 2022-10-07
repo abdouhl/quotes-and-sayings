@@ -1,0 +1,31 @@
++++
+author = "Marvin Gaye"
+title = "Marvin Gaye Quotes"
+quotes_len = "25"
+description = "the best 25 Marvin Gaye Quotes"
++++
+- Most fear stems from sin; to limit one's sins, one must assuredly limit one's fear, thereby bringing more peace to one's spirit.
+- I think if I had to choose another profession, I'd like to be a judge because I'm very capable of determining what's right and what's not.
+- Our church was a very spiritual church, and we were a very chosen people. The body was small, but the spirit was intense and very evident to anyone who passed by or came in.
+- I sing about life.
+- My father has a great voice. My father used to sing... just sing.
+- Great artists suffer for the people.
+- Music, not sex, got me aroused.
+- If I do my job well, then God will smile on my offspring and on their offspring. I'm sure my father is seeing a blessing in me.
+- War is not the answer, because only love can conquer hate.
+- Marriage is miserable unless you find the right person that is your soulmate and that takes a lot of looking.
+- I'd had it as a member of a group. I sang with the Moonglows for two years, and that was enough.
+- God was very good to me as a child, and I'm a very blessed individual.
+- I feel that people in Europe are different from Americans - I think your soul is a little deeper.
+- In a sense, the rumours suggesting I had quit were true: I had retired, but only from the personal-appearance end. I did that because I had always felt conspicuous onstage, and I'm not the sort of person who likes to be an exhibitionist.
+- I am not a star. At least, I don't consider myself a star.
+- If you cannot find peace within yourself, you will never find it anywhere else.
+- They would say, 'Okay, do KP,' and I would say, 'Excuse me, but I can't do KP. I'll do it tomorrow if that's all right with you.' And they'd say, 'Hell no, it's not all right with us. You do KP.'
+- Negotiation means getting the best of your opponent.
+- Negotiating means getting the best of your opponent.
+- I am not going to be dictated to by fans, certainly. I am dictated enough to by my record company to last me a million years.
+- It's what makes you happy in life, and to pursue it, I think, is brave and a wonderful thing. I don't care what people say. I just want to pursue what makes me happy.
+- Who isn't fascinated by evil?
+- Detroit turned out to be heaven, but it also turned out to be hell.
+- I hope to refine music, study it, try to find some area that I can unlock. I don't quite know how to explain it but it's there. These can't be the only notes in the world, there's got to be other notes some place, in some dimension, between the cracks on the piano keys.
+- I think I've got a real love thing going. I love people, I love life, and I love nature, and I can't see why other people can't be like that.

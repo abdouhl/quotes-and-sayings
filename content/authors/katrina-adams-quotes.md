@@ -1,0 +1,52 @@
++++
+author = "Katrina Adams"
+title = "Katrina Adams Quotes"
+quotes_len = "46"
+description = "the best 46 Katrina Adams Quotes"
++++
+- Serena Williams is the ultimate champion. She knows what it takes to get to the top.
+- It can be difficult playing friends. But you also have to know that it's a match, and this is what you do. And you do your best.
+- I was a player who was vying to do exactly what everyone else was doing, and I happened to be black.
+- Tennis is a very interesting world. It's a sport of opportunities, but it's a sport of challenges as well. And for anybody to continue to progress, they have to understand what those challenges are.
+- Serena Williams is the greatest tennis player of all time, the greatest female athlete of all time, the greatest athlete of all time.
+- I think tennis is very different than most of the other sports when you have the opportunity to go pro. For me, it was pretty simple. Tennis was always an individual sport, and your direct results determined where you could go and what you could do.
+- My parents were teachers.
+- We are a traditional sport in an innovative society, and so trying to make change is always a task.
+- I grew up in youth programs in Chicago, so they are definitely close to my heart. It is all about helping kids and giving back to a sport that has given me so much.
+- When we introduced 10-and-under tennis - when we shortened the courts and had smaller rackets and low-compression balls for trying to introduce the sport to youth - a lot of people said we weren't going to succeed.
+- I stumbled into tennis.
+- I was fortunate to have people like Althea Gibson come and speak to me, also Leslie Allen and Arthur Ashe. So I feel obligated, part of my duty, to continue to pass on the knowledge I've learned to youngsters and adults alike.
+- As a kid, I used to love going to the arcade. I used to tell my parents I was working on my hand-eye coordination. It was probably just a way to get more quarters from them.
+- We make sure that we continue to educate our youth on who Althea Gibson and Arthur Ashe were.
+- Everything that I do is with a purpose and intent of wanting to make a difference.
+- I was throwing a spiral football at 6.
+- Few players hit the swinging forehand volley as often, or as well, as Maria Sharapova.
+- Changing the dialogue and behaviors around race and equality in sports starts with removing barriers and creating opportunities.
+- There were so many people who were instrumental in helping me get better. They say it takes a village, and the tennis community has been my village. That's why I've always felt that I have a responsibility to give back.
+- When I was a kid, people reached out and gave me a chance.
+- I'm a visual learner, so with hand-eye coordination, I was a natural.
+- A bad toss is one of the most common causes of a bad serve, and most tosses are bad because players release the ball too soon, flick their wrists, or both.
+- With Venus and Serena and their ascension - and you had a lot of kids that saw them and wanted to be like them - it's like any sport, any major athlete, like Michael Jordan in basketball: everybody wanted to be like Mike.
+- Billie Jean King always was there for me as a role model. She always fought for equality, and that always stood out as I was coming up.
+- Northwestern was never known as a sports school. I was proud to add a national title to the school.
+- My parents raised me that way: to appreciate what I have and pass it along to others.
+- I was eighth in the world in doubles, 67th in singles. Could I have achieved more? Yes, perhaps, but I did it my way.
+- I don't take no for an answer.
+- I'm a competitor in everything that I do. I love to compete.
+- My goal is to play better than my seed. If I'm seeded sixth, I want to try to go to the semifinals. If I'm seeded third, I'm going to shoot for the finals.
+- My parents have been unbelievable. Obviously, without them, I wouldn't be where I am.
+- Someone had to lend me a hand or two to pull me forward. I feel it's my duty to make sure I do the same.
+- In college, you become truly independent; your discipline is honed. It has to be there for your studies. It helped make me who I am, and it increased my determination to be the best I could be.
+- My role at the USTA allows me to fulfill my ambition to open up opportunities for people to play tennis that may not otherwise have a chance or an outlet to play.
+- It is difficult for our youth to want to be active when PE is taken out of our schools.
+- What we instill in our kids is that if you work hard, good things will happen.
+- I try to walk when I'm playing golf so I get some exercise in.
+- As athletes, the biggest asset that we bring to the workplace is our work ethic, our confidence, our never-say-die attitude. We're about winning.
+- I was the ultimate tomboy because my oldest brother used to always beat up on me and wrestle and make sure I was engaged in sports, because I was his excuse to be able to go hang out with his friends.
+- Anything with the title 'Breaking The Barriers' means a lot to us, and to myself in particular, because if it wasn't for those who broke the barrier of color before me, I would not have the opportunity to live the life I'm leading right now.
+- I grew up in the USTA's junior circuit.
+- A new sport is being created every day in the U.S.
+- If you get into the main draw of a Grand Slam, then you've made your mark and proved that's where you belong.
+- For players from every age and every ability, the USTA National Campus will raise the bar on how we deliver tennis with the goal of making our great sport more accessible to more people than ever before.
+- We want to make tennis look like America when it comes to cultural backgrounds.
+- I went to Northwestern. I bleed purple and white.

@@ -1,0 +1,17 @@
++++
+author = "Marcello Giordani"
+title = "Marcello Giordani Quotes"
+quotes_len = "11"
+description = "the best 11 Marcello Giordani Quotes"
++++
+- I quit my job in the bank when I was 19. I took a chance. I went to Milan to study opera and singing. My father really supported me economically.
+- When you're insecure about your technique, you close yourself off. Your shoulders tighten. The first thing, you should open your body and sing. Be happy. Sing real vowels, real Italian vowels. When you're learning a good way to sing technically, you find it's very easy to sing well.
+- I play piano very badly. That's my great regret.
+- I try to steal something from the great singers. Of course, I don't want to imitate their sound, but I try to do a sort of compromise.
+- I want my wife and children to travel always with me and share good things and bad things. That's what the family is for.
+- Sicily is a blessed land. First, because of its geographic position in the Mediterranean. Second, for its history and all the different peoples who have settled there: Arabs, Greeks, Normans, the Swedes. That has made us different from others. We exaggerate, we overdo. We love Greek tragedy. We cry, we fight, sometimes for nothing.
+- The Italians are not indulgent, as Americans are. They don't have the patience to teach young singers how to move. They think you should learn in school.
+- The tenor voice should be like sunshine.
+- God smiled on me in every sense. I was born a tenor, and you know what that means. Tenors are a rare commodity.
+- In the past, my voice was my enemy.
+- I learned my profession onstage. I didn't have a musical background. I had no conservatory training. I don't play an instrument.

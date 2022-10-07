@@ -1,0 +1,35 @@
++++
+author = "John W. Gardner"
+title = "John W. Gardner Quotes"
+quotes_len = "29"
+description = "the best 29 John W. Gardner Quotes"
++++
+- Some people have greatness thrust upon them. Very few have excellence thrust upon them.
+- I am entirely certain that twenty years from now we will look back at education as it is practiced in most schools today and wonder that we could have tolerated anything so primitive.
+- Whoever I am, or whatever I am doing, some kind of excellence is within my reach.
+- For every talent that poverty has stimulated it has blighted a hundred.
+- One of the reasons people stop learning is that they become less and less willing to risk failure.
+- Much education today is monumentally ineffective. All too often we are giving young people cut flowers when we should be teaching them to grow their own plants.
+- If you don't give your kid freedom to make choices with money, including stupid choices, he'll make plenty when he gets to college.
+- Leaders come in many forms, with many styles and diverse qualities. There are quiet leaders and leaders one can hear in the next county. Some find strength in eloquence, some in judgment, some in courage.
+- If you have some respect for people as they are, you can be more effective in helping them to become better than they are.
+- The society which scorns excellence in plumbing as a humble activity and tolerates shoddiness in philosophy because it is an exalted activity will have neither good plumbing nor good philosophy: neither its pipes nor its theories will hold water.
+- It's a staggering transition for high school students that found they could study five hours a week and make As and Bs.
+- Life is the art of drawing without an eraser.
+- History never looks like history when you are living through it.
+- Men of integrity, by their very existence, rekindle the belief that as a people we can live above the level of moral squalor. We need that belief; a cynical community is a corrupt community.
+- When one may pay out over two million dollars to presidential and Congressional campaigns, the U.S. government is virtually up for sale.
+- The idea for which this nation stands will not survive if the highest goal free man can set themselves is an amiable mediocrity. Excellence implies striving for the highest standards in every phase of life.
+- The creative individual has the capacity to free himself from the web of social pressures in which the rest of us are caught. He is capable of questioning the assumptions that the rest of us accept.
+- The cynic says, 'One man can't do anything.' I say, 'Only one man can do anything.'
+- The hallmark of our age is the tension between aspirations and sluggish institutions.
+- We are all faced with a series of great opportunities - brilliantly disguised as insoluble problems.
+- Our problem is not to find better values but to be faithful to those we profess.
+- True happiness involves the full use of one's power and talents.
+- Political extremism involves two prime ingredients: an excessively simple diagnosis of the world's ills, and a conviction that there are identifiable villains back of it all.
+- Some people strengthen the society just by being the kind of people they are.
+- The ultimate goal of the educational system is to shift to the individual the burden of pursing his own education. This will not be a widely shared pursuit until we get over our odd conviction that education is what goes on in school buildings and nowhere else.
+- All laws are an attempt to domesticate the natural ferocity of the species.
+- Excellence is doing ordinary things extraordinarily well.
+- It is hard to feel individually responsible with respect to the invisible processes of a huge and distant government.
+- America's greatness has been the greatness of a free people who shared certain moral commitments. Freedom without moral commitment is aimless and promptly self-destructive.

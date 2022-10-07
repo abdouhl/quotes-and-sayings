@@ -1,0 +1,22 @@
++++
+author = "Jean-Francois Lyotard"
+title = "Jean-Francois Lyotard Quotes"
+quotes_len = "16"
+description = "the best 16 Jean-Francois Lyotard Quotes"
++++
+- Knowledge is and will be produced in order to be sold, it is and will be consumed in order to be valorised in a new production: in both cases, the goal is exchange.
+- And today more than ever, knowing about that society involves first of all choosing what approach the inquiry will take, and that necessarily means choosing how society can answer.
+- On the other hand, in a society whose communication component is becoming more prominent day by day, both as a reality and as an issue, it is clear that language assumes a new importance.
+- What guides Marxism, then, is a different model of society, and a different conception of the function of the knowledge that can be produced by society and acquired from it.
+- The ruling class is and will continue to be the class of decision makers.
+- Even now it is no longer composed of the traditional political class, but of a composite layer of corporate leaders, high-level administrators, and the heads of the major professional, labor, political, and religious organisations.
+- Liberalism does not preclude an organisation of the flow of money in which some channels are used in decision making while others are only good for the payment of debts.
+- Scientific knowledge is a kind of discourse.
+- A self does not amount to much, but no self is an island; each exists in a fabric of relations that is now more complex and mobile than ever before.
+- Our working hypothesis is that the status of knowledge is altered as societies enter what is known as the postindustrial age and cultures enter what is known as the postmodern age.
+- What is new in all of this is that the old poles of attraction represented by nation-states, parties, professions, institutions, and historical traditions are losing their attraction.
+- One can decide that the principal role of knowledge is as an indispensable element in the functioning of society, and act in accordance with that decision, only if one has already decided that society is a giant machine.
+- If we wish to discuss knowledge in the most highly developed contemporary society, we must answer the preliminary question of what methodological representation to apply to that society.
+- A work can become modern only if it is first postmodern. Postmodernism thus understood is not modernism at its end but in the nascent state, and this state is constant.
+- Increasingly, the central question is becoming who will have access to the information these machines must have in storage to guarantee that the right decisions are made.
+- What is required of a working hypothesis is a fine capacity for discrimination.

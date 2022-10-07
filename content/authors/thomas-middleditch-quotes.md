@@ -1,0 +1,118 @@
++++
+author = "Thomas Middleditch"
+title = "Thomas Middleditch Quotes"
+quotes_len = "112"
+description = "the best 112 Thomas Middleditch Quotes"
++++
+- My interests in the world of technology are mainly video games, but I like tech as a means to help solve big issues, such as the demands on natural resources.
+- I repurposed an old World War II merchant ship door into one of the best coffee tables you have ever seen. I have also made little cabinets and media centers.
+- I'm a bit of a curmudgeon. I don't like Valentine's Day and New Year's and Halloween.
+- Even if things are going well, I'm always thinking that I'm about to be hit with the dreaded gut punch and - psych! - I'll find out that it's all falling apart.
+- I'm not joking - it's a top-three dream of mine to be on a comedy on HBO and to have it directed by Mike Judge and Alec Berg, and then on top of that, have it be with friends, two of them I've known for 10 years.
+- I went from being the shy weirdo to the class clown in a couple of years.
+- I've always been a gamer. I play a version of Dungeons & Dragons.
+- I'm cool as a cucumber, baby.
+- I'm a military history buff.
+- We thought it would be pretty cool to officially declare ourselves a gang. Our gang name was called the Rude Boys. Of course, any Rude Gang would need a jacket.
+- I grew up on '80s action movies... Jean Claude Van Damme, Schwarzenegger, Stallone... If there were ever some opportunity to do that, it'd be great.
+- I still like farts. I still think farts are some of the funniest things.
+- I laugh at stuff like Snapchat thinking it can change the world.
+- Everything needs to be lampooned. I believe that there's not any sacred ground.
+- I think when you go in, with film or television, you want to tell this narrative. And with 'Joshy,' you want it to be grounded with moments - it's not like, 'Everyone be as funny as you can, quickly, at all times!' It's not like that. You have to pick the right improvisers.
+- I like my flight sims because I can set up a very robust joystick setup and my head tracking software.
+- I don't program, so I don't belong in Silicon Valley. If I did belong in Silicon Valley, I'd be there creating a revolutionary compression algorithm for billions of dollars.
+- My choice growing up was the 'Star Wars' role playing game. At that time in the Nineties, they had a pretty robust pen and paper system.
+- You can't predict the future, and you've got to go with your gut on these things, and I'm sure if you speak to a laundry list of CEOs and people who have gone through the startup process themselves, they'll say it's an endless hurdle race, and you are inevitably going to catch your legs on hurdles, and it's just how you roll with that.
+- I'm a PC guy.
+- In D&D, you're only in that fantasy world. But with GURPS, you can, like, play a game that's Los Angeles film noir, or a game where the premise is you are world-jumpers, and you can go to different worlds.
+- I don't think anyone sets out to be the evil villain.
+- I was just a bit of a loner as a young boy. And very, very sensitive. Ever the emotional young thing.
+- I grew up in a hippy town, so I did my playing outdoors and skiing and all that, but then I also had my nerd friends that I went and hosted LAN parties with, get my 'Counter-Strike' on.
+- I had this website that, at one point, I listed myself as 'actor, writer, comedian, and fart enthusiast' just because I thought that would be a really clear joke.
+- I just love action movies. People are like, 'What comedy movies did you grow up watching?' And I'm like, 'Not many.'
+- I had to be sick for a scene in the first season, and we used some fruit smoothies with little banana chunks. I had to put it in my mouth and spit it out. It was absolutely delicious.
+- I make very basic country rustic furniture.
+- I'm going to be all over your TV for the foreseeable future.
+- In any awards ceremony, if you're a finicky person like myself, you can pick a multitude of things to nag about. I get frustrated with the comedy category because it feels like it gets sidelined a lot of the time for all kinds of things - not sidelined, marginalized.
+- Chicago was where I realized that improv is its own thing, its own art form. And through that, you kind of develop a work ethic of not selling it short.
+- My nerdy pursuits are more like video games, Dungeons and Dragons, stuff like that.
+- I'm kind of a sports guy.
+- I watched Season 1 through 9 of 'Seinfeld' bloopers one day, just having a ball. It's fun to see people having fun.
+- I want to work with Wes Anderson, Paul Thomas Anderson, the Coen Brothers, or Spike Jonze.
+- Married life is the same as dating life, except now you have a ring, and the state of California has a vested financial interest in the outcome of your marriage.
+- In eighth grade, when I was just the school weirdo, my drama teacher put me in a play, and we came up with a few comedy bits. And that very first reaction, for an audience of supportive middle schoolers, I put my head out and pretended I got scared by the audience, and ducked back in. They all went: 'Yeah! That's great!'
+- You get a lot of apps and companies that are trying to sell you on something that's totally useless or potentially unhealthy. Only occasionally does something really worthwhile really come out.
+- Sometimes, when comedians get success, they don't do as much weird stuff as they normally do.
+- I'm not in Hollywood because I'm good at math.
+- I went to University of Victoria on Vancouver Island and their theater program.
+- I think it's pretty silly that people wear boxers. You're wearing shorts under your pants. They're shorts.
+- I wanted to be like 'Kids in the Hall.'
+- It's like PlayStation-Xbox. I like both. So nothing against Mac, but I do use Windows.
+- I don't want to make some super cliche comment about how much more acceptable gaming is. I think it was always acceptable for me and my peers. But I think it's become more so in pop culture, media, stuff like that - people with money have discovered that they can make money by marketing to us.
+- The Valley is a place that takes itself too seriously, and it has yet to be properly lampooned. So it's time for a wedgie.
+- Twitter is maybe the worst thing. It's cool when you can tweet out your show and be like, 'Hey, come see my show,' or 'Check out this Kickstarter,' but it's also this weird 140-character vehicle for insidiousness.
+- People go on Snapchat - I don't understand it. It's the first app I felt, 'Oh no, I'm out of touch with burgeoning technology. I'm not 16!'
+- At the end of the day, I want to play characters that interest me.
+- I am an unabashed HBO fan. This is why being on 'Silicon Valley' is kind of like a dream.
+- I was voted valedictorian, and at my school it wasn't based on grades; that was the popular vote.
+- I wasn't necessarily always funny, I don't know if I necessarily am - some would argue not - but I was definitely, always been a strange one. Definitely always an odd duck.
+- I've had the fortune of meeting most of the 'Kids in the Hall.' One meeting was special in particular because this was before I had gotten anything, before anything was clicking, and I just found myself hanging out with Scott Thompson.
+- I wish I was more industrious, but I don't necessarily have that drive.
+- Over the years, I've had a slight ebbing and flowing of confidence in my non-comedic role abilities.
+- Ricky Gervais, met him a couple times. He wouldn't remember it.
+- I'm into computers and have been for a while.
+- When you make a film, you never know how it will turn out, especially when you improvise it.
+- After going to theater school, and then subsequently dropping out, I would say that when I first went to Chicago and learned long-form improv, that was a far better acting workshop than any acting school I've been to.
+- I'm always trying to do weird things - when you have that part of your mission statement as an actor, half of that stuff that ends up being made is probably garbage.
+- Everybody in comedy has something like that happen to them: They bomb, or no one shows up. You're like, 'Hey, I'm funny, trust me!' And the world collectively goes, 'Yeah, you and everybody else.'
+- I remember trying to stay up late and catch as much 'Beavis and Butt-Head' as I could, and then 'King of the Hill.'
+- I like a nice, crisp pilsner or lager.
+- It's not about creating 22 episodes indefinitely for as long as you can do.
+- I was a little bit of a tech lord. Not a lord. More of a duke or a nobleman. I was into that stuff as a kid. Nothing too crazy.
+- Just, you know, respect animals and the planet. And don't vote Trump.
+- Speaking as someone who's played a lot of video games, and at the end of the video game all you have is a memory, after woodworking you get this piece of furniture.
+- I'm undeniably very nerdy, but I'm trying to recognize and pursue more masculine pursuits.
+- I don't typically pay attention to most things in life, let alone award season. Not because I think it's silly. I just don't typically get caught up in it.
+- There's all these little bubbles of nerddom.
+- When you're on film or TV, essentially you're in front of the camera. Unless it's a Tim Burton thing, the desire is to be real and grounded.
+- I was always the bad student.
+- I know, for myself, I probably work a lot better in that - in the group environment. Only because if I am coming up short, someone else helps.
+- I've been a Keanu Reeves fan for a very long time, since 'Bill and Ted' and 'Point Break' and stuff like that.
+- I'm more nerdy in a sense of, like, video games and Dungeons and Dragons and Renaissance Faire. But not nerdy in a sense that I know how to create apps.
+- I got into performing fairly young and went from, like, a shy kid to a total weirdo.
+- As a kid, I drew comics. I had curly hair. I liked to joke, but I was kind of nervous about it at first until it was coaxed out of me.
+- It's pretty surreal to be doing a show on HBO with pals.
+- If you think 'Game of Thrones' throws around some erroneous, unnecessary nudity, wait til you see 'Silicon Valley.'
+- I need some more followers! I need to get my stats up to a million so I can make any movie with The Rock I want!
+- It's an absurd world - you know, billionaires in Birkenstocks. But I'd rather have nerdy tech guys as the next Carnegie than oil tycoons.
+- I did a brief visit at Google X, and they have these little push scooters that you can go from one end of the compound to the other, and the floors are very smooth to maximize efficiency of the push scooters.
+- I have a fairly pragmatic view on all those bullies that came before, because everybody makes you who you are now.
+- I'm not saying that comedy has to be a certain thing - I'm not trying to define comedy, where it's like, it can only be silly things. But I think part of what makes a comedy is that at least part of the mantra of the show is trying to make people laugh.
+- Basically, if you like 'Deadpool,' you'll love 'Captain Underpants.'
+- I'm definitely not frowning on improv; I mean, I've been doing it for years. I just think that there's some styles of comedy that warrant a tighter pace.
+- I think my mantra for saying yes to anything is just, 'Oh, I think that'll be a cool, interesting project,' or - sadly! - 'Ooh, this will help my career.'
+- All of my guy friends are pretty civil and tame.
+- I don't think anyone can do any character that doesn't have at least some ounce of themselves in it. You are who you are, and your brain is drawing on things that you've experienced.
+- Scorsese is very nice. He's small; he's energetic.
+- Both the benefit and the terrifying aspect of standup is when it's going poorly, you've only yourself to blame. There's no one to bail you out. But when it's going great, all that approval is for you.
+- I'm a Windows guy. I have been for many, many years. I play games, and it's where games run, baby.
+- I met Mike Judge when I was working on my own cartoon for MTV; it did not air. But I got on with Mike and then did a few voices on 'Beavis and Butt-Head' because of it.
+- I've spoken to people in Silicon Valley, and many times they have said to me, 'X storyline, or that thing that happened in your show - pretty much verbatim has happened to me.' And it's either identical or similar enough to be scary.
+- I understand what scripting and programming is, but do I know how to do it? Not really. But, I think that even knocking on the door allows you to understand a little bit of that kind of stuff. Mainly what 'Silicon Valley' has taught me, in that respect, is the business side of it, with that gold rush element as opposed to creating software.
+- All the sharky elements of Hollywood are similar to sharky elements in Silicon Valley. It's obviously different, but the deals are the same. And you get hot, then you're not.
+- Improv is always seen as something that's funny, but worth a $5 ticket, $10 at most. I think ISC is one of those shows that is worth a real ticket price. It's hard-hitting and great and different every time.
+- Game design has always been a secondary passion. I don't know how to program, though, so I'm at this strange crossroads where I'm like, 'I wonder if I can convince people who know what they're doing to hear me out on one of my ideas.'
+- The show is not really about finding love in Silicon Valley, and it never really claimed be so.
+- With YouTube streaming and Twitch and all that, you can just hop on on any given night and play videogames and have people come watch you. And even if you've only got 400 people watching your stream, that's more people than would see my comedy if I went to UCB.
+- A lot of comedies, I think, make the wrong choice of having the straight man being this bland emotional conduit for the audience.
+- T.J. Miller and Kumail Nanjiani I met when I was in Chicago, learning how to do comedy.
+- It's not as if I've never been awkward myself. I'm a big gamer, so I've had access to that type of personality. I used to go to these LAN parties; that was before high-speed Internet. The only way you could get lag-free gaming was to haul these huge computers to people's houses.
+- The first home system we had was an Apple II, and I remember playing a game called 'Conan.' It should have been called 'Tarzan' because you were essentially Conan running around a forest with a boomerang, but it was obviously Tarzan.
+- 'Baskets' is incredible - 'Baskets' is so funny and poignant and sad and dark.
+- When you're an actor who just got his first big chunk of change, and you're like, 'What do I do with it?' you try to look at Silicon Valley, and the learning curve is so huge. Especially on the investor side. I don't want to say it's like Vegas, in a sense, but you do kinda roll the dice on some companies. It's like educated dice rolling.
+- Sometimes you just need words on a page to memorize.
+- I would never say that girls and their bachelorette parties are tame.
+- I just grew up liking computers and stuff like that. Mainly cool stuff, like video games.
+- Part of me wants a bunch of jocks to go to Comic-Con and call them all dweebs so they can be like, 'Pump the brakes a little bit.' But that said, it's all positive. It's just, of course, I'm going to find some cynicism in it.
+- There are lot of people I'd wanna work with, but Wes Anderson, I would just wanna sit down with the guy. If he would ever put me in one of his movies, that would be the end.
+- I'm a total pessimist.

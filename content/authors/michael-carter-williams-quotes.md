@@ -1,0 +1,95 @@
++++
+author = "Michael Carter-Williams"
+title = "Michael Carter-Williams Quotes"
+quotes_len = "89"
+description = "the best 89 Michael Carter-Williams Quotes"
++++
+- I don't have any doubt in myself.
+- When I'm disappointed in myself, that frustration comes out a little bit. I don't let it affect my game, but it's something I can definitely work on.
+- My music teacher who I was really close with, she helped me out a lot being away from home and going to school in Rhode Island. She was like a mother to me on campus. But she was the theater teacher and she didn't have anyone to play Aladdin, so she asked me if I would.
+- I think I can come in the game, bring a lot of energy on both sides of the ball. Just try to play my part and do anything to help the team win.
+- My IQ for the game is very high. I think that will help me out a lot.
+- I made a gym in my garage.
+- I didn't get a training camp in Chicago. I was behind a lot in the plays, in the team's chemistry. Everything in the organization was going in a different direction.
+- Special Olympics is an organization I have done a lot of work with, first while growing up in Massachusetts and then as an NBA player in Philadelphia.
+- Everybody knows that Coach Cliff is a great guy - on and off the court, he's great.
+- I have nothing against Chicago, nothing against the coaches.
+- When it comes time for basketball, everything else is kind of irrelevant.
+- I think I'm pretty good at pressuring the ball, forcing turnovers.
+- I always had an interest in fashion, and when I got to the NBA, I felt like I had to up my shoe game.
+- To go against the Miami Heat is just a blessing. I'm going to go out there and have fun.
+- Honestly, I chose 1 because I wore it in college and my rookie year. My mind wasn't even thinking about D-Rose and everything like that.
+- Once I got to the NBA I wanted to continue to work with the Special Olympics and those with special needs.
+- I'm just looking to go out there and win and do whatever I can to help my team win. I just want to be helpful on the floor.
+- I've always dreamed big, and I've accomplished a lot of my dreams.
+- I believe that I'm one of the best defenders in this league; I take a lot of pride in that.
+- There's definitely a crowd when I come off a pick.
+- My mom actually, she does this for a living. She has her own company called Carter and Tracy Incorporated, and she helps young athletes get started, whether it's dealing with housing or dealing with their money, and I know she always has best interests in me, not only because I'm her son, but because of what she does for her job.
+- Me and Jason Kidd are with the same agency so I talk to him quite a bit.
+- Sometimes, I might not be able to show all of the work that I've put in because I've got a certain role. I've had openings and my teammates have done a great job of finding me and it's on me to convert them.
+- You can question my shooting. You can question my ceiling. Just don't question if I'm giving my all every single night. Don't talk to me about tanking.
+- I think the best thing about my game that translates into the NBA is being able to create for others. Using open space and using pick and rolls.
+- I have a lot of confidence in myself and Philadelphia has a lot of confidence in me.
+- Nothing in this league was ever given to me.
+- Losing sucks. I don't care how much money you make or what stats you put up. If you're competitive enough to make it to the NBA, losing is absolutely brutal.
+- I want to go to the NBA and be an All-Star, to be honest with you.
+- I think I gotta just keep working on knocking down shots and getting stronger.
+- I've earned everything I have; that's the attitude.
+- I don't know what a losing habit is.
+- Being traded a couple times - and I've been traded after winning Rookie of the Year - is out of your control.
+- No matter what goes wrong, just turn the page. That's what you have to do in this game or it's going to eat you alive.
+- I want to be out there playing just as much as everybody else.
+- I just try and make the best of my situation and where I'm at.
+- Allen Edmonds makes stylish, comfortable shoes and after getting to know some people there, they asked if I wanted to co-design a shoe. I visited the factory, met with some designers and together we came up with something that I think is a good, solid staple for any wardrobe.
+- I really miss Syracuse and the guys on the team.
+- I love Chicago, I love the coaches here and I love the guys here.
+- I'm going to continue to work on my shot every single day, and just try to improve that.
+- With my size and length I can affect the game in a lot of ways.
+- I felt something in my hip but I thought it was something little. It got worse and worse over time, to the point where I couldn't sit down. That's when I knew something was wrong.
+- It's a hard league, but I'm working on it.
+- It's not fun when you're losing, but it's fun when your teammates are diving for loose balls and you're helping them up and clapping for each other.
+- You just become more mature as a human being, having a child. The stakes are a lot higher, things are different. It teaches you to be patient and it's changed me a lot.
+- Basketball players can adapt to any situation.
+- It's a great feeling to be coming home and getting a chance to see my family and friends.
+- I think I have been able to slow down a little bit and really work on different things... I think I improved on being a leader on the court. Controlling the game, controlling the pace... that is where I have grown.
+- My body language, it doesn't have anything to do with my coaches or my teammates.
+- I believe that I'm a winner. I've won pretty much my whole life.
+- To be competitive on the court is just a fun thing.
+- I've been dealing with a lot of pressure coming from Syracuse and having the ball in my hands my sophomore year after a bunch of guys left. And it was my job to lead the team.
+- I never really played in an empty gym before.
+- I try to play as hard as I can and that's all I can really ask from myself. Just to put in the work so I can be successful on the court.
+- Whoever is in the best shape, whoever has put in the most work in the offseason is going to have a little bit of an edge, especially the first few games.
+- Since I've been in the NBA, I've showed what I can do on the court.
+- I try to do my best to trust my teammates and make plays at the same time. I'm not the greatest at it. But I'm learning.
+- I'm always looking for advice on how to get better as a person and as a player.
+- I always try to go in there and stick to my base, which is the defensive end, and then just let the offense come to me.
+- When I was a rookie, what motivated me was trying to win Rookie of the Year and play the best that I could that I would compete so hard.
+- I've learned to play you know the backup point guard spot and to play on the wing if need be, and it's something I embrace.
+- I was happy about being able to play under someone like coach Kidd. It is a dream come true to me. I watched him play when I was younger.
+- Coach Kidd has taught me a lot just from the point guard position.
+- I think a lot of the time, when things were going wrong, I would get blamed for things because I was the point guard.
+- If I can positively affect the team, then it also works for myself. That's really my mindset.
+- I had some other interests. Orlando is definitely the place I wanted to be though, from the beginning.
+- I put in the work, got in the weight room and really worked hard and really built confidence within myself.
+- I just want to bring positive energy. When I'm out there, be a leader on the floor - do the little things.
+- It is great to have some stability for myself, not only for myself but my family as well.
+- I wasn't expecting to be traded, so it definitely was a surprise to me. But things happen in this league so I just decided to take in stride and start a new journey in Milwaukee.
+- Coach Boeheim, he's really not like a lot of coaches. We don't do shoot-arounds, we don't have curfews. So I think he teaches you how to be a man and how to be responsible for yourself.
+- I like Detroit a lot.
+- It's a great opportunity to get picked top 10 in the draft. It's just a dream that I've always had.
+- I definitely need to take a look at several positions. I'm going to be playing a little everywhere. As much as I know at every position is better off for me and is better off for the team.
+- I still have a lot of confidence in my offensive game. I try to get guys involved and get in the lane, but defense is my backbone.
+- Defense is something I've always taken pride in from college and high school.
+- I was No. 1 in college at Syracuse. I've been No. 1 a lot.
+- Me and Nerlens grew up together. We're best friends. We played on the same AAU team in high school. It's like a dream come true. We always talked about how we were both going to make it to the NBA. For us to end up on the same team is a blessing.
+- In my mind, I slowed down and I feel like I translated it over into my game.
+- I stay after practice to go over the playbook. I watch film. I'm constantly trying to stay as close to the curve as I can.
+- We've seen a lot of people come together, no matter the race, and have support of black people. I think that's a huge thing. I don't know if it's going to fix all our issues, but I think it's a step in the right direction. I go out and I've protested, I've marched.
+- I can go home and be mad, but I have to stay upbeat and stay positive for my team and do anything I can to help them win.
+- We have a big platform we can use to make change in this country. It starts with going home to our own cities and making change there. It starts with encouraging people to vote and using our platform to talk to people with power in this country to create change.
+- I couldn't change if I wanted to. I can't not go hard through screens and I can't not play on defense hard. It's just the way that I'm built and the way that I play.
+- I work too hard to let something affect me that's already happened.
+- If you work hard and you're somewhat talented, you'll be successful in this league.
+- I've been told a million things in this league. I was Rookie of the Year, and then got traded... So it's hard for me to sit back and believe everything I hear.
+- I would love to be part of more partnerships and help develop new campaigns that celebrate Milwaukee and support local business.
+- I've been dealing with the Special Olympics since I was young. On Sundays I used to go help monitor little soccer practices.

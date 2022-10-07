@@ -1,0 +1,77 @@
++++
+author = "Nate Berkus"
+title = "Nate Berkus Quotes"
+quotes_len = "71"
+description = "the best 71 Nate Berkus Quotes"
++++
+- Buying found objects means repurposing something that was already made years before, sometimes decades before. It strikes a nice balance between the new and used equation we should strive for in our lives.
+- Everywhere in my house are these little things that have meanings and make me think of great memories.
+- Design, to me, is part psychology, part sociology, and part magic. A good decorator should know what's going on in someone's marriage and how their kids are doing in school.
+- When I see a wall that's hung with different objects, framed or unframed, what I like about it is its fluidity and rule-breaking nature. Just experiment a bit.
+- In a small space, you want to keep the bedding as simple as possible so it looks clean, calm and collected.
+- Even as a 10-year-old, I remember trying to explain to my mother and stepfather how upset and frustrated a messy room made me. But they just couldn't grasp it. They wanted me to be playing with baseballs and frogs while I wanted to be scouring garage sales.
+- One of the biggest lessons I've learned during my time on 'Oprah' is that everyone wants to be heard. We all want to have our humanity acknowledged - to have others see us for who we truly are. We all want to know that we are valued, we are heard, we are understood.
+- In a modern loft, you can't just fill a space with furniture. Each piece has to be perfect.
+- Layering in different patterns will keep things from appearing too studied.
+- Everywhere your eye travels in your home, it should land on something that resonates with you.
+- I'm interested in fashion; I buy fairly good pieces, and I think as I've gotten older, I've pared down a lot.
+- You can change the feel of your sofa by adding a thick, cozy throw and playing a couple of classic pillows off a more Moroccan-inspired one.
+- I was a boy with one dream and one dream only: I wanted - no, strike that, I was desperate for - a room of my own. You see, in those days I shared a room with my little brother, Jesse, and it wasn't pretty. He was the Oscar to my Felix: messy, careless, and just a little bit sticky - exactly the way a kindergartner is supposed to be.
+- Before you begin designing or buying anything, you need to get real and ask yourself: What do you really want to use this room for? What do you want to do in this room but can't now?
+- I knew that I was a gay boy fairly early; what was interesting to me was that my mother didn't know. She made me play baseball - I had no desire to do that. I said, 'Mom, I don't like direct sunlight, I don't like bugs, I don't like grass, and I'd rather be in the house playing with your fabric samples.'
+- I got my first Charvet knit tie when I was 15. I actually stole it from my father. I love them because you can wear them day to night. They're French and preppy and have been around since the 1800s.
+- Working on 'Big Give' was an opportunity that I felt compelled to do. It was my chance to share in showing people how they can give big in their own life, to send the message that giving goes way beyond the gift of money. We want to share that the best thing you can give is your time and understanding.
+- Mixing in some rusty oranges is a warm way to update your place for fall.
+- I can look at a photo and the dimensions of any piece and tell you if it's going to sit well with the four other pieces in your room.
+- I am not ever in the business of making anyone feel bad.
+- I think that a lot of guys reach for electronics first, but the truth is that you can never keep up with electronics. You buy a flat-screen TV, and then six months later, there's one that has 3D and Blu-ray and all this business, and that is just going to keep continuing.
+- I've always felt that color is intrinsically personal. It evokes a tremendous amount of emotion. If there's a color you respond to, that's something you can incorporate into your home. No one can tell you it's wrong.
+- A lot of guys go in immediately for status, as opposed to comfort and allowing their home to tell a story about them.
+- When you have a bunch of comfortable upholstered pieces, a single bronze or brass chair really turns the energy up.
+- The truth of the matter is being gay is the way I was born. I believe this to the core of my being.
+- They used to tease me at the 'Oprah' show, 'Are you really going to do another white Shaker kitchen, with white subway tile and stainless steel appliances?' And my answer is, 'I can vary it a bit, but I'm never going to err from classic materials.'
+- We hold back our true feelings and beliefs, whether it's from a sense of being polite or fear of hurting someone's feelings. But what I have seen on 'The Oprah Winfrey Show' is that no one benefits from holding back and keeping things bottled up inside. So I pride myself on speaking my mind and not being afraid to give honest feedback.
+- Twitter is a place where you share your thoughts, yourself... you don't want a plain white backdrop for that. You want the entire page to say something about who you are. Designer or not, if the urge strikes you, go for it. Put up that watercolor you've never shown anyone. Take a photo of that hat you just knitted... whatever it is, share it.
+- Home has always been one of the most important things. If I don't feel at home in my space, then I feel really unmoored.
+- I hate sets. I've always hated sets. I think that if you have a dining room set, break it up!
+- I'm not going to say paint is an easy spruce-up. It takes time, it needs touch-ups, and you have to be very methodical. But it is worth it, and it isn't particularly expensive.
+- You can't be around Oprah and not have her influence you, and I don't mean that because she's doling out the free advice. I mean it because she is someone that leads with truth and follows her heart. She's a force.
+- I can change a light fixture, and I can do certain things. But I'm really bad in terms of construction. I can't do any of it on my own.
+- Some kids spent their allowance going to see 'Indiana Jones and the Temple of Doom'; I spent mine on a great-looking lamp I'd found at the flea market and a ceramic bowl from a neighborhood garage sale.
+- We're not handling things anymore before they arrive on our doorstep. I like to feel how thin porcelain can be, run my hand over a textile, see if I want to sit in a chair.
+- If you actually keep things very organized and clutter-free, you can have more furniture than you think you can in a small space.
+- I tend not to wear ties very often. I'm usually in old stuff: Hermes or Marc Jacobs boots and jeans and a T-shirt and a leather jacket or a jean jacket.
+- First and foremost, I'm a decorator and product designer. Everything I do, the television shows, the books, that comes from the design work. It's what I love.
+- My favorite thing about decorating is mixing different periods and styles. If you have something that's old, and you really do want to mix those styles, then you have to add something that's obviously modern with it. You can't put a kind of a mediocre thing in the middle.
+- I didn't necessarily want to be famous growing up, but I knew I would be a good famous person because I'm not offended if somebody comes up to me and knows things about me and wants to engage me in a conversation.
+- I really can't live without my In-N-Out burgers. Honestly, I can't. Even when I'm doing the whole no-carb thing occasionally, I make an exception for these. They're too delicious to count.
+- When I take on a design project, I have to jet from the bookstore to the hardware shop to the lamp store and back again just to collect a small portion of the many items I need to fill a home. But, when you hit the flea market, they're all right there. From booth to booth, you have the bases covered.
+- I always want objects in my home that have a connection to me or something I've loved. It's still stuff, but it's stuff that has meaning.
+- I see it every day: People trying to create a home that somebody else tells them they should have. I don't care if it's a magazine or a bossy friend - when somebody says, 'This is what's elegant, this is what's trendy,' if it doesn't represent you, you're not going to be happy.
+- About 90 percent of the pieces in my home are vintage, and I'm a ruthless editor. I only live with things that I love. There is not one thing in my home that doesn't have meaning to me.
+- You don't need to spend a lot of money on stuff when you have amazing architecture.
+- I don't believe in having spaces in the home that don't get used. We pay so much for square footage that to waste it is criminal.
+- In a minimal interior, what you don't do is as important as what you do.
+- I was barely in grade school when I helped my mother rearrange the living room furniture for the first time.
+- I live in a beautiful vintage building that was built in the heart of downtown Chicago.
+- It's my job to know what's available from every retailer, catalog, website, antiques mall, and craftsperson. A good designer or decorator has to have an almost encyclopedic knowledge.
+- 'Priced to sell' - just the phrase makes me smile. When a dealer says all the items in his booth are priced to sell, he means he's tagged them as aggressively as he can to get you to buy them. Don't worry, though, I still haggle. You have to. That's the point of a flea market.
+- Thread count is actually a lie. Just because a thread count is 1,500 on a set of sheets doesn't mean that they're well-made sheets. Truly, the quality of the cotton and the quality of the way something is woven is much more important than thread count.
+- Go outside! I mean, even leaves from a park are beautiful in a clear glass vase. I'd rather see that than fake anything any day.
+- I made my parents crazy. As a kid, I redecorated my bedroom every month. I would literally save my allowance and go buy things.
+- You will enrich your life immeasurably if you approach it with a sense of wonder and discovery, and always challenge yourself to try new things.
+- When you buy things that are expensive, like a sofa or something that really feels like an investment, you need to keep it as plain as possible, as simple as possible. Make sure that it's a clean design that will work with whatever style you want it to.
+- I have a large watch collection, and classic watches are especially important to me. I had a silver Rolex, and I actually gave it to my little brother. He wears it every day. He's an actor, so whenever he goes to an audition, he can look down, see it, and it gives him confidence. It was a great thing to pass on.
+- In design-speak, 'a library' means a room lined with books, floor-to ceiling, but it all depends on the space you have. You may have a free-standing bookshelf of your favorite books if that's all you have room for.
+- I love linen in soothing colors for any room in the house.
+- Books are the heart of any home, and I spend hours going through books for design inspiration.
+- I always had this New York fantasy of living in a glass high-rise.
+- You can find a lot of reasonable buys at Wal-Mart. But one key to making it on a budget is by donating your time and labor to the project. Do-it-yourself projects will always help you save.
+- I like my house to be unique to me. Sure, I've bought plenty of things out of a catalog, but the way I put them together in my home is special. You might have bought your sofa at a major home decorating store, but the rug you found at the flea market is so unique, it takes your room from 'carbon copy' to 'simply yours' in no time.
+- As a kid, I think I rearranged the rooms of almost every house on the block.
+- I didn't grow up thinking I'd be a decorator. Design is my greatest passion, and it naturally just pulled me down the path. Same with TV. Being famous or having a show was never the motivation. I got a call and was swept up by the challenge of that first small space redesign.
+- I think I was the only kid on the block who knew about furniture scale by the time I was 8.
+- Color is a very personal thing. You need to make sure to choose a color that makes you happy. But I don't recommend accent walls - choose a color you can live with on all four walls.
+- I believe your home tells a story about who you are and who you aspire to be. We represent ourselves through the things we own. I don't believe in trends. I believe in collecting things that you connect with. We should surround ourselves with things we care about, that have meaning.
+- You don't have to paint your walls lime green just to try to have your home feel decorated. If you're a classic dresser or preppy dresser or a modern dresser, you wear a lot of black - whatever it is - your home should reflect that as well.
+- I do shop online! But I'm shopping online mostly in the home categories - One Kings Lane and Gilt. At a lot of architectural websites, I buy a lot of hardware for cabinetry like hinges and things like that from England. So, you know, for me, I shop at Net-A-Porter, but I don't really shop that much for clothing online.

@@ -1,0 +1,37 @@
++++
+author = "Matt Hancock"
+title = "Matt Hancock Quotes"
+quotes_len = "31"
+description = "the best 31 Matt Hancock Quotes"
++++
+- The terms and conditions of the main social media sites are that you shouldn't use it under the age of 13, but the companies do absolutely nothing to enforce against that. And they should, I think that should be a requirement.
+- I am, as a father, very worried about the growing evidence of the impact of social media on children's mental health.
+- The reason we need formal government guidance from the chief medical officer is to empower parents.
+- But design has never been a Europe-only project. The best of design has global influences. And we've got to design the future immigration system to make sure that we continue to attract the brightest and best.
+- There are clearly skills shortages in some areas, and businesses can make sure they get the skills they need by training people on the job.
+- The Conservative party's always been a broad church, and I can appeal better than any of the other candidates to the centre ground to unite the country, and to voters who will ultimately deliver a majority so we can really get things moving.
+- People are getting older - that is a good thing - but there isn't enough funding in the system. And there's a whole number of injustices.
+- But crucially, the apprenticeship schemes benefit apprentices themselves, who get a good foundation for a career, and it helps to open doors and break down barriers that some people face.
+- Well, the truth is that anybody who is a Conservative knows that the way you generate wealth and ultimately all the taxes that pay for public services is through business, people coming together to make something of their lives and to create jobs.
+- The impact of the creative industries, of design and architecture in particular, are of course economic and they are a great export opportunity.
+- You've got to support working families. We should be looking to support those who strive the hardest, and increase the national living wage, to make sure that the lowest paid get the biggest increase in pay.
+- I've learnt that what you need to do is have standards that are agreed nationally and then allow people locally to work out what they need.
+- This is why we have a chief medical officer: to set a norm in society, make judgments on behalf of society, so that individual schools or individual parents don't have to decide.
+- I'll go round the world looking for the best technology that can save lives and improve the lives of clinicians too. We need to be embracing it.
+- My children aren't allowed on social media.
+- Entrepreneurship is not only about starting businesses but is an attitude to life.
+- The strong economy means there is fiscal firepower and we need to use that to show people the benefits of the free-market system.
+- If you look at the best schools that gets the best results, they teach a broad curriculum but they are also rigorous.
+- Lots of people say politics is about individualism and egos. I happen to think government is best operated as a team.
+- Technology can be an enormous enabler. I'll give you one example. I have never really talked about this before, but I am dyslexic and I didn't ﬁnd that out at school.
+- I think that the big challenge of the 2020s for the country, and for the Conservative party, is to win the fight for free enterprise and the free society. This is under threat like at no other time in my lifetime. And the way that you do that is by demonstrating the benefits of a free market society.
+- Spotting sepsis is one of the most difficult things to do early and the urgency is critical to whether people survive.
+- If you don't vaccinate your child, it's not only your child that is at risk. It's also other children, including other children who, for medical reasons, can't be vaccinated.
+- Of course we've got to deliver Brexit; but then we've got to win a majority by appealing to aspirational people in the centre ground of British politics, where there's a gaping hole.
+- If technology can remove some of the labour-intensive tasks where the computer can do better than the human eye; that helps.
+- I am a very slow reader. I have to have things written in a pithy way.
+- You shouldn't be on WhatsApp, according to their own terms and conditions, before you're 16.
+- So my dyslexia has got me into trouble, but I feel I can talk about it because I want to say to everyone who is dyslexic that the technology exists to help. The most important thing was being diagnosed.
+- I've said that the era of the inevitable closure of community hospitals is over because I want community hospitals increasingly to become community health hubs where you have the physios, some of the day cases, the GPs, mental health services and some of the charity-provided services like Aid UK.
+- The fact is, as we leave the EU, Britain will be able to choose its own immigration system rather than having free movement with one part of the world and a managed system with elsewhere.
+- The sign of a civilised society is how we treat the most vulnerable and our social care system is not up to scratch.

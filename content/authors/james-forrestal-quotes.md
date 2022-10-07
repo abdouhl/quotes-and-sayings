@@ -1,0 +1,18 @@
++++
+author = "James Forrestal"
+title = "James Forrestal Quotes"
+quotes_len = "12"
+description = "the best 12 James Forrestal Quotes"
++++
+- The present danger which this country faces is at least as great as the danger which we faced during the war with Germany and Japan. Briefly stated, it is the very real danger that this country, as we know it, may cease to exist.
+- As in the war of 1941-45, our victory and our survival depend on how and where we attack.
+- From 1941 to 1945 we won a war by enlisting the whole-hearted support of all our people and all our resources.
+- By providing outstanding economic leadership, this country can wage its attack successfully - and can thereby build the foundations of a peaceful world.
+- If these assets were set up as a revolving fund with which Japan could import raw materials for its industries, Japanese exports could again enter the channels of world trade-and Japanese workers would have employment and something to eat.
+- Moreover, the accomplishment of Russia's aims has been greatly simplified by the fact that we have heretofore offered the world no practical antidote for the Russian poison.
+- There is a serious, immediate and extraordinarily grave threat to the continued existence of this country.
+- A similar revolving fund could be set up for Germany, for a durable peace can rest only upon a Germany that, while militarily impotent, is industrially active.
+- This country cannot afford the deceptive luxury of waging defensive warfare.
+- It is inconceivable that even the gang who runs Russia would be willing to take on war, but one always has to remember that there seemed to be no reason in 1939 for Hitler to start war, and yet he did, and he started it with a world practically unprepared.
+- If all Europe lies flat while the Russian mob tramps over it, we will then be faced with a war under difficult circumstances, and with a very good chance of losing it.
+- For the only way in which a durable peace can be created is by world-wide restoration of economic activity and international trade.

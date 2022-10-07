@@ -1,0 +1,102 @@
++++
+author = "Matt Groening"
+title = "Matt Groening Quotes"
+quotes_len = "96"
+description = "the best 96 Matt Groening Quotes"
++++
+- 'The Simpsons' is about alienation and the ambivalence of living with a family who you love but who drive you completely crazy.
+- My father was a really sharp cartoonist and filmmaker. He used to tape-record the family surreptitiously, either while we were driving around or at dinner, and in 1963 he and I made up a story about a brother and a sister, Lisa and Matt, having an adventure out in the woods with animals.
+- I had been drawing my weekly comic strip, 'Life in Hell,' for about five years when I got a call from Jim Brooks, who was developing 'The Tracey Ullman Show' for the brand-new Fox network. He wanted me to come in and pitch an idea for doing little cartoons on that show.
+- I want it to go on, but I want us to go out on top.
+- Love is a perky elf dancing a merry little jig and then suddenly he turns on you with a miniature machine gun.
+- I thought I was going to make crazy cartoons for the rest of my life. I didn't think I'd ever get paid for it, didn't think I drew well enough, but I knew it made me happy.
+- A lot of people believe that if everybody just did what they were told - obeyed - everything would be fine. But that's not what life is all about. That's not real. It's never going to happen.
+- I grew up completely overwhelmed by TV, and part of the reason why I have gone into television is as a way to justify to myself all those wasted hours of watching TV as a kid. I can now look back and say, 'Oh, that was research.'
+- Everybody doesn't have to get every joke. People really appreciate not being condescended to.
+- I think 'Family Guy' and 'American Dad' have definitely staked out their own style and territory, and now the accusations are coming that 'The Simpsons' is taking jokes from 'Family Guy.' And I can tell you, that ain't the case.
+- The scary thing about the future... there will be tiny cameras everywhere, and they'll be flying around like mosquitoes and drones. That will be bad. Drones are scary. You can't reason with a drone.
+- When The Simpsons came around, there really was nothing else like it on TV. It's hard to imagine, but when Fox first took the plunge with it, it was considered controversial to put animation on prime time.
+- I think when 'The Simpsons' first came on, there was an uproar. People got used to it. They realized the show's really funny, it's got a heart, so I think it's pretty safe.
+- Back in high school, I wrote a novel about a character named Bart Simpson. I thought it was a very unusual name for a kid at the time. I had this idea of an angry father yelling 'Bart,' and Bart sounds kind of like bark - like a barking dog.
+- Donuts. Is there anything they can't do?
+- With animation, because you can draw anything and do anything and have the characters do whatever you want, the tendency is to be very loose with the boundaries and the rules.
+- I have less to do with 'The Simpsons' every season, but I stick my nose in here and there. Basically, it's just trying to keep the characters consistent and making sure the show has a soul.
+- I like all of the early relationship strips that were collected in 'Love Is Hell,' where I pretended to be an expert in relationships and did comics like 'The Nine Types of Boyfriends,' 'Sixteen Ways to End a Relationship,' 'Twenty-Four Things Not to Say in Bed,' and other arbitrarily numbered lists.
+- We've been running a little behind schedule. But only by about 15 years or so.
+- 'The Simpsons' was about children and married parents; 'Futurama' is about people in between; they're growing up and haven't settled down. Every other cartoon show seemed to be, you know, dumb dad, bratty kids.
+- My standard comment is, 'If you don't want your kids to be like Bart Simpson, don't act like Homer Simpson.'
+- Nihilism in American comedy came along way before 'The Simpsons.' There was a fairly nihilistic point of view to 'Saturday Night Live,' for instance, back in the beginning, and a lot of really dark comedy had a really anti-sentimental take on life.
+- Cartooning is for people who can't quite draw and can't quite write. You combine the two half-talents and come up with a career.
+- Oftentimes, what seems to be a street lunatic charging at me spouting gibberish turns out to be a devoted 'Simpsons' fan quoting their favorite line.
+- With Charlie Brown, it was about loneliness and isolation. I always thought that the thing about Charlie Brown and those characters was the absence of the parents. Half the strip was about who wasn't there. The parents were never in the picture.
+- One of the great things about the Internet is that you can read what everybody has to say about everything. It is fascinating to me, the critiques about humor by people who have no sense of humor.
+- I may be biting off more than I can chew, but with 'The Simpsons' and with 'Futurama,' what I'm trying to do in the guise of light entertainment, if this is possible - is nudge people, jostle them a little, wake them up to some of the ways in which we're being manipulated and exploited.
+- The thing about a cartoon is, you can do whatever you want. The tightrope that we are walking on 'The Simpsons' and 'Futurama' is 'How do you continue to surprise the audience, but make them good surprises?' Not every surprise is good, but you want to continue jolting people.
+- The best stories in our culture have some sort of subversiveness - Mark Twain, 'Catcher in the Rye.' You provide kids with great stories and teach them how to use the tools to make their own.
+- I also found child's play - stuff that was not considered serious, but goofy - was the stuff I liked to do, so I still do it as an adult.
+- Charles Schultz is a really interesting case. He wrote that comic strip and drew it himself from beginning to end, and it's a work of genius. It's very simply drawn, but it has some really deep emotions that you don't expect in a silly-looking comic strip.
+- 'The Simpsons' from the very beginning was based on our memories of brash '60s sitcoms - you had a main title theme that was bombastic and grabbed your attention - and when you look at TV shows of the 1970s and '80s, things got very mild and toned down and... obsequious.
+- Sometimes people get mad at The Simpsons' subversive story telling, but there's another message in there, which is a celebration of making wild, funny stories.
+- With 'Futurama,' I wanted to do unrequited love, and David Cohen agreed, and although our original plan was never to have Fry and Leela get together, we finally just said, 'You can only string the fans along so far.'
+- The nice thing about 'Futurama' for me personally was that it was a way to honor some of the traditional ideas in literary science fiction, not so much movie or television science fiction - although we have that too, obviously. Our situation, a workplace comedy, led to all sorts of stuff.
+- Our solution on 'The Simpsons' is to do jokes that people who have an education, or some frame of reference, can get. And for the ones who don't, it doesn't matter, because we have Homer banging his head and saying, 'D'oh!'
+- I've conducted an experiment on my kids. Instead of denying them access to media, I've encouraged it. They read comic books, play Nintendo and watch way too much TV.
+- Eat my shorts!
+- It's just hard not to listen to TV: it's spent so much more time raising us than parents have.
+- As astute followers of 'Life in Hell' will notice, Akbar and Jeff wear the same striped T-shirt as Charlie Brown. 'Peanuts' was very important to me.
+- I loved literary science fiction. In fact, as a kid, when I was reading science fiction, I thought 'I can't wait for the future when the special effects are good' to represent what was in these books by Arthur C. Clarke, Alfred Bester, Philip K. Dick, J.G. Ballard, Jack Vance.
+- Love is a snowmobile racing across the tundra and then suddenly it flips over, pinning you underneath. At night, the ice weasels come.
+- The thing that makes me happiest about Simpsons Illustrated are all the drawings that we get from readers. I wish we could print them all. They're really imaginative. They show a lot of hard work.
+- I basically drew my own family. My father's name is Homer. My mother's name is Margaret. I have a sister Lisa and another sister Maggie, so I drew all of them. I was going to name the main character Matt, but I didn't think it would go over well in a pitch meeting, so I changed the name to Bart.
+- It's a funny show. The characters are surprisingly likable, given how ugly they are. We've got this huge cast of characters that we can move around. And over the last few seasons, we've explored some of the secondary characters' personal lives a bit more.
+- I'm a writer who just happens to draw.
+- The conundrum that I face on a daily basis is that I have two sons who have grown up watching 'The Simpsons,' so they know exactly what buttons to push. They know how Bart irritates Homer, and they use these lines against me to tell me that I'm not funny anymore.
+- One of the things I would like to do is make up stories that I would have enjoyed when I was a kid. So, if I'm thinking about an audience, it's usually a younger version of myself.
+- We did 'The Simpsons Movie,' which took almost four years; it was the same people that do the TV show, and it just killed us. So that's why there hasn't been a second movie. But I imagine if the show ever does go off the air, they'll start doing movies.
+- I judge my life by how miserable it used to be. If I could pay my rent, I was deliriously happy. Now I'm deliriously happy all the time.
+- The writers led by Mike Scully are fantastic. And they're creating original stories that not only don't repeat what we've already done, they also don't repeat anything I've seen on television.
+- You've got to embrace the future. You can whine about it, but you've got to embrace it.
+- I went to Bali, and I was in a small village, and somebody who was with me showed a woman a little figurine of Bart and asked: 'Do you know who this is?' And she said: 'Mickey Mouse.'
+- The tendency in comedy is to have a character who's stupid get more stupid, because you're trying to top yourself and not just repeat.
+- I always say that 'Futurama' is real, and 'The Simpsons' is fiction.
+- Here's to alcohol: the cause of, and answer to, all of life's problems.
+- Since I was there in the very beginning, I know the history of the characters. So, I make comments about the tone and sometimes remind the writers that we've done that before.
+- People go into cartooning because they're shy and they're angry. That's when you're sitting in the back of a classroom drawing the teacher.
+- Well, most grown-ups forget what it was like to be a kid. I vowed that I would never forget.
+- I gave away 'Life in Hell' when it was a little 'zine, and sold it at record stores for $1, and I knew from the time that I first did it that I would continue to do it, because it was fun.
+- I draw a weekly comic strip called Life in Hell, which is syndicated in about 250 newspapers. That's what I did before The Simpsons, and what I plan to do for the rest of my life.
+- I think in daily newspapers, the way comic strips are treated, it's as if newspaper publishers are going out of their way to kill the medium.
+- With 'Futurama,' I was just worried that somebody would beat us to it; it seemed so obvious that there should be an animated science fiction show set in the future. And one of the reasons why it's not, I learned, is that it's really, really difficult.
+- Because good writing in a TV cartoon is so rare, I think the animation on The Simpsons is often overlooked.
+- Me fail english? Thats unpossible.
+- If I have one technology tip of the day, it's this: No matter how good the video on YouTube is, don't read the comments, just don't, because it will make you hate all humans.
+- I've loved science fiction ever since I was a little kid, mainly from looking at the covers of science-fiction magazines and books, and I've read quite extensively as an adult.
+- 'Adult Swim' on the Cartoon Network is unbelievable. And 'South Park' continues to do great stuff. And 'Family Guy' and the various other Seth MacFarlane projects are amazing.
+- Science fiction and comedy are generally a pretty bumpy mix.
+- Families are about love overcoming emotional torture.
+- We've got a bunch of new writers now who tell me they grew up watching The Simpsons. It's bizarre, and they're writing some very funny stuff.
+- 'The Simpsons' obviously is a huge success, and Fox has nothing to do with its success, with its creative success, and as a result they don't really like the show. They don't like 'The Simpsons' at Fox.
+- 'The Simpsons' is an especially collaborative show.
+- I know for a fact, obviously, because my kids grew up watching the show, that there are some things they are introduced to from 'The Simpsons', and then later in life they see the thing we're parodying. My kids had not seen 'Casablanca,' and we'd done parodies of 'Casablanca.'
+- I went through a phase where people would introduce me at parties as a cartoonist, and everybody felt sorry for me. 'Oh, Matt's a cartoonist.' Then people further feeling sorry for me would ask me to draw Garfield. Because I'm a cartoonist, draw Snoopy or Garfield or something.
+- I love the idea that we put in jokes the kids don't get. And that later, when they grow up and read a few books and go to college and watch the show again, they can get it on a completely different level.
+- I think there is a certain charm to the hand drawn image that I like. My problem with CGI is that it's so rich in texture that my eyes actually get tired. Everything is in focus down to the littlest leaf.
+- Most TV shows don't reward you for paying attention.
+- Living creatively is really important to maintain throughout your life. And living creatively doesn't mean only artistic creativity, although that's part of it. It means being yourself, not just complying with the wishes of other people.
+- God often gives nuts to toothless people.
+- A lot of our writers, like Conan O'Brien, moved on to other things.
+- Sometimes people try to read into my strip and find out what my state of mind is. And I can say if I'm in a good mood, generally the comic strip starts out in a good mood, but the punchline is very negative and sour.
+- Don't have a cow, man.
+- 'The Simpsons' basically - and 'Futurama' - are really smart shows. They're kind of disguised as these goofy animated sitcoms, but the references within the shows, if you're paying attention, are pretty smart and pretty sophisticated.
+- Basically, everything I try to do is to present an alternative to what somebody else is doing.
+- On 'The Simpsons,' I will say that we definitely like to comment on what's going on in the world, and we try to be funny. If we can figure out a way of being funny about it, then we've gone part of the way of accomplishing our task.
+- The really great thing about having two TV shows going on at the same time is that I can go to one and say that I have to go and visit the other, and then I can just go home, and they don't know.
+- There's always room out there for the hand-drawn image. I personally like the imperfection of hand drawing as opposed to the slick look of computer animation. But you can do good stuff either way. The Pixar movies are amazing in what they do, but there's plenty of independent animators who are doing really amazing things as well.
+- I like the 'Simpsons' pinball machines. Those are pretty great.
+- We have 'Doctor Who' references on 'Futurama,' but we have a lot of science fiction references that I don't get; but in the staff we have experts on 'Star Trek,' 'Star Wars,' 'Doctor Who' and 'Dungeons and Dragons.'
+- In 'Futurama,' the skin color is no longer yellow. They have actually evolved to cartoon skin tone. But they still have four fingers.
+- I don't have to be careful, I've got a gun.
+- When DVDs finally disappear, I'm going to be sad. I'll miss the commentaries.
+- When authorities warn you of the sinfulness of sex, there is an important lesson to be learned. Do not have sex with the authorities.
+- I was always frightened by taverns. They just seemed like very unpleasant places to go.
+- I don't know why I did it, I don't know why I enjoyed it, and I don't know why I will do it again.

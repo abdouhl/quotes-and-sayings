@@ -1,0 +1,61 @@
++++
+author = "Naomi Wolf"
+title = "Naomi Wolf Quotes"
+quotes_len = "55"
+description = "the best 55 Naomi Wolf Quotes"
++++
+- It is important to distinguish between the power of the Internet to make the great change it can, and the limits and vulnerabilities of that change without real-time political mobilization deployed globally to protect those who venture out, especially in closed societies, into the heady new vistas it offers.
+- The Tea Party emerged from a laudably grassroots base: libertarians, fervent Constitutionalists, and ordinary people alarmed at the suppression of liberties, whether by George W. Bush or Barack Obama.
+- Madonna is that forbidden thing, the Nietzschean creative woman. Her preoccupation with a high level of work doesn't allow her to follow the usual script that powerful women are expected to follow - 'don't hate me for my success, don't hate me for my power.'
+- For Gore 2000, I was a formal campaign adviser: contrary to RNC mythology, my brief was not 'wardrobe,' but rather policy on women's issues, and messaging. I was also married to a Clinton speechwriter, and observed the message decision-making process from the perspective of a spouse.
+- The press doesn't stop publishing, by the way, in a fascist escalation; it simply watches what it says. That too can be an incremental process, and the pace at which the free press polices itself depends on how journalists are targeted.
+- It is fairly well-known what has been behind that climate change denial in America: vast sums pumped into an ignorance industry by the oil and gas lobbies.
+- In 70s America, protest used to be very effective, but in subsequent decades municipalities have sneakily created a web of 'overpermiticisation' - requirements that were designed to stifle freedom of assembly and the right to petition government for redress of grievances, both of which are part of our first amendment.
+- Western women have been controlled by ideals and stereotypes as much as by material constraints.
+- Protesters should make their own media and not rely on mainstream media to cover them.
+- It is standard practice for corrupt leaders who are seeking a certain political outcome to hype or manipulate a terror threat or a threat of violent domestic subversion. While sometimes the threat is manufactured, frequently the hyped threat is based on a real danger.
+- A utopian future for the Internet could be secured if the heavy-duty influencers - and the grassroots influencers tweeting along - can create a new global organization peopled with defenders of Internet freedom.
+- French existentialism is an unhelpful philosophy in which to couch modern feminism: born from the ravages of the Second World War, it is a cynical, individualistic school of thought that posits the self and personal choice as the measure of life's entire meaning.
+- Since Madonna is positioned as always 'cooler than thou,' we all are primed for schadenfreude if something in her fabulous life goes amiss.
+- Every Yom Kippur, Jewish tradition requires a strict spiritual inventory. You aren't supposed to just sit around feeling guilty, but to take action in the real world to set things right.
+- I don't think most men do hate women at all - I think most men are trying their best and facing a culturation into masculine behaviour that forces them to deny their own humanity and to exaggerate distance from the world of women.
+- 'Beauty' is a currency system like the gold standard. Like any economy, it is determined by politics, and in the modern age in the West is is the last, best belief system that keeps male dominance intact.
+- Women have face-lifts in a society in which women without them appear to vanish from sight.
+- We often feel a twinge of guilt over our own fascination with presidential candidates' wives - as if we are secretly reading the 'Star' for our campaign information instead of the policy journals.
+- As a free-speech advocate, I believe that adults should have access to any material they want. As a parent, and a community member, I think people should be able to protect their homes from imagery - much of it violent - that is, I feel, a form of child abuse when adult society inflicts it upon children.
+- From 1970 onwards, our culture told both sexes that individual expression was paramount. And for women, that was defined as the right to choose an interesting a career, a high-status mate, the desirable handbag or vacation, the perfect family size, and a definitionally fruitless quest for 'perfection.'
+- After we were hit on September 11, 2001, we were in a state of national shock. Less than six weeks later, on October 26 2001, the U.S.A. Patriot Act was passed by a Congress that had little chance to debate it; many said that they scarcely had time to read it.
+- My job is to notice echoes and notice resonances. Scientists are not supposed to do the same thing that cultural critics do.
+- There was a bad patch in the '80s and early '90s when feminist thinking had become sort of a monopoly and had developed a series of litmus tests.
+- Since Reagan there has been this tradition, which has become a cliche, of promising morning in America, this fake optimism, we're the best, the city on the hill. In fact the great American task is self-scrutiny.
+- Peaceful, lawful protest - if it is effective - is innately disruptive of 'business as usual.' That is why it is effective.
+- No matter what a woman's appearance may be, it will be used to undermine what she is saying and taken to individualize - as her personal problem - observations she makes about the beauty myth in society.
+- Citizens who live or work near protest sites or marches have every right to be free of violence from protesters, and they should never be subjected to destruction of property.
+- For all the power of video and film, I am not giving up my pen. I am just much more likely to try to link essays to webcasts or videos. The best way for these two media to move forward, to inform and make change, is in tandem; together they are more than the sum of their parts.
+- In the U.S., the '50s and '60s marked the documentary's golden age, especially at CBS, where pioneering television journalist Edward R. Murrow, immortalised in George Clooney's 'Good Night, and Good Luck,' produced such landmark investigations as the CBS Reports programme 'Hunger in America.'
+- Pain is real when you get other people to believe in it. If no one believes in it but you, your pain is madness or hysteria.
+- The First Amendment was designed to allow for disruption of business as usual. It is not a quiet and subdued amendment or right.
+- In a fascist system, it's not the lies that count but the muddying. When citizens can't tell real news from fake, they give up their demands for accountability bit by bit.
+- To ask women to become unnaturally thin is to ask them to relinquish their sexuality.
+- If you look at weak democracies, the oligarchies that have taken undue control of them always seek to tamper with the vote. It is important for oligarchs to have elections to give their guy a veneer of legitimacy - and important for the vote always to turn out 'their way.'
+- Italy in the 1920s, Germany in the '30s, East Germany in the '50s, Czechoslovakia in the '60s, the Latin American dictatorships in the '70s, China in the '80s and '90s - all dictatorships and would-be dictators target newspapers and journalists.
+- When I was a baby feminist, leading feminist thinkers were insisting that if women ran the world, there would be no sadism or war.
+- 'The End of America' details the 10 steps that would-be dictators always take in seeking to close an open society; it argued that the Bush administration had been advancing each one.
+- What, after all, is the narrative of 'the American Dream?' It was a discourse formulated between the 1880s and the 1920s in the United States during the great waves of migration and expansion and reforms of the Progressive Era.
+- Let's dare to release our immature fantasies of a magically faultless U.S. system and a magically protected election process. We have been lucky as a nation, but sometimes continued luck depends on action.
+- In a fascist shift, reporters start to face more and more harassment, and they have to be more and more courageous simply in order to do their jobs.
+- Obstacles, of course, are developmentally necessary: they teach kids strategy, patience, critical thinking, resilience and resourcefulness.
+- I'm a big believer in debate and difference of opinion.
+- Kim Kardashian's marriage to Kris Humphries famously lasted 72 days, and was reported in the tabloids as being all about the big bucks paid by magazines for the bridal photos: it is a spectacle of a bride-to-be as entrepreneur, not as romantic heroine; the groom, in this scenario, is nothing but a prop.
+- The symbolic value of having an African-American president has certainly eased some racial tensions in America, but they're not gone.
+- I am delighted to be joining 'Guardian U.S.'s team as a weekly columnist, and to have the chance to address American and global current events on its distinguished platform. 'Guardian U.S.' brings the 'Guardian's hard-hitting investigative brand to a new focus on American news and opinion.
+- The First Amendment applies to rogues and scoundrels. You don't lose your First Amendment rights because of a sleazy personality, or even for having committed a crime. Felons in jail are protected by the First Amendment.
+- We are all Julian Assange. Serious reporters discuss classified information every day - go to any Washington or New York dinner party where real journalists are present, and you will hear discussion of leaked or classified information. That is journalists' job in a free society.
+- How is it even sustainable in 21st-century America that women earn, on average, 77 cents for every dollar earned by men?
+- Of course a woman who decides to work full time as a mother in the home can be happy and deserves full respect from us. Motherhood is one of the most challenging and creative jobs anyone can do. The goal is to remake the world so that our choices are not so stark.
+- Most urgently, women's identity must be premised upon our 'beauty' so that we will remain vulnerable to outside approval, carrying the vital sensitive organ of self-esteem exposed to the air.
+- The idea that women are innately gentle is a fantasy, and a historically recent one. Kali, the Hindu goddess of destruction, is depicted as wreathed in male human skulls; the cruel entertainments of the Romans drew audiences as female as they were male; Boudicca led her British troops bloodily into battle.
+- Victorian feminists made the mistake of making membership of the sisterhood conditional on signing up to a particular policy agenda. Marxist feminists made a similar mistake of saying, 'You can't be a real feminist unless you join with miners, the unions, the vegans.'
+- It is never smart, even in a strong democracy, to declare some debate off limits. In a weakening democracy it is catastrophic.
+- What we should notice is that studies show that fathers' presence in their children's lives has a marked effect on how well their kids do later in life, so why aren't we asking how we can better liberate men from the workplace to be home with their kids more often?
+- Documentary film without nuanced journalistic sourcing risks being sensational, tendentious or broad-brushed.

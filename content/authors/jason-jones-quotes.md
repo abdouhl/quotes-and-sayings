@@ -1,0 +1,35 @@
++++
+author = "Jason Jones"
+title = "Jason Jones Quotes"
+quotes_len = "29"
+description = "the best 29 Jason Jones Quotes"
++++
+- As long as Fox News continues to exist, you've got comedy.
+- I only write about stuff that sort of happens to me, and then I blow it up into a much funnier version.
+- It's just not good to put stock in a Hollywood celebrity.
+- You can find comedy anywhere.
+- Real life doesn't exist on a network television comedy. They just don't let you travel down any road that is presumably 'dark.'
+- Fletcher Jones, is that not a quarterback's name? My kid is going to be a quarterback for the Hamilton Tiger Cats one day.
+- Everything that I write about is a kernel of something that probably happened to me or one of my writers that I've co-opted and made it seem like it's mine.
+- Put your idol worship on firemen or a schoolteacher or a rescue worker or a first-aid worker or Doctors Without Borders. I love those guys. Those are your heroes.
+- I'm actually just a terrible husband and a terrific exec producer. We just actually stay together for our careers. We look to the Clintons.
+- The Holiday Inn Express brand is known for great service, comfortable beds, all-you-can-eat ice from machines at every hotel, so I was pretty excited when they asked me to be a part of their Smart Thinking Platform.
+- I don't really have any apps!
+- People are forgetting how crazy President 43 was.
+- The suburbs have this veneer of happiness, you know? This veneer of the ideal life. From afar, it's all together - white picket fence, nice house - but you peel away one little layer, and it all comes crumbling down.
+- With as much media as there is out there, there's always something that someone says that's stupid that you can make fun of.
+- I have a very short attention span, so books have never been my thing.
+- Every field piece I did on 'The Daily Show' was a story that lasted five to six minutes. We had a protagonist, we had an antagonist and often put them at odds. We knew the story we wanted to tell before we went in, and often it was about plugging whatever character you have - in this case, a real person - into said part.
+- Even at its height, 'The Daily Show' would do one great show a week, one pretty good show a week, and then two 'meh' ones. It was filler.
+- I've been very fortunate in my life.
+- For news, I follow 'The New York Times,' 'The New Yorker,' and 'ProPublica.' For entertainment, I like The A.V. Club and The Onion.
+- It's one of my favourite types of comedy, just the awkward moments on camera. For many people, it's unbearable to watch, but I love seeing it when it's done right.
+- Who doesn't want to be in the pictures?
+- Kids are appendages on so many family sitcoms. They'll come in, they'll make half a joke, and then they're like, 'OK, gotta go to school,' or 'I'm going to my room.' And then you never see them again.
+- I would rather be right than happy.
+- I can only speak for myself, but you never set out to be funny. You just set out to play the scenes real, and hopefully the funny comes.
+- Network was just never the right fit with what I think is funny.
+- I get 'The New Yorker,' and I'm usually about three issues behind. But I do catch up. The problem is that it always seems like homework, but then you start reading it and go, 'Why am I not doing this all the time? These are such great stories!' But, yeah, that stack gets so big and dense.
+- With comedic news, it's about having a point of view. If you don't have that, you don't have a show.
+- People feel really uncomfortable when there's silence.
+- We don't infantilize our kids. If they ask us a question that's tough, we answer it honestly.

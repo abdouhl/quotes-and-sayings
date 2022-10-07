@@ -1,0 +1,58 @@
++++
+author = "Naomie Harris"
+title = "Naomie Harris Quotes"
+quotes_len = "52"
+description = "the best 52 Naomie Harris Quotes"
++++
+- I don't why I was bullied. I was quite shy and skinny. Very nerdy, very bookwormish. I think I was just a target.
+- The ethos of most films is that you make a film, you exploit the community, you exploit the environment, and it's OK because you made a great film, you know?
+- I try to be upbeat. I read this book which tells you to write down everything that you're grateful for each day. Now I'm constantly noticing all the little things that make me joyful.
+- It's true about the eyes being the window to the soul. Your face can be etched with worry, and twisted by ageing, but the eyes tell the true story of who you are.
+- I love doing a film with a new bunch of people.
+- I was too much of an innocent when I went to university.
+- I know a lot of actors who get a part and then they dissect it and they want to change it and they want to add stuff. I'm always amazed and so impressed by actors who do that.
+- When you're on set, the crew are like your family because you see them every day, six days a week.
+- I always find filming stressful. I get very caught up thinking about my character - 'Am I doing it right? Should it be done this way?'
+- I cry at random things, like a flower, or someone giving me a present, or my sister giving me a nice hug.
+- Be open and honest, but perceptive to your boss's situation. That's my advice to graduates worried about working with a new boss.
+- I think my roles have been wonderfully varied. Not one has been racially stereotypical, and I have purposely chosen them like that.
+- The wonderful thing about drama school is that it stretches you in a way the industry doesn't.
+- As a society we should be encouraging people out of the debt-culture mindset, not promoting it.
+- I'm incredibly impatient; I'd like to be less so, and more content with the now.
+- There weren't really any visible men in my family when I was growing up, but of course there have been men in my life, wonderful men.
+- I've never been that person who wants a Rolls Royce or wants to live in a mansion or what have you.
+- I think there's nothing more amazing than helping people every day.
+- I'm not the greatest driver. I don't know if I'll ever master the art.
+- I did not enjoy Cambridge. But I shouldn't blame Cambridge alone. I wasn't ready for university or for the wrench of leaving home. It was a big cultural shock.
+- I like to believe that we all pray to the same god.
+- Yes, I'm obsessed with health, which has been an interesting journey. I went down the raw-food diet route, but got ill. It was really hard, especially in Britain in winter, trying to survive on raw carrots. I became so ill and anemic, so I stopped that and became a vitamin junkie. I just ate lots of vegetables, exercised and breathed.
+- When you go somewhere like Kenya and you see how the children don't have pencils and pens, and all of these things are considered luxuries, and what a privilege they see education as and how hungry they are to learn, I wanted to give my brother and sister long lectures. That definitely stayed with me.
+- You don't need to follow trends to be stylish.
+- I love Sam Mendes. He's a fantastic director.
+- To have the kind of success I have had is really amazing, and I am incredibly grateful.
+- I think the role of the Bond woman has changed so much over the years that it now doesn't follow a typical archetypical view. Before, it was very much a beautiful woman who didn't contribute much and who usually ended up getting killed or was arm candy for Bond. But now the women in a Bond movie have so much more to offer.
+- Your boss is only human and just wants the best from you.
+- I was brought up in Britain, and I'm very proud of my Britishness and my culture.
+- Getting to travel around the world and go to glamorous locations is certainly not what I had as a kid.
+- I have many different sides; I can be the life and soul of the party - or a wallflower.
+- My mum believes in me almost more than I believe in myself.
+- I still pray a lot. I still believe in God. I just don't believe in any set religion.
+- I love Africa.
+- I love make-up and the process of transforming my face for a night out, but I definitely don't believe in wearing it every day. I think it's really important to be comfortable with the way you look without it.
+- The Windrush era is a very important part of British history as it helps us understand how and why we became the multicultural society we are today, and also helps us understand the history of race relations in this country.
+- Kids should be naughty and go through that rebellious phase I didn't have.
+- Make-up is an extension of your clothes.
+- I would never wear anything too revealing. I'm not a fan of dresses where you look nude... I think that looks a bit desperate.
+- At Cambridge, it was the weirdest culture. Everyone pretended they didn't do any work, yet it was so competitive.
+- I don't think I have the assets to play the more traditional Bond Girl.
+- What I generally get from being in Africa is a sense of warmth and openness. As a stranger, you are always welcomed into people's homes and people are always offering you food. That generosity is incredibly touching.
+- I started acting when I was seven. And I went to a local drama school which is very well-known in London. Because of that, I started getting jobs, and I worked all the time as a child, pretty much non-stop.
+- Hollywood 'friends' are only after one thing. They're looking out for the next big thing, and they don't want to miss out on you just in case.
+- We eat food all the time and don't really understand what goes into something like bread.
+- I really, really love Daniel Craig as Bond.
+- Everybody struggles with being an oddball. It's tough trying to fit in when you're a kid; then you become an adult and you think, 'I'm just going to be myself and either they accept it or they don't.' But you know what? I like me, and that's the most important thing.
+- I live on the same street as my family, actually. I live across the road. I'm a real family person!
+- Actors need steely determination. It's a tough profession with plenty of knocks along the way. You have to be very determined and never take 'no' for an answer.
+- For some reason, I just lack that ability to be embarrassed about going up to people. I even do it for friends if they want to ask someone out.
+- There are certain expectations that are put on you as a child actor, but mainly it's just turn up and say your lines with a lot of energy and a cute smile.
+- I'm totally in love with Jane Austen and have always been in love with Jane Austen. I did my dissertation at university on black people in eighteenth-century Britain - so I'd love to do a Jane Austen-esque film but with black people.

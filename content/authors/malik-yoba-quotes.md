@@ -1,0 +1,85 @@
++++
+author = "Malik Yoba"
+title = "Malik Yoba Quotes"
+quotes_len = "79"
+description = "the best 79 Malik Yoba Quotes"
++++
+- If you go back and look at the pilot of 'Seinfeld,' no one would have thought that show would be what it became, and television isn't given that kind of chance anymore.
+- I've directed web series, music videos, film shorts, and theater. It's just a hat I put on.
+- Being a part of 'Empire' was a wonderful experience and opportunity to work with everyone involved.
+- My mother ran away from my father after 16 years of being married to him. She was 16 when she hooked up with him. She left him after having six kids.
+- I fear no one.
+- To me, acting is simple. People put other things in front of it, but it's staying in truth.
+- A lot of times, we don't seek the help. If you come from a family where you might have been abused, a lot of times, particularly with males, regardless of what the ethnic background is there's a sense of like 'Just keep it moving.'
+- It's very rare that Black actors get an opportunity to do period pieces and to have a breadth of characters to choose from in their work.
+- It's always nice when you see an email in your inbox that says 'offer,' then you read the email and go, 'Oh, okay. Who's doing it, what's it about?'
+- It's not all about starring in a TV show for me. It's about being able to provide opportunity and employment for other people.
+- I've had the opportunity to work as an actor and tell stories that transform.
+- I've always had a lot of gay friends; transgender friends.
+- No matter what your dream is, first you have to think that anything is possible.
+- I'm proud to be part of projects that literally change lives.
+- I've never been the actor that's waiting for a job. I always have 15,000 other things going on.
+- When you walk among your own people and you know that they have a question about your integrity and everyone's giving you the side-eye, the people that used to give you the love, that's a very interesting feeling.
+- Sometimes you have producers tell you 'I'm a huge fan, I'm a huge fan.' But David Guggenheim, I have so much love for this dude.
+- The issues that black men face oftentimes are the issues that everyone faces. Do you have the ability to be present? Are you working on yourself? Do you understand what it means to be a man? To be responsible, loving, vulnerable?
+- If you do God's work, all your needs will be provided.
+- I know that my fans, who have followed me for years, want to know what I'm doing.
+- Fantasies are not always what people think they are.
+- My father kicked me out of the house by the time I was 16.
+- Even when I did 'New York Undercover' I put together a five-year marketing and promotional campaign to maximize the exposure of that show.
+- A lot of times people are caught between doing the things they have to do versus following their passion and I'm someone who, at a very young age chose to be of service.
+- At the end of the day, if you are an actor, you definitely know that you're just work-for-hire.
+- I knew that I wanted to create a restaurant like Hard Rock Cafe or Planet Hollywood that celebrated not just music or Hollywood, but who we were as people of color, as Caribbean, African, Cajun and Southern people.
+- I break rules all the time.
+- I believe in making your own opportunity.
+- A lot of the shows I have done, I'm often the only black guy and I have often had to play second or third fiddle. It isn't necessarily a bad thing if it is a strong ensemble cast. But I feel people have overlooked my abilities.
+- I've played lots of law enforcement agents, and I do have friends that are in the bureau, in the DEA, and who are detectives and captains.
+- I made some money, some real money on my first real estate transaction.
+- At the end of the day, people like drama - if everything is great, no one wants to hear about that.
+- I personally don't prefer acting and directing in something because I don't have the same objectivity.
+- I'm happy with getting older and getting more focused. I thought I was focused when I was young, but you're only as focused as experience will allow you to be.
+- It took me until my 40s to realize the five essential areas that are important to at least have a real dating chance. Obviously, beyond the physical compatibility, which is where we all start in junior high school, I think that intellectual compatibility and spiritual compatibility, emotional intelligence, and financial compatibility are important.
+- It's important to show that fathers do cook for their children. Mine sure did.
+- My favorite scripture is, 'Your gifts make room for you.' It's something I tell people all the time.
+- Film and television, one is generally faster. Television generally moves faster in terms of directing, schedules and getting things done. Film, you're on a pretty tight schedule, so the process is the dame.
+- Baltimore obviously has a lot of problems, but there are people there that have a lot of promise.
+- People think acting is just memorizing lines and doing facial expressions. No it's about traveling along a path of discovery, intention and connection.
+- People think that it's ok to degenerate and disrespect someone just because they're in the public eye.
+- Playing Martin Luther King Jr. was an honor for me on so many levels. It was the most I've ever prepared for a role.
+- When I'm doing a role the one thing I ask is 'Is this believable? am I being truthful?'
+- One of the reasons why I started creating my solo show is so that I have a place to put all of the accents that I do.
+- I'm a rabble rouser, man!
+- I think it's hard for anyone to get into real estate or Hollywood.
+- In my experience on 'New York Undercover,' where I played a dad, I was 26 years old, and I didn't have kids then. And at that time, it would blow me away that people said they became a better parent because of watching my role on that TV show.
+- We live in a world where mental health is real. Emotional health is real, and people feel like no one cares.
+- Baltimore and Detroit - they are solid cities.
+- My experience has shown me that many people struggle with forgiveness of self and/or others.
+- I used to walk in the burnt up Harlem of the '80s, and I'd look at brownstones that were dilapidated or apartment buildings, thinking 'Whoever designed this and built this did not want it to look like this.' So, I used to visualize one day being able to contribute and build in Harlem.
+- Being raised Muslim, we had to get up at the crack of dawn to pray. There was no sleeping in, no getting up Saturday morning to watch cartoons because there was no TV in the house. But you got up and you worked, cleaned the house.
+- For me, 'Cool Runnings' was amazing because I always wanted to bobsled and go to the Olympics.
+- I'm a dad; I started a program for young men when my first child was born.
+- As your life expands your focus expands or contracts.
+- I had a paper route at eight years old in Harlem.
+- When you do a pilot, you can't always tell what you have.
+- Most people haven't figured out when you are of service to other people outside of just yourself, the doorway for opportunity and blessings come in a very very different way.
+- At the end of the day, there's so much work that has to be done to impact positive change in any direction you look.
+- The things I'm most excited about are projects I'm producing. But if a director I'd love to work with calls, I'm always game.
+- As an adult I wasn't dying to participate in sci-fi projects.
+- Don't think because I'm a positive dude, I'm going to always say something nice. If you come at me crooked, one too many times or if too many people came at me crooked too many times in a row, then they're going to get it. I don't always exercise that self control and I don't regret it either.
+- Success is putting one step in front of the other to get through that door whatever that door is.
+- We didn't even have a T.V. in my house until I was 13. My dad called it the 'idiot box.'
+- Accents are definitely one of my strong suits, and a lot of folks don't know that.
+- I'm a very funny person that doesn't get the chance to do a lot of comedy, and the same thing with my accents.
+- It's hard to get movies made.
+- I'm doing work in the community.
+- I've always been an activist, so my participation in community outreach and helping is just a natural extension of that.
+- Fred Bumaye shows great promise as a young filmmaker with a passion for story and the cinematic language.
+- When you engage with people as an artist you know exactly what they feel and what they're thinking.
+- As a black man, you learn at an early age the police are not your friends.
+- I don't think it pays to just be an artist, particularly for kids of color - there will be fewer roles.
+- For me, I've always been an entrepreneur.
+- As I kid I watched 'Star Trek' and 'Battlestar Galactica.'
+- Food is very powerful.
+- If you tell yourself you can't, you're right.
+- I come up from a music background.
+- From a genre perspective and a character perspective, you know, sky's the limit.

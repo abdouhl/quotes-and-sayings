@@ -1,0 +1,62 @@
++++
+author = "Kimberle Williams Crenshaw"
+title = "Kimberle Williams Crenshaw Quotes"
+quotes_len = "56"
+description = "the best 56 Kimberle Williams Crenshaw Quotes"
++++
+- While many Americans agree that 'the system is rigged' economically, few are aware of the ways in which racial inequality has been structured and embedded in our society. This is why candid, fact-based discussions about racial inequality are so desperately needed.
+- Black girls are punished, many times violently so, for questioning and challenging authority, which is something that is often celebrated and encouraged as a sign of intelligence and critical thinking in white boys.
+- Some of the worst racist tragedies in history have been perfectly legal.
+- There are many, many different kinds of intersectional exclusions - not just black women but other women of color. Not just people of color, but people with disabilities. Immigrants. LGBTQ people. Indigenous people.
+- At the core of conservative social policy about race are old ideas that link racial inequality to non-traditional family formation and its attendant culture of poverty.
+- It's hard not to question whether the harsh verdict of Winnie Mandela is a reflection of discomfort with women warriors or, more broadly, with the militant ethos that ultimately became a foil for the popularized representation of Nelson Mandela as the open-armed father of a non-racial nation.
+- The point of feminism is you shouldn't have to be a man to be treated with equal respect.
+- Intersectionality is an analytic sensibility, a way of thinking about identity and its relationship to power. Originally articulated on behalf of black women, the term brought to light the invisibility of many constituents within groups that claim them as members but often fail to represent them.
+- While white women and men of color also experience discrimination, all too often their experiences are taken as the only point of departure for all conversations about discrimination. Being front and center in conversations about racism or sexism is a complicated privilege that is often hard to see.
+- Justice Scalia was a person who effectively bludgeoned the life out of the living Constitution, the Constitution that gave us desegregation, that gave us women's rights, that gave us environmental protections and political access.
+- School is now a place where punishment and discipline are prioritized over serving students and educating them. Any moment where a student falls outside scripted behavior becomes an opportunity for law enforcement to come in, criminalizing ordinary things people do every day.
+- Intersectionality is not easy. It's not as though the existing frameworks that we have - from our culture, our politics, or our law - automatically lead people to being conversant and literate in intersectionality.
+- Ideally, schools should be supportive environments for students. Unfortunately, zero-tolerance policies tend to funnel vulnerable students out of schools and into prisons, low-income jobs, and poverty.
+- Social media makes it possible to go underneath a story, which sometimes abruptly ends.
+- Black women's intersectional experiences of racism and sexism have been a central but forgotten dynamic in the unfolding of feminist and antiracist agendas.
+- When feminism does not explicitly oppose racism, and when anti-racism does not incorporate opposition to patriarchy, race and gender politics often end up being antagonistic to each other, and both interests lose.
+- Families, community leaders, and others must create the public will to address the challenges facing black girls and other girls of color as well by listening to them, valuing their experiences, and becoming actively involved in creating policies and innovative programs that promote their well-being.
+- Cultural patterns of oppression are not only interrelated but are bound together and influenced by the intersectional systems of society. Examples of this include race, gender, class, ability, and ethnicity.
+- I think it's important for the American people to know that the position of originalism isn't itself an originalist position.
+- 'Separate but unequal' didn't work in respect to race, it doesn't work in respect to gender, and it especially doesn't work when looking at the intersection of race and gender.
+- The better we understand how identities and power work together from one context to another, the less likely our movements for change are to fracture.
+- When you ask people to name victims of police brutality, for the most part, nobody will give you a woman's name.
+- Intersectionality has given many advocates a way to frame their circumstances and to fight for their visibility and inclusion.
+- The struggle against patriarchy and racism must be substantively robust and inextricably intertwined.
+- A lot of people think that intersectionality is only about identity. But it's also about how race and gender are structured in particular workforces.
+- Suspension and expulsion are tied to a host of short- and long-term consequences. For some students, zero-tolerance policies in schools lead directly to involvement in the criminal justice system.
+- Feminists must denounce the use of white insecurity - whether in relation to white womanhood, white neighborhoods, white politics, or white wealth - to justify the brutal assaults against black people of all genders.
+- People with problems are not problem people.
+- I have a wonderful, diverse, and young staff at the AAPF who pretty much work around the clock trying to figure out how we promote the idea that social justice requires us to be intersectional in our thinking and in our scope of vision.
+- In every generation and in every intellectual sphere and in every political moment, there have been African American women who have articulated the need to think and talk about race through a lens that looks at gender or think and talk about feminism through a lens that looks at race.
+- I think it's useful to recall that a lot of these statutes like 'disrupting the classroom' or 'disturbing the peace' have long been historically used to oppress and criminalize black people.
+- Censorship is certainly not the answer to controversial material and is inconsistent with our most basic constitutional values.
+- I think the O.J. Simpson trial was a revelation about the ongoing patterns of racial difference in American society.
+- We might have to broaden our scope of how we think about where women are vulnerable, because different things make different women vulnerable.
+- Intersectionality draws attention to invisibilities that exist in feminism, in anti-racism, in class politics, so, obviously, it takes a lot of work to consistently challenge ourselves to be attentive to aspects of power that we don't ourselves experience.
+- If you don't have a lens that's been trained to look at how various forms of discrimination come together, you're unlikely to develop a set of policies that will be as inclusive as they need to be.
+- We're never going to come to a moment where all of us who claim to be feminists can agree about what the first priority of feminism is.
+- Police violence against black women is very real.
+- What many people, I think, don't really understand is how much their rights really turn on the interpretation of the Supreme Court.
+- Having a monolithic view of feminism is suffocating.
+- We must all stand against both the continual, systematic, and structural racial inequities that normalize daily violence as well as against extreme acts of racial terror.
+- Our democracy cannot be left in the hands of those who would rather watch or participate in a train wreck than stop it.
+- Antiracists must acknowledge that patriarchy has long been a weapon of racism and cannot sit comfortably in any politic of racial transformation.
+- We are a society that has been structured from top to bottom by race. You don't get beyond that by deciding not to talk about it anymore. It will always come back; it will always reassert itself over and over again.
+- When we advocate for violence against women to be eliminated on campuses, we say, 'Well, actually, it's not just on campuses we have to worry about.' We might have to worry about high schools. We might have to worry about police precincts and cars. We might have to worry about public housing.
+- When people talked about O.J. Simpson being race-neutral, that was a race card. It just meant we don't think of him as black. But race-neutral is just like flesh-tone Band-aids. It's not neutral; it's white.
+- To never think about race means that it doesn't really shape your life, or more specifically, the race that you have is not a burden to you.
+- I think that the same kind of openness and fluidity and willingness to interrogate power that we, as feminists, expect from men in alliance on questions of class should also be the expectation that women of colour can rely upon with our white feminist allies.
+- We have to move back to the idea that education isn't about teaching people to bow to rigid rules. That's not what democracy is about.
+- In a true democracy, there has to be a line between deliberative debate and mob rule. Trump has crossed the line, and much of the media has exacerbated the problem by treating his remarks as entertainment, effectively encouraging his competition to do the same.
+- Sexism isn't a one-size-fits-all phenomenon. It doesn't happen to black and white women the same way.
+- 'Formation' and 'Lemonade' speak to experiences that are too under-represented in our culture. But there are costs to certain forms of visibility. I don't think it is a bad thing to discuss what these costs are.
+- The way we imagine discrimination or disempowerment often is more complicated for people who are subjected to multiple forms of exclusion. The good news is that intersectionality provides us a way to see it.
+- All too often, girls are ignored because their challenges aren't thought to be as serious as those faced by boys.
+- We must begin to tell black women's stories because, without them, we cannot tell the story of black men, white men, white women, or anyone else in this country. The story of black women is critical because those who don't know their history are doomed to repeat it.
+- Clearly, we must denounce militaristic approaches to global unrest and find life-affirming ways to end repressive cycles of violence rooted in discrimination, humiliation, and despair.

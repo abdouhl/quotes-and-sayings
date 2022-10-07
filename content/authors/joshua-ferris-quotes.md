@@ -1,0 +1,20 @@
++++
+author = "Joshua Ferris"
+title = "Joshua Ferris Quotes"
+quotes_len = "14"
+description = "the best 14 Joshua Ferris Quotes"
++++
+- My first job is to write a book that I believe is compelling and deserves the long sustained attention that any novel requires, and to worry about the commerce only late in the game.
+- The office is a romantic enabler because you're always around the person you have a crush on. There's no escape from, and maybe no desire to escape from, those pressure-cooker conditions. And there's an automatic series of things you have to talk about all the time.
+- Every time you hear someone read your book and liked your book, you're never sure whether that's going to follow with a similar remark from someone else. Perhaps I have low expectations, but whenever I hear someone say, 'I liked your book,' I don't know if it's going to happen again.
+- The main questions of everyday life are too enormous to answer in any definitive sense.
+- I come from a very illustrious line of divorces. We love to get divorced in my family. My mother and father have been married four times each - eight ceremonies with the best of intentions.
+- Everyone desires relationships and community. Most people want to belong to a cohesive, like-minded group. It staves off loneliness. It promotes identity. These are natural and very human instincts.
+- I think it's a very bad idea for someone to start writing for a readership.
+- I believe people think as a group more often than we might realize or care to admit. We like to believe that we act as individuals and nothing more, but time and again - in corporations and business, in politics and religion, in fashion and culture, and in friendships and social circles - we think and do as one.
+- I don't write directly on to the computer because I don't think well facing forward with fingers on a keyboard. I think better looking down holding a pen. And the concentration quotient of pen and paper is higher than when I'm moving words around on screen.
+- I have never stopped considering not becoming a writer.
+- Without work, so much of one's identity just evaporates.
+- I've always thought things were absurd. It would take a lot more effort for me to see things as reasonable.
+- After I left college I thought, very naively, that either you became someone interesting - an artist - or you went into academia. If you ended up in an office you were dull and lacking. And I ended up in an office.
+- One thing that I discovered about myself is I really don't like traveling. I feel like it's a terrible personal failing, but I was so satisfied to arrive at the conclusion.

@@ -1,0 +1,105 @@
++++
+author = "Neil Warnock"
+title = "Neil Warnock Quotes"
+quotes_len = "99"
+description = "the best 99 Neil Warnock Quotes"
++++
+- The players is what I enjoy, the training ground, making players better and believing in themselves because you can make a difference.
+- When you're younger, you worry about the sack and getting abuse and things, but when you get to my age, you become less bothered about those things. It becomes more like a hobby and less like life or death.
+- As far as I can tell most people in football do not take colour into account when judging people. I certainly don't.
+- I would like to apologise to anyone who has put a bet on me becoming the next Scotland manager.
+- Maybe we have more young English players than people sometimes think. They just need a chance to show their ability.
+- I remember when I was younger I used to sing that Beatles song, 'When I'm 64', and think that's light years away for me - I was 18 when it came out. Now here I am.
+- Older players who have experienced failure in the past can sometimes be held back by the fear of it happening again, young ones just want to go out and play.
+- The chairman, Mehmet Dalman, he was brilliant for me. He helped me left, right and centre, he lives aboard now but he was my shoulder.
+- No disrespect to Cardiff but they probably needed me more than I needed them, when I was appointed.
+- In football you never know what's around the corner, but by sticking together - directors, management, players and fans - we can look to do something.
+- It's difficult to motivate yourself to do the workouts when you get older but I train hard.
+- You need good staff with their own opinions - Mick Jones has been a great No 2 as he's not a yes-man - but at the end of the day the buck stops with you and the good managers are the ones who make more good decisions than bad.
+- It's good to see Graham Alexander back in the game. He was such a tremendous professional as a player so I know he'll give management his best shot.
+- My biggest achievement at Cardiff is bringing the whole club together in my two years here.
+- My three-course meal would be: smoked salmon with capers and a few prawns on there as well. Then it would be a dover sole grilled on the bone with a portion of green beans. And if I wasn't dieting or looking after myself, my favourite pudding would be bread and butter pudding with custard, ice cream and clotted cream all together!
+- As a manager, you know you're going to take the brickbats from other clubs and their fans. But I do enjoy making my own fans happy.
+- I love the way the Cardiff fans get behind their team, which is why I do that clenched fist action at the end of games. They get really up for the match, I can hear them and I just help offer my own support in return.
+- As a manager I always trusted my players on Christmas Day. I did not see any point in dragging them into the training ground - a three-hour round-trip for some of them on icy roads - when they could relax with their families instead.
+- At Plymouth I wrote 'Neil Warnock's Wembley Way', a one-year diary, to show people what being a manager was like. I got lucky as the year ended with us winning promotion through the play-offs at Wembley.
+- However successful someone is in their field of business, and however well-meaning and hard-working, it is difficult to come into football and immediately work out how the industry works, who to trust, what to do. That is the sort of role I think I can fill.
+- There's got to be a role for an experienced football person helping the manager; not being a threat to the manager, but helping and sorting out a lot of the hassle he has, you know? Letting him concentrate on managing the football side.
+- I wanted to retire at 55. Now at 61 with two young kids, I want to spend a bit of time with them.
+- Football is a relatively small industry and there are times, while you want to be honest, that it is best to pull a few punches. You never know, you might need to work with that person again.
+- People just do not realise what a football life can be. Since 1968 I've never had more than a few weeks out of work, when I left Sheffield United and I have not had a Christmas.
+- It doesn't bother me what division I am managing in.
+- I can't replicate how I feel when that whistle goes on nights like that, knowing you've won it, that people are going home smiling. You don't get that sat on my tractor in Plymouth or doing the shop in Tesco.
+- But referees have to remember there is a reason managers are being nice to them - we're hoping that it just might make the difference when there is a borderline decision.
+- There is a version of me people see. I don't think I play up to it, I think it's more other people put it out there. People see the football side of me, but I'm a different character away from it.
+- When I joined QPR in March 2010 we were rock bottom and heading for League One. We conceded too many and didn't score enough, which was a recipe for relegation.
+- But the art of management has not changed. The art of it is still 80 to 90 per cent man-management. It is just a matter of getting the best out of what you have got.
+- I never thought I'd rather watch England's cricketers batting for a draw than their footballers in the World Cup but it was a lot more exciting.
+- Once, I used to have the local reporter on the team bus and I'd tell him everything, so when he wrote about the club he was informed, even if he couldn't print some things. Those days are long gone.
+- The sack is a sad fact of life for football managers. I have been axed three times. The chairman at Notts County was on record as saying it's the worst thing they ever did. Within a couple of years they were one game from losing league status.
+- My son William and my daughter Amy are both really into their hockey now and I can enjoy watching that.
+- It's suggested I am big pals with Willie McKay. Am I? I don't think I am. He is an agent. You need these agents if you want to do a deal.
+- As I found at QPR, a club in the process of a takeover is paralysed.
+- For a lot of young managers, especially those who have not played at the top end of the game, there is also a financial need to work. Some of them could find employment in another field, but you can't beat making a living out of something you really enjoy doing.
+- Working at Palace was one of the happiest episodes of my football career, even though the ending was one of the most upsetting and traumatic.
+- Trust is a big word for a manager. You expect certain standards and attitudes and they know if they lower those standards, I'll jump on them.
+- When I do pack it in, there's plenty for me to do down in Cornwall. There are some decent local teams, like Bodmin, that I'd like to go and watch.
+- It's not an easy challenge picking up players in January, I've always found it tough. Clubs don't want to release their better players.
+- Everyone wants to be loved and liked - but you can't be as a manager.
+- I had a player once whose wife had twins and one of them was in and out of hospital for a year. You just have to give people as much time as they need.
+- It is a fine line between communicating and being too chummy. My players, when I've been promoted, have been upset by top-flight refs being mates with opposition players.
+- I like soppy films, sentimental stuff with children.
+- I used to think you needed a passport to go south of Watford. But when I came to London the people were fantastic, so good, right down to earth, my kind of people.
+- Personally I have not encountered racism at matches, or in clubs I have worked in, for many years.
+- I am finding I have to watch what I am doing otherwise I may as well be in full-time football again and, while I'm available if something interesting comes up to take me to the end of the season, I don't want a long-term commitment at this stage in my life.
+- I've played for managers who said one thing and did another and players find you out like that. You've got to trust them and they've got to trust you.
+- Not that I am saying I will never manage again. I want to spend more time with my family and, since we live in Cornwall, that rules out most long-term options.
+- You can only go so far in the Premier League before you have to spend.
+- Sometimes when I'm watching managers on television and I see all that anxiety I realise that I don't miss the job as much as I thought.
+- When you're younger, you have three or four bad results and you worry about everything. You worry about injuries, because they always seem to be your best players.
+- When people say things about me, I'd love to come back and give my version, but I'd rather let others spout off until the time is right.
+- In the intervening 48 Christmases I have always either been a player, having to watch what I eat and drink, or a manager, worrying about what my players are eating and drinking, plus who is going to cry off tomorrow, who is suspended, who is carrying an injury, and the million-and-one other questions that fill a manager's every waking moment.
+- I don't have a desire to prove people wrong, as such, because if you take a look at my Premier League record it's not too bad.
+- My teams have never been supposed to be able to do the things that they do.
+- It's easier to sit at your desk and have a bun, but I've been really disciplined because I feel like I have to give myself a chance. You can't let yourself down on that. You have to be mentally sharp in this Premier League.
+- After more than 30 years in the dugout I have come to realise there is a need at many clubs for someone who can act as a link between managers and owners.
+- I'm glad to see goal-line technology working; we should have had it for years. I do believe we will soon see managers being allowed one, or two, challenges.
+- It's the last question mark against me in my career. Why couldn't I keep a team in the Premier League.
+- That's what you want to do as a manager, finish the game, get in your bath and think about the kids going home, the young kids going home.
+- I enjoy working with players who want to work and I get more satisfaction with that than ready made teams or players.
+- I've been fortunate most of the seven promotions I've won have been with sides I built from zero, so it is doubly rewarding. There is nothing to match being in the dressing room celebrating promotion after a long season with a group of lads you have put together.
+- I was fined £20,000 for TV interview where I barely said anything. The FA brought an outside barrister in to do me. A big place like the FA, they don't have their own in-house lawyer?
+- I've been looking forward to going back to Huddersfield. I was manager when the club moved from Leeds Road to the new stadium and it contributed to us getting promotion.
+- You do understand when you get into management that you will get the sack at some stage, but that never puts people off trying again.
+- I love poetry and I've kept everything I've written.
+- I find the quality of the officials in the Premier League so much better than the Championship.
+- On the plus side, leaving Leeds meant I have been able to spend a lot of time with the family, enjoying a very rare summer off and my first Christmas without work worries since I was a teenager. I was also able to accept an offer to work with BT Sport.
+- I would like to wish Harry Redknapp the best of luck filling my old seat in the dugout at Queen's Park Rangers. It was one of the achievements of my managerial career getting QPR back into the Premier League after a 15-year absence and I would be very sad to see them go back down after all the hard work the players, staff and myself put in.
+- The way that I am, most of my time as a manager has been putting fires out and I don't enjoy dealing with chairmen and owners but I know it's part of my job.
+- Apparently I have 12 league games to go to get 1,500 and that is really tempting to me.
+- If you are a manager with a new owner who has more ideas than knowledge, all you can do is get your head down and do your best, which is what Malky Mackay did at Cardiff.
+- Neil Etheridge in goal and Nathaniel Mendez-Laing, they've both come from lower league clubs and done brilliantly.
+- I have spoken to refs after games, just to ask about something that had occurred during a game. It's always been off the record and I've never had a ref not answer.
+- There's two or three managers I can't stand. I detest them and they know that.
+- If I want another job, I'll get one. I haven't set a date of when to stop managing.
+- The report I remember most vividly from school is the one I destroyed before I got home, telling my parents I'd lost it. Three words stood out, and still do: 'Must try harder'.
+- A few eyebrows have been raised at Adel Taarabt joining Milan. Having worked with Adel for two years, I am not as surprised as most people seem to be. He is a player of immense ability and, if he is handled right, and motivated himself, he can win games at any level.
+- I can't say I ever got to the stage of swapping phone numbers with refs, but I don't have a problem with managers and referees communicating.
+- I don't think it is wrong to have a bit of banter with refs. My Dad would always manage games by talking to players and so did I when I reffed.
+- Who's been with me longest? Kevin Blackwell. I signed him as a goalkeeper at Scarborough in '86 and he's basically been with me my whole career. He's been my goalkeeper, reserve goalie, now my assistant manager.
+- People talk about flip charts, tactic boards and other rubbish like that. But the truth is that as a manager you just need to get the best out of the players at your disposal.
+- My son William is only nine but he's had four public schools so far, one in Cornwall, one when I was at Sheffield, one in Beckenham when I was at Palace.
+- Most of the clubs I have had, they have been in a precarious situation when I have taken over and I have had to change it, even going back to Scarborough and all that.
+- If you look at my past in the Premier League, without going into too many details, I don't think I had much of a chance at any of them, for different reasons.
+- Ask anyone in the game: if you want a player from France or a French player, 99 per cent of the time, you will have to deal with Willie McKay or someone like him. If you want to get the job done, then you need the Willie McKays of this world.
+- I tried to download a jazz album this week and ended up getting some tracks four times, some once, some three times; in total I ended up with 50 tracks. I don't know how I did it.
+- I'm not sure I will watch a lot of professional football once I've retired.
+- I do like reading autobiographies, if I'm honest.
+- Statistics can be so misleading. It is funny, though, how often at the moment you see one team had 60 per cent of the ball but still lost.
+- Oh, I love Cornwall, it's so special. We bought the house when I was with Plymouth Argyle and we've just kept that on and kept modernising things.
+- If there is one thing worse for a manager than having an interfering owner it is uncertainty over the ownership.
+- I don't think the authorities realise how much fans in general invest in their clubs.
+- Older readers will remember there used to be matches on Christmas Day. I remember leaving the fireside and the presents to watch matches on the day as a boy but such matches were rare by the time I began playing.
+- Everyone says teams should work harder when they are losing but sometimes that makes it worse.
+- As for myself, you never know what is round the corner in football.
+- I like experience in my side, but you need a balance and young players give you energy, pace and, often, a freshness which means they have no fear.

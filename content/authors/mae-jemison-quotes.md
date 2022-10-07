@@ -1,0 +1,65 @@
++++
+author = "Mae Jemison"
+title = "Mae Jemison Quotes"
+quotes_len = "59"
+description = "the best 59 Mae Jemison Quotes"
++++
+- The reality is the majority of us will not get off this planet. So the long run is, some kind of space exploration has to benefit us here on Earth.
+- The drills we do, where you're telling kids to memorize things, don't actually work. What works is engaging them and letting them do things and discover things.
+- I've gotten this advice at different times, and it distills down to one word: purpose. Why are you here? When you start to get distracted by thoughts such as 'Do I fit in? Does this person like me?' - remember why you're there and what you want to accomplish.
+- I wanted to be a professional dancer for a period of time, and I did a lot of dancing and choreography and got paid for it.
+- I like to think of ideas as potential energy. They're really wonderful, but nothing will happen until we risk putting them into action.
+- To survive as a species on this planet, we're going to have to see ourselves as Earthlings.
+- We look at science as something very elite, which only a few people can learn. That's just not true. You just have to start early and give kids a foundation. Kids live up, or down, to expectations.
+- A big part of engaging kids in science is not getting the single, correct answer; it's being willing to work with students to discover the correct answer.
+- In space, you need to exercise your heart since it's not pumping blood around at the same rate.
+- When I left NASA, I was looking at how you could use space technologies for developing countries' work.
+- In fourth grade, I was interested in all areas of science. I particularly loved learning about how the earth was created.
+- For me, it was really a childhood dream coming true. It's sort of where the fantasy led reality, and then I got to be on the Starship Enterprise anyway. And the cool thing was - is I was the only person on this bridge who had actually been in space.
+- You have to actually be weighted to something to do the moonwalk, you know.
+- Intuitive versus analytical? That's a foolish choice. It's foolish, just like trying to choose between being realistic or idealistic. You need both in life.
+- I was a science fiction geek. That lets you know that they come in all sizes and styles, right?
+- People like space. But they sometimes have been left out. People are much more open to that if you invite them in.
+- I believe the biggest impediment we have right now with going to Mars is public commitment. More people need to see themselves as a part of space travel; we need to see more inclusiveness.
+- The fact we don't have a lunar base has nothing to do with the technology. It has to do with public commitment and societal support.
+- As an astronaut, you have a very defined set of tasks to do. Those tasks may require you to work 60, 70 or 80 hours a week.
+- Timidity does not inspire bold acts.
+- I want to make sure that that future that we're creating is one that is the best it can be for people around the world, and also one that includes the full range of our talent and our skills - and, you know, gender and ethnicity, geography - to solving the world's problems.
+- The biggest challenge we all face is to learn about ourselves and to understand our strengths and weaknesses. We need to utilize our strengths, but not so much that we don't work on our weaknesses.
+- What we find is that if you have a goal that is very, very far out, and you approach it in little steps, you start to get there faster. Your mind opens up to the possibilities.
+- I'm not somebody who gets teared up or anything, but I still look up at the stars, and it gives me hope, and it gives me energy. I think one of the things that we have to think about it is, we are all a part of this universe.
+- Some of the most fun people I know are scientists.
+- The best way to get students involved in science and want to follow either science careers or incorporate it in their lives or to achieve science literacy is to expose them to the various jobs in STEM. It's broad from biologists to electricians to nanotechnologists to building fusion engines. It's a wide range of things.
+- I was thinking as a little girl growing up that I would be there. When I look at whether we can go to Mars, it's definitely something we can do.
+- The difference between science and the arts is not that they are different sides of the same coin even, or even different parts of the same continuum, but rather, they are manifestations of the same thing. The arts and sciences are avatars of human creativity.
+- I think science fiction helps us think about possibilities, to speculate - it helps us look at our society from a different perspective. It lets us look at our mores, using science as the backdrop, as the game changer.
+- Kids come out of the chute liking science. They ask, 'How come? Why? What's this?' They pick up stuff to examine it. We might not call that science, but it's discovering the world around us.
+- I went to school at night in L.A. to brush up on my engineering while I applied to the astronaut program. I really did not know if I would get in. It was the year after the Challenger accident in 1987.
+- People put themselves in difficult situations in lots of different areas. What you count on is people taking every precaution. The aerospace industry is unique in this aspect because a thousandths-of-an-inch mistake can cause spectacular failures.
+- I think that people need an adrenalin rush. Folks need something aspirational; they need to do something that is hard. That's what ignites the imagination.
+- The really wonderful thing that happened to me when I was in space was this feeling of belonging to the entire universe.
+- I'd love to go into space again if there were a mission to Mars. I'd also love to go to a completely different planetary system, out of our solar system.
+- Science provides an understanding of a universal experience. Arts provide a universal understanding of a personal experience.
+- My perspective is the Earth will be here. It just may not be habitable to our life form. We get confused. We think we're the center of everything.
+- I wanted to be a scientist, but I wanted to go into space. They are not mutually exclusive.
+- We are all tasked to balance and optimize ourselves.
+- When you have teachers saying, 'I don't have enough time for hands-on activities,' we need to rethink the way we do education.
+- Some people say they feel very small when they think about space. I felt more expansive, very connected to the universe.
+- There is a fascination with the idea that one has 'seen someone else do something' before one can achieve it. Maybe that's true in some cases, but clearly it is not a requirement. I knew what I wanted to do.
+- What I'm very concerned about is how do we bolster our self-awareness as humans, as biological organisms?
+- We put water down into the earth to push up gas, then we say, 'Ooh, we're having a water crisis.' This is foolishness, and this kind of foolishness, where we try to excuse human behavior, is dangerous.
+- Sometimes parents squash students' interests because they are afraid of science or math. So they don't participate. You don't have to know the answers to engage kids; you just have to let them know it's important.
+- When I was growing up as a little girl and as a teenager, I loved designing and making dogs' clothes and wanting to be a fashion designer. I took art and ceramics. I loved dance.
+- We have to change the way people look at scientists. Today, they are the nerds, the geeks. Instead, we want some of the cool kids to say, 'Hey, this is all right.'
+- One Hundred Year Starship really is about the idea that is we pursue an extraordinary tomorrow; we'll build a better world today.
+- I stayed in the astronaut program until 1993. People ask me why I left. I thought I had a lot of things to contribute that would be difficult to do if I stayed. I thought I could have a stronger voice as an advocate for space exploration. So I ended up starting my own technology consulting company.
+- Sometimes people ask me how difficult the astronaut program was, but being in Sierra Leone, being responsible for the health of more than 200 people, seven days a week, 24 hours a day, 365 days a year, at age 26 - that prepared me to take on a lot of different challenges.
+- I always knew I'd go to space.
+- When I was a little girl, I thought when I had an opportunity to go into space, I thought I would at a minimum be working on Mars or another large planet because we were doing all of these incredible things.
+- Everyone in the astronaut program has a degree in a science field. The crew are the ones who do the experiments, help to design some of the experiments that come from other primary researchers. So it becomes very important that you have a science background.
+- There are individuals who can support you, but frequently, you have to risk putting yourself out there - and sometimes you just have to push.
+- The level of confidence women are able to build in women-only groups is important.
+- I had great mentors in my parents who always sought to understand the world around them. And they would push me to really think things through.
+- The reality is that we know that this universe, that our galaxy, has billions of stars. We know that stars have planets. So the likelihood that there is life somewhere else to me is just absolutely there.
+- Seeing a full display of humanity involved in space is a game-changer for everyone. We've all looked at the stars; we've all imagined what was going on. Not everyone wants to go, but everyone wants to know what it's like.
+- I think we know how to do Mars.

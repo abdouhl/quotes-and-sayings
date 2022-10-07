@@ -1,0 +1,22 @@
++++
+author = "John Eccles"
+title = "John Eccles Quotes"
+quotes_len = "16"
+description = "the best 16 John Eccles Quotes"
++++
+- Many people, including myself, had our scientific lives changed by the inspiring new vision of science that Popper gave us.
+- A board constituted as the board of Sydney Hospital is constituted is not a suitable body to have control of an institute of medical research.
+- Changes in relative ionic concentration across the postsynaptic membrane are readily effected by altering the ionic composition of the external medium.
+- We and our fellow men of all countries must realize that we share this wonderful, beautiful, salubrious earth as brothers and that there never will be anywhere else to go.
+- I decided, as a medical student, to devote myself to a study of the brain.
+- I can explain my body and my brain, but there's something more. I can't explain my own existence - what makes me a unique human being.
+- The origin of each of us stems from codes of genetic inheritance.
+- To the brains of our predecessors we owe all of our inheritance of civilization and culture.
+- I came to realise that Darwinian evolution had no explanation of me as an experiencing self.
+- How we come to be, and how we are what we are, is beyond any understanding. I have been obsessed by this, trying to understand the very nature of my existence.
+- To the extent that we have a better understanding of the brain, we will have a richer appreciation of ourselves, of our fellow men and of society and, in fact, of the whole world and its problems.
+- I am passionately devoted to the study of life, and particularly to the higher forms of life.
+- I, at the age of 17 or 18 as a medical student, suddenly came up against a problem: 'What am I? What is the meaning of my existence as I experience it?'
+- The body and dendrites of a nerve cell are specialized for the reception and integration of information which is conveyed as impulses that are fired from other nerve cells along their axons.
+- England was a delightful and stimulating place for a young academic, although by present standards, the laboratory facilities were primitive. There were almost no research grants and no secretarial assistance, even for Sherrington.
+- Brain research is the ultimate problem confronting man.

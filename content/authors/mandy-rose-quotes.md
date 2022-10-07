@@ -1,0 +1,74 @@
++++
+author = "Mandy Rose"
+title = "Mandy Rose Quotes"
+quotes_len = "68"
+description = "the best 68 Mandy Rose Quotes"
++++
+- I love the focus on my looks. It's part of my character. It makes me who I am.
+- I didn't grow up dreaming of being the next WWE superstar, to be honest. But I think that it doesn't matter how old you are. When you see something you like, you want to pursue it.
+- That's the great thing about 'Total Divas,' is that it brings fans in that weren't already watching or wouldn't normally watch.
+- I'm lucky to have good genes, and life's all about balance.
+- Being on 'Raw,' being part of the first-ever women's Royal Rumble match and the first-ever Elimination Chamber was incredibly exciting.
+- Ever since 'Tough Enough,' and getting put on 'Total Divas' right away, it was kind of like I never stopped. I was like, 'Okay, now I need to get to the Performance Center.' I needed to train and get the wrestling down.
+- I feel like in general that if Mandy Rose won the title, it would be more relevant. I have what it takes to be that mainstream woman on every billboard, on every poster, on every talk show.
+- Mandy Rose, she has 'IT.'
+- I'm the youngest of four kids, with three crazy older brothers. Don't let this hair and face fool you - my brothers helped mold me into the feisty, tough woman I am today. I don't stoop down to anyone. I was raised playing football and being the punching bag for my brothers. I guess you could say that is the root of my aggression and athleticism.
+- I take a lot of pride in my brand on social media and the other brands that I work with. Social media is an amazing place and platform to communicate with your fans and supporters.
+- My first love will always be fitness, so I want to share that with as many people as I can.
+- Performing for live audiences and seeing the fans' faces is a thrill like no other.
+- Mandy Rose is basically an exaggerated version of myself. It's all about confidence. She's a bit of a mean girl and 'I'm prettier than you and better than you.' I'm not quite like that in real life.
+- Being brought in with Absolution and our mentor, Paige, I think it's really cool, and really full circle since she was our judge on 'Tough Enough,' and she hated me. She was rough with me, but I get it.
+- I was raised in an Italian-American family in the suburbs of Westchester County, just a little north of New York City.
+- When I worked at my father's deli in Carmel, New York when I was young, my experience waiting on customers and interacting with people all day taught me so many social skills and helped me open up.
+- Once I started training at the Performance Center, getting in the groove of the schedule, and really getting used to that, I really loved it because I'm big with routine.
+- When you see the Elimination Chamber on TV, it obviously looks intimidating and huge. But when you're there in person and inside it, it's a whole different ballgame.
+- Total Divas' was a great opportunity.
+- Sonya has opened up a huge light for me. Now that we travel so much together around the world, she's helped me open up and be so involved in the LGBTQ community.
+- I always watch my matches back 100 times afterwards because that's how I improve. This is something I've always done, even in NXT.
+- I played basketball, softball and lacrosse, also did gymnastics and danced for years.
+- You know my character, I'm obviously that sexy-hot bombshell that nobody else has.
+- Clearly, NXT has been blessed with amazing, one-of-a-kind athletes. Our talent have great figures, they're charismatic and beautiful in their own way. However, I am the total package.
+- When you get to the main roster it changes a little bit because you're more on your own, you fit in your training when you can, but it's hard.
+- After college I started training to be a wrestler which led me to the WWE.
+- I've always been very independent and driven to make my own money and to achieve my goals.
+- You've got to have charisma and other things in addition to athleticism. But I've got my background in fitness, I've done my training and put time in to develop my craft. So I can push the envelope with those seductive storylines but still show people that I can kick butt, too.
+- Why not mesh the brands more? I don't think there is anything wrong with that.
+- Reality TV has its perks and has given me a ton of exposure, not only in WWE, but also in mainstream media.
+- My brothers nicknamed me 'Hamburgers.'
+- I train five to six days a week, in developmental you're training in the ring and in the gym, so that's a crazy schedule. One you get to the main you're on your own and you do what you want.
+- With consistency and reps and routine you're going to achieve your goals and get where you want to be.
+- I didn't come from a wrestling background, but I'm just as passionate about this even though my path to get here was different than most.
+- The good thing I have to say about Sonya and I, even as a tag team we do get some opportunities for singles matches.
+- The NXT Universe is blessed to have The Golden Goddess of WWE, Mandy Rose.
+- I have the body, the face, the athleticism, the strength, the personality and the star quality. I have it all.
+- I'm the superstar that would go on 'Good Morning America,' and represent WWE as a company as a whole and be their woman.
+- Women are breaking down barriers, I'm so grateful and honored to be a part of it.
+- I want to show my support for GLAAD, and I'm so happy to be a part of it.
+- You can get a million different opinions from different people, but I always like to watch myself to see what I did and how I performed because the best critic is yourself.
+- It gets to be tiring and you want to get sleep instead of get up and go to the gym. So you have to balance your time and go by how you feel.
+- I've always wanted to get involved in beauty and skincare, and I'm so grateful that I'm able to because of hard work and determination.
+- Being in the final four of 'Tough Enough' has honestly been the best experience of my life. It's truly been an honor.
+- Being able to train and compete alongside the WWE - which houses some of the world's most talented athletes - is an amazing opportunity.
+- You land Saturday to get to the live event, I go right to the gym, work out, then we have to be at the venue at 5 P.M. for a 7:30 P.M. show. Then you drive to the next city which might be three or four hours away and you do it all over again.
+- It's such a more mainstream demographic that watches 'Total Divas.'
+- We're all about performing and giving our audience and our fans the best entertainment we can.
+- I trained my butt off and competed and got to where I wanted to be from rigorous training and dieting.
+- I always said, even in Developmental, 'Yeah, I'm the beauty and all that. I'm the hot one, the sexy one - but I also have the brains and the strength to back it up.' So, that was my biggest thing.
+- The reason I fell in love with fitness was because of the way I felt after a workout, even looking in the mirror afterward and feeling good about myself.
+- Walking out of that curtain and watching the reaction of the crowd, who may cheer for or boo you, is a kick. It's addictive and helps us put smiles on children's faces by being huge role models for young girls and boys.
+- I feel like our sport is the one sport that you can't really have without our fans.
+- We are foodies, we love to eat, my dad's a chef, and coming from an Italian family, we love to eat.
+- We're here for the fans. At the end of the day, that's what WWE is all about. If we can put a smile on their faces, we've done our job.
+- I was studying speech-language pathology at Iona College and I got my bachelor's degree there.
+- I am not only an athlete and sports entertainer, but also have a huge passion for fitness, beauty and fashion, so I am open to many different types of brands. When it comes to brands approaching me, I just need them to be very specific, to the point of what they want and need from me.
+- I went through all the rigorous training and dieting for my bikini training, but I also want to enjoy life.
+- My real name is Amanda Rose Saccomanno, so a lot of people don't know that, but Rose is kind of special in my family as my grandma's name is Rosemary, my mom's name is Mary Rose, I'm Amanda Rose, my niece is Demi Rose.
+- The meshing of the brands is great. I think it brings excitement. It brings anticipation of not knowing who's going to be on 'Monday Night Raw' or on 'Tuesday Night SmackDown' so I think it's really awesome.
+- I'm always in front of the camera, always traveling and getting out of airports and skincare is very important to me.
+- Being a WWE Superstar, you have - I don't want to say a short shelf life, but it's more like sometimes you've got to look to the future and you've gotta plan ahead. It's not gonna last forever.
+- My whole life, I've been called 'Just a pretty face,' or, 'You'll never amount to anything, you don't really have anything to offer, but your looks.' It's never defined who I am, I mean, I've heard it my whole life, it's nothing new.
+- I've been passionate about fitness my entire life, and the ability to compete for the 'Tough Enough' crown is truly rewarding.
+- Otis and I go way back to NXT and we've been friends since NXT, so it's very nice to know the person pretty well. You feel comfortable and I think it comes off more natural on TV as well, which is cool. He's obviously just so funny.
+- I am a big believer in balance.
+- We are on the road for 300 days in a year, no off season.
+- I feel like, yeah, why not do inter-gender matches? It brings entertainment. It brings a lot of different viewers and demographics and all that, so why not do it?

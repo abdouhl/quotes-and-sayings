@@ -1,0 +1,25 @@
++++
+author = "Nigel Dennis"
+title = "Nigel Dennis Quotes"
+quotes_len = "19"
+description = "the best 19 Nigel Dennis Quotes"
++++
+- I also had a tremendous passion for art and read a lot.
+- In The States I would have no edge, no advantage at all.
+- My first serious project was photographing badgers - very, very difficult as they are shy and nocturnal.
+- Photography started as a means of getting reference material for my paintings of nature subjects.
+- I would never dream, for example, of going to The States to photograph your wildlife.
+- I carry a notebook full of sketches of pictures I want to take - they are really scruffy sketches, but at least I am going out there with a clear objective.
+- I think few wives would have encouraged this kind of drastic and reckless career shift!
+- So about twenty years ago I gave up on painting - and got into terrible debt after buying a load of camera gear!
+- Even for an area I know well, I prepare a shooting list of subjects I need.
+- Big game photography in Africa is mainly done from a vehicle, so then I feel I might as well take the lot.
+- All I really wanted to do was wildlife photography.
+- For the first few years we lived in a tiny rented cottage at the bottom of a friend's garden. We often joked that there was plenty of film in the fridge, but not too much food!
+- A large wildlife book, start to finish, could take one to two years, but then I would expect to get several good (nature) magazine features off the back of this, plus of course a lot of stock.
+- I also like flyfishing - maybe I would have figured a way to make a living out of that?
+- For sure, all over Poland, kids had my picture of a lemur on their bedroom wall - but the chances are they may never get to see a real lemur in Madagascar. I thought this was great and it really meant a lot to me.
+- The Kalahari is brilliant - and easy to visit.
+- I hope to goodness I would not still be working in the corporate world - the money is OK but it is no life at all.
+- I concentrate on the southern African subcontinent.
+- Currently I am working on another three books, doing a lot of magazine work, am shooting for fifteen stock agencies, plus my own photo library - all this keeps me quite busy!

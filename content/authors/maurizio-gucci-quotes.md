@@ -1,0 +1,23 @@
++++
+author = "Maurizio Gucci"
+title = "Maurizio Gucci Quotes"
+quotes_len = "17"
+description = "the best 17 Maurizio Gucci Quotes"
++++
+- I was the only one to work seven years with my uncle, who is quite a difficult guy. With him, it's not living, it's surviving. If he does 100 percent, you have to do 150 percent, to show you can do as well as he does.
+- Tradition and culture go together.
+- Once upon a time the 'GG' was a status symbol. It was the reason people were buying.
+- You can re-interpret the past. Tradition can always be updated. But it is wrong to say 'throw it out.'
+- I would like to pass unknown in the company. I would like people to ask, 'What did Maurizio Gucci do?' And answer, 'Nothing. Gucci was always like that.'
+- The ones who give quality will be successful.
+- Fashion comes out of the world in which you live, your needs, hopes and fantasies.
+- My father always kept me in a very different world, a very simple world.
+- I know what I'm talking about, so that when I say 'do something' I have the respect of the people doing it.
+- My father was quiet and more artistic.
+- The number of items and stores has fallen, but Gucci has regained the up-market image that was in danger of being lost.
+- In the '80s everything was accepted and there was a kind of euphoria. The '90s will be the balance-sheet decade, and only those who give the consumer what they promise will survive.
+- Gucci is not a fashion or a design house, it was always a trademark.
+- From my father, I got more of the artistic, the human, the sweet part. From my uncle I really learned the business and the market. It's a good combination, no?
+- We don't want our customer to be advertising our name: we believe that the customer today is aware and wants to choose. Our signature is just a guarantee.
+- The story of Gucci is that there were too many cooks in the kitchen.
+- Aldo was the big strength, the big power. He would always scream at us because we took a holiday and he never would. He was a tornado.

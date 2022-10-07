@@ -1,0 +1,14 @@
++++
+author = "J. Donald Walters"
+title = "J. Donald Walters Quotes"
+quotes_len = "8"
+description = "the best 8 J. Donald Walters Quotes"
++++
+- Happiness is an attitude of mind, born of the simple determination to be happy under all outward circumstances.
+- There are realities we all share, regardless of our nationality, language, or individual tastes. As we need food, so do we need emotional nourishment: love, kindness, appreciation, and support from others.
+- Happiness is understanding that friendship is more precious than mere things, more precious than getting your own way, more precious than being in situations where true principles are not at stake.
+- The secret of happiness is the determination to be happy always, rather than wait for outer circumstances to make one happy.
+- Leadership is an opportunity to serve. It is not a trumpet call to self-importance.
+- You will find peace not by trying to escape your problems, but by confronting them courageously. You will find peace not in denial, but in victory.
+- In a sense, each of us is an island. In another sense, however, we are all one. For though islands appear separate, and may even be situated at great distances from one another, they are only extrusions of the same planet, Earth.
+- Happiness is not a brilliant climax to years of grim struggle and anxiety. It is a long succession of little decisions simply to be happy in the moment.

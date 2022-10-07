@@ -1,0 +1,106 @@
++++
+author = "Jason Mccourty"
+title = "Jason Mccourty Quotes"
+quotes_len = "100"
+description = "the best 100 Jason Mccourty Quotes"
++++
+- Me and Devin have never hid the fact that us playing together would be a dream come true. My mom kind of has hinted at that since we both got into the league. She knows it would be a lot easier only having to travel to one city during the season.
+- I know fans may not like it, but at the same time, I love to see a guy say, 'you know what, I don't want to be here, and I'm going to force them to trade me.'
+- We know that we carry the sickle cell trait, and we know we want to have kids, we want to reproduce, and the partner that we find, those are the questions we have to ask.
+- I'll never tell you I'm able to come to grips with 0-and-16.
+- We all should realize the significance of a human life and how we all should be treated.
+- I mean, I think from the competitive side, especially as a defensive back, you don't mind that pressure, going out there on fourth-and-15 or whatever the down and distance.
+- As an older player, I really look forward to and love being able to mentor younger guys and be able to help them grow as well as going in there competing and trying to win games.
+- As you get older in the league, being around younger guys who come in hungry and just flying around every day energizes the whole group. It gets you going. It gets you ready to practice.
+- Whether you're in year one or you're in year 12, every day you've got to show up with a willingness to compete and to prove that you belong there and a willingness to get better and listen to coaching.
+- You're always going to have somebody that's saying something about you in a negative form or fashion. I think for each and every individual you try to use that to push you, to motivate you whether it really meant something to you, whether it didn't.
+- That's honestly one of the blessings of having a twin who shares your interests. You kind of get this mirror view of what you're capable of.
+- When I first came into the league, I was in Tennessee and I had guys like Courtland Finnegan, Chris Hope, Michael Griffin - a ton of guys that were willing to pour into me and help me figure out how to be a pro, whether it was the defense, whether it was life off the field.
+- Corner is probably different from safeties and linebackers, but I think the important part is coming out each and every day competing, not only trying to get yourself better but also for us on defense pushing the offense as much as we possibly can so we can just improve totally as a team.
+- People often speak about legacy. And when they mention our legacy, I sure hope they don't only mention football.
+- We have to take advantage of the platform we have while we have it.
+- There's not one year to the next that you don't go through a number of changes, whether it's personnel, whether it's coaching, whether it's scheme.
+- I'm all about the cold tub. I'm big on the ice bath, being able to soak in there and let your body heal.
+- Understand who you are and what you're passionate about, and move in that direction.
+- That's kind of what motivated us our entire lives, to be able grow up and be able to give back and do things for my mother.
+- I've been blessed with health and an incredibly supportive circle of friends and family.
+- I think that's each and every week, you're always gonna start with the basics, the fundamentals. One, stop the run. I think beyond that once you start there you're always looking out what their personnel is, in which ways can they beat you and then you have to adapt and adjust during the course of the game.
+- I think ultimately to be able help with the holidays for somebody who might be a little less fortunate I think is the main thing and the best part of all.
+- Being able to watch my brother's success, it's been really cool.
+- No matter what the football season is like, no matter what you're going through with it, when you start to do things in the community and start to impact lives, it does make those successes or failures small in comparison.
+- I think for guys - you're going to have some people that are willing to be on the front line. You think of guys like Malcolm Jenkins, Demario Davis - guys that are willing to speak up and say, 'Hey, there's a problem, and I want to help change, and I want to be a vessel to keep this thing moving and see change.'
+- As I prepared for the 2009 draft, I vividly remember meeting with a prospective agent that told me if I put in the work, I could be a good special teams player in the league for a little bit. On one hand, thanks for the honesty, I guess. But I thought I might be capable of more.
+- Devin's a drama queen.
+- You paid attention to every cornerback that was drafted before you. You always tried to outperform those guys. And for me, that's always been in the back of my mind - starting with not being invited to the combine, of wanting to make sure I had a good Pro Day and then getting drafted at the end of the sixth round.
+- Honestly, I'm not a soccer fan. I'm not a golf fan.
+- I think it's important, no matter your profession, to never become complacent and always strive for greatness.
+- Let all your moments of self-doubt, fear or disappointment fuel your drive to be great. Because it will be in those moments of fear that we have to realize we must redefine success and what it means to us.
+- The reality of the matter is I'm blessed to be able to do what I can and to have this platform. For me, I'm going to try and do everything that I can to use that platform to help those who don't have the ability to spread their voice that people will hear them.
+- Being twins, growing up extremely close like we did, the one thing that you kind of always wish the maximum amount of success for your brother.
+- Us being twins, growing up extremely close like we did, the one thing you kind of always wish is the maximum amount of success for your brother.
+- As we search for change and seek for our voices to be heard, completing the census will help get us the resources we need.
+- There's nothing like a shake-up when you are on the street just training and everybody in the league is with their team engaged in offseason workouts.
+- It's very hard to win in this league.
+- It's been crazy to not only learn about the criminal justice system, but to see how it starts so young.
+- You put it in God's hands. You play your best. However it goes down, it goes down.
+- I want to be a part of something where I felt like I am wanted and where I feel like I'm part of a family.
+- Nobody cares what anyone did last year, whether you were good, whether you were bad, everybody has ambitions and aspirations for this year. But it really doesn't matter until you go out there and prove it and you go out there and do it.
+- Me and Dev both feel like we owe her the world. Mom singlehandedly raised us both.
+- Like, I've had full interactions with fans as my brother and they don't notice. Pretending to be Dev is easy. I just act like myself except much louder.
+- Brothers, inherently, are competitive, and twins take it to the next level.
+- My two brothers and myself never had to look outside of our house in search of a hero. We got to witness one up close every day.
+- I'm paid to play the sport I love.
+- Obviously with social media, everybody has an opinion on you. Somebody catches a pass on you in a game and suddenly you're the worst player ever to play in the NFL.
+- At some point, you're growing up and might think, 'If I can make a lot of money, I'll be successful.' You make some money and realize success isn't about that.
+- I was just trying to make it to a second contract before guys. I was trying to outplay guys on the field and trying to last longer than them in the league. I think all of those things go through your head when you're a late-rounder, and you're always trying to prove people wrong.
+- When you can attack legislation and get laws and the system changed, that's going to bring a real impact, but we can't expect that to happen overnight.
+- Before you have kids you can't even fathom what it really is.
+- We work extremely hard here to get better each and every day to put ourselves in a position to win games when the season starts.
+- I'm nervous before a preseason game I think. There's those same pregame jitters.
+- There's always something that's motivating you. There's doubt about something that's going on with you. Maybe it's not individually, maybe it's your position group, maybe it's your side of the ball. There's just always something that's going to push you.
+- We all want to do something special on the field. But at the same time, we have a responsibility to get to know each other and build on things that we can do in the community.
+- I've probably exceeded every expectation I had for myself, going into my rookie year of what my NFL career would be.
+- You always wanted to see your brother do well - score a lot of points.
+- I'm a guy that doesn't really care what position. Whatever one I can excel at and help the team is the one I want to be playing.
+- Obviously you want to contend for a Super Bowl.
+- I didn't think I'd be playing football at 31 so it's a blessing just to be able to come out here and compete.
+- When you have no kids, you can come home, play video games, watch TV. Now I come home and my wife is looking at me like, I want to get out the door. She's been with them all day. So, as soon as you come home, you're a human jungle gym, dancing, doing things with them.
+- I don't think we talk about the journey or appreciate it as much as we probably should. I think there will come a point in our lives when we will.
+- I think every step you take moving forward, and any type of success you have, you just want to cherish it for a second before you move on.
+- I had older guys take me in under their wing, make me come get in the cold tub with them, make me stay after and watch film with them, of just continuing to try to push me, and talk to me all throughout practices and games, trying to get my technique right, my knowledge and all of that.
+- I think that's the unique thing about our league is each year is a new opportunity for anybody to step up and make something of themselves.
+- For every negative comment you see on social media based upon standing up for something, there's somebody from back home that's telling me, 'Hey, I'm proud of you, man. Continue to do what you're doing.' Of course, you don't do it for that, but sometimes it's tough, man.
+- God is good.
+- Yeah, I think when you don't make it to the playoffs and you're watching those games, I think there's envy in every game you watch.
+- Some people don't believe in cold. I've gotten so used to it that I love it... and doing those things to get my muscles to bounce back and recover have been very beneficial for the longevity of my career.
+- I feel like I've been able to learn to get along and be able to connect a lot of people.
+- Mom, I guess for us, has been number one from day one.
+- It's so hard to compare one organization to another, just because there's a different way of doing things.
+- I think for the rookies, stick to what you've been doing, stick to fundamentals.
+- I think for us as people, when we can help someone with a blood transfusion, when we can help somebody with a monetary donation that can go towards research, to know that you can possibly save a life, it's huge.
+- I got drafted by the Titans in the sixth round. So I got drafted, but not by much. There's nothing guaranteed for a sixth-round draft pick.
+- I love this game and put a lot into it, but there's bigger things.
+- That's the reason we play this game - to make it to the tournament, and to try to win games once you get in it.
+- Our father passed away when we were young so mom was the mom and the dad.
+- It's always good to be back home.
+- Being able to put a smile on someone's face is way bigger than any amount of games you can win.
+- I'm nervous before every game.
+- Everyone in the NFL is an NFL player.
+- For me, when you're going in the late rounds you just always have that chip on your shoulder. At the end of the day, every team that didn't draft me - including the team that took me 203rd - everybody passed me a few times. And, for me, that kind of fueled me over the years.
+- In New England, winning isn't some bigger goal, it's part of a process. It's the expected result.
+- There's always going to be something from one season to the next that's going to be a challenge, that's going to have change, that's going to force people to step up, force different roles on people.
+- Everyone always says, 'Oh Jason helped Devin so much.' I think they say that so I don't feel bad he was a first-round pick.
+- Before you have kids, you can blow up and get mad, then you have kids and they teach you the opposite. You have to be patient when you're helping - whether it's with school work or potty training, it's a whole other level of patience.
+- The opportunity to play next to my brother is really a dream come true. As kids you dream it.
+- Good players should be signed and in our league.
+- Our careers are only but so many years, so when you have to wipe out an entire season basically because of injury it's kind of disappointing.
+- As an athlete, as a person, you are looking for motivation wherever you can find it.
+- You think if you make it to the NFL, it's a success. You make it there, but quickly you say, 'I want to be a starter,' and that becomes success. Then it's, 'I want to win a Super Bowl,' and that becomes a success.
+- I think that type of mindset, no matter if you're 16-0, you're rolling through the playoffs, no matter what the situation is, there's always going to be somebody that's doubting you or saying something about you. I think for certain guys individually, it may be something that kind of gives you that extra kick.
+- I just want to be somewhere where I'm wanted and an opportunity to compete and help the guys around me.
+- I'm very comfortable playing off-technique, playing press technique. I've just had to do it in so many different systems and switch up.
+- One thing I really believe is control what you can control so for me, each and every day I get an opportunity, no matter what if I'm with the ones, twos, threes, fours. If your number is called and you get a rep, make the best of the rep.
+- I think when you're younger in the game, you're like, 'Let me go bench. Let me go squat.' Now it's just like, 'Let me work on my balance.' It's about things that are more about injury prevention than getting stronger.
+- The reality is, player-fan interaction for the 2020 season is going to be very minimal. Something as simple as charity events guys do year-in-and-year out, probably won't be able to happen.
+- When you're twins, everyone's always looking for differences. The ones they see are usually wrong.
+- Daniel Jones is a guy who has some escapability, can get outside the pocket.

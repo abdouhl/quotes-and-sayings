@@ -1,0 +1,105 @@
++++
+author = "Asha Bhosle"
+title = "Asha Bhosle Quotes"
+quotes_len = "99"
+description = "the best 99 Asha Bhosle Quotes"
++++
+- I prefer films and dramas based on families and relationships - films which focus on love and harmony.
+- I have been singing since childhood and, over the years, sang songs from different languages from India and across the globe.
+- My mother was progressive in her thinking.
+- I have always been rebellious, but that is because I've wanted to do different things, try out new things.
+- I used to work from 7 A.M. till 3 A.M.
+- We have been using Ayurveda for generations, and it has been a vital part of the family.
+- I was too naive when I started out. It was hard to understand the workings of the industry. But rejection and ridicule pushed me to discover my individuality. I wanted success on my terms.
+- I always like to do something different in every song.
+- I was approached for acting roles when I was young. I had said that I look into the mirror every day and don't think my face suits for the big screen. So I will not do the films.
+- I enjoy keeping busy, and fortunately for me, there's a large audience out there who are keen to hear me sing. It's their love and affection that keep me going.
+- There is a gap between the heart and brain - that is where the soundbox lies. Some sing from their heart; others use their brain.
+- I cannot stand in one place and sing for three hours. By nature, I like to make things lively.
+- As a person and as a singer, I love to try something new. I like challenges.
+- Hindi film music has always been completely driven by the plot. We singers never had any say in compositions.
+- I never think about the past. Why waste time thinking about something I cannot change.
+- Cooking well, with love, is an art.
+- If you don't try out new things, then you will be left behind.
+- I hate a sleepy, nonresponsive, and silent audience because it fails to excite me as a performer.
+- I want to empower girls so that they are treated as equals to the boys in the country.
+- I never think about retiring - because you retire, you die.
+- Gulzarbhai is a very special artist.
+- I never regret any of the work I've done.
+- I'm not keen on films which depict a lot of violence.
+- In my opinion, anybody can sing. If they have a voice, they must sing.
+- I instinctively felt Pancham and Gulzarbhai were meant to make music together.
+- Cooking fills the stomach, and music fills the mind.
+- Those who are not trained singers will find that their voice quavers. That should not happen. The quaver should be used only where necessary and not because a singer cannot hold a note or a tune.
+- I always enjoyed singing and working with the late Kishore Kumar. He was a legendary playback singer, an actor, and a producer/director.
+- Take risks. Never say die. It has worked for me.
+- I take care of my skin, and I'm a teetotaller.
+- The music industry is an unforgiving place, and it shall unceremoniously show you the door if you can't perform to high standards.
+- Music makes illness retreat.
+- I have sung every song with the same dedication like I sang my first number.
+- It is unethical to promote old songs sung by new artistes, and the government should ban these things.
+- I have sung as many as 6,000 songs of various hues, be they classical, pop or folk songs. I have even performed free of charge for the Maharashtra government.
+- Ram Kapoor is a formidable actor.
+- I'm like a shark. I can't keep still. Some call me a workaholic.
+- I love to travel.
+- The Seventies was a golden period for music, both around the world and in India.
+- I can understand my popularity with the Indian diaspora, but I do get surprised when non-Indians recognise my music.
+- By now, everyone knows I do not just sing standing in the middle of the stage. I also dance and get others to dance with me.
+- I constantly need something new and challenging.
+- The truth is, I've got a naturally outgoing nature, and I still have a great love for experimentation.
+- If a biopic is ever made on me, Priyanka Chopra will be able to do justice to my character. She is not only talented, but I also like the way she conducts herself. I am happy that she is making her presence felt in Hollywood.
+- I'm mentally agile.
+- Every concert of mine is different in terms of song selection.
+- If we don't put some acting in a dance song, no one would be able to dance on it.
+- Let children come across good as well as bad things. MTV is unnecessarily criticised for dishing out obscenity.
+- I lost my childhood. When girls of my age were studying and playing, I was married off.
+- Initially, when I got into the world of music, I was treated like an underdog.
+- Many policemen have not completed their education, and the university can help them on this front. Education will enable them to speak well and politely to the people.
+- People forget how the same children brought up with affection, effort, and love are the ones who later kick their parents.
+- 'Nakhrewali' is one of my favourite songs.
+- In the studio, you can redo things. In concert, you only have one shot at it, so you have to try to be as perfect as possible.
+- I prefer selective memories. Some songs and some co-workers are all that I want to remember, as memories are not always so pleasant.
+- Music has given me great solace in my times of hardship. It has also brought me fame and wealth, and I owe everything to music.
+- My songs would be nothing had it not been for my father. I follow his footsteps.
+- With a live audience, if you sing with the right feeling, the response you get is a high, an excitement. There's nothing in the studio that can give you anything quite like that.
+- Songs are easy to remember because they have rhythm and music.
+- Singapore has always held a special place in my heart.
+- If you are already happy, music heightens your joy.
+- I believe in destiny and the philosophy of karma.
+- My rebellion has always been positive and connected with my work. That's how I've sung in foreign languages and collaborated with international artistes.
+- Songs, for me, are notes from the heart.
+- You cannot enter a studio and just start crooning before the mike. It is essential to understand the mind of the composer, mood of the song, and meter of the tune.
+- I have sung in over 20 different languages and enjoyed it. I have even sung in foreign languages like Spanish and Russian.
+- Most of my colleagues have been insulated in Indian music alone - they did not think of the world beyond what they knew - but I always did and still do.
+- I just hope that my fans continue to like my work.
+- Only when you know the nuances of a language can you sing a song well.
+- With singing, you get lost in the music - I go into another world when I'm singing.
+- When I began my career, I worked purely for the money.
+- I have sung in all languages, and so every people know me - Gujarati, Punjabi, Tamil, Telugu.
+- I've enjoyed my life. There has been great tragedy but also moments of great happiness. I've taken both in my stride, and if I were to replay my life, I would do it all over again.
+- Music is in all our minds and hearts and we are all free to sing anywhere we choose.
+- In the old days, all the movie songs were recorded right there on set.
+- I like to meet new people and learn about their cultures - new cultures.
+- We have to put expressions in a song when we sing it.
+- I have brought up my kids single-handedly. So a strenuous routine is something I thrive on, not shy away from.
+- I feel career women should avoid getting married.
+- I performed six concerts all over the U.S.S.R. during the time of Gorbachev. The entire audience was Russian. There were no Indians. Period. The audience turned out in large numbers and gave standing ovations to all my songs. They knew each song. That was an amazing experience.
+- Singing is my first love.
+- I have always believed Chandra Barot is a very talented director.
+- Acting is not my forte.
+- Acting is in my genes, since my father late Pandit Dinanath Mangeshkar was an actor.
+- Most of the people I work with become family friends.
+- I don't run after money or fame. The only thing I have always wished is to be a classical singer.
+- I love every song that I did with Pancham and Gulzarbhai.
+- Performing in each city is a different experience. But somehow, New York is unique. It is like performing in the entertainment capital of the world.
+- I am a restless person.
+- I have received many awards, love, and recognition.
+- Lata Mangeshkar is Lata Mangeshkar. Nobody can ever touch her.
+- I am thankful to all the people who have loved and listened to me.
+- There can be no technique or formula for creativity.
+- I am always active.
+- When you don't know how to pronounce words, when you don't know the meaning of the words, how will you imbibe a song with feeling?
+- I love to cook, and both Pancham and Gulzarbhai loved to eat. Gulzarbhai loves my karela ghosht and my Bengali kheer.
+- Every day of my life has been a challenge - from singing a song that is not my type to being asked suddenly to sing a classical song with no practice.
+- I used to like Mukeshji very much because his Hindi was excellent. It was very clear, and his pronunciation was excellent. No one could match that.
+- I went to London in the '70s and also visited Madame Tussauds there. At that time, the only Indian figure that was exhibited there was of former Prime Minister Indira Gandhi's.

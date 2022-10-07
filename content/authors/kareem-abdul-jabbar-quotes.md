@@ -1,0 +1,112 @@
++++
+author = "Kareem Abdul-Jabbar"
+title = "Kareem Abdul-Jabbar Quotes"
+quotes_len = "106"
+description = "the best 106 Kareem Abdul-Jabbar Quotes"
++++
+- You're never really cancer-free and I should have known that.
+- I tell kids to pursue their basketball dreams, but I tell them to not let that be their only dream.
+- Your mind is what makes everything else work.
+- A team will always appreciate a great individual if he's willing to sacrifice for the group.
+- I felt that a number of people might have questioned my loyalty, but I continue to be a patriotic American.
+- As a parent, I have a job as a role model to my children, and by extension, to other young people.
+- Islam is about finding your own space.
+- The extra pass and the extra effort on defense always get the job done.
+- I have always thought that writers come with any variety of attributes. Some are capable and some aren't.
+- I have to say I have an incredible musical education because of my father.
+- I think the NBA players have to be held accountable in a reasonable way, just like any other professionals.
+- I saw Islam as the correct way to live, and I chose to try to live that way.
+- I listen to jazz mainly. Mainstream jazz.
+- As brilliant an individual that Michael Jordan was, he was not successful until he got with a good team unit.
+- Michael Jordan and Magic and myself all learned how to play the game in college programs that emphasized the team.
+- You got guys now declaring they're ready to play pro ball in their second or third year of high school. It's crazy! They're missing so much.
+- Great players are willing to give up their own personal achievement for the achievement of the group. It enhances everybody.
+- The '80s made up for all the abuse I took during the '70s. I outlived all my critics. By the time I retired, everybody saw me as a venerable institution. Things do change.
+- In a typical history book, black Americans are mentioned in the context of slavery or civil rights. There's so much more to the story.
+- When the doctor told me I had cancer, I was scared.
+- If not shown appreciation, it gets to you.
+- I didn't really seek attention. I just wanted to play the game well and go home.
+- In athletics there's always been a willingness to cheat if it looks like you're not cheating. I think that's just a quirk of human nature.
+- Center is a very tough position to play.
+- The 3-point shot has created a situation in the game akin to 'Lotto' fever.
+- When the line started to blur between the fans and the players, sometimes things can get ugly.
+- You can't win unless you learn how to lose.
+- I always thought I could do a good job coaching, but the opportunities have not presented themselves.
+- I think black Americans expect too much from individual black Americans in terms of changing the status quo.
+- Reporters used to ask me the same inane questions year-in and year-out, city-to-city, and it would drive me crazy.
+- Fundamental preparation is always effective. Work on those parts of your game that are fundamentally weak.
+- Yoga is just good for you.
+- I am highly offended by the total lack of acknowledgement of my contribution to Laker success.
+- I was a baseball fan myself, I wanted to play baseball.
+- I'm the baddest among the bad guys.
+- I need about three seats lengthwise to sleep on a plane. It's not easy for me to curl up.
+- I was getting hot flashes and sweats on a regular basis. That's not normal, even for my age.
+- I want to do as little as possible when I finish playing ball - just spend a lot more time with my family.
+- I'm not comfortable being preachy, but more people need to start spending as much time in the library as they do on the basketball court.
+- The game has basically not changed since I ended my career.
+- I feel that there has been progress made since I was a boy on matters of race, but we have a long way to go.
+- I think race has been a burden for black Americans. Being Muslim has also been a challenge because so many people do not understand Islam.
+- I rooted for the Dodgers when they were in Brooklyn.
+- A lot of young players don't really know much about the history of the game and a lot of them are missing out on what the game is all about, especially the whole concept of sportsmanship and teamwork.
+- High school dropouts are forfeiting their opportunity to pursue the American Dream.
+- If not for the success that medicine has made, I might be part of a much different story right now.
+- Sports and entertainment are the only places where inner-city kids see themselves being able to succeed. Their intellectual development is something they don't relate to.
+- There are a lot of authors in the world, so it's difficult to find a unique niche to present your take on things. That is always a challenge for any author.
+- I enjoy seeing new places.
+- What I have is P.H. positive chronic myeloid leukemia, which is an aberration in your white blood cells.
+- I got all A's and was hated for it; I spoke correctly and was called a punk.
+- When we went up against teams that were better, I just hoped that we could steal the victories.
+- I can do something else besides stuff a ball through a hoop. My biggest resource is my mind.
+- I'm still my parent's child, I'm still me, but I made a choice. I evolved into Kareem Abdul-Jabbar. I think it has to do with evolution.
+- I feel like I've always been a full-time historian, but nobody knows it.
+- I've always tried to stay out of the fray and not be an object of controversy.
+- OK, I'll put it like this: I doubt if we will see another All-American basketball athlete who is a Rhodes Scholar.
+- I think a lot of people, if they get the opportunity to do some acting, they think, 'I might be a star.'
+- I think I really benefited from going to college.
+- The word 'leukemia' is a very frightening word. In many instances, it's a killer and it's something that you have to deal with in a very serious and determined way if you're going to beat it.
+- When I was 17, I worked in a mentoring program in Harlem designed to improve the community. That's when I first gained an appreciation of the Harlem Renaissance, a time when African-Americans rose to prominence in American culture. For the first time, they were taken seriously as artists, musicians, writers, athletes, and as political thinkers.
+- I hope to be involved in a successful movie script.
+- You have to be able to center yourself, to let all of your emotions go... Don't ever forget that you play with your soul as well as your body.
+- My biggest accomplishment has been making a transition from athlete to author.
+- Today's youth are told to get rich or die trying and they really shouldn't take that attitude forward with them.
+- I've never been a person to share my private life, but I can help save lives.
+- My health is fine.
+- Jackie Robinson, as an athlete and as someone who was trying to make a stand for equality, he was exemplary.
+- It's hard for young players to see the big picture. They just see three or four years down the road.
+- A lot of players think the game is all about individual performances when it's really all about a team game.
+- I wanted to play baseball!
+- One man can be a crucial ingredient on a team, but one man cannot make a team.
+- Well, I'm a professional.
+- I would suggest that teachers show their students concrete examples of the negative effects of the actions that gangsta rappers glorify.
+- I think the NBA will certainly survive without Michael Jordan.
+- Music rhythms are mathematical patterns. When you hear a song and your body starts moving with it, your body is doing math. The kids in their parents' garage practicing to be a band may not realize it, but they're also practicing math.
+- Practices were tough.
+- I try to do the right thing at the right time. They may just be little things, but usually they make the difference between winning and losing.
+- Cancer is a scary thing and you have to deal with it seriously.
+- I think I did very well against everyone who tried to defend me.
+- The transition was difficult. It's hard to stop something that you've enjoyed and that has been very rewarding.
+- I have been coaching recently. I coached high school basketball in Arizona, and I hope that more opportunities become available.
+- I think someone should explain to the child that it's OK to make mistakes. That's how we learn. When we compete, we make mistakes.
+- I think that the good and the great are only separated by the willingness to sacrifice.
+- I totally alienated some reporters as I retreated.
+- I expect more people from China and Asia to end up in the NBA.
+- I'm not exaggerating when I say that the 761st was Patton's best tank unit and nobody knew about it.
+- Five guys on the court working together can achieve more than five talented individuals who come and go as individuals.
+- Music is really something that makes people whole.
+- My grandfather and my uncle both died from colorectal cancer, my dad almost died from it and I have the gene for it.
+- When I was a kid, no one would believe anything positive that you could say about black people. That's a terrible burden.
+- Even when there are adverse circumstances, I try to do my job. And I usually do.
+- You can't win if you don't play as a unit.
+- This is what I would have done if I had to have a real job: I would have been a history teacher.
+- Black people don't have an accurate idea of their history, which has been either suppressed or distorted.
+- My mother had to send me to the movies with my birth certificate, so that I wouldn't have to pay the extra fifty cents that the adults had to pay.
+- The type of leukemia that I am dealing with is treatable. So if I do what my doctors tell me to do - get my blood checked regularly, take my meds and consult with my doctor and follow any additional instructions he might make - I will be able to maintain my good health and live my life with a minimum of disruptions to my lifestyle.
+- I want people to understand that I intend to continue living and doing all the things that I love to do up until the end. And the end is by no means rushing up on me.
+- I just like seeing the world, and it doesn't matter where.
+- My choosing Islam was not a political statement; it was a spiritual statement.
+- I pitched and I played the outfield.
+- My most memorable moment came in 1985 as we beat the Boston Celtics.
+- LeBron James can get a shot off under any and all circumstances and he makes them.
+- After practice, I would have to go back to the dorm and take a nap.
+- I'm not going to disappear.
+- I did a book in 1996, an overview of black history. In that process I became more aware of a lot of the black inventors of the 19th century.

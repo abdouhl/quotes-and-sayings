@@ -1,0 +1,61 @@
++++
+author = "Marisa Miller"
+title = "Marisa Miller Quotes"
+quotes_len = "55"
+description = "the best 55 Marisa Miller Quotes"
++++
+- I think you're kind of seeing the real me as far as seeing what I post on social media, because I am very much into cooking, and my dogs, and obviously my son, and my lifestyle in Santa Cruz is very laid-back.
+- People say you shouldn't eat carbs, but that's crap. I just try to stay away from white ones.
+- I'd heard that swimming feels so good when you're pregnant, and I love being in the ocean. I was even paddle boarding up until 17 weeks, but then my center of gravity and balance were completely off.
+- I don't know why, but it means a lot to get a compliment from a woman.
+- I always felt, even before I got pregnant, that it's better to accentuate your curves. A lot of women try to tuck their butt in or kind of slouch because they're trying to hide. Obviously, you can't suck it in, but it's important to really show off the belly.
+- Eighty percent of the things I do are not natural for my personality. I believe you have to fake it till you make it. Act like you're confident and you'll get there.
+- I'd say I was a tomboy... I took wood shop in high school and I was very into volleyball and football, and was very unaware of anything girly for a long time.
+- I think California has some very good looking women... I know Stephanie Seymour is from San Diego, and I know Josie Maran - who's my very good friend - she's from Northern California. So I think California produces some good looking women, for sure.
+- Leather is always sexy, and you have to wear leather when you ride a bike. It's more for protection, but it also gets you some style points, I think.
+- I love 'Guitar Hero' because I love music, but I have no musical ability whatsoever. So I love a game that makes you feel like you're a rock star.
+- I think there's a stereotype of what a biker is, and I think that's one of the reasons people are shocked when they find out that I ride. I've been trying to break down the stereotypes and inspire new riders.
+- If I'm going to have something rich and yummy, I'm not reaching for prepackaged brownies. I'm going to make a pie from scratch.
+- Yes, I receive fan mail. One of my favorite things to do is sit down and read the letters people write. It's really amazing the time people take to write these letters, tell their stories, draw pictures, etc.
+- I'm from Santa Cruz in Northern California, and the 49ers were my dad and I's bonding time.
+- I have two houses in California, and they're both within a couple of minutes from the beach. So, I definitely feel at home in California and by the ocean.
+- I box a lot, I spin and I surf. I try to mix it up. I obviously have to be in shape 24 hours and the gym can be super monotonous, so I just get outside and try to make it fun so my body doesn't get bored.
+- I was just so focused on being healthy for my baby during pregnancy, and afterward I was not in a rush to lose the weight. I really wanted to be as healthy as I could. It wasn't about getting my six-pack back. There are more important things in life than a six-pack, I realized.
+- I always wanted to represent the natural, healthy girl, and I didn't care if it was cool or trendy to look like you hadn't eaten in two weeks.
+- Surfing is definitely something I used to do a lot more before I was working, but I know the waves will always be there, and it's something that, when I'm not traveling as much, I'll definitely get back into.
+- A guy should be a guy. You don't want him to be too... shiny.
+- I love rock and roll. Sometimes I feel like I was born in the wrong decade because I love Led Zeppelin and Jimi Hendrix and... those are my bands.
+- The food and drink that goes along with football is one of the best things: hamburgers, hotdogs, chips and dips. At the stadium I would probably get nachos, but when I'm at home we order pizza a lot.
+- I think it's so important just to have confidence in your body. Everyone knows that confidence is sexy, and it's knowing your assets, your strengths, and just playing those up.
+- One of my favorite things to do is cook. I love taking the time to plan and prepare meals. I try to use all organic ingredients and make everything from scratch.
+- I personally don't like guys who are super-muscly and stacked and overdo it in that way. Having a natural, healthy body is the best. It doesn't mean you have to be a certain size, because everybody's different.
+- I had been asked to start going out for roles here and there throughout my career, but I know that acting is a hard thing; it takes a lot of work, and I was traveling. I didn't have the time to really focus on it, so I really waited for the right project to come along.
+- When I'm home, I cook and try to eat really clean. I try to eat vegetables at every meal. I stay away from pasta and bread and have brown rice and potatoes instead.
+- Working your obliques pulls everything together and gives you a slim waist.
+- You have to get over being shy, and just be comfortable with yourself, and I think that for me, if I'd stayed in a small town, I'd be a different person.
+- When I first started playing team sports, I was a little too sweet for my own good. I'd be in tears because I wasn't doing well. But the healthy competition really toughened me up.
+- Working out is not a luxury, it's a necessity.
+- I'm very down-to-earth and approachable, and I can be one of the guys and watch sports... I like to cook - I'm like the girl next door.
+- I'm very shy. I know it's weird for a person who models lingerie and swimsuits, but I don't like to be the center of attention!
+- When I found out I was pregnant, the first thing that had to go was the acne medicine and chemical-filled face washes and lotions. I made sure everything was natural and organic, and I started reading blogs by other pregnant women.
+- I love my fans! My job would not be what it is without them.
+- For acting, if there's a strong female role and there is that action element, for me that just feels really natural.
+- I'm from Santa Cruz in Northern California, and the 49ers were my dad and I's bonding time. We would go to games in the '80s. It was a good time to fall in love with football when your team was unstoppable.
+- I've tried to maintain a healthy image but not necessarily a size because as women, we're all different sizes. I go for being the healthy size; whatever that is for you. It's important to embrace that and love your body for what it is. Each woman has her own body.
+- I'll cook a batch of brown rice or quinoa and keep it in the fridge, so when I get hungry, I can easily dress it up with olive oil, lemon, and salt and pepper, and then add veggies.
+- I loved my second trimester! I didn't feel sick anymore and had more energy. My bloated belly turned into a baby bump, and I definitely looked pregnant. That was a relief because when I was around 4.5 months, you could see people having this inner monologue with themselves, wondering if I ate too much pizza or if I was pregnant.
+- Eating smart is all about having an awareness of your body. The most obvious way to do that is by seeing it. So when you're trying to lose weight, spend more time wearing less. I don't think I could eat a plate of nachos naked - could you?
+- All girls like guys who are tough. Obviously, riding a motorcycle - I don't want to say that there's a bad boy quality - but there's definitely a tough and macho thing about a guy who rides a motorcycles and that element of danger. That's really sexy.
+- I think my appeal is that I've always tried to stay very grounded to my fans and to be accessible - not being this unattainable thing. I think doing sports and riding motorcycles has made me more approachable and more real and down to earth.
+- I eat mostly organic, but I love macaroni and cheese, Mexican food, and egg-and-cheese croissants. So when I indulge, I eat protein and veggies for the rest of the day. It really is all about moderation and balance.
+- The first thing I do every morning is go online to check the surf. If the waves are good, I'll go surf. The beach is 10 minutes away.
+- I really wanted to be as healthy as I could. It wasn't about getting my six-pack back. There are more important things in life than a six-pack, I realized. It was just so much more important to take care of my baby and take care of myself in a healthy way; so now, it's been a slow process, but I'm back in shape.
+- Who isn't a fan of Jeff Bridges? And he is such a unique character. I can't think of anybody who's quite like him. He was a lot of fun to be around, just personally.
+- I'm definitely aware that the physical appearance is a very temporary gift. I'm very thankful for the opportunities that I've been able to experience, but I keep it all in check and don't let it consume me.
+- I don't starve myself. Anyone who knows me will tell you I have an appetite. I'd much rather work out and not diet than not work out and have to diet.
+- I have to have music playing constantly. It creates the tone and mood for anything you are doing. I specifically love rock, and Jimi Hendrix is one of my favorite artists. My favorite song is 'Red House,' because it's heavy on the blues.
+- My first trimester I was so exhausted. I could sleep 10 hours, then wake up, look in the mirror and still have eyes like a hound dog! I felt like the life was sucked out of me, no matter how much sleep I got. It was obvious that my body was really busy doing something else and 'beauty sleep' didn't exist anymore!
+- I was born and raised in Santa Cruz, California, and the whole lifestyle revolves around the beach. My parents met surfing, and the beach was a major part of our daily lives.
+- Enjoy the moment and appreciate what you have.
+- I'm really close to my parents and my sisters. It is awesome to have a built-in support system and people who love you unconditionally. I wouldn't be the person I am without my crew!
+- I've grown up watching football my whole life.

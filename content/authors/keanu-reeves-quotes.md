@@ -1,0 +1,69 @@
++++
+author = "Keanu Reeves"
+title = "Keanu Reeves Quotes"
+quotes_len = "63"
+description = "the best 63 Keanu Reeves Quotes"
++++
+- I've been really fortunate to be able to do different kinds of films in different scales, different genres, different kinds of roles, and that is important to me.
+- I just felt that if I went into Speed 2, I just... wouldn't have come up out of the water.
+- My name can't be that tough to pronounce!
+- I was always interested - I mean, it's kind of part of your job - I was always interested in the camera.
+- I don't know the law, the kind of law of quantity and quality, but I think the opportunity of people being able to express themselves and to have the means of production is a great thing. It's also changing how we're telling stories.
+- I mean, if you didn't get it or if you didn't feel like you enjoyed it, sometimes that experience can change.
+- I believe in love at first sight. You want that connection, and then you want some problems.
+- How do people relate to movies now, when they're on portable devices or streaming them? It's not as much about going to the movies. That experience has changed.
+- It's fun to be hopelessly in love. It's dangerous, but it's fun.
+- Eventually, it came to this place like, 'I'd like to direct, but I need to find the story to tell.' 'Man of Tai Chi' became the story to tell.
+- Money doesn't mean anything to me. I've made a lot of money, but I want to enjoy life and not stress myself building my bank account. I give lots away and live simply, mostly out of a suitcase in hotels. We all know that good health is much more important.
+- I think the form, the Hollywood movie, I think the quality is obviously always going to be there and I think that the question of taste, there's always a question of taste.
+- I think - I don't know, maybe it's nostalgia. But the choice, losing the choice to be able to use film is going to be - it's gone. It's going to be gone.
+- When we talk about how movies used to be made, it was over 100 years of film, literal, physical film, with emulsion, that we would expose to light and we would get pictures.
+- The truth is often terrifying, which I think is one of the motifs of Larry and Andrew's cinema. The cost of knowledge is an important theme. In the second and third films, they explore the consequences of Neo's choice to know the truth. It's a beautiful, beautiful story.
+- Artists are losing the choice to use film. People have a love for it - the grain, how it feels, the texture.
+- People were saying that David Geffen and I had gotten married and it just blew me away. Not that they thought I was gay, but that they thought I could land a guy that hot.
+- On a good night, I get underwear, bras, and hotel-room keys thrown onstage... You start to think that you're Tom Jones.
+- The whole aspect of cinema and film festivals should be a moment to come together and celebrate art and humanity. It would be a shame if there was such a divide.
+- But, you know, it's still a drag to get your picture taken when you're eating a sandwich. It's a downer.
+- Because we're actors we can pretend and fake it, but I'd rather the intimate investment was authentic.
+- I do think there must be some kind of interaction between your living life and the life that goes on from here.
+- It's easy to become very self-critical when you're an actor. Then you get critiqued by the critics. Whether you agree with them or not, people are passing judgment on you.
+- You know what, I'd done an interview show when I was like 16 or 17. One of my first jobs. I did interviews for this television show in Toronto.
+- Sure I believe in God and the Devil, but they don't have to have pitchforks and a long white beard.
+- I'm sorry my existence is not very noble or sublime.
+- I try not to think about my life. I have no life. I need therapy.
+- I had the classic 40 meltdown. I did. It's embarrassing. It was pretty funny. But then I recovered. To me, it was like a second adolescence. Hormonally, my body was changing, my mind was changing, and so my relationship to myself and the world around me came to this assault of finiteness.
+- I have definitely been curious and involved in the process; even as a young actor. I was always looking at where the camera was, what story it was telling. And as my experience grew, I wanted to know even more.
+- I've been pleased to work with so many wonderful stars through the years. This has been an amazing journey. I hope it continues.
+- I've had the opportunity to work with so many great directors. Different styles, as well, like Gus Van Sant. He just does the casting and the milieu and let's you do your thing, quietly. Bertolucci, who can talk to you about your internal world in quite a creative way or just say, 'Well, put your hand over here.'
+- Kissing someone is pretty intimate, actually very intimate, and your heart always kind of skips a beat before you do that.
+- 'Speed' and 'Point Break' were a lot of running and jumping, and then 'The Matrix Trilogy' had a lot of fights and wire work and green screen elements.
+- You want to play another kind of character in another genre, and it's been something I've been trying to do if I can in the career so far, and it's something I hope to continue because it's interesting to me and you get to do different things as an actor.
+- Basically it starts with four months of training, just basic stretching, kicking and punching. Then you come to the choreography and getting ready to put the dance together.
+- Here comes 40. I'm feeling my age and I've ordered the Ferrari. I'm going to get the whole mid-life crisis package.
+- When the people you love are gone, you're alone.
+- Mortality is very different when you're 20 to when you're 50.
+- Sometimes when you make a film you can go away for three months and then come back and live your life. But this struck a much deeper chord. I don't have the ability yet to speak about it in an objective.
+- It's the journey of self, I guess. You start with this kind of loner, outside guy, which a lot of people can relate to, and he goes out into the world.
+- It's always wonderful to get to know women, with the mystery and the joy and the depth. If you can make a woman laugh, you're seeing the most beautiful thing on God's Earth.
+- And of course to work with Jack Nicholson and Diane Keaton, and work with a wonderful, beautiful script directed by Nancy Meyers, it was really for me a dream come true.
+- I am waiting for the right story to tell. Just like 'Man of Tai Chi' just seemed to be the right story to tell. So I'm looking for that. Because I really love directing. I love developing the story. I love actors. I love the cinema of it, the way that you tell a story visually.
+- I mean, I went to a Catholic boys' school for a year, but that was to play hockey. Religion class was quite contentious for me.
+- I am not handsome or sexy. Of course, it's not like I am hopeless.
+- Letters are something from you. It's a different kind of intention than writing an e-mail.
+- I'm a meathead. I can't help it, man. You've got smart people and you've got dumb people.
+- I have a producing partner named Stephen Hamel, and we've been trying to generate material.
+- I used to have nightmares that they would put 'He played Ted' on my tombstone.
+- I'm a meathead, man. You've got smart people, and you've got dumb people. I just happen to be dumb.
+- Energy can't be created or destroyed, and energy flows. It must be in a direction, with some kind of internal, emotive, spiritual direction. It must have some effect somewhere.
+- How do I confront aging? With a wonder and a terror. Yeah, I'll say that. Wonder and terror.
+- But I think we're also just talking about the literacy of the audience. The visual literacy of the audience. They've seen so many images now, especially here in the States. There's so much to look at, to watch. So the visual storytelling literacy is harder to impress.
+- I loved the material when I first read it, and the experience of making the film was a great one. So when we came around to complete the trilogy, I just signed on board without even reading the scripts because the experience of the first film was so good.
+- When I don't feel free and can't do what I want I just react. I go against it.
+- Grief changes shape, but it never ends.
+- I want to make a good, solid kung fu movie.
+- But I did 'Bill & Ted's Excellent Adventure.' They made a cereal out of it, so once you've had a cereal, it doesn't get much more surreal than that. Surreal cereal.
+- Oftentimes, when we think of 3D, we think of things coming out of the screen, but actually, you've got this zero, this negative space, what they call the negative space, which is the scene, what's being filmed in the positive space of the audience. As you can have things come out, you can have all of this depth.
+- I'm Mickey Mouse. They don't know who's inside the suit.
+- The simple act of paying attention can take you a long way.
+- Falling in love and having a relationship are two different things.
+- I'm not a photographer, so I didn't get into F-stops or ND filters or background, foreground, cross-light, all that stuff. But I was interested in the camera and the lenses. That's the world that I'm moving in, in terms of acting and giving a performance.

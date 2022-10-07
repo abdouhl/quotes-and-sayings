@@ -1,0 +1,25 @@
++++
+author = "John Witherspoon"
+title = "John Witherspoon Quotes"
+quotes_len = "19"
+description = "the best 19 John Witherspoon Quotes"
++++
+- If I hit the lotto, I would be nowhere near the road. But I got bills to pay.
+- Being on the toilet stool is the grossest thing there is, to me.
+- I didn't change my voice for 'The Boondocks.'
+- St. Louis is an excellent city.
+- If something is too risque, don't watch it.
+- There's a real outcry out there for 'The Boondocks.'
+- The kids of America, please get a damn job. Get out of the house, leave the refrigerator alone. Stop wearing my shoes. Leave my shirts alone, get a job. Spend your own money.
+- When you're poor, an egg sandwich is dinner and you cut your potatoes with a butter knife.
+- I am old-school.
+- I'm every father. I'm not only a black father. I'm a white father. I'm a Chinese father. I'm a Mexican father. I'm all fathers that want their sons out of the house and stop eating up all the food. Get a job, please. Stop looking at the TV.
+- When you're hungry, everything tastes good.
+- In 'Boomerang,' they didn't have a script at all, they just told me to come up with some stuff.
+- I'm sick of all these boring cooking shows.
+- When we did 'Boomerang,' which is one of my favorite scenes, the whole dinner scene was ad-libbed.
+- That's my father's theme. Get up in the morning, 'hello, Dad.' 'Get a job, leave the food alone... Who took my car?' America, you young kids, get a job. All that sagging, the clothes hanging behind, that ain't nothing. Get a job. You want to be somebody, get a job.
+- The word got out that I can ad-lib very well.
+- I am cantankerous.
+- I always tell comics you got to hang with your stand-up.
+- My father was a preacher so I wouldn't sing at all when he was around, but as soon as he locked the door, 'La la la.'

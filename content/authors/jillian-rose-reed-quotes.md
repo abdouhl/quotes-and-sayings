@@ -1,0 +1,19 @@
++++
+author = "Jillian Rose Reed"
+title = "Jillian Rose Reed Quotes"
+quotes_len = "13"
+description = "the best 13 Jillian Rose Reed Quotes"
++++
+- Singing is more of a hobby than really something I want to do for a career. But I love musical theater, so I'm hoping I can go back to it and do a role on Broadway for a few weeks. That would be a dream come true. My dream role would be Roxie in 'Chicago.'
+- I do as many fun activities as possible. A lot of hiking, beach bike riding and walking. And cardio barre, which is a dance-based workout at a ballet barre. It's a full-body workout for one hour on Monday, Wednesday and Friday in a studio.
+- My biggest advice for high school girls is to not take yourself so seriously.
+- I will say that I do gravitate more towards quirkier guys. I always date guys who wear glasses.
+- When I was 12, I was doing competitive jazz, tap and ballet in Michigan. The studio put the best dancers together, and I joined that. We always did really, really well in local competitions.
+- Breakfast is Special K cereal. If I'm having a big meal, it's lunch instead of dinner. Some kind of wrap, like chicken for protein. For dinner, mainly vegetables. I mix it up if I go out to eat.
+- On 'Awkward,' we really like to send the message out that we're relatable, and that we get what people are going through.
+- I love to be outdoors, so I like to hike, bike and go to the beach.
+- I love Jennifer Aniston. I'm a bit obsessed with her. I also love Kristen Wiig, and obviously, 'Bridesmaids' is one of the funniest movies ever. I do have some of her 'SNL' skits that I've saved on my computer and stuff.
+- Don't get me wrong: I love social websites like Facebook and Twitter, but I think it creates way too many opportunities for young people to bully.
+- When I was in high school, I had already kind of been working in the industry and had done a couple of acting jobs. There were definitely some girls that were either jealous or thought I was a snob. I was just trying to be a teenage girl and go to high school and have fun like everybody else!
+- I don't drink any soda. None at all. Just water with lemon. If I need something different: iced tea. I don't have anything like protein shakes.
+- In high school, sometimes you just can't help who you have a crush on and who you fall for! If you fall for one of your friend's exes, for example, it's really all about communication and telling your friend. Hiding it is never a good thing.

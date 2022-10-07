@@ -1,0 +1,49 @@
++++
+author = "Gareth Bale"
+title = "Gareth Bale Quotes"
+quotes_len = "43"
+description = "the best 43 Gareth Bale Quotes"
++++
+- I love playing for Wales.
+- Between 12 and 14, I shot up a ridiculous amount. The muscles were struggling to stretch and grow at the rate my bones were growing. It gave me problems with my back and my hamstrings.
+- I always believed in my ability, but I think in any sport you need that little bit of luck.
+- There seems to be this thing in football where everything has to be... now!
+- I probably prefer Spanish football to the others. It's very technical, the way they play; they keep the ball well, and whenever Spurs have played against Spanish teams in the past, they've always made it difficult for us.
+- Playing with and for the best can only help you to improve.
+- I still mess around and joke with my family and friends like I did when I was nine or 10. For me, nothing's changed. Sure, I play football, but I try to keep my life off the pitch as simple as possible.
+- I'm a proud Welshman.
+- I play computer games, watch TV and do what normal people do.
+- When you play in the Premier League, say you're playing against a lower-end team, they set up to defend all the time, they set up to block you off. But when you play in the Champions League, all the other teams are used to winning every week, so it's more of an open game, it's more attacking, end-to-end.
+- As long as I'm playing week in week out, I'm going to become a better player.
+- I'm ambitious, I want to play in the Champions League, and that's the aim with Tottenham - to start qualifying for the Champions League on a consistent basis.
+- As a kid, you obviously dream of being a professional footballer. I would watch players like Ronaldo of Brazil and pretend to be him in the playground. But I don't think about trying to become one of the best in the world or anything like that. I just play football.
+- I'd say that La Liga is slightly more technical than the Premier League.
+- When I was younger, I had some close friends who always loved European football, and Real Madrid at that time were the dominant force. I remember family holidays when we used to go to Spain, and we'd bring back replica shirts of Real Madrid and pretend to be the players when we played in the park.
+- I was quite small; then I had a big growth spurt that led to a problem with my back, which stopped me playing for a while. My bones were growing too quick for my weight.
+- You've just got to keep working hard, keep plugging along. That's how great teams win more trophies.
+- You've just got to listen to what experienced people are telling you. You've obviously got to listen to what they want you to do in training and in matches and commit to improving every aspect of your game.
+- Whenever we're playing in front of a Welsh crowd, they really do give you that extra bit to get the win.
+- When you're a sub, it's a game of more than 11 players starting the game.
+- Whenever I get days off, I go home, or friends and family come up. I'm in contact with them every day, so it's like we live next door, but obviously we live in two different countries. Football is my job, and everyone around me has given me the opportunity to purely concentrate on football, and everyone else worries about everything else.
+- Now that sports science is more advanced, we know that there are so many off-pitch factors that can affect how good you can become. If people are telling you to sleep a certain number of hours, eat specific foods, and drink a certain volume of fluids, then you have to be prepared to listen and learn.
+- Everyone knows that I like to play centrally, where I can drift around. I like coming in off the right flank and having more freedom. I don't mind playing on the left, although I prefer playing centrally or on the right.
+- To represent your country is a massive honour.
+- I don't go out, so I don't get attention from girls. They're not going to have posters of me on their walls. I just try to get on with my life.
+- Anything is possible in football.
+- When I go on a pitch, I just try to enjoy it as much as I can. The more you enjoy it, the better you play.
+- My dad's the one who's always been there; he's my hero, you could say. Even when he was working, he'd do anything for me. He's been the biggest influence in my life.
+- Every second I'm on the pitch for Wales is an honour, and I love playing.
+- I was never too much into school. I liked lunchtimes and breaks, but nah, I hated sitting at a desk. I was always looking out of the window, looking at my watch, thinking about when I could play football.
+- I think La Liga is the best league in the world.
+- I've certainly not got any famous people's numbers on my phone. It's just not my thing, really.
+- It's good to have a bad season because you learn a lot about yourself; you become stronger, and you see where you have to improve.
+- The one player I have looked up to since I was a kid is Ryan Giggs.
+- I don't think you ever feel 100 percent throughout a season. If you ask any player, I don't think they ever feel 100 percent fresh every week.
+- Every time I pull on a Madrid or Wales top, I run myself into the ground.
+- I don't think I've changed since I was a little kid.
+- I like looking after my family.
+- The most important thing is to not waste your money.
+- I don't give much thought to individual awards.
+- My friends and family keep me grounded.
+- Once you win something, yeah, you enjoy it. But then it's on to the next game.
+- I'd say that Spanish football is probably the best I've seen.

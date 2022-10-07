@@ -1,0 +1,55 @@
++++
+author = "Jack White"
+title = "Jack White Quotes"
+quotes_len = "49"
+description = "the best 49 Jack White Quotes"
++++
+- The fact that we elected Obama was a sign that the black struggle inherent in the blues and so much of the music I have loved can triumph.
+- Some people remaster their records six, seven times, remix it three, four times, spend a million hours, then they always go back and hear a demo of it and they'll say, 'Aw that sounds so much better than the final mix.'
+- Playing drums feels like coming home for me. Even during the White Stripes I thought: 'I'll do this for now, but I'm really a drummer.' That's what I'll put on my passport application.
+- I have so much music inside me I'm just trying to stay afloat. I don't tend to write for a particular band - you have to just write the songs and then let God into the room and let the music tell you what to do.
+- I was in a Montessori school. There was a drum circle with all the kids passing around a little bongo drum. I was the last person in the circle, and when it got to me I played 'Shave and a Haircut, Two Bits' - in front of all the parents. Blew the crowd away at five years old.
+- I came up from growing up with a lot of Catholic guilt, a lot of punk rock, hipster guilt in the later years where I think people have thrown a lot of things on me. Where I always felt like I'm not supposed to tell the horn section what to play or I don't want to come off egotistical.
+- I've always felt it's ridiculous to say, of any of the females in my life: You're my friend, you're my wife, you're my girlfriend, you're my co-worker. This is your box, and you're not allowed to stray outside of it.
+- I grew up in the 90s in the time of grunge when if you didn't go on stage in jeans and a T shirt you weren't 'real.' That seemed ridiculous to me.
+- There's Catholic guilt about things, then there's the guilt of being the youngest of 10, so when nice things happen to you, you're not really allowed to enjoy them.
+- A lot of people in the media, and some everyday people, really aren't in search of the truth. They're in search of something worse than that. Money, yeah. I think the media's the kind of a thing where the truth doesn't win, because it's no fun. The truth's no fun.
+- The Guinness book is a very elitist organization. There's nothing scientific about what they do. They just have an office full of people who decide what is a record and what isn't.
+- I think the sensitivity that you need to create certain things sometimes would spill over into things that shouldn't have bothered me.
+- I want to be part of the resurgence of things that are tangible, beautiful and soulful, rather than just give in to the digital age. But when I talk to people about this they just say, 'Yeah, I know what you mean,' and stare at their mobiles.
+- With the White Stripes we were trying to trick people into not realising we were playing the blues. We did not want to come off like white kids trying to play black music from 100 years ago so a great way to distract them was by dressing in red, white and black.
+- I would never purposely sing a song about someone I love, I wouldn't want to embarrass them. But for someone I don't like... I would definitely do that.
+- We were like a white family from the 1920s or something. My parents had this bizarre, different way of looking at things from the people that surrounded us. I went to an all-Mexican grade school and an all-black high school, and not many people in those places liked the same stuff as me.
+- I really don't like to take the easy way out, if I can help it, on anything I do, I like to really make it a challenge. I don't know how to create by taking the easy routes. I've tried, you know, I've tried to let myself, but I always struggle to compensate.
+- This generation is so dead. You ask a kid, 'What are you doing this Saturday?' and they'll be playing video games or watching cable, instead of building model cars or airplanes or doing something creative. Kids today never say, 'Man, I'm really into remote-controlled steamboats.'
+- That's what happens nowadays with people working on computers. They can so easily fix things with their mouse and take out all the, 'Oh, somebody coughed in the background; we need to take that out' - or somebody hit a bad note. Those are all the best moments.
+- I wanted to be able to talk with people who have trade jobs and make records with them. I want to do more records with carpenters, electricians, people who specialize in even more bizarre trades that are off the beaten path.
+- I've always loved the word blunderbuss. I've always thought that it was a beautiful word and that it could mean several different things.
+- I won't join another band again.
+- I think it takes a lot of trickery to keep up with the media and its perception of you. I don't know if I have it in me most of the time to care. The music is made first, and the interviews or photos to keep it alive come later as a necessary evil, I suppose.
+- I certainly wouldn't want a song that I'd already written to be used on a commercial. That seems strange.
+- I just think old old movies, they make you concentrate and pay attention so much more. They feel so warm. A lot of modern digital videotape, it's just too bright. Don't know why, it's not warm.
+- If you want to put out a million CDs and sell them and get them played on the radio, and even videos, or whatever, if that still exists, that kind of muscle can only come from a label like Columbia.
+- We have a secret project at Third Man where we want to have the first vinyl record played in outer space. We want to launch a balloon that carries a vinyl record player.
+- Nowadays, everybody assumes, when they wake up in the morning, if they have a question, it will get answered. Because they have the internet. No matter what the question is, someone will answer their question.
+- For new bands, I think a major label is the safest place to be. Independent labels are the ones getting away with murder. A lot of them are hobbyists who rip-off young bands, taking advantage of people who would never get signed to a major.
+- I think you can't really escape any kind of spiritual education as a child, whether it's New Age or Judaism or Buddhism or whatever it is. You can't escape it, even if you completely disagree with it, you still have it as a foundation that you base things off of.
+- I keep guitars that are, you know, the neck's a little bit bent and it's a little bit out of tune. I want to work and battle it and conquer it and make it express whatever attitude I have at that moment. I want it to be a struggle.
+- I'd make a White Stripes record right now. I'd be in the White Stripes for the rest of my life. That band is the most challenging, important, fulfilling thing ever to happen to me. I wish it was still here. It's something I really, really miss.
+- When you put something out there into the world, there's all these words you don't want to hear, that you hope people don't say. I don't like anything that starts with 're' - like retro, reinvent, recreate - I hate that. It's always like living in the past - copying, emulating.
+- My mother was 45 when she had me, so when I was in high school my parents were the same age as my friends' grandparents.
+- There aren't that many things left that haven't already been done, especially with music. I'm interested in ideas that can shake us all up.
+- People aren't buying records like they used to, so it's nice to try to figure out a way to make them do it. I would enjoy the same thing to own an old movie house, to try to trick people to come in - like having 3-D or Smell-o-Vision or Vibra-Vision or something. Mcguffins to get people interested.
+- I know that's blasphemous when you are from Detroit, but I was never a fan of Motown stuff. I don't care for the production much.
+- The auctioneer is talking for both people, and that's the big revelation about, 'Oh, that's what they're doing.' They're just doing it very fast, so you could kind of miss on that. He's speaking for you, because people in the crowd don't have a voice, so that's what really makes it compelling.
+- The way I like to start a new project is to take a cover song and make a stab at it, ideally one that has nothing to do with the people in the room.
+- Vinyl is the real deal. I've always felt like, until you buy the vinyl record, you don't really own the album. And it's not just me or a little pet thing or some kind of retro romantic thing from the past. It is still alive.
+- An auctioneer is such a uniquely American thing. I keep thinking in my head, perhaps it's not as American as I think, but it feels so Southern. It feels so American. Like, hundreds of years of American tradition is involved in it.
+- I dabbled in things like Howlin' Wolf, Cream and Led Zeppelin, but when I heard Son House and Robert Johnson, it blew my mind. It was something I'd been missing my whole life. That music made me discard everything else and just get down to the soul and honesty of the blues.
+- Well, as a songwriter, it's really dangerous to use the word love in a song. It's a word that has been used in songs so many millions of times before, and it's the most popular topic to ever write about.
+- My mother's the youngest of 10 children too, so we have sort of a special bond in that we know what that feels like. It's a strange spot to be in.
+- I didn't really even think of recording under my own name for a long time. I thought, 'I've got the rest of my life to do that.'
+- I consider music to be storytelling, melody and rhythm. A lot of hip-hop has broken music down. There are no instruments and no songwriting. So you're left with just storytelling and rhythm. And the storytelling can be so braggadocious, you're just left with rhythm.
+- It is a myth that art has to be sold. It is not like stocking a grocery store where people fill a pushcart. Art is a product that has no apparent need. The salesperson builds the need in the mind of the buyer.
+- I think that sometimes love gets in the way of itself - you know, love interrupts itself. We want things so much that we sabotage them.
+- If you have twenty guys in the room and you just bring in one girl, you change the entire mood and everyone plays different.

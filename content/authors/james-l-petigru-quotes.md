@@ -1,0 +1,16 @@
++++
+author = "James L. Petigru"
+title = "James L. Petigru Quotes"
+quotes_len = "10"
+description = "the best 10 James L. Petigru Quotes"
++++
+- The war begins to make itself felt very near to us.
+- No one supposes that the government of the United States is supreme, beyond the sphere plainly defined by the constitution: Neither does any one deny that the State is supreme within its proper sphere of action.
+- South Carolina is too small for a republic and too large for an insane asylum.
+- The allegiance of the citizen, in the only sense in which the word can be tolerated in a republic, is due to the law. What idea other men may have of a law higher than the supreme law, I know not. Like the notion of the Stoics concerning Fate, it is perfectly incomprehensible.
+- If one has not influence to stem the torrent of popular delusion he is reduced to the melancholy part of a spectator in the midst of the ruin.
+- Growing richer every day, for as rich and poor are relative terms, when the rich are growing poor, it is pretty much the same as if the poor were growing rich. Nobody is poor when the distinction between rich and poor is destroyed.
+- To speak against religion (the Christian) is breaking down the bond of good government.
+- It does not, surely, require such torrents of blood to satisfy any reasonable man that nothing can be a more impious presumption than for either side to think themselves entitled to count the Almighty as an ally in such a pitiful display of human passion.
+- The pulse of the People is still so high as to call for more bleeding, before quinine can be administered with any hope of benefit.
+- The political power of the Country must fall eventually into the hands of certain great families as it always has done in other republics.

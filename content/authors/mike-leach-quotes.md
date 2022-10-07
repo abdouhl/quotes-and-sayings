@@ -1,0 +1,104 @@
++++
+author = "Mike Leach"
+title = "Mike Leach Quotes"
+quotes_len = "98"
+description = "the best 98 Mike Leach Quotes"
++++
+- It's a good idea to shave for TV games.
+- When the Egyptians were building the pyramids or the Romans were building roads, or you had the westward push with the railroads, I don't think that the guys on the ground were spending a lot of time thinking, 'Hey, hundreds or thousands of years from now they will look back at the brick I have just laid down here and say that I changed the world!'
+- Playing someone difficult is tough and can be discouraging, but if you beat them the payoff is huge!
+- Before I ever got into coaching, I got my law degree at Pepperdine.
+- Everybody says marriage is 'til death do you part - and I've been married 29 years - but a book is really 'til death do you part. Once you write it, it's out there.
+- Iowa is kind of a fascinating place.
+- Growing up my favorite coach was Billy Martin.
+- Those that have a voice have to speak for those of us who are silenced.
+- My fondest part of college was the interaction and everything I did with my fellow students.
+- In golf, you keep trying to score well when you're ahead. In basketball, they don't quit shooting when they're ahead. In hockey, they don't quit shooting the puck when they're ahead. And in boxing, you don't quit punching when you're ahead. But in football, somehow magically, you're supposed to quit playing when you're ahead.
+- I want to go to a place that's undervalued, where the potential is great, a place that wants to win, not just participate, in football.
+- You know, buffalo are significantly bigger than elk. I grew up near Yellowstone so I've been near buffalo. Buffalo are huge.
+- I guess I need to get out more.
+- You know, I'll tell who's really embraced football is Austria. Austria's really embraced football.
+- I do have a Viking axe by the bed if I need to whack someone... My wife bought me a Viking axe - the axe side curls down so you can grab the adversary around the neck and you can use it to climb walls, as a grappling hook.
+- I did go to the Alamo. Fascinating. A lot of details and nuances to the Alamo that are impressive.
+- If Texas and Kansas were countries they wouldn't be admitted to the World Trade Organization. Their policies are congruent with North Korea, Somalia, Turkestan, several other countries I can't pronounce and Micronesia.
+- I don't think people should be allowed to shoot guns unless they have a license.
+- I think they need to expand the playoff system. I think the minimum should be 16 teams, but they could easily go with more than that... in other words, I want to see more football. Everybody from rec league softball on down can figure out how to put together a tournament and yet Division I can't.
+- I would like to be coaching in the right situation if it's a team effort and doesn't have a bunch of mini-agendas. I want something where the school wants to win and values graduation and everybody wants to work together.
+- I'm a big movie guy.
+- Outstanding people in Iowa. Very down-to-earth people in Iowa. It was a great place to be.
+- When Washington State has been good, they've always had a connection to Southern California. You know, as far as visiting, that's different than recruiting. Recruiting is based on production and players, who you can get. You know, so, the nicest parts of Southern California aren't necessarily the best players.
+- I just go to work every day, spend hours in the film room, go to practice, go home and then do it all again the next day. I know I can be boring and I sound like a walking cliche but I really do just try to get our team ready to win a game on Saturday. That's pretty much my life.
+- The people in southern Georgia are tough.
+- I've always been insecure about dancing. I was when I was in high school.
+- No one wants police brutality. No one wants inequality. But what I worry about it is when a protest becomes so large and the noise takes over that the original motivation for the protest and the conversation that should go with that protest gets lost.
+- If you go to any elementary school classroom in Texas, some kids in there are going to be named either Austin, Dallas or Houston.
+- I'm not really good with technology.
+- My dad always watched wrestling and I seldom did.
+- There's a very public quality to coaching.
+- I've directly contributed to losses, but likewise, I'd like to think I contributed to a lot of wins and a lot of good play.
+- I feel like Texas high schools, when you consider the melting pot that exists in Texas, do a fairly impressive job. No education process is perfect, but I think that, with plenty of room to improve, they do an admirable job when you compare them to the rest of the field.
+- Oh I've never liked candy corn, I think it's just awful - I think candy corn's awful.
+- The government shutdown, we all know that's a sham. I mean, are they really going to just go to the entire Army and Navy and say, 'You're fired.'
+- There's some teams - the Cubs are one of them - where there's just too many fans.
+- I'm a thin-crust pizza guy. I respect people who like thick crust, but in my view it's mostly bread.
+- The interesting thing about football is that football is the only sport where you quit playing when you get a lead.
+- You go out and do the best you can and hope it works. You just try to improve.
+- I'm proud to say I had a bet with a guy from Chicago who said Chicago is windier and colder than Wyoming. Wyoming dominated them.
+- My life's pretty simple. Look at hours and hours of film to try to find some things that will work on Saturday. Try to have a good practice every day. Use the offseason to recruit and build the culture of the locker room. That's my deal.
+- Outside of North America, best football? Is Samoa North America? Probably Samoa. I'd say Samoa. Germany's certainly up there.
+- Washington State is great. I'm completely happy at Washington State.
+- I'd like to think I am a good coach but I've called bad plays. I've coached bad practices. I've made bad substitution choices.
+- As a head coach, you're on two lists. You're the guy that might get fired, or you're the guy who might go somewhere.
+- It's indisputable that you'll make way more money with a larger playoff.
+- Even in Texas, there's a lot of people who've never been to Lubbock.
+- Tracked a raccoon one time in the snow. I was in the neighborhood and I was just curious where this raccoon lived. There's some fresh raccoon tracks. He'd been digging at somebody's garbage.
+- You know, the loudest stadium I've ever played in was 45,000 people at War Memorial Stadium in Little Rock, Arkansas. The entire thing is concrete. It's like dropping a ball bearing in your neighbor's basement.
+- Fish aren't smart. It's not like they have advanced degrees.
+- You get these Satanists types that don't believe in God. OK, so you realize you don't get Satan if you don't get God, right? Or atheists that want to believe in ghosts. Wait, wait, wait. You can't have a two-way go on that. You want to be agnostic, be an atheist, fine. But you don't bring ghosts along with you.
+- You're gaining more than you're losing in a small town.
+- There's nothing balanced about the 50 percent run, 50 percent pass because that's 50 percent stupid.
+- My wife is a great dancer. But I don't dance.
+- Whether it's a car or boat or motorcycle, it's a dangerous item, so you have to show a level of competence and get a license before you're allowed to operate something that's dangerous. Guns are dangerous but you don't have to get a license to operate guns.
+- Atlanta might have snow and Macon might have good weather, and they're not really far apart. But there's a period of time in the year where the gnats get all over your face and they bite you. And the Macon crowd, it's funny, but they can sit there like nothing's happening and there can be gnats just biting the hell out of your face.
+- My favorite weather pattern happens to be when it rains mud. Dust comes through. Rain on top of it. It rains mud.
+- Obama is trying to protect Obamacare, and then obviously even in his own party a bunch of people are against it.
+- All Scandinavians feel a tiny bit self conscious, of which I'm one.
+- I don't feel like it's fair to the other players and I don't think it's the right way to do business to allow influence and position to dictate when you play a young man.
+- Nothing has done more to bring people of different races and different backgrounds together than athletics, certainly more than politicians have done. It's why the Greeks invented the Olympics.
+- Well, you're going to be dead in a hundred years anyway, so live dangerously.
+- There's shouting, there's blood, there's boogers, there's a whole thing. I mean, there's spitting, there's fighting, there's ripped jerseys. There's someone grabbing someone's throat. I mean, it's why you have football.
+- I think the days before cell phones, when it was dirt clod wars at construction sites, was a lot more wholesome and productive, to be perfectly honest.
+- If your quarterback wants a deflated football, your soccer-style kicker is going to want it kind of full. If your quarterback wants it really full, your straight-on kicker is going to want less air in it. It's a regulation football; let them use it however they want to. You use your own ball.
+- I keep my guns on one part of the house totally locked up, and I keep the ammunition in another part of the house.
+- I figured I'd coach two or three years at the most and go back and be an attorney.
+- I ought to have Mike's Pirate School. The freshmen, all they get is the bandanna. When you're a senior, you get the sword and skull and crossbones. For homework, we'll work pirate maneuvers and stuff like that.
+- I'm not a beat around the bush kind of guy.
+- I know that in Ames, Iowa, they fancy themselves being experts on the wind, but in Lubbock, Texas, we'll put our wind up against your wind in Iowa.
+- I think the legal profession is getting somewhat corrupted. When it comes to lawyers, I think it's kind of a Catch-22. On one hand, there's so much process, procedure and mess caused by the legal profession. But on the other hand, the only way to sort through all that process, procedure and mess is through the legal profession.
+- Freedom of speech should be wide open as long as it doesn't incite violence.
+- If you get into a fight, don't take your helmet off. We're looking for smart football players, not dumb ones.
+- I don't know everybody's view on due process, but I do have an opinion on what the Constitution says, what the Pledge of Allegiance implies, what sixth- and seventh-graders are taught in civics classes, and I think it is that you're going to have the opportunity to be heard.
+- I've always thought that the - as far as regions of the country that people brag about, as far as top talent, the Inland Empire is awfully hard to beat.
+- I have a limited knowledge of the Internet, which is pretty clear, I don't even turn anything on other than my phone, when it gets stuck, my kids turn it on.
+- Somebody said that in passing, you know, 'I hate cats.' You know, somebody really hates cats, and I've never figured that one out. And credit to cats - the ability to generate that much animosity, you know.
+- I bordered on great in dodge ball.
+- When things were really rolling at Texas Tech, I was a part of something bigger than myself, bigger than football.
+- How can it be that we laugh about England's obsession with the royal family? At least the royal family has college degrees and military service.
+- There's a reason they only serve fruitcake once a year, because it's awful. There's a reason they only serve mint julep's once a year, because they're awful. And there's a reason they only serve candy corn once a year, because it's awful.
+- At an unusually young age, I read 'Instant Replay' by Jerry Kramer, which talked a lot about the Green Bay Packers and Vince Lombardi. From there I was really more a fan of coaches than teams and players.
+- I've actually seen guys who I considered relatively stupid college coaches, then go to the NFL, and sanctimoniously think they understand that something the rest of us couldn't perceive. They're an idiot before, they're an idiot now, and they'll be an idiot afterwords. It's mind-numbing.
+- ESPN wants to scrutinize everyone, but if they're scrutinized, they run and hide.
+- I listen a lot to Howard Stern. Not the show, the interviews. He has a separate podcast of just interviews. They're fantastic.
+- I've never had a dumb quarterback. I think if you're dumb, it's difficult to overcome.
+- I don't think they necessarily do nearly as much haunting as people think. If you believe in the Bible, pretty much part of the deal that goes with it is ghosts.
+- I think the most important thing is confidence. A lot of people think they're confident, but if you think about it, most people aren't.
+- I don't know how good mountain lions do in captivity. I'm curious.
+- When I was at Tech, no public school was ahead of us in graduation rates. We got our guys to compete in the classroom, and if they're competing in class and in football, that's an attitude they take into life.
+- I think that when you die, you continue to progress. You continue to grow in kind of an elevated state, but I don't think you sit there and wallow around and play the harp.
+- I think there is a difference between being critical of plays and being critical of players and coaches.
+- If you aren't focused on what's right here in front of you, if you're daydreaming about what might be, you really aren't focused at all.
+- Anytime you're trying to set a course, there's gonna be decisions made, and you have to weigh all options, and then in the end you come up with the best course.
+- I feel like a caffeine addict.
+- I suspect Bill Snyder may be a sorcerer... he's one of the coaches that I admire most!
+- When you have five skill positions, if all five of them are contributing to the offensive effort, then that's balanced.
+- I read the entire Old Testament and New Testament.

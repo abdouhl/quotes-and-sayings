@@ -1,0 +1,35 @@
++++
+author = "Tom Baker"
+title = "Tom Baker Quotes"
+quotes_len = "29"
+description = "the best 29 Tom Baker Quotes"
++++
+- We are pre-disposed for fantasy, there is a natural impulse for human beings to want to get off their heads or out of their heads in something in a substance or a drink or an idea or a religion which will comfort them and make life exciting.
+- The Old Testament is my favourite science fantasy reading.
+- The thing is I'm very interested in bad taste, as anyone who's ever seen me perform or had dinner with me would know.
+- I am a one success man.
+- I was never really happy until I became 'Doctor Who'.
+- It's funny, in literature no one ever goes to the lavatory.
+- Lis Sladen was very important to me, you know. When I joined the little world of 'Doctor Who', Lis was already a star.
+- Well, I think if more people had more applause, it would make them feel better. I often give my wife a round of applause. If the meal is very good I give her a standing ovation.
+- Actors are able to trick themselves into treating anything as if it's fantastic. It's a kind of madness really.
+- I have never described the time I was in Doctor Who as anything except a kind of ecstatic success, but all the rest has been rather a muddle and a disappointment. Compared to Doctor Who, it has been an outrageous failure really - it's so boring.
+- I've been involved in one or two successes in classical plays but nothing to touch the excitement and the glamour and the gratification of being a children's hero for so long.
+- Politicians are just Daily Mail journalists writ large, aren't they? They're always telling us what's going to happen, and we know they don't know!
+- I never examined what I did in any great detail because I thought it would spoil things. I never read the scripts at all carefully, and never wanted to know what was going on, because I felt that being a benevolent alien that's the way it should be.
+- Well, I think people don't recognise my face because I'm so much older now, but it is astonishing that people can recognise a voice. I do sometimes get recognised, and indeed a lot of people do come and see me.
+- I don't watch television. I know better than that.
+- I've never ever read a script. I really must read Macbeth, because I was in it once. I got a lot of laughs in that, I can tell you.
+- Most drama in our lives is really rather squalid.
+- One longs to be funny, to make people laugh. Laughter is such a sign of approval, isn't it?
+- Not only don't I know who I am, but I'm very suspicious of people who do know who they are. I am sometimes ten or twelve people a day, and sometimes four or five people an hour!
+- I'm obsessive about the kind of melodrama of getting through the days and trying to make them good and funny and a happy experience. But my feeling towards the fans is that they delivered me from darkness.
+- I think people can believe in anything.
+- I'm really not an actor of any kind. I've always seen myself as an entertainer, someone who makes people laugh. That's all I've ever wanted to do. 'Doctor Who' has always just been me, really.
+- We have newsreaders behaving like actors, lowering their voices if it's a sad story, as if we didn't know it's a sad story. There isn't a single cool newsreader.
+- I have no regrets about being 'Doctor Who'. It was the greatest thing that ever happened to me.
+- I really think that reading a whole script is kind of prying and neurotic, don't you?
+- I used to always be putting my hat on children being photographed and then getting home and discovering I was riddled with lice. That used to happen very, very regularly. I used to get headlice all the time.
+- I wasn't interested in novelty. I was looking for good drama.
+- My capacity as a monk was to passionately believe utter nonsense, and when you're an actor you have to do the same thing. Also, Christianity used to have a lot to do with self-loathing and an acceptance of criticism and things like that which is terribly important for actors.
+- I think quite often a fate worse than death is life, for lots of people.

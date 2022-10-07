@@ -1,0 +1,48 @@
++++
+author = "Jenna Bush"
+title = "Jenna Bush Quotes"
+quotes_len = "42"
+description = "the best 42 Jenna Bush Quotes"
++++
+- I don't think of myself as a policy expert. I think education is the most important thing.
+- I hope that I serve by being a teacher.
+- I'm pretty normal.
+- I hope to focus on what I'm passionate about because I think I'd do them best job on them - education, urban education, women and children's issues and literacy.
+- I had always loved to write and my mom was my editor for my school papers.
+- I hope to work with kids any way possible.
+- I don't have any children. I just have a cat, to my parents' dismay.
+- I'm not the perfect bride after all.
+- When you grow up as the daughters of George and Laura Bush, you develop a special appreciation for how blessed we are to live in this great country.
+- I think there are many ways to serve your country.
+- I decided to go to Latin America because many of my students in Washington emigrated from this region and inspired me to learn more about their home countries.
+- I was sports editor for my high school newspaper, but I think I shied away from journalism.
+- I was an English major.
+- I'm sure there were times when I wish I had thought, 'Gosh, that might really embarrass mom and dad,' but our parents didn't raise us to think about them. They're very selfless and they wanted us to have as normal of a college life as possible. So really, we didn't think of any repercussions.
+- I think I've become more like my mom just because of what we're both interested in, children and teaching and writing.
+- You have to give kids things they're interested in reading. That's what teachers do who are engaged in what their students want.
+- I'm more like my father, personality-wise. But my mom and I get alone really well - obviously, because my mom and my dad get along so well.
+- I'm a perfectionist - I could rewrite forever.
+- I don't think I'm portrayed in the media the way I really am - but then who is?
+- My parents taught us it's important to give back.
+- I can't wish I weren't something that I am.
+- I didn't go to Latin America thinking, 'I'm gonna write a book. This is what I'm gonna do.' I went there to work for UNICEF and to learn.
+- I'm just not political. I have opinions, but there's nothing about the process that has ever interested me. I'm 22, and this is the first interview I've ever done in my life.
+- I don't know about the world, but I know kids. And I feel like sometimes kids don't get involved because they think, what can I do? I'm just a kid. And really kids can do so much.
+- My mom's a secret Rastafarian.
+- Our parents have always encouraged us to be independent and dream big.
+- I hope to continue writing. I hope to continue teaching.
+- People ask me if I ever see my father and I say yes, because he puts in the effort. He calls all the time to tell us he's proud of us.
+- I like to go to bed early.
+- A lot of my colleagues at school became great friends of mine.
+- As a teacher you can see the difference in kids who have parents who were involved. That difference, by the time these kids get to the third grade, is drastic.
+- Kids are so dynamic; if you're tired and you walk into a roomful of kids, your energy is brought up to their level.
+- I think I know a lot about campaigns.
+- Luckily I've had a lot of great friends that I've had for a long time.
+- My sister, she's amazing. She sort of inspired me to take this journey to Latin America.
+- One day I would love to have a couple children.
+- The world is such a big place, and there's so much that goes on, but a lot of the media really just cover the same thing over and over again.
+- My first cat was named Cowboy, after the Dallas Cowboys.
+- My dad saw my husband's boss at a conference, and he said to stop paying my husband until we produce children.
+- It's not like he called me up and asked me. They've never wanted to throw us into that world, and I think our decision probably shocked them. But I love my dad, and I think I'd regret it if I didn't do this.
+- I'm aware that not all kids can pick up and fly to Panama. I'm very lucky.
+- I care what people who know me think of me.

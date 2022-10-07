@@ -1,0 +1,25 @@
++++
+author = "Mf Doom"
+title = "Mf Doom Quotes"
+quotes_len = "19"
+description = "the best 19 Mf Doom Quotes"
++++
+- Everybody nowadays rhymes, but out of the people that really, really do it well, it's still a small community of artists. We all tend to be in the same circles - people like my Wu-Tang brothers, or Black Thought from The Roots.
+- I think - a lot of times in hip-hop, especially - artists get kind of pigeonholed into being 'the guy,' and it's kind of limiting in a way.
+- I make hip-hop, but use Doom as a character to convey stories that a normal dude can't. You have writers that write about crazy characters, but that doesn't mean the writer himself is crazy.
+- I liked being able to speak to somebody and throw it back and forth, and they can't predict what you're going to say next.
+- Ever since third grade, I had a notebook and was putting together words just for fun. I liked different etymologies, different slang that came out in different eras. Different languages. Different dialects.
+- I'm doing the shows. The stage is my canvas; I'll put whatever up there for the visible eye.
+- Prince Paul is another good friend; he's like an older brother. He'll criticise and be brutally honest with you. That's what I like about Paul.
+- I'm always trying to show versatility. I'm juggling, and I'm flipping fire, and I'm chewing gum and rhyming at the same time... on a unicycle, while playing the drums.
+- Being older now, grown, I'm like, 'What do we really do that's fun?' I'm kind of corny when you think about it. What could I rhyme about? Let me see, um, I gotta pay the rent today.
+- Doom is a classic supervillain, akin to the Phantom of the Opera. It's not about revenge so much as, like, 'I'm back - now watch this!' It all boils down to the music. The mask is a slight theme for people to enjoy, and it adds mystery.
+- The idea of having different characters is really just to get the storyline across, you know? Coming from one particular character makes, to me, the story boring. I get that mainly from novels and that style of writing or movies where there's multiple characters who carry the storyline.
+- The song 'Bite the Thong' in particular, with Damon Albarn, really encapsulates the whole dilemma of, 'Hmm, should I stay on the underground when everybody else is selling out?' Nowadays, you can just do it - have your name-brand clothes, do songs with rock n' rollers - and it's not considered selling out.
+- Hip-hop is so saturated with the same old same old that people always expect the guy to actually be the guy. They want you to be real and straight from the streets and all that.
+- I can't perform without the mask or be seen without it on stage, or else it'll distract from the whole persona.
+- A visual always brings a first impression. But if there's going to be a first impression, I might as well use it to control the story. So why not do something like throw a mask on?
+- The 'Doom' thing is to be able to come at things with a different point of view. I decided the mask would just add to the mystique of the character as well as make Doom stand out. I though it'd be an easy way for people to see and differentiate between characters, sorta like when an actor gains weight for a role.
+- I have no friends here apart from the dudes at my record label, and I didn't go to school with no one. Nobody knows me - I'm incognito. It's all new, all fun.
+- When I listen to hip-hop, I listen to Just Ice, Boogie Down Productions, Ultramagnetic MCs. I grew up in that age, and it was memorable. But I'm down with all of it. Chuck D or Danny Brown? I feel comfortable with all of them. Word up, kid! Word up, man!
+- I spent 35 years growing up in the U.S., and it had its ups and downs.

@@ -1,0 +1,17 @@
++++
+author = "Trevor Moore"
+title = "Trevor Moore Quotes"
+quotes_len = "11"
+description = "the best 11 Trevor Moore Quotes"
++++
+- I was a huge David Letterman fan, even going back to when he was on NBC. My parents would only let me watch a half hour of television a day, so I would record Letterman the night before and then watch it when I came home from school. That's what made me want to do a T.V. show.
+- If you got more than one letter from somebody who said they hated you, it meant they kept watching.
+- It used to be that in comedy you had to play the clubs and work your way up, but now, before you do the clubs, you can put something up on the Internet. It's public access times a million.
+- With anything you put out there, you're going to offend somebody, but most people get that it's a joke, that I'm playing a character, and that I'm actually making fun of what I'm saying by saying it.
+- I was fascinated with the writing process and seeing the evolution of a sketch and how it would change up to the minute before it went on the air.
+- I was very young, and I kind of decided I wanted to do comedy. My parents were musicians, so we traveled on a tour bus. You're in a different town every night; as a kid, you're trying to make friends fast. You try to be funny.
+- A sketch should be about two to three minutes, which is basically what most songs are. They're usually done by groups. Good examples of each build and have different parts and twists in them. I guess sketch would be the comedy version of music.
+- The more traumatic events you endure with the city, the more of a New Yorker you become.
+- Most of my teachers didn't like me. I didn't get good grades because I pretty much lived at the public access studio. I tried to be the class clown, so I spent a lot of time in detention.
+- Most young comedians would be lying to say that they weren't huge Weird Al fans when they were kids. Weird Al is probably the first person I ever realized had a career that was just making jokes.
+- Unless you're born here, I don't know if you can ever become a full New Yorker.

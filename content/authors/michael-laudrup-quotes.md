@@ -1,0 +1,75 @@
++++
+author = "Michael Laudrup"
+title = "Michael Laudrup Quotes"
+quotes_len = "69"
+description = "the best 69 Michael Laudrup Quotes"
++++
+- Everyone makes mistakes, but when players or managers make mistakes, they are all accountable and have to take responsibility. When I talk about referees, you wonder, 'Can I say this?' You have to be careful - but they are the only group in the world of football who are treated like that.
+- I do not like to live in the past, I live in the present. I think that is very important as a player, as a coach, and as a human being.
+- If you are always talking about the past, then you don't really have much in the present.
+- In the end, we all want to win, and you have to use all the resources at your disposal.
+- I've never said I didn't want to manage a big team. I've never had that dream - that's different.
+- Playing on a Thursday and then a Sunday is not a problem.
+- When things aren't going well, it's very easy to blame the coaching staff.
+- For me to be speaking of the referees, then you know it must be something big.
+- I enjoyed my time in the Premier League and in Qatar.
+- I believe in treating players like adults - though if some of them behave like children, you have to treat them as such! - and I think there is big respect the other way from players to the manager.
+- We have to let them grow, because young players can always improve. That goes for Jack Wilshere, too.
+- I've played under many managers - some fantastic, some average, and some not so good. Even if it's not intentional, you log the good ideas and the bad ones.
+- As a manager, you always want as many players available as possible, but injuries are a part of football, as it is a contact sport.
+- When you're struggling, especially mentally, it's only the team who can bring you out of that situation. It's not one or two players.
+- If something happens for one season, for me, it is a coincidence. Twice, we can start talking about it.
+- To play for almost two months without your manager is not easy.
+- Honestly, who knows 100 per cent what they will do next year?
+- When people are booing at the stadium when they win, then it has nothing to do with the results. It is something to do with emotion and feelings, which is an important part of football. The relationship there has nothing to do with results.
+- Michu and Van Persie are similar. They look alike. They are both tall, left-footed players. They are not fast, but they know when to make the runs.
+- A small squad means everyone feels part of it and integrated.
+- I had won 64 caps by the age of 25.
+- It's easier to change the manager than all the players. It's never easy to choose who should be in the dugout.
+- The Copa del Rey is a different competition. It is football in its purest form and is different from the continuity of the league.
+- If I have a keeper who makes a mistake in consecutive games and is dropped, when he plays again, there is pressure on him because that is the level of the game we are at.
+- You don't want to push your young players too much.
+- Robben is more of a one-on-one individualist. He's a player who can decide a game.
+- We can talk about some small differences between the Premier League and La Liga, but they are the two best leagues in the world.
+- I don't mind individuality in a team. In fact, I encourage it. I don't care if you have green hair, white boots, or are full of opinions. All I ask if that you are never above the team.
+- I played at the highest level for 17 years and won so many titles.
+- It's impossible to always move forward, but sometimes even maintaining the status quo is enough.
+- I don't think people can imagine a Liverpool team without Gerrard. It is like Raul at Real Madrid and Puyol at Barcelona. They are a rare breed, these types of players.
+- The biggest clubs in Europe, whether they be Barcelona, Madrid, Manchester United, or Chelsea, always want to win, whatever they are participating in.
+- That is one of the problems big teams face - their rivals always take the field very motivated, and I say this from experience.
+- The Copa del Rey is a two-legged match, but it is an important game like every other.
+- The Bundesliga is different from La Liga, it's different from Serie A, it's different from the Premier League, so you have to adapt to the circumstances.
+- Circulation of the ball is important, but it's only useful if you can give it to someone who can make the difference.
+- It's always an honour to receive recognition, but I always consider them more important when they come from your colleagues.
+- Cruyff defined a philosophy and a style of how we had to play: positional play, type of players, the profile of the coaches, even.
+- I do not like to use a player solely to make a member of the opposing team, for one simple reason: when we cannot retrieve the ball, we are forced to defend with ten men, giving the opponents an advantage.
+- I played the way I did it because I knew it was effective. My intention was to win always, not to gain applause.
+- I would rather have a job where I can look up in the table, not downwards.
+- I think there are a lot of great strikers in Europe.
+- It's always difficult to play the big teams, but I would rather play them at the start of the season.
+- If you are a manager at the top level, there is pressure, but you have it because you want to be there. If not, you would do something else.
+- We can all have a bad day. It happens for me as well.
+- You can't think you can find a top scorer for free.
+- Money is not all in life, and not in football, but it's quite important, and to have the lowest budget in the league means to finish in the top 10 may be an even bigger result.
+- It's a good place for me, Wembley. In 1983, I played for Denmark when we beat England there 1-0, and in 1992, I played for Barcelona when we beat Sampdoria 1-0 in the Champions League final.
+- I sometimes go for drives with my wife around south Wales, and always the people are so friendly and so passionate.
+- It's always good to hear when players aren't out for as long as you thought they would.
+- I was a big talent.
+- Regarding my coaching philosophy, I think it is important to adapt to the team/players and the culture in the country where you are coaching, but to keep possession is a key issue wherever you are.
+- Football, if we bring it down very simply, it's when you have the ball and when you don't.
+- To think about attacking is also to think about positioning.
+- It's not being disrespectful, but the less you know an opponent, the more work you have to do.
+- I don't like to make comparisons, as it's different coaching a Spanish team to coaching a German or English team. Each country has their style, more or less, and within each country, they have different styles.
+- We all know when you have a huge price tag on your shoulders, there's always a lot more pressure on you, a lot more expectation.
+- You can't play with fear in football. There is a lot of respect - you have respect for everybody, the ones on top and the bottom - but never fear.
+- It's always flattering when others are talking about you.
+- I think that when you are part of a football team, it is a group. That means the players and the staff, including the manager and all that administration.
+- When I see a game on the television, and you see afterwards 'possession percentage 60-40,' that doesn't say anything for me because it could be that one team is playing the ball between the back four 120 times.
+- Of course money is important - to say it is not in football would be a lie. But to find a good player with potential for a small amount of money and then to develop him in the group is a great pleasure for a manager and for a club.
+- If you lose a player who scores seven, eight, or nine goals, you have to find another one.
+- I was in Spain, with Mallorca and Getafe, which were exceptional experiences.
+- The Messi of the early years was a phenomenon, but he always wanted to finish off the move. Now he goes past one, two, or three players and is happy to give an assist to a team-mate - it makes him more dangerous and more difficult to stop than ever before.
+- For me, possession is to keep the ball while you are waiting for the possibility to penetrate. Every pass is for a reason.
+- Yes, in 1983, I had the opportunity to sign for Liverpool.
+- I don't think I'll see the next Messi in my lifetime.
+- At Brondby, we had Daniel Agger, who came up from the youth. He had two years in the team, and then we sold him to Liverpool for nearly £7 million, which is a lot of money in Denmark. As a manager, that gives you even greater satisfaction that winning something as a player.

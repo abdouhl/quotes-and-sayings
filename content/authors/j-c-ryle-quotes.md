@@ -1,0 +1,20 @@
++++
+author = "J. C. Ryle"
+title = "J. C. Ryle Quotes"
+quotes_len = "14"
+description = "the best 14 J. C. Ryle Quotes"
++++
+- Any well-read man knows that the moral difference between the condition of the world before Christianity was planted and since Christianity took root is the difference between night and day, the kingdom of heaven and the kingdom of the devil.
+- All men ought to think of Christ because of the office Christ fills between God and man. He is the eternal Son of God through whom alone the Father can be known, approached, and served. He is the appointed Mediator between God and man through whom alone we can be reconciled with God, pardoned, justified, and saved.
+- Necessity is laid upon us. We must fight. There are no promises in the Lord Jesus Christ's epistles to the seven churches, except to those who 'overcome.' Where there is grace, there will be conflict. The believer is a soldier. There is no holiness without a warfare. Saved souls will always be found to have fought a fight.
+- What could an unsanctified man do in Heaven, if by any chance he got there? Let that question be fairly looked in the face and fairly answered. No man can possibly be happy in a place where he is not in his element and where all around him is not congenial to his tastes, habits and character.
+- There is a vast quantity of religion current in the world which is not true, genuine Christianity. It passes muster, it satisfies sleepy consciences; but it is not good money. It is not the authentic reality that called itself Christianity in the beginning.
+- If Christianity is a mere invention of man, and the Bible is not from God, how can infidels explain Jesus Christ? His existence in history they cannot deny. How is it that without force or bribery, without arms or money, He has made such an immensely deep mark on the world as He certainly has?
+- There are many things which swallow up men's thoughts while they live, which they will think little of when they are dying. Hundreds are wholly absorbed in political schemes and seem to care for nothing but the advancement of their own party. Myriads are buried in business and money matters and seem to neglect everything else but this world.
+- All men ought to think of Christ, because of what Christ will yet do to all men. He shall come again one day to this earth with power and glory, and raise the dead from their graves. All shall come forth at His bidding. Those who would not move when they heard the church-going bell, shall obey the voice of the Archangel and the trump of God.
+- The true Christian is called to be a soldier and must behave as such from the day of his conversion to the day of his death. He is not meant to live a life of religious ease, indolence and security. He must never imagine for a moment that he can sleep and doze along the way to heaven, like one traveling in an easy carriage.
+- Sanctification is the outcome and inseparable consequence of regeneration. He who is born again and made a new creature receives a new nature and a new principle and always lives a new life.
+- If Christianity is a mere invention of man, and not a supernatural, divine revelation, how is it that it has wrought such a complete alteration in the state of man kind?
+- The 'means of grace' are such as Bible reading, private prayer, and regularly worshiping God in Church, wherein one hears the Word taught and participates in the Lord's Supper. I lay it down as a simple matter of fact that no one who is careless about such things must ever expect to make much progress in sanctification.
+- Christmas is a season which almost all Christians observe in one way or another. Some keep it as a religious season. Some keep it as a holiday. But all over the world, wherever there are Christians, in one way or another Christmas is kept.
+- If Christianity is a mere invention of man, and the Bible is of no more authority than any other uninspired volume, how is it that the book is what it is?

@@ -1,0 +1,20 @@
++++
+author = "Antonio Sabato, Jr."
+title = "Antonio Sabato, Jr. Quotes"
+quotes_len = "14"
+description = "the best 14 Antonio Sabato, Jr. Quotes"
++++
+- I try to be a good person every day. If you didn't like me, there would be something wrong with you, because I really go out and work as hard as I can to help people. I put myself last - always. I'm a giver all the way.
+- As I got older, I got closer to my faith and I got closer to Jesus, reading the Bible and living my life under God.
+- When I tell people I'm an Italian Jew, they're very amused by it. But obviously by blood I'm Jewish, because my mother is.
+- Skydiving - I love to do that.
+- I care about looking into someone's eyes and finding out who they are.
+- I always believed in Jesus and God as a little boy.
+- Jewish people are tough people. They believe in something and believe it really strong, and I find it fascinating that a small country like Israel is as powerful as it is.
+- I consider myself a Christian - a true believer in Jesus Christ - that He died for our sins.
+- I'm a Laker fan, always have been. And the New York Yankees, for sure.
+- I don't consider myself any denomination.
+- I've always worked on my own home and different places that I've owned. I really enjoyed it. But I'm a mechanic, a motorcycle and car builder.
+- I have great fans that come up to me, and they just want me to sign stuff. I have a restaurant in Beverly Hills - Prego - and they come in all the time asking for me to see when I'm going to show up. That doesn't really scare me.
+- I like music that just gives you goose bumps.
+- I've been driving race cars professionally for a while: 200 mph types of things.

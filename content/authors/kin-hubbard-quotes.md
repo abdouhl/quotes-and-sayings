@@ -1,0 +1,72 @@
++++
+author = "Kin Hubbard"
+title = "Kin Hubbard Quotes"
+quotes_len = "66"
+description = "the best 66 Kin Hubbard Quotes"
++++
+- The worst feature of a new baby is its mother's singing.
+- I'll say this for adversity: people seem to be able to stand it, and that's more than I can say for prosperity.
+- If there's anything a public servant hates to do it's something for the public.
+- Lack of pep is often mistaken for patience.
+- There's no secret about success. Did you ever know a successful man who didn't tell you about it?
+- Kindness goes a long ways lots of times when it ought to stay at home.
+- If capital and labor ever do get together it's good night for the rest of us.
+- Bargain... anything a customer thinks a store is losing money on.
+- Some fellows get credit for being conservative when they are only stupid.
+- There is nothing so aggravating as a fresh boy who is too old to ignore and too young to kick.
+- Don't knock the weather; nine-tenths of the people couldn't start a conversation if it didn't change once in a while.
+- Next to a circus there ain't nothing that packs up and tears out faster than the Christmas spirit.
+- It's what a fellow thinks he knows that hurts him.
+- Of all the home remedies, a good wife is best.
+- Fun is like life insurance; the older you get, the more it costs.
+- The fellow that agrees with everything you say is either a fool or he is getting ready to skin you.
+- The only way to entertain some folks is to listen to them.
+- The safe way to double your money is to fold it over once and put it in your pocket.
+- I don't look for much to come out of government ownership as long as we have Democrats and Republicans.
+- Nobody ever grew despondent looking for trouble.
+- It's pretty hard to tell what does bring happiness; poverty and wealth have both failed.
+- Peace has its victories no less than war, but it doesn't have as many monuments to unveil.
+- Boys will be boys, and so will a lot of middle-aged men.
+- After a fellow gets famous it doesn't take long for someone to bob up that used to sit by him in school.
+- The fellow that owns his own home is always just coming out of a hardware store.
+- Nobody works as hard for his money as the man who marries it.
+- Lots of folks confuse bad management with destiny.
+- A loafer always has the correct time.
+- Honesty pays, but it doesn't seem to pay enough to suit some people.
+- Every once in a while someone without a single bad habit gets caught.
+- Nobody ever forgets where he buried the hatchet.
+- All the world loves a good loser.
+- A good listener is usually thinking about something else.
+- The hardest thing is to take less when you can get more.
+- A lot of Thanksgiving days have been ruined by not carving the turkey in the kitchen.
+- When a fellow says, 'It ain't the money but the principle of the thing,' it's the money.
+- A grouch escapes so many little annoyances that it almost pays to be one.
+- Now and then an innocent man is sent to the legislature.
+- As to those who hoard gold and silver and spend it not in God's path, give them, then, the tidings of a painful agony: on a day when these things shall be heated in hell-fire, and their foreheads, and their sides, and their backs shall be branded therewith.
+- There is no failure except in no longer trying. There is no defeat except from within, no really insurmountable barrier save our own inherent weakness of purpose.
+- Nothing is as irritating as the fellow who chats pleasantly while he's overcharging you.
+- If some people didn't tell you, you'd never know they'd been away on a vacation.
+- The world gets better every day - then worse again in the evening.
+- It's the good loser who finally loses out.
+- Classical music is the kind we keep thinking will turn into a tune.
+- It ain't a bad plan to keep still occasionally even when you know what you're talking about.
+- No woman can be handsome by the force of features alone, any more that she can be witty by only the help of speech.
+- There are two ways to handle a woman, and nobody knows either of them.
+- No one can feel as helpless as the owner of a sick goldfish.
+- An optimist is a fellow who believes what's going to be will be postponed.
+- Some folks can look so busy doing nothing that they seem indispensable.
+- If you haven't seen your wife smile at a traffic cop, you haven't seen her smile her prettiest.
+- It is pretty hard to tell what does bring happiness; poverty and wealth have both failed.
+- Live so that you can at least get the benefit of the doubt.
+- Men are not punished for their sins, but by them.
+- It used to be that a fellow went on the police force when everything else failed, but today he goes in the advertising game.
+- Where ignorance is bliss it's foolish to borrow your neighbor's newspaper.
+- We would all like to vote for the best man but he is never a candidate.
+- A bee is never as busy as it seems; it's just that it can't buzz any slower.
+- Nobody can be as agreeable as an uninvited guest.
+- It's going to be fun to watch and see how long the meek can keep the earth once they inherit it.
+- Being an optimist after you've got everything you want doesn't count.
+- Nobody kicks on being interrupted if it's by applause.
+- Getting talked about is one of the penalties for being pretty, while being above suspicion is about the only compensation for being homely.
+- It isn't enough for you to love money - it's also necessary that money should love you.
+- Universal peace sounds ridiculous to the head of an average family.

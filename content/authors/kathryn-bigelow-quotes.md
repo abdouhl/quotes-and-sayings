@@ -1,0 +1,61 @@
++++
+author = "Kathryn Bigelow"
+title = "Kathryn Bigelow Quotes"
+quotes_len = "55"
+description = "the best 55 Kathryn Bigelow Quotes"
++++
+- I've always developed all my own pieces, and they're time-consumers.
+- Our film examines the heroism, courage and prowess of the Soviet submarine force in ways never seen before.
+- Character and emotionality don't always have to be relegated to quieter, more simple constructs.
+- I don't do what I do to try and break a glass ceiling.
+- Perhaps the only thing in my favor is that I am very tenacious. I don't take 'no' very well.
+- I began to exercise a lot of cinematic muscle with the precepts I had learned in the New York art world. Film was intriguing. I began to think of art as elitist; film was not.
+- You only have so much money to shoot a movie with.
+- I like high impact movies.
+- You have to disengage at some point in order to be fresh.
+- I do have to say I have been very fortunate.
+- I'm interested in social commentary.
+- For some individuals - some soldiers, some contractors - combat provides a kind of purpose and meaning beyond which all else potentially pales in comparison.
+- My interest is to work in as uncompromised a way as possible.
+- There's a conventional reaction when you see a star: You anticipate he'll be a part of a particular denouement down the road, so you don't worry for that character.
+- I'm definitely not drawn to shooting on a stage, I'm just not.
+- Jordan is a very secular, Westernized country in some respects.
+- When he brought it to me four years ago, Rodney King had just arrived, I was involved in the clean-up of L.A. and I guess it was part of my experience.
+- You never think the universe will reward your first choice - it just doesn't work like that.
+- What's most galvanizing for me is the opportunity to be topical and relevant and entertaining. That's the holy grail.
+- I can't stand outside myself and be anybody else.
+- There should be more women directing; I think there's just not the awareness that it's really possible.
+- I really look for peak experiences and dramatic material that can allow peak experiences.
+- I don't know if I thrive in normal life.
+- I thrive on production. It feels very much like a natural environment for me.
+- When I made my first film, I didn't think of it as directing, so it wasn't like I set out to become a director.
+- On the other hand, I believe there's hope, because the breakdown and the repair are happening simultaneously.
+- I don't want to be made pacified or made comfortable. I like stuff that gets your adrenaline going.
+- It's totally thrilling to direct.
+- There's really no difference between what I do and what a male filmmaker might do. I mean we all try to make our days, we all try to give the best performances we can, we try to make our budget, we try to make the best movie we possibly can.
+- Right now, there's the illusion of order and civilization, but there's a tremendous amount of economic tension in this country and the educational system is constantly eroding.
+- It's irrelevant who or what directed a movie; the important thing is that you either respond to it or you don't.
+- I did a pilot for Anything But Love in 1988 that didn't sell.
+- The Communist regime didn't consider this to be a shining moment in history and assigned no heroism to it. They classified it as merely an accident.
+- One should make morals judgements for oneself.
+- I choose material instinctually - at the heart of it are characters that I feel are fresh and original, and allow for an opportunity to, I suppose, explore uncharted ground.
+- I think violence in a cinematic context can be, if handled in a certain way, very seductive.
+- Cinema has the capacity to be so physiological.
+- Am I a 'woman of action'? I don't think of myself that way.
+- If there's specific resistance to women making movies, I just choose to ignore that as an obstacle for two reasons: I can't change my gender, and I refuse to stop making movies.
+- I don't believe in censorship in any form.
+- My movement from painting to film was a very conscious one.
+- The urge to purge the material I come up with is, I guess, an ongoing process.
+- When James Cameron brought me the script, which I developed with both Cameron and Jay Cocks, I wanted to make it a thriller, an action film, but with a conscience, and I found that it had elements of social realism.
+- I suppose I like to think of myself as a film-maker.
+- I realised that there's a more muscular approach to film-making that I found very inspiring.
+- War's dirty little secret is that some men love it.
+- I'm drawn to filmmaking that can transport me. Film can immerse you, put you there.
+- I'm drawn to provocative characters that find themselves in extreme situations. And I think I'm drawn to that consistently.
+- Something becomes personal when it deviates from the norm.
+- I like to be strong.
+- My dad used to draw these great cartoon figures. His dream was being a cartoonist, but he never achieved it, and it kind of broke my heart. I think part of my interest in art had to do with his yearning for something he could never have.
+- One of the elements in the film that really fascinated me was not to look at the world in bi-polar terms of us vs them or east vs west, which was a by-product of the Cold War.
+- The journey for women, no matter what venue it is - politics, business, film - it's, it's a long journey.
+- I need to have my hands on the DNA of a film.
+- Whereas painting is a more rarefied art form, with a limited audience, I recognized film as this extraordinary social tool that could reach tremendous numbers of people.

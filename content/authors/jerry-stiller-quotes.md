@@ -1,0 +1,24 @@
++++
+author = "Jerry Stiller"
+title = "Jerry Stiller Quotes"
+quotes_len = "18"
+description = "the best 18 Jerry Stiller Quotes"
++++
+- My father and mother - I figured if I could make them laugh, they'd stop fighting. I stole all their material.
+- Some of the routines come back very easily. We do it off the top of our heads.
+- I don't think my judgment is that good. I don't know what is funny.
+- During the Great Depression, when people laughed their worries disappeared. Audiences loved these funny men. I decided to become one.
+- Never go for the punch line. There might be something funnier on the way.
+- I shave without using shaving cream.
+- Being on a sitcom stops me from getting Alzheimer's.
+- Anne is very forgiving. She doesn't care about money, being rich, or clothes. We never argued about finances.
+- I loved the idea of touching base with an audience.
+- It can make you sad to look at pictures from your youth. So there's a trick to it. The trick is not to look at the later pictures.
+- Money is sensual.
+- Hollywood never knew there was a Vietnam War until they made the movie.
+- Creative comedy is like growing geraniums in a mine field.
+- I've been around the block a lot and I've had a merry trail for 55 years.
+- The worst thing in this business is to be thought of as a no-talent.
+- We managed to hang in there. Today when people get married there's a tendency to run away when things get tough. There is a lot of strength in hanging together.
+- I ask myself why I do it. Maybe it's to prove I'm still around. It takes a lot out of my body. I'm not an NBA player anymore. At my age, very few people can handle it.
+- Anne hated the idea of putting me down in front of the audience.

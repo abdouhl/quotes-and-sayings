@@ -1,0 +1,33 @@
++++
+author = "Kurt Russell"
+title = "Kurt Russell Quotes"
+quotes_len = "27"
+description = "the best 27 Kurt Russell Quotes"
++++
+- We all do that thing which is the best in movies - we relate.
+- If they're willing to pay you what you think you're worth for it, that's why an actor goes to work. A lot of times they want to pay you a lot for a picture you don't want to do.
+- When you think you're good, you will play at that level. If you doubt yourself, you will play like crap.
+- I can evaluate a player in a very short period of time because I'm very close to that game, very educated in that game and played the game for a long, long time. I wasn't just a guy with talent. I learned a lot about the game.
+- When you first are in front of the camera as a young person, you'd be surprised at all the insecurities you can get.
+- I played professional level sports. When you're playing for money, it's a whole other level.
+- Acting was something that just came along. But I made good money, so it wasn't something I was just going to put aside and pretend it didn't exist.
+- I started playing ball when I was a kid. My dad was a pro ball player and he passed on his knowledge to me.
+- I was brought up by two people who just said, Whatever it is you're interested in, go do it. There is no winning or losing. You find out when you do it what the experience is.
+- I've never looked at my career in terms of, What haven't I done that I want to do? I just generally find a story that I think is a good one and go to work.
+- Society questions the police and their methods, and the police say, Do you want the criminals off the street or not?
+- If I see one side of somebody, I want to see the other side.
+- I don't really look for specific types of projects any more. I'm not taking care of a career anymore. I'm just having fun acting.
+- I no longer look at my life and times in the motion picture industry as my career. I just look at it now as something I like and want to do.
+- I wasn't really serious about acting - I was serious about baseball.
+- I seem to have a knack for picking movies that go on to be cult favorites.
+- I do get cynical, but what can you do? It doesn't make any difference.
+- I always look forward to working with Goldie because she's a great person to work with.
+- We are in a democratic society. It's our job to question.
+- My first year of pro ball I played in the Northwest league and made the all-star team, and the next year I played I led the team in hitting and was third or fifth in the league.
+- If it hadn't been for the videocassette, I may not have had a career at all.
+- I got a kick out of the stands when they would heckle me. I would take the energy from that.
+- Human beings, from their own point of view, are very different than what people see.
+- I usually hang out on the set. I get to know everybody. I have a nice time with the other actors.
+- For guys playing sports at a high level, for money, I can't put my finger on it, but in a man's world of sport, there is something visceral to beating another man.
+- I know I come off differently than I think of myself. I'm always surprised by what people say about me.
+- When I was working on my career, I was very aware of what I had done, what I wanted to do next. I'm having a good time just reading things that might be interesting to do.

@@ -1,0 +1,17 @@
++++
+author = "Jorgen Vig Knudstorp"
+title = "Jorgen Vig Knudstorp Quotes"
+quotes_len = "11"
+description = "the best 11 Jorgen Vig Knudstorp Quotes"
++++
+- Many creative people are finding that creativity doesn't grow in abundance, it grows from scarcity - the more Lego bricks you have doesn't mean you're going to be more creative; you can be very creative with very few Lego bricks.
+- The Lego children and fans are highly engaged people, so they expect a high degree of interaction with us. If you go to YouTube... we were told by Google last year that we are the second most-watched brand of all brands.
+- If there was no Lego in Billund, there will almost be no Billund... Lego is Billund, and Billund is Lego.
+- What basically happens is that when a company becomes great, and I'm being a bit rude here, people think they're some kind of genius. So now we can move into all sorts of other businesses because the net bottom line is, it's because we're just geniuses. They become overconfident and expand too far.
+- There's the famous quote that if you want to understand how animals live, you don't go to the zoo, you go to the jungle. The Future Lab has really pioneered that within Lego, and it hasn't been a theoretical exercise. It's been a real design-thinking approach to innovation, which we've learned an awful lot from.
+- I don't like stuff that can only go into one set; I want stuff that can be applied across sets. It's a more real Lego building experience. And, of course, it's the same from a manufacturing point of view. I want elements that are universal; that gives me the best economics and best utilisation of the mould.
+- Lego allows all levels of complexity. But a child can do their own thing at any level. They can built a pirate ship, for example, and then mash it up with completely different things.
+- I've learned a lot on the fly, and I think, actually, my academic and management consulting background has enabled me to quickly pick up on a lot of disciplines.
+- I don't buy this premise that the number of minifigures needs to be an equal amount to be gender neutral. Nobody makes artistic products like that; nobody makes a movie and says there has to be equal numbers of men and women.
+- I think it's becoming very acceptable for adults and teenagers to be playful lifelong. You know, it's very acceptable to be a video gamer and be 35 years old. It's acceptable to be a Lego adult fan and build amazing things, even though you're 40 or 25 years old.
+- Children need to move to develop their brain; it's a natural urge. That's why boys will run after a ball and play soccer despite how many video games are available to them, and they can't help themselves from building with Lego bricks as well. They want to be creating something that's uniquely their own.

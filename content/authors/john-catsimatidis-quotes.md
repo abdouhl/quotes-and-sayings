@@ -1,0 +1,66 @@
++++
+author = "John Catsimatidis"
+title = "John Catsimatidis Quotes"
+quotes_len = "60"
+description = "the best 60 John Catsimatidis Quotes"
++++
+- Grocery stores can't afford to pay $80 a square foot. At that rate, we are going out of business.
+- America always recovers.
+- People tell me, 'You better lose weight if you want to run for mayor.' I said, 'I got the Chris Christie look.'
+- What transpired at Semgroup was no less than a $500 billion fraud on the people of the world.
+- There are two New Yorks - Manhattan and everything else. I'm a Manhattanite. I feel sorry for those people who aren't.
+- The reason I grew so fast in the supermarket business, without help of the banks in those days, was through my vendors. I convinced my vendors, the companies I was doing business with, if I did more business, they would do more business.
+- All my life, I've been winning, ok?
+- Bill Clinton told me that when he was 14, he shook John Kennedy's hand, and that inspired him to be president.
+- I think the rich should pay more in taxes - I agree with that 100 percent - but everybody should feel the pain a little bit.
+- I could have beat Obama.
+- New York never felt the recession. New York never felt a depression.
+- What's worse than getting divorced?
+- I was a Clinton Democrat for twenty years.
+- The media doesn't always reflect reality.
+- It will be almost impossible for any other candidate to raise the money that the Clintons can raise.
+- Pizza is no longer on my diet.
+- Anytime you cut food stamps, it naturally affects sales. People spend less.
+- My life would be better without Gristedes.
+- I'm a Bill Clinton social Republican.
+- Americans like buying American vs. buying from Chavez or buying from the Middle East.
+- I believe business has to do well and that the surrounding communities do well.
+- Everyone - whether it's the Jews, the Greeks, the Catholics - everybody is entitled to religious beliefs and entitled to their traditions.
+- I'm tough, but I have a heart.
+- I believe that all people that are successful should pay back their cities, their states, their towns, our country.
+- While in my late teens and in my 20s, I worked seven days a week, 20 hours a day. I worked my tail off.
+- I want to inspire people.
+- You have to work at everything. You've got to make it work.
+- I love people. I enjoy people.
+- I just want to reflect the respect I have for animals.
+- I started in the supermarket business in the early '70s. And by '75, '76, I realized you don't have a business unless you own the real estate.
+- We are teaching kids to fail. We need to teach our kids to succeed.
+- Am I a Republican? Yes. Am I a Democrat? Yes. Am I a conservative? Yes. Am I a liberal? Yes.
+- I think New York is destined to have a Democratic mayor, and I want Freddy Ferrer to be that mayor.
+- One mentor I had taught me that people do what you inspect, not necessarily what you expect. In other words, if nobody is watching, there will be some slack off.
+- I respect John Kennedy for saying that he had a dream that we'd go to the moon before the end of the decade.
+- The Fresh Direct model doesn't work.
+- I could be like Joe Kennedy and say, 'My kids are going to run for president!'
+- As mayor, I would support law enforcement, not knock it down.
+- We have to draw the line someplace with all the pesticides being used by the farmers.
+- It is tough that a lot of kids have single-family homes.
+- I grew up on 135th Street. I grew up on the poor side of New York. I grew up in Harlem.
+- I have a love factor with the minorities.
+- I'm not a Johnny-come-lately Jew. I've been around. I watch out for the Jews; I watch out for the Catholics.
+- New York is for everybody; it's for the poor, it's for the middle-class, it's for the wealthy. We can't punish any one group and chase them away.
+- It seems everyone knows the value of a cantaloupe or a quart of milk.
+- My father died in '97. But at least he lived until 93, so he saw my success.
+- Nobody destroys people - people destroy themselves, and it's very, very sad.
+- I put $5 million into the real-estate business when the world was coming to an end, and three years later, by 1980, I woke up and was worth a hundred. That's a lot of money back then.
+- I was a Mitt Romney Republican because he was pro-business.
+- When the commodities go up and the cost of transportation is going up, and the value of the dollar is going down, it's all going to translate to an 8 to 10 percent rise in food prices.
+- I made a ton of money.
+- Material things don't matter.
+- I am a real New Yorker... I didn't go to Harvard, I didn't go to Yale... I rooted for the Yankees; I didn't root for the Boston Red Sox.
+- I'm not a Mike Bloomberg billionaire.
+- I care about making New York better.
+- I'm not ashamed of being successful. You know, they criticized Romney for being ashamed of it. I think we've got to inspire our kids that we shouldn't be ashamed to be successful.
+- I'm a New York businessman.
+- I promoted myself as a fusion ticket. I was running as a Republican liberal.
+- I'm a visionary. I'm not a maintenance person.
+- I'm the same businessman Donald Trump is.

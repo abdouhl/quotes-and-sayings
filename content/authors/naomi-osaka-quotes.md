@@ -1,0 +1,62 @@
++++
+author = "Naomi Osaka"
+title = "Naomi Osaka Quotes"
+quotes_len = "56"
+description = "the best 56 Naomi Osaka Quotes"
++++
+- I don't know if anybody knows this, but Serena's my favorite player. Just playing against her is kind of like a dream for me, so I'm very grateful that I was able to play her, and it's even better that I was able to win.
+- It takes me a while to absorb things.
+- In my day-to-day, I might speak, like, 10 sentences.
+- Ever since I can remember, I played better against bigger players on bigger courts.
+- Most people know me for U.S. Open, right? And during U.S. Open, I didn't show any emotions most of the time. But then after that, I did show - well, in my opinion, it was a lot of emotions. I got upset, and then I threw my racket or stuff like that.
+- I grew up surrounded by both Haitian and Japanese culture.
+- For me, grand slams are something you dream about playing as a kid.
+- Everyone around me has more confidence in me than I do in myself.
+- I was born in Osaka. I came to New York when I was three. I moved from New York to Florida when I was, like, eight or nine, and then I have been training in Florida since.
+- I get that I'm tan, and I would stand out a little bit in Japan.
+- Japanese culture? I kind of love everything about it. I love the food. Everyone's really nice. There's just a lot about Japan that's really cool.
+- I don't really know what feeling Japanese or Haitian or American is supposed to feel like. I just feel like me.
+- In a perfect dream, things would be set exactly the way you would want them. But I think it's more interesting that in real life, things aren't exactly the way you planned.
+- For me, it's, like, no secret that Serena is my favorite.
+- You know how some people get worked up about things? That's a very human thing to do. Sometimes, I don't know - like, I feel like I don't want to waste my energy doing stuff like that. I think about this on the court, too.
+- It's not necessarily the best situation for me to try to hug someone unless I really know them. And I don't really know anybody, so.
+- The thing is, I'm used to handshakes. Every time someone comes for a hug, I'm very confused. I'm told that I give out the worst hugs, too.
+- I think, for me, I just really want to have fun with every match that I play because tennis is a game.
+- You can easily get depressed. Usually, if you play sports, you think that one match or one game is very important, and when you lose it, you think your whole world is over.
+- Even when I was a little kid, I always dreamed that I would play Serena in a final of a Grand Slam.
+- I can't really act entitled.
+- Oh, my God, I literally only have, like, one friend that I'm actually completely, like, myself with.
+- For me, I do better in Grand Slams. I like when there's more people watching.
+- I'm not really the type that spends money on myself.
+- My mum has sacrificed a lot for me, and it means a lot for her to come and watch my matches.
+- Honestly, I feel like people don't look at other people when they're walking around.
+- I guess I tell jokes a lot, but I'm not really that sure because sometimes they don't laugh, and they just stare at me like I said something insulting.
+- When I play my match, everything else is completely not in my mind anymore.
+- I like sweating.
+- I don't think you can win a Grand Slam and not be confident in yourself.
+- What makes me relaxed is the fact that I know I've put in a lot of time during the offseason on my fitness.
+- Actually, I live in FL now. But, I mean, of course I'm very honored to be playing for Japan. But my dad's side is Haitian, so represent.
+- I don't necessarily feel like I'm American. I wouldn't know what that feels like.
+- Of course I'm happy that I won a Grand Slam. I don't think there's anything that can take away from that.
+- When you're little, you're taught not to look at, like, if your opponent gets angry or anything.
+- I feel like I didn't really know how to cope with not playing well.
+- I feel like I'm a child of the Internet, and the Internet has raised me, and its jokes might not be appropriate at certain times. So, I keep them locked inside.
+- I'm just really excited every time I play a match.
+- I don't think there is ever going to be another Serena Williams.
+- I'm really grateful that I get a lot of Japanese press.
+- I feel like I play better when I'm calm. There is an inner peace I can tap into sometimes during my matches.
+- I can't let myself act immature, in a way.
+- Haiti, if you've ever met a Haitian person, they are just really positive, and literally, if you're friends with them, then they will do anything for you. So I think that's something that is, like, a really good trait, and I'm really happy that my grandparents and my dad's side of the family is like that.
+- Every time I have a dream, somehow I accomplish it.
+- I don't know if I'm 'normal.'
+- With some of the journalists, I've known them for years now, and I kind of consider them like my friends, so I always tend to joke around, and some people don't get it.
+- This is going to sound weird, but I never went to normal school; I went to online school.
+- You just gotta keep going and fighting for everything, and one day you'll get to where you want.
+- Sorry, public speaking isn't really my strong side.
+- For me, every practice and match I've played, it feels like the year is short and long at the same time. I'm aware of all the work I put in.
+- When you have to do small talk, you know, 'Hello, how are you?' after that, I don't know what to do. I go, 'OK, then,' and walk away.
+- For me, as long as my family's happy, I'm happy.
+- I think everybody who sees me would think that I'm really scary or something. But I'm not!
+- I feel like I'm more comfortable talking to people. I've been put in the position where I have to, and it's not something I can avoid anymore.
+- If - when someone asks me a question, if I could just focus on not joking, I think that would be great, because for some reason, I can't.
+- I'm always smiling.

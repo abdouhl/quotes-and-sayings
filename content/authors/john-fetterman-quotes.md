@@ -1,0 +1,105 @@
++++
+author = "John Fetterman"
+title = "John Fetterman Quotes"
+quotes_len = "99"
+description = "the best 99 John Fetterman Quotes"
++++
+- I'm not really a big fan of the idea that getting elected to public office means you get to live lavishly on the taxpayer's dime, in some mansion away from the people you represent.
+- To pretend that former President Donald Trump's Republican Party will act in good faith to preserve democracy is naive.
+- Democratic Sen. Joe Manchin is wrong to choose to vote against the For the People Act, a bill that would increase election security and access to voting and reduce the influence of big money in politics.
+- I said you could sue a ham sandwich. It's not going to change anything. Well, you can audit a ham sandwich, and it's not going to change anything.
+- I've never believed in my own political manifest destiny.
+- If you think that people can change... and, if they've grown and they've expressed contrition or regret, that they should be given a chance, then you should vote for me.
+- I do not look like the normal politician. I don't even look like a normal person.
+- I was an unplanned pregnancy between two teenagers in Reading, Pennsylvania, and they ended up getting married. They started out struggling.
+- I'm not pro-fracking. But sometimes there's got to be some pragmatism.
+- We all can't learn how to code when, you know, we're 50 years old.
+- We've made some incredible progress, but there are still steps we need to take to ensure LGBT Americans are treated as equal citizens.
+- Whether it's leaders from my own town of Braddock or leaders across the state in Bucks County or Adams County, I'm committed to always working with and listening to local elected leaders.
+- Community partnerships need to be formed between law enforcement organizations, residents, schools, child-support services, prosecutors, religious leaders, businesses and other members of our society.
+- I'm in the camp that says that if you're to the right of South Dakota on anything, you should use that as a moment to recalibrate your core values.
+- I'm so happy about Biden. I love a boring president. It's such a relief. You just have so much more confidence in our government.
+- The grip of the NRA is so suffocating in Washington that politicians are too afraid of the gun lobby to pass even the most sensible reforms, like universal background checks.
+- You know, all work has dignity. I fundamentally believe that. So all paychecks must have dignity.
+- We should transition away from carbon-based fuels, but that is not something that you can just flip a switch metaphorically, no pun intended, and start immediately like banning fracking. It's a transition.
+- If you've seen the 'Shawshank Redemption' and if you think Morgan Freeman's character should have died in prison, vote for the other person. And if you think, and you believe in redemption, and a second chance, you know, I'm your candidate.
+- I am so proud to be the Mayor of Braddock, Pennsylvania - a storied steel town I like to say built half the world.
+- I decided that I wanted to spend my career fighting inequality rather than making myself more comfortable.
+- I know I am not Braddock's savior, never felt that way, and never will. There's no 'Rudy' style ending waiting for me where I get carried off the field and everything turns out O.K. for me or for Braddock.
+- I mean, there's certainly unreachable people in either party that will never vote Democrat or Republican. That's a fact.
+- There isn't a more strident supporter of Bernie than I am.
+- Yeah, I'm quiet and introspective.
+- You can't litigate math.
+- Jake Corman, he and I disagree on issues politically, but Jake Corman is not a bad guy.
+- Republicans are consistently right-to-work and they want to eliminate unions or destroy the union way of life.
+- From partisan gerrymandering and unlimited corporate money flooding our elections to voter suppression legislation, the Republican Party, aligned with Trump, has waged a war on our democracy.
+- Republicans need to get honest about confronting climate, but Democrats need to get honest about energy.
+- Being completely neutral, Joe Biden would be all but impossible for Trump to beat.
+- If we start treating addiction as a public health issue, with more compassion, and without the criminal element, our society will be better off and violence and public safety will improve as a result. We'll also be taking a big step in taking down the prison-industrial complex that disproportionately harms communities of color.
+- We must fall on the side of de-escalation every time.
+- In my years in public service, I have advocated for reforms to our unforgiving and vindictive legal system.
+- In PA, the Lieutenant Governor serves as the Chair of the Board of Pardons. That means that I sit as the head of our five-person board, where we hear testimony and process applications for pardons and sentence commutation.
+- I'm certainly not above the law.
+- You're to the right of Hobby Lobby if you don't support $15. Hobby Lobby recognized that you got to pay people $15 an hour. So if Hobby Lobby gets it, and you don't as a Democrat, what's your problem, you know?
+- My dad was a union grocery worker in ShopRite in Reading. That helped keep the family together while he went to college. He ended up graduating and got a job as an underwriter and then transitioned into the agency side in York, Pennsylvania, and eventually became successful, at least certainly in comparison to his parents.
+- In 2015, I signed the no-fossil-fuel-money pledge and I have never taken a dime from that industry, or ever will.
+- My tenure as mayor of Braddock started with a community that was embroiled in mass distrust between residents and the police force.
+- Equity everywhere is worth fighting for.
+- You can't lock away a problem and throw away the key. I don't know if it's an unpopular view or a popular view, but it's the truth.
+- What we need to do is fundamentally shift the justice system by bringing redemption to the forefront and making sure that second chances are possible in this country.
+- The fact that somebody that looks as unfortunate as I do sometimes would be an American taste god by the Bible of American taste, you know, I didn't see that coming!
+- Pennsylvania, like every other state in our society, has to begin to adopt and refine the idea of mercy and redemption for our criminal populations.
+- Unions sustained and fed the middle class. It's no coincidence that as union membership has continued to dwindle, so have the fortunes of the middle class.
+- The truth doesn't need a label. It's the truth.
+- Back in 1995, I quit my job and joined AmeriCorps at the Hill House in Pittsburgh's legendary Hill District.
+- Like how on earth can you make 180 grand as a senator with luxe health care and sit there and be like Nero, thumbs up or down, on paying someone a living wage? I don't understand that.
+- It's ludicrous that someone can be fired from their job, refused care at a hospital or denied housing because of their sexual orientation or gender identity.
+- I'm proud that my family and I live across the street from a steel mill and a union hall. This is where my wife and I want to raise our family, not in a mansion.
+- If there's ever a boot that comes down to the union way of life or some other kind of arrangement or some kind of corporate interests, I'm always going to come down on the side of the unions.
+- I really don't care what Patrick J. Toomey says or does because Patrick J. Toomey couldn't get reelected in Pennsylvania, and that's why he's out.
+- Basic fairness and equity demand that the color of your collar should not dictate if you receive a bail-out or get bailed on.
+- How can we let students go to school everyday in an environment where they're afraid to be verbally or physically bullied? We are better than this, which is why we need to keep moving forward.
+- For a lot of people, most of their exposure to politics and politicians involves events on the campaign trail, interviews on cable news, or seeing a viral tweet here or there. But day to day, there's so much more than anyone sees.
+- For Americans living in places like Braddock, I believe the American Recovery and Reinvestment Act is perhaps the last, best chance to help overcome the injustice and harm that the decades steeped in a laissez-faire orthodoxy have wrought.
+- Discretion is the most powerful tool a police officer carries on the beat, because an appropriate level of discretion can short-circuit the use of lethal force. Discretion and de-escalation measures are pro-community, pro-police, and create more trust while making everyone safer.
+- I have plenty of relationships with progressive groups. And I've run as a progressive before it was cool to do so.
+- We use art to combat the dark side of capitalism.
+- Universal background checks and closing existing loopholes can prevent prohibited purchasers, such as convicted felons, the dangerously mentally ill and domestic abusers from accessing guns.
+- The government shouldn't be in the business of subsidizing a business by allowing people to be paid starvation wages.
+- One of the things I believe in most strongly is the power of a second chance.
+- The people of Pennsylvania don't owe me a mansion with a chef and a gardener.
+- In fact, I've been around guns for most of my life.
+- We must never stop pushing for equal protection under the law in Pennsylvania and across the country.
+- As a Democrat, I would just hate to be in a position of only being able to accomplish what Mitch McConnell allows us to.
+- You're guaranteed to have outcomes you like and outcomes you don't like in a democracy.
+- I never said I could save Braddock. It's not about me. It was never even just about Braddock. It was a metaphor. Places like this matter.
+- In order to maintain American democracy we need to tackle the problematic influence of big money donors, corporate political action committees and dark money contributions. We must put an end to partisan gerrymandering and the blatant attempts at voter suppression being pushed in Republican-led states across the country.
+- We can't say, 'Science, science, science,' and then say, 'Except in unrealistic climate talking points.'
+- Climate change is real, and we need to work on a comprehensive approach. We eliminated sulfur dioxide in the air, and got rid of acid rain. We got rid of lead in gasoline. You can achieve these things when the private and public sectors work together.
+- The security of Israel always has to be paramount.
+- When you have the president arguing that there was mass voter fraud in the absence of any evidence whatsoever - I mean, literally zero - what's to stop anyone from saying so-and-so's a so-and-so?
+- It's not a radical statement: all of us should agree that we want to make sure that weapons stay out of the hands of people that could use them to hurt others, especially after the tragedies we've seen in Charleston, Newtown, Wilkinsburg and too many other communities.
+- I don't mean to look scary, it's just kind of what I have to work with. Maybe that's why my tattoos are literally the first thing people Google about me.
+- We can't let ourselves stop believing in Second Chances for everyone. That's why my role on the Board of Pardons is so important to me.
+- I believe that one bad decision should not define a person.
+- Braddock looks every bit the deserted battlefield it truly is: 90 percent of our town's people, buildings, businesses, and homes are gone and what remains, bears witness to the torment.
+- I'm proud that, in my first year as Lieutenant Governor, we recommended commutation for 19 people serving life without parole sentences and sent them to the Governor's desk to sign - the most since the early 90s.
+- I would implore any 'Bernie or Bust' supporter that we can't let this country go the way of Donald Trump.
+- I have said this before. Donald Trump is very popular in Pennsylvania. We cannot afford to underestimate his popularity in our state. And I have emphasized that continuously.
+- I will never tweet out anything that Twitter has to slap a warning on like a pack of cigarettes.
+- We need to get people excited about living in Braddock again. For D.I.Y.-ers, this town is a dream.
+- My life has been, you know, immeasurably enriched by my wife and her family and her immigration story.
+- Once one of the most important steel manufacturing centers in the world, Braddock - what's left of it - solemnly affirms one of the great economic maxims of our society: socialism for the rich, and capitalism for the poor.
+- I was one of the only Democrats that was warning just how popular Trump would be.
+- From my perspective, we must create an equitable path forward to energy independence, not only from foreign countries, but also independence from fossil fuels.
+- A place deserves somewhere to eat lunch.
+- We're all created equal, and we all deserve an equal shot.
+- You can't live in a town like Braddock and not know exactly what gunfire sounds like.
+- The Black Lives Matter movement has brought to the national conversation many of the inequalities I've worked to confront here in Braddock. I'm so grateful it has because we need to realize that as far as the way America treats African-Americans, black lives don't matter in this country.
+- I'm a GQ fashionista, imagine that? I don't take it seriously.
+- I'm not a social butterfly.
+- If we turn our backs on the remaining industries and not reinvest in these places and just say 'You're on your own,' we will lose an entire generation of people that have no other options, other than to turn to somebody like Donald Trump and say, you know, 'Wow, he at least gets me. He at least cares. He at least pays lip service.'
+- I've said to workers that I don't care what you agree with me on politically - I hope it's as many things as possible - but one thing that you and I absolutely agree on is that your right to organize, your right to a good wage, your right to benefits, your right to participate in the value that your hard work creates.
+- On my left arm, I have the zip code 15104. That's Braddock, Pennsylvania, my home and the community I was honored to serve as mayor for 15 years.
+- I moved to Braddock in 2001 and started a program to help local youth earn their GED and find jobs.
+- When I first ran for mayor in 2005, I made a pledge to confront the epidemic of gun violence in Braddock.

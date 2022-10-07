@@ -1,0 +1,49 @@
++++
+author = "Joan Smalls"
+title = "Joan Smalls Quotes"
+quotes_len = "43"
+description = "the best 43 Joan Smalls Quotes"
++++
+- I've always had a struggle trying to get a hair campaign. It's mind-boggling.
+- I would like to pick Rihanna's brain. I love her style and what she does.
+- I always had crazy, curly hair up in a bun, messy, running up and down, sweaty.
+- I was always very, very insecure about my height. Even as a 15-year-old I was a foot and a half taller than everyone.
+- A career high was when I did a cover for 'W Magazine's July issue with Steven Meisel. So few girls shoot with Meisel in their career, and a lot of people had told me I would never achieve that, so it was a dream come true.
+- I always believe, as a woman, it's powerful to be able to pull your own body weight and be able to defend yourself.
+- I hate being skinny and being a little weakling thing.
+- My career has always thrived on hard work and good relationships with people I work with and just continuing grinding.
+- I work out almost every day, and I mix it up: I do Thai kickboxing. I have a personal trainer. I work out at my gym.
+- I know I'm representing a group - black, Latin, whatever you want to put me with - and I want to show that they are beautiful the way they are. I think that's really important for our youth to see.
+- I don't diet. I'm Puerto Rican! You can never take my rice, pork, and beans away.
+- I still get butterflies when I'm doing a runway show. The music starts, you're wearing these gorgeous clothes and your nervous about your high heels, if your shoes are going to break, if your going to slip or do something wrong.
+- You should be reflective of the world you live in.
+- When you look at the world, the world isn't just one palette. It's a beautiful rainbow, and why not have someone to represent that rainbow?
+- I became obsessed watching fashion TV shows when I was a teenager and recognized that I had the height and body frame. I especially became hooked when I saw on 'E! True Hollywood Story' how much a model can make and how I can achieve a better living for my family and me.
+- I want to last in my career, and that relies on the way my body performs. So I need to take care of it.
+- I felt most beautiful on the red carpet in Givenchy's sheer lace dress at a dinner hosted by Givenchy in honor of Marina Abramovich at the closing of her Museum of Modern Art retrospective, 'The Artist is Present', in 2010. It was the first time I had been dressed for an event, and everybody just fell in love with the dress.
+- I'm a little bit of everything. Sometimes people think I'm not Puerto Rican, because my name doesn't sound Spanish.
+- I also work out because I have scoliosis. I have to maintain certain strength in my core.
+- I adore my two older sisters, Erika and Betsy.
+- When you want something so bad and when something great happens, I think it's instinct that you say, 'This is gonna be the moment that's gonna change everything. Everybody is gonna see me a different way.'
+- It always just feels good going back home. It feels like nothing has changed. Seeing my room, the views. It, like, grounds you.
+- I would always hunch over, I was always taller than the boys. I had the extremely skinny legs... I would double up my socks, those ones from Footlocker, to make my legs look thicker.
+- I really don't go out. I love watching movies, and on a day off, I'll work out, do groceries, do laundry, see a friend.
+- I wanted to prove to people it doesn't matter if you come from a small little island: that you can make it in this industry.
+- I'd like to see more beauty campaigns for girls who are mixed Latina and black.
+- People might think that because I'm skinny and tall, I'm fragile. But I always knew I wasn't. And it's comforting to know that I can throw a proper punch if I have to.
+- I try not to go to sleep with makeup, because I think it clogs your pores. I always wash my face with something that contains salicylic acid.
+- I don't want to be on such a strict diet that I don't have fun. So if I eat sweets, I'll just put in more of an effort when I go to the gym.
+- My mom always tells me, 'Joan, you're the brightest star. Embrace your strength and your power when you walk into a room.' So I always have that in me to have that confidence.
+- I think it's nice to know that people in the industry are paying attention to all of the hard work you've done throughout the years and rewarding you for it. It reminds you to keep doing it, to keep pushing yourself, and to always remain that way.
+- My dad would love to say he taught me how to walk. He taught me how to be like, 'This is your space.'
+- I was the troublemaker, always being funny - that's just who I am.
+- My personal style is bipolar. Sometimes I feel like dressing in a boyish leather jacket; other times I want to dress more elegantly. Most of the time it's what I like to call 'comfortable chic': Giuseppe Zanotti flat sandals, Rag & Bone jeans, slouchy Isabel Marant shirts.
+- I was always being athletic, climbing trees and running after boys, just being trouble. It was always in me.
+- I remember when I started modelling and being the only non-white girl in the fashion show. I was grateful to be there, but at the casting, there had been many beautiful women of different descriptions, and I was wondering why they were not being represented.
+- I just want to continue to break barriers and to show the industry and the world that beauty is diverse, and you don't have to be a certain stereotype to be beautiful.
+- Fashion is part of our culture, and it's about more than just a pretty dress.
+- I always knew that whenever you go out there, you're not just representing yourself. You're representing a heritage that's behind you, your culture, so you always have to do things, like, bigger, badder, better.
+- I always use eyelash curlers - always makes you look extra 'woken.'
+- I always remember my mom saying she wanted a son, so I basically filled that position, like, being outside and always having dirt underneath my nails. I was never afraid of getting dirty and grimy.
+- I don't need that much contour.
+- I actually like working out. It's such a stress reliever when you're just focusing on yourself and not thinking about anything else except the music and your body.

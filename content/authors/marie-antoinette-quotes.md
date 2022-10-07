@@ -1,0 +1,31 @@
++++
+author = "Marie Antoinette"
+title = "Marie Antoinette Quotes"
+quotes_len = "25"
+description = "the best 25 Marie Antoinette Quotes"
++++
+- My dear mamma is quite right when she says that we must lay down principles and not depart from them. The king will not have the same weaknesses as his grandfather. I hope that he will have no favorites; but I am afraid that he is too mild and too easy. You may depend upon it that I will not draw the king into any great expenses.
+- I have begun the 'History of England' by Mr. Hume. It seems to me very interesting, though it is necessary to recollect that it is a Protestant who has written it.
+- No harm will come to me. The Assembly is prepared to treat us leniently.
+- My tastes are not those of the king, who has none, except for hunting and mechanic's labour.
+- Let them eat cake.
+- Courage! I have shown it for years; think you I shall lose it at the moment when my sufferings are to end?
+- My mother sees things but from the distance; she does not weigh them in regard to my position, and she judges me too harshly. But she is my mother, who loves me dearly; and when she speaks, I can only bow my head.
+- I was a queen, and you took away my crown; a wife, and you killed my husband; a mother, and you deprived me of my children. My blood alone remains: take it, but do not make me suffer long.
+- I have seen all, I have heard all, I have forgotten all.
+- The king and the dauphin both like to see me on horseback. I only say this because all the world perceives it, and especially while we were absent from Versailles, they were delighted to see me in my riding habit.
+- There is nothing new except what has been forgotten.
+- I feel more and more, every day of my life, how much my dear mamma has done for my establishment. I was the youngest of all her daughters, and she has treated me as if I were the eldest, so that my whole soul is filled with the most tender gratitude.
+- We made our entrance into Paris. As for honors, we received all that we could possibly imagine; but they, though very well in their way, were not what touched me most. What was really affecting was the tenderness and earnestness of the poor people, who, in spite of the taxes with which they are overwhelmed, were transported with joy at seeing us.
+- Your Majesty may rest assured about my conduct towards the Comtesse de Provence; I will certainly try and gain her friendship and confidence, without going too far.
+- It is an amazing feature in the French character that they will let themselves be led away so easily by bad counsels and yet return again so quickly. It is certain that as these people have, out of their misery, treated us so well, we are the more bound to work for their happiness.
+- You have doubtless heard, my dear mother, the misfortune of Madame de Chartres, whose child is born dead. But I would rather have even that, terrible as it is, than be as I am without hope of any children.
+- No one understands my ills, nor the terror that fills my breast, who does not know the heart of a mother.
+- It would be doing me great injustice to think that I have any feeling of indifference to my country; I have more reason than anyone to feel, every day of my life, the value of the blood which flows in my veins, and it is only from prudence that at times I abstain from showing how proud I am of it.
+- The King of Prussia is innately a bad neighbor, but the English will also always be bad neighbors to France, and the sea has never prevented them from doing her great mischief.
+- The king is full of kindnesses toward me, and I love him tenderly. But it is pitiable to see his weakness for Madame du Barri, who is the silliest and most impertinent creature that it is possible to conceive.
+- I should be very sorry if the Germans disapproved of me.
+- You can be assured that I need no one's guidance in anything concerning propriety.
+- It is true I am rather taken up with dress; but as to feathers, every one wears them, and it would seem extraordinary if I did not.
+- I pity my brother Ferdinand, knowing by my own feelings how sad a thing it is to live apart from one's family.
+- In a month's time, I shall be able to give your Majesty news of the Comtesse de Provence, for the marriage is fixed for May 14th; they had prepared many fetes for this marriage, but now they are economising in them for want of money.

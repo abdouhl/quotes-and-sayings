@@ -1,0 +1,18 @@
++++
+author = "Mike Vogel"
+title = "Mike Vogel Quotes"
+quotes_len = "12"
+description = "the best 12 Mike Vogel Quotes"
++++
+- I do things that are very uncharacteristic of a normal workout routine. I hate cardio. Absolutely hate it. I grew up as a wrestler, so it was constant cardio, cardio, cardio.
+- I grew up a plumber's son in Philadelphia.
+- My wife is a terrific Southern cook. My favorite of all the great things she cooks is 'trash potatoes.' That's mashed potatoes with sour cream, bacon, cheddar cheese, and horseradish. It's a total gut bomb.
+- I have many friends in Special Forces, and the amazing thing about these guys is how quickly they can read someone.
+- When my wife and I met, I couldn't talk to her - and my defense mechanism is sarcasm. I belittle someone with verbal pokes and prods. I did it to her out of complete awe. When friends introduced us, I said 'Hi' - and turned my back. Later, I called my mom and best friend and said, 'I think I just met my wife.'
+- My whole life, I wanted to be a fighter pilot; it's what I wanted to do. I set up all of my classes for it, but I got lazy my senior year in high school and didn't get my paperwork in.
+- I roll out of bed, walk into the garage, work out, and go about my day. I'll bring my daughter out there in her ExerSaucer. I don't know if I'll ever go back to a gym.
+- The Dome is a metaphor that could mean anything - it could be nuclear fallout, terrorists - I've always been fascinated with stories where people's roles are flipped on their heads, be it the Wall Street guy, the techno guy, etc. All of those things are only successful when there are people and money around.
+- On paper, actors are the dumbest group of individuals essentially out there. Most of us have not gone to college. However, we never stop learning. Because of what we do, we're constantly researching, constantly learning.
+- Music is just a huge part of my life. It affects moods. I've always found it insane how you can hear one song, and it takes you back to a specific, specific moment in your life, and you remember it vividly like it was yesterday.
+- When I graduated from high school, I weighed 125 pounds because of wrestling. Suddenly, I realized I could eat whatever I wanted - plus, creatine was new at the time. I went from 125 to 175 pounds, working out like crazy. I was yoked. But I wasn't drinking enough fluids and ended up with a kidney stone - and 3 weeks of pure hell.
+- I have such an eclectic taste in music. Come to a backyard BBQ at my house, and I will run the gamut from Skynyrd to Sinatra to '90s grunge, rap, R&B, and classic rock. I have issues. If I had to pick one, I love this country artist named Craig Morgan. His music and his songs are so relatable and tell such vivid stories.

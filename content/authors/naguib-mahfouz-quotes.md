@@ -1,0 +1,53 @@
++++
+author = "Naguib Mahfouz"
+title = "Naguib Mahfouz Quotes"
+quotes_len = "47"
+description = "the best 47 Naguib Mahfouz Quotes"
++++
+- We used the Western style to express our own themes and stories. But don't forget that our heritage includes The Thousand and One Nights.
+- I reject any path which rejects life, but I can't help loving Sufism because it sounds so beautiful. It gives relief in the midst of battle.
+- There are no heroes in most of my stories. I look at our society with a critical eye and find nothing extraordinary in the people I see.
+- The criminal is trying to solve his immediate problems.
+- I thought they would never select an Eastern writer for the Nobel. I was surprised.
+- I am practically in the employ of Mr. Nobel. I have to meet everyone he sends my way.
+- If we reject science, we reject the common man.
+- The writer interweaves a story with his own doubts, questions, and values. That is art.
+- My countrymen have the right to shake my hand and talk to me if they so wish. Don't forget that their support and their reading of my works is what brought me the Nobel prize.
+- God did not intend religion to be an exercise club.
+- The Arab world also won the Nobel with me. I believe that international doors have opened, and that from now on, literate people will consider Arab literature also. We deserve that recognition.
+- I started writing while I was a little boy. Maybe it's because I was reading a lot of books I admired, and thought that I would like to write something like that someday. Also, my love for good writing pushed me.
+- I defend both the freedom of expression and society's right to counter it. I must pay the price for differing. It is the natural way of things.
+- I've never worked in politics, never been a member of an official committee or a political party.
+- According to Islamic principles, when a man is accused of heresy, he is given the choice between repentance and punishment.
+- I didn't make any money from my writing until much later. I published about 80 stories for nothing. I spent on literature.
+- I wake up early in the morning and walk for an hour. If I have something to write, I prefer to write in the morning until midday, and in the afternoon, I eat.
+- One effect that the Nobel Prize seems to have had is that more Arabic literary works have been translated into other languages.
+- Without literature my life would be miserable.
+- I believe society has a right to defend itself, just as the individual has the right to attack that with which he disagrees.
+- Events at home, at work, in the street - these are the bases for a story.
+- It is simply not part of my culture to preserve notes. I have never heard of a writer preserving his early drafts.
+- It's clearly more important to treat one's fellow man well than to be always praying and fasting and touching one's head to a prayer mat.
+- I love Sufism as I love beautiful poetry, but it is not the answer. Sufism is like a mirage in the desert. It says to you, come and sit, relax and enjoy yourself for a while.
+- I was a government employee in the morning and a writer in the evening.
+- I accepted the interviews and encounters that had to be held with the media, but I would have preferred to work in peace.
+- We are like a woman with a difficult pregnancy. We have to rebuild the social classes in Egypt, and we must change the way things were.
+- The Koran and the laws of all civilized nations legislate against the vilification of religions.
+- If the urge to write should ever leave me, I want that day to be my last.
+- The Nobel Prize has given me, for the first time in my life, the feeling that my literature could be appreciated on an international level.
+- Winning Nobel imposed on me a lifestyle to which I am not used and which I would not have preferred.
+- I consider Khomeini's position dangerous. He does not have the right to pass judgment-that is not the Islamic way.
+- History is full of people who went to prison or were burned at the stake for proclaiming their ideas. Society has always defended itself.
+- Hosni Mubarak... his constitution is not democratic, but he is democratic. We can voice our opinions now. The press is free.
+- My wife thought I deserved it, but I always thought the Nobel a Western prize.
+- As the tension eases, we must look in the direction of agriculture, industry and education as our final goals, and toward democracy under Mr Mubarak.
+- Today's interpretations of religion are often backward and contradict the needs of civilization.
+- I was suffering from a peculiar and persistent sense that I was being pursued, and also the conviction that under the political order of the times, our lives had no meaning.
+- If you want to move people, you look for a point of sensitivity, and in Egypt nothing moves people as much as religion.
+- In Egypt today most people are concerned with getting bread to eat. Only some of the educated understand how democracy works.
+- We are passing through a very sensitive time, and on the whole, this country is facing very big problems.
+- You can tell whether a man is clever by his answers. You can tell whether a man is wise by his questions.
+- At my age it is unseemly to be pessimistic.
+- I was reading a lot of books I admired, and thought that I would like to write something like that someday.
+- Insults are the business of the court.
+- An allegory is not meant to be taken literally. There is a great lack of comprehension on the part of some readers.
+- Sadat made us feel more secure.

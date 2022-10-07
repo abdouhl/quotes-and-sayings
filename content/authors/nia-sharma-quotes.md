@@ -1,0 +1,47 @@
++++
+author = "Nia Sharma"
+title = "Nia Sharma Quotes"
+quotes_len = "41"
+description = "the best 41 Nia Sharma Quotes"
++++
+- I had a boyfriend in school, and it was an innocent relationship that I experienced. It's sad that the relationship didn't last forever, but I do look forward to having someone special in my life once again. I'd definitely want to get married if I find my Mr Right.
+- If I feel I am not doing something right, I express it to people and to the media, too. I wouldn't shy away from that. It's healthy to interact. What you see is what you get with me.
+- People like my fashion sense a lot, but somehow, I never got a chance to wear stuff that I love on screen.
+- 'Ek Hazaaron Mein' turned out to be my identity, it made me Nia Sharma in the industry.
+- If someone makes a supernatural-themed show, and it becomes the best show, you are only making money and becoming famous. You are not learning anything from it. It's pure entertainment, even if the content is regressive.
+- Yes, my fashion sense is outrageous, but I am a rebel. I am young and still growing up.
+- Learning how to swim is the biggest achievement for me, as it helped me get rid of hydrophobia. Now I have become a complete water baby.
+- Frankly, TV stars are not that popular. In fact, I don't have even have a million followers on any of social media accounts.
+- TV isn't a wide medium when it comes to boldness on the small screen because of the audience. It reaches out to the audience but keeping the traditions intact.
+- TV stars don't know how to dress up, and they have to hire a stylist. This is true to a great extent. That's why I go out of my way to experiment. Sometimes I hit the bullseye, sometimes I miss.
+- I am Nia - I have certain traits of my own, and I won't mind telling people that I am a short tempered, immature, silly, normal girl who does mistakes very unlike the sanskari bahu on screen.
+- I like to style myself and aim to wear the coolest of clothes that I can lay my hands on! It's my conscious effort to look different and dress up funky. I feel elated that people notice the crazy things I do.
+- I never thought that I would become Nia Sharma. I never imagined I would end up earning this much money. I never thought I would earn this much in my entire life.
+- It's impossible to beat Katrina Kaif in looks and sex appeal. She's too hot!
+- Why are people making it so difficult for girls to live the way they want to in India? Let's not make India a place where a girl has to think 10 times before going out or wearing what she wants.
+- Of course it worries you as an actress to stay away from projects. I was approached for many TV soaps as well as reality shows. But, to stay away from work was my decision, and I'd glad to be part of such an interesting and unique concept like 'Ghar Jamai.' I am happy that I am playing a role that is so relatable.
+- There is not much money in web series as compared to what I make on TV. And that is a fact. So I would love to make money at a time when I am getting my price.
+- I'm not running after glamorous roles, honestly. I'm a performer and want to perform instead of standing like a mannequin wearing a lot of makeup.
+- A 12-hour shift is physically exhausting. You give multiple shots, wearing heavy jewellry and make-up - and end up with dark circles, acne, and skin problems.
+- I am fine battling lions, tigers, snakes, bulls, even hippopotamuses, but not lizards.
+- Life's too short to wear boring clothes and apply boring lipsticks, and BTW, I loved my blue lipstick.
+- I don't think I am even that popular. In fact, people must be wondering who the hell Nia Sharma is!
+- I am a hardcore VH1 lover and always have this dream of featuring in an English music video of VH1.
+- I just want to look better by each passing day.
+- I would not mind stepping into movies if it is a good project. If it is changing my career in a good way, then of course I will keep money aside.
+- Everyone appreciates me for my honesty. Why shouldn't I speak my mind? I will not say I am blunt. I don't speak about others.
+- I enjoy interacting with my fans.
+- I am really conscious about what I wear and how I look. I am glad that media has acknowledged this. Over the years, I have really groomed myself.
+- I played a bahu for six years on-screen. I really wanted to come out of that.
+- It is always good to keep looking different and desirable.
+- When you go for a vacation, you hit the usual spots, but staying in a country for over a month is a different experience altogether.
+- I want to keep working. I have been stuck in this routine of coming to the set, putting on my make-up, eating, and leaving for home.
+- It's crazy to call myself as the sexiest woman. I'm like, wow; this is cool. Looking at the past years, I was expecting 5th or 6th position. But standing on the 3rd position was totally unexpected.
+- The only medium where people are truly exploring themselves and going out to experiment is the digital space.
+- The kind of crazy amount of fan following that I achieved from 'Ek Hazaaron Mein' was amazing. We used to get i-Pads as gift, Abercrombie and Fitch dresses from America. I had everything in the world.
+- It's good to be in the news for whatever reason. I can't pretend that I am not enjoying the attention. Being popular is a good thing.
+- I had great apprehension in locking lips with Namit on the screen. I come with my own prerogatives.
+- Spaniards are fun-loving people, and they love to dance to Punjabi songs for some reason. They didn't understand the language but enjoyed the beats.
+- After 'Jamai Raja,' I wanted to experiment, hence tried my hands at 'Comedy Nights Bachao Taaza.'
+- Neither do I have the time or the luxury of having a relationship. I don't want to get into fights with someone because I have no time for him.
+- If you dance alone on the streets, people might call you crazy, but when so many people dance together, it's a party.

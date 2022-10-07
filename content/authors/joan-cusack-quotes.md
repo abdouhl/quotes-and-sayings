@@ -1,0 +1,45 @@
++++
+author = "Joan Cusack"
+title = "Joan Cusack Quotes"
+quotes_len = "39"
+description = "the best 39 Joan Cusack Quotes"
++++
+- Every week it's another opportunity to really make that work and figure out how to make it work better. And I love that it's like theater, too, and the audience, and it's so short. It's only 20 minutes. It's like a haiku or something.
+- I mean, the country was founded on free enterprise. There's good things about it, and there's obviously bad things about it.
+- My dad was a very funny man - he's the one who taught me life would be awfully hard without humor! I'm sure his Irish wit in some way influenced my decision to become an actress.
+- I play- it's kind of like a slice-of-life, LA women in their forties, playing forty kind of what's their friendship like, and what's their life like and so I just play one of the four friends.
+- Maybe I'm more drawn to those kind of parts because they are meaningful to me. I mean, more parent-y ones, I find them interesting to do.
+- If you do television, and it's great, it's the best job there is. Every week it's another opportunity to really make that work and figure out how to make it work better. I love that it's like theater too, and the audience, and it's so short, like twenty minutes... It's like a Haiku or something.
+- My mum is very political - left wing - and my dad was in the advertising business. They were both from the East Coast: Boston and New York City, respectively.
+- I mean that I think I find the psychology of people more interesting than politics. I think the psychology of politics is more interesting than straight politics.
+- As a parent, you have to figure out how to shape your kid's character. You want to have human beings who learn about good character. You have to be able to see your child with clarity, see the good side and the bad side of them, and work on the bad side and make them better so they fulfill their potential.
+- In L.A., it's easy to get caught up in what you look like or how much money you have, and those aren't values I want my kids to adopt.
+- We need comedies in the world! We need to laugh, it's all so hard.
+- I think there's a million talented people out there, it's just a matter of luck a lot of the time.
+- I think acting has helped me come out of my shell because when I play a character, I can't be self-conscious.
+- A relationship is hard in and of itself. And having kids is really hard work, but I think it's really meaningful, as is a relationship. But they all take work.
+- Skating is big in Chicago. There's a lot of hockey; a lot of the boys play hockey. And figure skating is big.
+- Mum has always been a huge anti-war activist. She would go off to protest and get arrested. I have her passion, but it is not for politics. I am much more interested in psychology. It's more my job and my natural inclination.
+- I take parenting incredibly seriously. I want to be there for my kids and help them navigate the world, and develop skills, emotional intelligence, to enjoy life, and I'm lucky to be able to do that and have two healthy, normal boys.
+- Because I don't think it's very healthy to hold people to idealized views. I think that's a certain stage in life, something kids do. You have to go through that idealistic phase with your parents, but at a certain point, you need to see people as just people.
+- I think it's fun to have work that you can relate to, that you can feel like is meaningful.
+- It's nice to be able to work; I'd love to be able to do another TV show I could do in Chicago so I could live and work in the same place. It's hard being a parent and being in a good marriage, and it all takes a lot of work, but if you're not there you can't do any of it.
+- Can they do both? That's a huge balance, I think, with kids- trying to find the right- it's everything, you know, it's social life, it's academics, it's sports.
+- I can't imagine being a single parent or a single parent that doesn't have a lot of money. That's a big, huge impact on your life and your dynamic and everything - I mean, that's huge. It affects how much you have a break from just concentrating on just one other person in your life. It becomes so myopic that way, and more intense, probably.
+- It was fun; you know, at this point in my life it's like, I want to do stuff that's meaningful.
+- It was a terrible blow that was dealt when I was fired from 'Saturday Night Live', but I have to say that a few doors opened right away. Movie roles started to roll in, and pretty soon, I was over it.
+- It's incredibly, incredibly difficult to get a movie made.
+- I think there's nothing better than laughing in life, so that's nice, to be thought of as someone who can make someone laugh. It's 'cause I think life is hard. You know, my dad was a really silly man. A great Irish silly man. And that's fine.
+- You know, I loved math. My mom was a math teacher.
+- I think us gals need to stay in and just change the way it works, so men aren't being workaholics and avoiding life and relationships, and they can make films in a reasonable amount of time, so you can have a family and a life outside of work. And have more balanced, content-driven, enjoyable movies.
+- My first job now is as a mother, everything else is secondary. My kids understand that I am an actress, and they are always so surprised to hear my voice on a cartoon character, or see my face on a video box. If it ever gets to be too much though, the career and the kids, I will simply set the career aside.
+- I think America has a bad rap right now... and hopefully Obama will change that.
+- You know, I think I'm more of a micro-person, so to me, the context and the framework of trying to do what you love and feel passionate about, in supporting your family in that way, is the most important thing to me.
+- I was never the 'babe,' so I knew I'd never get those big roles. I'd always be the best friend or the quirky sidekick.
+- I love Chicago. It's such a great town, and it's got great culture and great history, and it's not as extreme as LA or New York, and it's just- it's hard for me for work, because I don't live and work in the same place and that's tough. But I'm- I love it.
+- I think if you're in this business, like any high-stakes business, the highs and lows can make you a manic-depressive person, if you weren't that way to start with. 'Cause it's just so crazy on your psyche. A lot of it has to do with people thinking they're greater than someone else.
+- Bulgaria is fascinating. Because it had been a Communist country until the mid-80s, so it had just recently transitioned. And there were still the police towers on the street corners, where they look down - they were still there, although no one was in them.
+- I think just because life is hard, it does seem fun to have a break and laugh about things, so I think in the end, my instincts go there.
+- I want my kids to experience passion. I want them to see that I have things I feel passionate about because it is such a great feeling to really love something.
+- Don't live vicariously through your kids or try to shape them into who you wanted to be, like the popular kid or an athlete. Children should be given the opportunity to be themselves.
+- I think that everything's hard now anyways, so you might as well do stuff that you love and believe in.

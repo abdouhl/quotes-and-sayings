@@ -1,0 +1,78 @@
++++
+author = "Neha Kakkar"
+title = "Neha Kakkar Quotes"
+quotes_len = "72"
+description = "the best 72 Neha Kakkar Quotes"
++++
+- If you call yourself a singer, then you must have the ability to sing anything, whether it's pop, classical, rock, sufi, or folk.
+- I thank all my fans and well-wishers and all those who have supported me over the years for making me what I am today.
+- My schedule is such that even though I visit several cities for performances, I hardly get the time to explore any of them.
+- I cannot really recall when I faced stage fear because I started so young. It's my natural habit. But you know, I can see how I have changed, rather improved as a singer. I never had a formal training but regular practice of singing.
+- In selfie pictures, there is no human touch; it's all about the pose. But selfie videos have sound, actions, and emotions.
+- I am somebody who is very comfortable on stage because I have been performing since childhood. I have done a lot of public events as well, though there is a huge difference in my performances today and the ones from my childhood, as earlier, I used to sing bhajans.
+- I instantly took the offer to judge 'Indian Idol' because I know the journey from being judged to judging on the same stage is going to be a memorable experience for me.
+- As a performer, you want your audience to have as much fun as you are having on stage.
+- Honey Singh has tremendous energy on stage.
+- Usually, I head for another performance or back to Mumbai right after my performance. But whenever I come to Delhi, I make it a point to stay back in the city for at least a day so that I can unwind.
+- Many young people come to me and tell me that 'You inspire us with the way you perform, even if you are a girl with a short height.'
+- I knew that I wanted to sing right from the age of four, and till I was 16, I only sang at Mata ki Chowkis.
+- I used to sing at mata ki chowkis and other religious events, and people loved me.
+- I am an extremely energetic person, and my party songs have managed to click with the listeners.
+- I only sang bhajans from 4 to 16 years.
+- People in Mumbai are not really into Punjabi music, whereas those in Delhi and Gurgaon love Punjabi numbers and are totally into the peppy music.
+- I was probably four when I knew that I wanted to be a singer.
+- Coming from Mumbai, the one thing that always amazes me about Noida is the roads here. Such wide roads are something you don't get to see in Mumbai. Driving around here is surely a pleasure.
+- My sister Sonu and my brother Tony have taught me a lot. I owe them so much. Whatever I am today is because of my family.
+- I am a Delhiite, and my journey as a singer began in the city.
+- I want people to hear me and say, 'Oh my God, what a voice.'
+- Even though I perform at all kinds of functions, college events are always my favourite because of the kind of energy you get there.
+- Film budgets are huge. They can afford to promote each and every song in their album.
+- When it comes to independent music albums, you cannot put in 50 lakhs or a crore in each and every song to first make a video and then even promote it. It's not possible for a musician or a singer to promote each song. It's not possible for musicians to do that independently.
+- I think people really like my voice, the way I sing, the things I put in a song.
+- The fact that I am not formally trained never really bothered me. There were times I knew it could have been a brownie point, had I been trained, but it never pulled me back.
+- Two best friends can totally say they love and adore each other, without any meaning of romance.
+- I have grown up now... with so much experience in life that I keep incorporating in my expression while performing.
+- My siblings' first songs in Bollywood - 'Baabuji Zara Dheere' and 'Saawan Aaya Hai' were huge hits. There is no rivalry between us, and we love and support each other.
+- When Guru Randhawa and I sang, people really liked our chemistry.
+- People love me when I do selfie videos, so I know they like me in music videos as well. Otherwise, I would have just been a playback singer.
+- It feels great when your work gets appreciated.
+- A film album has these big stars - like a Shah Rukh Khan or a Salman Khan. Independent music videos don't have that luxury, and you cannot feature big stars in all the songs of your album.
+- I have won the hearts of many. So that matters more than any award. The love of my 'Nehearts' - my fans, is more than inspiring and encouraging.
+- There is a drama queen in me, as I love acting, and I used to stand in front of the mirror and act since my childhood.
+- Wherever I go, people behave like a very big superstar has entered, and I am never able to believe that they all are talking about me.
+- I treat every song like a different character. It is good that people recognise my voice instantly, but as an artiste, I always try and bring some variety with each of them.
+- I feel whatever happens, happens for a reason. I am just glad the way my journey worked out.
+- I am extremely thrilled that my superhit single 'La la la,' composed by the talented Bilal Saeed, will be a part of the film 'Baazaar.' The song is a hit with the youth, and it always feels nice that the work you do is appreciated globally.
+- I try to do different things which I'm happy people are loving.
+- Badshah treats me like a younger sister. He is amazing to work with.
+- At the end of the day, I love singing, whatever the style might be.
+- There is no hit formula to make it big in Bollywood.
+- I love experimenting; as a singer, one needs to be versatile.
+- I will only take up acting if the offer is too good to refuse.
+- I am happy being a playback singer and performer.
+- I was born in Rishikesh, but when I was around two or three, we shifted to Delhi.
+- Many young people even tell me that 'You inspire us to do something big in life.'
+- When people hear you singing songs which are done as playback, they don't see you. But when you perform live, they expect you to be interacting with them.
+- Since childhood, me and my mother are fond of this popular song 'Tu Kitni Achhi Hai, Tu Kitni Bholi Hai' from the film 'Raja Aur Rank.'
+- I am fortunate to be successful. People's love is precious to me. I can never take that for granted.
+- I think my selfies are the main reason for my fan following on social networking sites. These photos and videos are liked and shared by the followers, and consequently, they go viral.
+- I am an entertainer and would sing a song if I know my voice would do justice to it.
+- There are so many young singers I meet from Delhi, and I am sure they will attain heights some day. They all are very good, and I am very proud of them.
+- Singing from the heart is my only goal.
+- I will give full credit to the 'Indian Idol' platform for grooming me as a singer and shaping my career.
+- It was Delhi that gave me the platform to achieve my dreams.
+- I have seen in many cases that the youngsters are told by their friends and family that they sing very well, but that might not be true. When they are told that they have to work hard on their singing, they get disheartened. One must know how to take feedback from different people and work hard on his or her singing to achieve something.
+- I got my first blockbuster break for the movie 'Cocktail,' where I sang 'Second Hand Jawani.'
+- People have made me so big now, which I never thought I can be as a female singer.
+- You should know that you need talent, passion, and luck to be a singer.
+- 'Tim Timtya' was different from what I usually do. I had to develop a texture to go with the song. In fact, many told me I sounded like Shreya Goshal, which came as a pleasant surprise. Transitioning from tracks like 'Sunny Sunny' to this one was quite different.
+- It feels great to be compared to Colombian singer Shakira.
+- Success has got no limits.
+- I believe in entertaining the audiences with whatever I do.
+- At one time in my life, I stood in queues for 'Indian Idol' auditions, and I got eliminated at Top 8 or Top 9. I could have never imagined that one day I will be judging this show where I was a contestant myself.
+- Whenever I sing, I try to make it different, the sound that you've never heard before, and put something new, which people love.
+- Going out with friends for a nice dinner and then attending the midnight mass are some of the memories I cherish.
+- I always tell everybody that I feel I am living my dream.
+- Be it a private event or a college fest or the occasional wedding sangeet, my visits to Noida are frequent.
+- Nothing beats the food of Delhi.
+- As a viewer, I love to watch reality shows, and being a part of the industry, I feel it helps a lot. There are a lot of talented artists in small towns and villages of India, and these shows are a huge platform to showcase their talent and bring them to the forefront.

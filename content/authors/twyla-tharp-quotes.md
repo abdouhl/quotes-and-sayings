@@ -1,0 +1,144 @@
++++
+author = "Twyla Tharp"
+title = "Twyla Tharp Quotes"
+quotes_len = "138"
+description = "the best 138 Twyla Tharp Quotes"
++++
+- With each piece I've completed I have worked to make it intact, and each of them has been an equal high. It's like children. A mother refuses to pick out one as a favorite, and I can't do any better with the dances.
+- Walt Disney was a master of the human psychology. His sense of timing, sense of speed. In a sense, those cartoons are like Rorschach tests.
+- Everything present is included in the past somewhere; nobody's present pops out of nowhere.
+- In those days, male dancers were a rarer breed than women. as they are still today, A good male dancer, one as strong as we were, was very difficult to come by if you couldn't afford to pay them.
+- A dancer's life is all about repetition.
+- In circuses, there is a lot of magic. Things become other things.
+- Desire is the first thing a modern dancer should have. Skill can be developed. But if you don't have desire as a modern dancer, forget it.
+- Dance is just like film in that it allows for thoughts in movement.
+- When I was a kid, the avant-garde to me was boring because it was just the flip side of being really successful.
+- The formal education that I received made little sense to me.
+- Do I watch dancers as people? Yes, absolutely. Do I watch really good dancers for specifically who they are? Absolutely, because how they move best and how they look best is going to be most familiar to them, and not necessarily to me.
+- In the not-for-profit world, there can be wastefulness because there's not the desperate urgency of when you're on a clock.
+- I often say that in making dances I can make a world where I think things are done morally, done democratically, done honestly.
+- I don't think politicians should be allowed into power who are not familiar with their bodies, because that's where our bottom line is. And I know that they would make totally different decisions if they felt responsible simply for their own bodies.
+- We don't need to illustrate music; music illustrates itself.
+- It is extremely arrogant and very foolish to think that you can ever outwit your audience.
+- I have not wanted to intimidate audiences. I have not wanted my dancing to be an elitist form. That doesn't mean I haven't wanted it to be excellent.
+- I realize that dancers have worked long and hard for standards. However, on occasion, I think that it's good to examine one's heart and ask why are we dancing.
+- I think people want very much to simplify their lives enough so that they can control the things that make it possible to sleep at night.
+- 'Bum's Rush' is a piece about timing, and everything that's in the piece needs to be with the piece. If people are missing, or marking, or unable to use their voices, the impulses that prompt the action are lost, and its logic crumbles.
+- Who a dancer is physically feeds into character for me. Always has.
+- At the ballet classes I took when I first came to New York, I would see great dancers like Cynthia Gregory and Lupe Serrano. I would look at them and study what they could do, and what I couldn't do. And then I'd think maybe they should try what I could do.
+- The only way to know the truth of a movement is to do it on your own body.
+- I never studied with Balanchine, but his work was very important to me.
+- It's always a problem, getting the curtain in at the end of the first act; having enough of a resolve so that you can bring the curtain in and then opening the show a second time is a little bizarre as a tradition. I've always preferred to go straight through.
+- If you're speaking of love, you really must include the element of uncertainty - and perhaps it's best approached as the art of constant maintenance.
+- Ultimately there is no such thing as failure. There are lessons learned in different ways.
+- The ultimate point of a piece for me is that it drives the next one. Does it open new doors? That's the success of a piece.
+- Optimism with some experience behind it is much more energizing than plain old experience with a certain degree of cynicism.
+- When I was a kid, toe dancing and toe shoes had a meaning in our culture as a serious kind of art.
+- I am still pushing the edge of what my body can do.
+- After so many years, I've learned that being creative is a full-time job with its own daily patterns. That's why writers, for example, like to establish routines for themselves.
+- I don't hate language. I have my own language, but I also enjoy the English language. Obviously, you don't read a lot of literature and not care about language.
+- When I look at the people who are the guiding figures in modern dance, I think, 'This does not look to me like the way I want to spend my days.'
+- I do at least 75 push-ups a day.
+- I see dance as glue for a community.
+- My father always said, 'I don't care if you're a ditch digger, as long as you're the best ditch digger in the world.'
+- It was not until I had graduated from college that I made a professional commitment to it. Frankly, I didn't think it wise. I was my own interior parental force, and it's very difficult to justify a profession as a dancer.
+- I think that anyone who's pushed to do the very best that they can is privileged. It's a luxury.
+- My own physicality, not an abstract idea, makes me a choreographer.
+- Critics should be looked at simply as commentators.
+- I think a sense of humor will help get a girl out of a dark place.
+- In dreams, anything can be anything, and everybody can do. We can fly, we can turn upside down, we can transform into anything.
+- I would have to challenge the term, modern dance. I don't really use that term in relation to my work. I simply think of it as dancing. I think of it as moving.
+- There is obviously a power and a truth in action that doesn't lie, which words easily can do.
+- 'The Creative Habit' is basically about how you work alone, how you survive as a solitary artist. 'The Collaborative Habit' is obviously about surviving with other people.
+- There's the tradition of the 19th-century ballets, and the 20th century has had a difficult time with that tradition. And it's had a difficult time with many components of the Romantic imagination because of modernism.
+- A lot of people insisted on a wall between modern dance and ballet. I'm beginning to think that walls are very unhealthy things.
+- There is a moral dimension, for me, in anything that's any good.
+- The rewards of dancing are very different from choreographing.
+- Modern dancers should be doing things no one else is doing, and it should come from the gut.
+- I grew up in a drive-in theater, from the time I was 8, working in a snack bar watching four features every week. It was silent theater in the sense that this was a drive-in, which meant that I often saw the films going with no sound. But I learned to tell stories through action.
+- What is music about? You can't listen to one era, one composer, and know what music is about.
+- I do not watch television, never have.
+- Dance should not just divide people into audience and performers. Everyone should be a participant, whether going to classes or attending special events or rehearsals.
+- Nobody worked harder than Mozart. By the time he was twenty-eight years old, his hands were deformed because of all the hours he had spent practicing, performing, and gripping a quill pen to compose. That's the missing element in the popular portrait of Mozart.
+- I have the wherewithal to challenge myself for my entire life. That's a great gift.
+- People often say to me, 'I don't know anything about dance.' I say, 'Stop. You got up this morning, and you're walking. You are an expert.'
+- When I say I can see through clothes, sometimes I try to use it as an X-ray vision to look into the dancer and see who this dancer is right now, at this exact moment in time. I live inside them in a way.
+- Schubert had arguably the same melodic gift as Mozart, but even less support. He didn't have the early exposure, never got to travel anywhere, and yet generated and amassed a body of work that grew and developed and is very profound.
+- I've always found it necessity to strip away everything but the most fundamental ways to work - the rest is style.
+- You can only generate ideas when you put pencil to paper, brush to canvas... when you actually do something physical.
+- Balzac loved courtesans. They were independent women, and in the 19th century, that was a breed that was just evolving.
+- The content and thematic materials of dance is, of itself, like boxing. You play tennis and baseball. But boxing is not a sport you play: you stand up and do it.
+- Proust writes, he remembers, physically. He depends on his body to give him the information that will bring him to the past. His book is called 'In Search of Lost Time,' and he does it through the senses. He does it through smell. He does it through feeling. He does it through texture. It is all physically driven, that language.
+- There's this expression called postmodernism, which is kind of silly, and destroys a perfectly good word called modern, which now no longer means anything.
+- No artist is well served in thinking what will happen to their works. The best one can hope is that they'll enter the mainstream, and people will pull bits and pieces from them.
+- To survive, you've got to keep wheedling your way. You can't just sit there and fight against odds when it's not going to work. You have to turn a corner, dig a hole, go through a tunnel - and find a way to keep moving.
+- To make real change, you have to be well anchored - not only in the belief that it can be done, but also in some pretty real ways about who you are and what you can do.
+- My favorite audience is everybody. I worked in a drive-in theater from the time I was 8 years old until I went to college, and I'm accustomed to everybody can buy a ticket and everybody should be taken into account.
+- I've always felt compelled to explore range, because, as far as I know, we're only here once. So let's see how much we can encompass.
+- I feel I can handle the architecture of dance as well as anybody.
+- It's very difficult for me to do fund raising for my own organization if I'm working for other companies because sponsors will say, 'Well, hey, man, if she's doing a ballet for Ballet Theatre, we'll give money to Ballet Theatre.'
+- The artist doesn't really think about consequences - he or she does the work, stands back and looks at and thinks, 'Hmm, that could have worked better like this.' But as a person who needs to sell tickets to do the next work, one needs to analyze how it does or does not hit its mark.
+- I find that dancers are only well trained in ballet these days.
+- Let me put it this way: I would like to direct a successful film. An unsuccessful film I would not like to direct. Films are very difficult.
+- I thought I had to make an impact on history. I had to become the greatest choreographer of my time. That was my mission. Posterity deals with us however it sees fit. But I gave it 20 years of my best shot.
+- The ballet needs to tell its own story in such a way it can be received without having to be translated into language.
+- Creativity is not just for artists. It's for businesspeople looking for a new way to close a sale; it's for engineers trying to solve a problem; it's for parents who want their children to see the world in more than one way.
+- I'm not satisfied sitting in just the world of abstract work.
+- I work because I have issues and questions and feelings and thoughts that I want to have a look at. I'm not in need of, or wanting, particularly, to know what other folk are up to.
+- I'm a known reader. That's what I do with my time.
+- My mother was a dominant force in my life. She had a very specific idea about education, which was: you should know everything about everything. It was quite simple. There was no exclusivity, and there really was no judgment.
+- Counterpoint is a component that gives real energy, and it is about optimism.
+- Things change all the time, so why do people make such a philosophical to-do that things are constantly in transition?
+- There are very few critics who have historical context or authority.
+- I had always seen myself as a star; I wanted to be a galaxy.
+- These days, I think we could all agree that having a just-friend is not a bad thing.
+- Creativity is a habit, and the best creativity is the result of good work habits.
+- Everyone has a talent. It's simply a question of good discipline, of the good fortune to have an education that meshes with that talent, and a lot of luck.
+- My mother was the first woman in the county in Indiana where we were born, in Jay County, to have a college degree. She was educated as a pianist and she wanted to concertize, but when the war came she was married, had a family, so she started teaching.
+- Judgment is not my business. Existing is my business.
+- When I started thinking seriously about learning the rules of narrative, I thought, 'You've learned the rules of dancing from the ballet; what's the matter with learning the laws of theater from the people who know how to do it?'
+- Dance is the most fundamental of all art forms.
+- I don't mean this, but I'm going to say it anyway. I don't really think of pop art and serious art as being that far apart.
+- I've survived inattention. I hope to God I survive attention.
+- Broadway has some very tight expectations as to what a show is.
+- Well, Mozart is extraordinary not only in that he became virtuoso along the lines of his father, but that he had that compositional gift, that melodic gift. By the time he was four, he was doing piano concertos with harmony in the background.
+- Nothing is more terrifying to me, really, than the status quo. I'll make mistakes before I keep doing something the same way.
+- My dancers expect me to deliver because my choreography represents their livelihood.
+- What I do remember is visualization of the sound of music, seeing bodies in movement in relation to how music sounded, because my mother practiced at the keyboard a lot and I also went to her lessons. As a two year old, three year old I remember seeing things in movement.
+- I find the aesthetics of the 20th century hopelessly barren.
+- Unfortunately, I think we've probably all had the experience that if we're in a relationship where one of the partners is doing it 'my' way, that relationship is not going to survive.
+- I think Tolstoy had an unbelievably complicated relationship with women.
+- I don't judge. Judgment is not my business. Existing is my business.
+- What we want from modern dance is courage and audacity.
+- I've always believed that a dance evening energizes an audience, that an audience goes out feeling chemically stronger and more optimistic. This is what I understand about dance. And this is an important thing. We need this. Our culture needs it.
+- When I started making dances in the '60s, narrative dance was sort of off the radar screen. What was important at the time in the avant-garde was minimalism.
+- If I didn't believe in myself as a dancer, I wouldn't choreograph.
+- The necessity to constantly turn in an excellent performance, to be absolutely wedded to this dedication and this ideal means that as a child you're going to pay for it personally.
+- If a thing moves, it lives.
+- Art is the only way to run away without leaving home.
+- I always tell students that you've got to be practical. You do not need a dream. You need a purpose, something you can wake up to in the morning when the dream is dissipated.
+- Dance has never been a particularly easy life, and everybody knows that.
+- I've read probably 25 or 30 books by Balzac, all of Tolstoy - the novels and letters - and all of Dickens. I learned my craft from these guys.
+- The only thing I fear more than change is no change. The business of being static makes me nuts.
+- I'm not one who divides music, dance or art into various categories. Either something works, or it doesn't.
+- In terms of individuals who actually inspired me, very few of the academic people that I had access to had that power over me. Maybe it's simply because I wasn't that committed to geometry.
+- Art is an investigation.
+- I don't think that scheduling is uncreative. I think that structure is required for creativity.
+- A commission is an invitation to fall in love.
+- This is the strange thing: Dancers don't age.
+- Any comic is a tragic soul. Comedy is one of the things that allows one to survive. Particularly if one has been in the process of separating off the emotions, it's one place you can process them.
+- Playwrights have texts, composers have scores, painters and sculptors have the residue of those activities, and dance is traditionally an ephemeral, effervescent, here-today-gone-tomorrow kind of thing.
+- You either entertain an audience or you don't.
+- Kids should be encouraged to compete.
+- I'm obviously always interested in the dancer who's an athlete and vice versa. I expect dancers to be in condition like an athlete is and to challenge themselves in the same way, to the same physical degree.
+- I was privileged to be able to study a year with Martha Graham, the last year she was teaching.
+- I'm not interested in seeing dance die. It's not to my advantage. Nor is it to our culture's advantage or anybody else's.
+- I learned very early that an audience would relax and look at things differently if they felt they could laugh with you from time to time. There's an energy that comes through the release of tension that is laughter.
+- I look for dancers who have all the technique in the world. But they must be dancers who are open-minded, who are willing to forget that they know anything. They also have to be gorgeous; they must have a clear image of themselves and strong personalities.
+- I am fairly concise when I work and I work quickly because I think work is done better in a high gear than done our in a gear when everyone's exhausted. Get focused, do it!
+- I started formal piano training when I was 4. From there I had little violas, and I had dancing lessons of every sort and description, and painting lessons. I had German. And shorthand.
+- I always find that the best collaborations are when you work with people that know what they're doing, and you leave them alone to do it.
+- Work is work; wherever I'm working, I do the best I can. If the actual dollars come from investors as opposed to taxpayers and patrons, what's the difference?
+- It's very important to work myself physically as hard as I can.
+- I used to say to myself, 'Well, in the old days everybody danced because they loved to dance, and there was none of this professional garbage going on about how much can you get for this or that or the other, or any of the kinds of things that insecurity can sometimes promote. Sometimes it's for the wrong reasons.'
+- I have a sort of tactility about music. I go into record stores and just run my fingers over it, the spines.

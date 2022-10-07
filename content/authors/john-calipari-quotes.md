@@ -1,0 +1,106 @@
++++
+author = "John Calipari"
+title = "John Calipari Quotes"
+quotes_len = "100"
+description = "the best 100 John Calipari Quotes"
++++
+- My wife runs the house. She raised our kids with me only partly there. It's just what coaching is. A lot of times, you're raising other people's children, sometimes at the expense of your own. I hope that wasn't the case with my children, but at times, it probably was.
+- If I'm up at 4 in the morning, it's because I'm just coming in.
+- I was small, but I was also slow.
+- I think part of the reason some coaches don't want to be involved with social media is that they expect to be able to do it at a certain level. A lot of them are like, 'I'm not going to do it if we can't hit 100,000 or 200,000 followers.' Well, you're not going to right away.
+- All my best players have been really good guys, which means I can coach them.
+- I'm not the grand poobah. I'm not the emperor. That's not what I want to be.
+- I was a very average-at-best player.
+- I want to thank the Big Blue nation for your warming and hospitality. You all have made us feel like we've been in the Commonwealth forever.
+- The best food I've had in Lexington is Orange Leaf Frozen Yogurt. It's non-guilt ice cream!
+- My vision is one of celebrations and banquets, diplomas and banners, rings and parades.
+- You're not gonna do what we do better than we do it. Even if you're doing what we do, you're not gonna do it better. I'm absolutely convinced of that.
+- I'm not a fan of the NCAA. I don't think they make decisions for the kids. They make decisions for bureaucracy and for their structure.
+- I want to thank the people at UMass, Memphis, and Kentucky for giving Ellen and I an opportunity to coach at three great institutions.
+- We should not go to a baseball rule. If a kid goes to college and, after a year or two, wants to go to the NBA and is good enough - and he grew, he got bigger, he got more confidence - let him go. Why would you now force a kid to go two years?
+- My life, even as a college student, has all been through the NCAA, and I'm telling you there's so much good that comes out of it.
+- The problem with my guys, all my guys, they come in and improve themselves so fast in college: they go from 'He's this and this' to 'That kid is the first pick or second pick. Four. Five. Seven.' Tell me about those teams: not great. So my guys are walking into bad situations.
+- People want to see how we get teams to come together so quickly. They want to see how we get young guys to play so hard and so unselfish. I'm fine with that. I have no problem sharing that.
+- I've always said I have more money than I can spend, than my children can spend.
+- When you're coaching at Kentucky, you're held to a different standard, and like in politics, there is a core group that absolutely loves you, and everyone else is trying to unseat you in any way they can - anything to trip you up; that's what it is. If you're not up to that, then don't coach at Kentucky.
+- If I walk in a home, and a young man disrespects his mother or grandfather, grandmother in front of me, I'm out. Because if that's the case, he respects no one. He is not going to respect me.
+- As long as I'm at Kentucky, you've got to be able to take the shots, or don't stay at Kentucky. To be the coach at Kentucky and get what I get, you can't be a 35-year-old coach whose never been fired. I've been fired.
+- I majored in business/marketing because I was going to be a teacher and a high school basketball coach.
+- I don't even have a computer.
+- John Wooden's books are great.
+- If they're out of high school, and they can go directly to the NBA and get drafted and get millions of dollars, I'm for it 100 percent. Just let's not devalue education. Let's just not devalue it.
+- I don't read the papers; I don't listen to radio.
+- I never thought Marquis Teague would leave after a year.
+- Every one of us in this country is based on you've gotta take care of yourself.
+- I tweet, Facebook, website, but guess what? Do I look at any response? Have I ever looked at a response? I wouldn't know how to get in.
+- When you're up nine, you're supposed to win.
+- In my humble opinion, again, to perform at Alabama, you must earn the spot and not have it given to you. You have to fight like crazy to keep the spot and that it's not guaranteed - it's week to week - and you'll play in a way that they have a chance to win a championship.
+- I refuse to go in a home and paint a picture saying things like, 'If you come with us, you'll be taken care of for the rest of your life by the program and by our alums,' even though you may only be in school for a year or two. How preposterous does that sound?
+- We're not the only ones out there trying to get good players and trying to help kids.
+- I'm not embarrassed about how we recruit, how we treat kids, and how we coach them.
+- The thing I can tell you about coaching is that we make decision and career moves when your nerves and emotions are still raw, right after the season. It's the worst profession for that.
+- He helped my career, helped me basketball-wise and every other way. I'm a big fan of Thibs.
+- Obviously, I'm not chasing the NBA.
+- Kentucky is the best job in basketball coaching. Why would I leave?
+- If a guy can bully you, he will bully you.
+- In most cases, in this sport, for guys to advance in this sport, you gotta fight. If you don't fight, you're not making it, because it's too competitive.
+- I'm going to continue to see my friends who coach in the NBA and see my former players who play in the NBA. I'm going to continue to go to games.
+- The opportunity to coach Kerry Kittles I wouldn't give up for anything.
+- If you can get a second-round pick that makes it, it's unbelievable for that franchise, what you save and all the other things to build. You're always looking for guys like that.
+- I had no desire to coach college until I went to college. Then I said, 'Maybe I can do this.' You get inspired by the people around you who move you and light a fire under you.
+- If they're trying to get high school kids to go to the D-League, I will be shouting from mountaintops saying, 'What is this going to do to a generation of kids who say, 'All right, I'm going to do this,' you get one or two years to make it, and now you're out without any opportunities. Who's taking care of those kids now?'
+- When we're worried about a bureaucracy and keeping the bureaucracy going, you're always going to make mistakes.
+- I call it, 'The Kentucky Effect.' Guys from Kentucky are usually drafted higher, and their shoe contracts are worth more. They're in more demand overall because they played here.
+- In a normal season, the sixth man always seems to get the most minutes on my team.
+- I'd love to be coaching kids three or four years. You kidding me? That's what I used to do.
+- I gotta be able to sleep at night knowing that I'm being honest.
+- If you recruit a kid, and you're promising him the world, how in the world are you going to coach him in that short a period of time to do that?
+- LeBron and I are friends.
+- I read books by other coaches all the time.
+- I'm not a big proponent of the league tournament.
+- Let's not have a postseason tournament. Let's have a preseason tournament where you're guaranteed three games: we go somewhere, and all the fans come in, and we celebrate our league. We'll have great games to start the year, and we'll do it prior to the year.
+- In my mind, I've got the best job in the country.
+- More than half the G League is going to be high school kids that are trying to make it. I hope I'm wrong. I absolutely hope I'm wrong.
+- When your best players are really good guys, it's the best.
+- Some of the best kids I coach were raised by a grandmother who was so firm that they understood.
+- We don't get every kid. We get the ones we are supposed to get. It just kind of plays out that way, and it always has.
+- We play for March.
+- The whole thing is develop players, develop them as people, develop teams.
+- What our kids learn to do is fight. So when you watch a Devin Booker, you look at Tyler Ulis - they fight.
+- If it's late in the game, then you have your five best free-throw shooters on the court.
+- The guy who started on third base and gets home and acts like he hit a homer - that guy doesn't impress me.
+- If they want to go to college and then leave, let them leave when they want to leave. Why would we force a kid to stay? 'Well - it's good for the game?' It's about these kids and their families.
+- If you win the conference tournament, it doesn't mean anything.
+- Keep things in perspective. It's never quite as good as it seems, it's never quite as bad as it seems.
+- Any coach out there that wants to lose, you make sure they put raisins in the breakfast oatmeal. You'll go down, don't worry about that.
+- I have bobby pins everywhere.
+- Everybody wants to say that Kentucky fans are vicious or obnoxious. They're not. They're crazy in that they watch the tape of our games more than I do. But they're passionate and smart.
+- Change does not come easy.
+- High school coaches sometimes are better coaches than I am.
+- You wish there was more consistency about how they do things in the NCAA.
+- I want to thank all the assistants and staff who have worked for us over the years, as well as the people in the community who have added value to our lives.
+- Every kid will tell you that they want you to be real, but that's until you keep it real with them. Then they don't want it real.
+- Don't encourage 8th-, 9th- and 10th-graders to forgo education just to go to the G League.
+- I'm just trying to be the best I can be. I try to surround myself with people who are strong in areas I'm weak. Which is why I have such a big staff.
+- You cannot please everybody. You keep marching forward.
+- They want it all - all As, all wins by 20, and want the highest GPA. Don't coach at Kentucky if you can't accept that.
+- There are certain people I do want to absolutely dislike me. And I want them to paint me as their enemy. Because I want nothing to do with them.
+- There are no boys in this game.
+- People, on their bucket lists, are saying, 'I want to see a game at Rupp Arena.' Magic Johnson will call and say, 'I want to come to the game tonight. I want to see John Wall or Anthony Davis or Michael Kidd-Gilchrist.' It's become fashionable to be seen here, because people want to be seen and associated with success.
+- At times, we, as coaches, try to shove guys as square pegs into round holes and keep hammering away.
+- Malik Monk is special. Special.
+- So kids that have pro potential and want to take a loan so that their families don't have to deal with it, why can't you?
+- I've had transfer students who have never seen the inside of their previous coach's house.
+- If you don't deserve to play, you won't play.
+- I think I'm overrated as a recruiter.
+- No one will steal my joy.
+- What I've always tried to do is undersell and overdeliver.
+- If I have the choice between experience and talent, I'm taking talent every time.
+- You're coaching Kentucky - and you have a chance to change lives. That's not what this is up there in the NBA. You have assets. You're trying to piece a team together. You're trying to win more games than the other guy. You're trying to advance in the playoffs, and if you don't, they'll find somebody else that can.
+- The problem with the NCAA - it's slow-moving.
+- If the NBA is worried about the NBA, if the NCAA is worried about the NCAA, if each individual institution is just worried about themselves, and the last thing we think about is these kids, then we're going to make wrong decisions. There are a lot of players of different levels, of different abilities. Let's be fair with them.
+- If you react to every barking dog, if you stop for every barking dog, you're never getting home.
+- My job is to protect my guys.
+- Can I say this in a humble way - I don't need the money. If I stop coaching today at Kentucky, my toes are up, and I'm eating Cheetos, and I'm fine.
+- Let the D-League be for players who have been in the NBA, who are on the fringe, and that want to fight like heck to get in the NBA. They should have a living wage, not $17,000 to $25,000. A living wage.
+- I've always taken the approach that it's about the seed in the NCAA tournament.

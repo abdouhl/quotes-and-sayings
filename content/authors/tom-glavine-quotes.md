@@ -1,0 +1,25 @@
++++
+author = "Tom Glavine"
+title = "Tom Glavine Quotes"
+quotes_len = "19"
+description = "the best 19 Tom Glavine Quotes"
++++
+- You don't play 162 games without facing some adversity during the course of the year.
+- Obviously, when I had the scare with the blood clots, I mean, that's the kind of thing that you don't want to have happen, obviously, and you worry about what it means for the rest of your career.
+- The game is a game, and things happen, and you can't always execute your plan as perfectly as you'd like to.
+- I've been booed off the field, and I've been carried off the field by people cheering me. So I've seen both ends of it, and I can tell you the bad side of it gets a lot more attention than the good side does, but the good side is pretty darned good when it's on your side.
+- I love both sports, but the deciding factor was, being a left-handed pitcher, I had a huge advantage in baseball because of that, and I didn't have that type of advantage in hockey.
+- My parents are very even-keeled. You know, just kind of steady as she goes.
+- The baseball fights, you don't ever see the squaring off like you do in hockey, and in some instances, that's where baseball fights can be potentially more dangerous because you've got guys running all over the place and people throwing punches at you that you don't even see half the time.
+- If you're giving me tickets to the football game, baseball game or hockey game, I'm taking the tickets to the hockey game. For me, it's by far the most fun sport to go and watch live and be part of. I just don't know why it doesn't translate as well on TV.
+- That was my pride and joy - that I made it through all those years of minor hockey without losing any of my teeth; then, I ended up losing them in a car accident in New York when I was riding in a taxi. So, I end up losing my teeth, but not in the glamorous fashion I envisioned.
+- Bobby Cox had the biggest influence in my career and probably the second- or third-biggest influence in my life.
+- I'm not devastated over a baseball game. If somebody came to me and said, 'Your wife is terminally ill.' Or, if my kids and wife get on a plane and I got a call that said, 'Something happened with the plane,' that's devastating.
+- I don't pay attention a whole lot to what my numbers are.
+- In a hockey fight, barring the occasional brawl, there's actually some etiquette that goes into it. Honor, too, absolutely. Most of those guys that do it, that's their job, and they follow a certain code of conduct in doing it.
+- If it happens, I'll be proud, and it would be a dream come true, though I doubt I ever thought I'd be a Hall of Famer when I started. It wasn't until late in my career that people started to mention it, and you start thinking about it a little bit.
+- I have played a handful of rounds of golf with Wayne Gretzky.
+- I'm not defined by baseball. I'd love for the Hall of Fame to happen, but if it doesn't, my life won't change. I'll still be coaching my boy's games.
+- I guess we all have that 'Dig Me' space, where we have some of our things displayed. Mine's a little bit more off the beaten path. You're not going to see it as soon as you walk into my house, but it does exist.
+- There's nothing better than a team that comes out of nowhere and finds themselves in the World Series.
+- I'm proud of what I've done in my career. I'm proud of what I've accomplished.

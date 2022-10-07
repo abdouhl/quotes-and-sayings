@@ -1,0 +1,95 @@
++++
+author = "John Waite"
+title = "John Waite Quotes"
+quotes_len = "89"
+description = "the best 89 John Waite Quotes"
++++
+- So much of your life is wrapped up in the songs. All the twists come back, and you go back to that place when you were singing it. It's like reading your own diary and being in a time machine.
+- I don't even have any of my gold records on my walls at home. They're all in storage.
+- I think the Journey guys wanted to be back in Journey and I wanted to be back solo.
+- Songs, and songwriting keeps me inspired, moving forward.
+- You know, I still find music as inspiring and exciting as I did when I was 15.
+- I don't know really, apart from Barnes & Noble, where you buy CDs anymore.
+- I always thought that the Babys were five years ahead of everybody else, I really do.
+- I don't like studio-manicured things.
+- I think the stuff that's very spontaneous, not contrived at all, is the stuff that works.
+- I was staring at a wall of photos and thought, 'What would that sound like if it was music?' And I guess that was the kicker. That's what got me going.
+- Music comes from a whole different place. It tells the story of your life and it's probably the closest thing I have to a religion.
+- People wanted to know where I was and what I was doing. Was I still recording? Was I touring? Was I putting a band together? Was I writing songs? Was I even still singing?
+- Flying is so miserable these days. You have to go through security, and get up at the crack of dawn.
+- You don't have to keep trying to sound like your last song. There's new things to do.
+- I realized I didn't want to make another solo record and I would be happier doing something that had more of a gang feel to it, more of a band thing.
+- But I'll never write another Missing You' again as long as I live. I hope that I'll write a good song, but I don't think that I'll be able to write another song that will reach people that much.
+- To me, The Hard Way' is as raw and vital as anything I was doing when I first started only its way better!
+- My brother was the first in Lancaster to have a Fender Stratocaster.
+- 'When I See You Smile' - that was not what we should have been doing in Bad English.
+- I was hanging around New York, getting used to being on the street. I didn't have any friends I didn't know anybody at that point.
+- You know, the European record labels always say, 'We want 12 songs and then we want bonus songs,' and you're going, 'What for? Why?' That's not a record.
+- I am the same man writing the music. I haven't changed directions to suit anyone except me.
+- I ran out of steam and patience and so I quit. I really didn't want to make another record. I'd had it with the music business. I went home to England, bought a house and did nothing.
+- All the songs I've written, if they don't sound good on acoustic guitar, they won't sound good at 11.
+- I love country music, and I did as a kid.
+- When you're up there acoustically you're thinking, How could I possibly go back to rock?' Then when I'm playing rock I think, How can I ever go back to being unplugged?' That's what makes it fun all of the time.
+- Marty Robbins was one of the first singers that really hit me hard.
+- I remember one day going in the studio to sing and then going to work with three separate songwriters before I came back in the studio. I was running on empty.
+- Rock n' roll is closest thing I've got to a spiritual power. It's been the higher voice in my life and it's never let me down.
+- The moment you stop becoming an artist, you kind of trade it all in.
+- Coming off the back of the live album, there was a certain edginess and an almost punk energy that I've missed for a while.
+- Music can have a real timeless quality - and, really, it's all about energy.
+- I like imperfection.
+- We had huge success at first - really, really big. You could not turn on AM radio and not hear 'Every Time I Think of You.' And you couldn't turn on FM radio and not hear 'Head First.' And they were both on the same record.
+- The Babys - all their biggest hits happened in the 70s.
+- The only thing about rock n' roll in my house is a couple of paintings of Jimi Hendrix and Bob Dylan - and they were expensive, too.
+- I mean, I hate to say it, but I listen to Journey and think, 'Jesus Christ, that is just wrong.' That's why there will never be a Bad English reunion. It's for super white people listening to super white music.
+- Turning 40, your past really comes back to you. You're very aware of where you've been the plans you've made, the memories you have, and the mistakes you've made.
+- We'll just tour til we drop; at certain times in your life, that's the only answer.
+- There's a lot of compromises, but that's what a great record should be, really.
+- When you play live, everything goes up.
+- Oh, man, really, from the moment I could articulate, I was all about music.
+- You might be talking to someone who relates a song to losing a friend and you end up talking in the most intimate way. You can get so engaged that you end up in this existential conversation.
+- There's an easy way to tell if you have a good song. You get hit in the head with a message, and you get hit in the feet with a rhythm. You're beaten up with music. It's a beautiful thing when that happens.
+- My heart's in New York City. But you can't live that pace forever.
+- I never wanted to be this week's fashion.
+- On stage, it's like an argument going on between four people. The argument is the art.
+- There's that Bob Dylan quote: 'He who's not busy being born is busy dying.' That's a great line. And I really believe that.
+- I may not be top of the pops' anymore, but I seem to still be making a big impact.
+- I really don't align myself with anything.
+- If something feels right, then just do it.
+- It's amazing what the acoustic guitar can bring to the picture.
+- Experience teaches you a few tricks, but energy is key. Its what keeps you pumped.
+- Being raise in England, we were all raised on blues and country.
+- Heavy metal these days is what I call wimpy.
+- When we're out touring, we often go to clubs to see people play. The alternative is to go back to the hotel And that's no good.
+- I really expected things to be different. But being in Bad English was too much of a compromise. Instead of being true to the artistic side, there was this incredible pressure to keep producing the same kind of hits.
+- You shouldn't have to follow fashion to make music.
+- I've been away writing songs and recording and doing albums that are much more obscure.
+- I just tried to disappear and write songs.
+- It' always so sad to see people spend the rest of their careers just trying to repeat the formula.
+- I always thought I could do it, have an across-the-board big record.
+- I thought my wife and I would grow old together, but it just didn't work out.
+- I feel like I've got this great catalogue of songs sink or swim, it doesn't matter. If you've got that, you've got a lot.
+- It was a free-for-all; the BBC wouldn't play anything so we had pirate radio playing the African-American music and the Beatles and greats like Howlin' Wolf and Robert Johnson and Motown's Martha Reeves and the Vandellas and Otis Redding.
+- The Bad English thing, everybody was playing at once and it was a big wall of sound.
+- I was going to be a painter. I went to art school - but every 16-year-old wants to be a painter.
+- I tend to scribble down notes, lyrics or just random thoughts on pieces of paper, backs of cigarette packs, sometimes on my shirt cuff.
+- I booked time in Philly Sound, which is an old church in south Philly that has a studio to the side of it that holds about 350 people. On the radio, we announced a free gig, bought about three kegs of beer. That got the audience slightly off of their legs, and we rocked the house.
+- You can't keep going back to Detroit because you're big in Detroit. You can go maybe once a year and sell it out because everybody loves you and looks forward to seeing you again. You can't go back twice in the same year.
+- I've always loved Country, folk, and the acoustic end of music.
+- I decided I couldn't ever again deal with the megabusiness end of the music business.
+- I've never had a plan.
+- I think rock 'n' roll is very visual. All of the best bands, like The Stones, The Who and Small Faces, were very valid both musically and visually.
+- Missing You' almost didn't get on the No Brakes' album, because the record company said, 'The album's finished. We don't need any more songs.'
+- In the end, it's always about the three-piece band and the singer.
+- I wanted to write music that would be around for a long time.
+- I usually license my stuff to a label. Make the album, license it to a big label and get it back after four years.
+- I liked Western country, like cowboy songs, when I was a little kid. Then I developed a taste for Hank Williams and those sort of songs as I got a little bit older.
+- I mean, I really hung in there for as long as I could. I was working 18 hours a day on songs and singing.
+- Country was always in the background, but now it's the voice of the people. That's what the people want to sing, you know? I'm really thrilled to be a part of it.
+- The silence of the room is as important as the music.
+- When I think of a song, I think of it as a beast. You chase these beasts around the room and try to grab them and put them in a tape machine. But they're slippery, and they run away a lot.
+- After Bad English, I made three albums back-to-back that I still think is my best work, but it wasn't meant to be toured.
+- When you're playing rock music to 10,000 people, you almost attack the audience. When you play acoustic you're waiting for the audience to respond. It's a reverse energy, and you're more vulnerable. It's really intense.
+- Rock seems a little bit redundant now because it really is what country is. It's the voice of America and rock 'n' roll used to be that.
+- I find it incredibly annoying to just go out and sing the old stuff and write songs that sound like the old stuff.
+- In my world, I like everything stripped down, something that's really truthful.
+- Television really does give you tremendous exposure in America.

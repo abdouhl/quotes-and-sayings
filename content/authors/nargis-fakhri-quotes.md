@@ -1,0 +1,106 @@
++++
+author = "Nargis Fakhri"
+title = "Nargis Fakhri Quotes"
+quotes_len = "100"
+description = "the best 100 Nargis Fakhri Quotes"
++++
+- I like to wear jewellery, even though I like my look to be minimalist. When I go out for events, I like to have at least one statement piece. It always adds glamour.
+- I've never been a movie buff. If I did go to a theatre to watch a film, half the time, I would fall asleep.
+- I think I am feeling comfortable in Bollywood more than in Hollywood because I have spent more time here now and I am understanding a lot of things. I am feeling pretty good here. I really don't plan on running off anywhere.
+- I was 16 when I started modelling. It wasn't planned, but nothing in my life has or ever will be planned.
+- I'm a little weird that way. I don't really know how to express my happiness.
+- In this hectic life, we have no time to take care of ourselves, hence massage is needed for rejuvenation and stress reduction. A lot of people are looking for quick fixes: like, they are taking medications, and they are doing other things which are not healthy. But massage is very holistic and natural.
+- I had to struggle with the language. I can understand Hindi now, but I still can't communicate. And things get lost in translation; I feel rejected all the time.
+- I am an independent, educated woman, I make my own money, take care of my mom, and I am single, so I can do whatever I want, taking no one's permission, and that is the best part.
+- My motto is never to hold on to anything. I accept and then let go: not just the negatives, but the praise, too. Or it'll get to my head.
+- I have this board in my house that lists out all the things that I love about myself. It's a board of affirmations, and it serves me well.
+- As a child, I did watch some Hindi movies at home with Dad, but I didn't know who anyone was. I wasn't interested, honestly.
+- After coming to India, I have felt the loneliest I have ever been in my life. I don't have a support system here.
+- I just do my job and go home. There's just one or two people I can say are friends that I can call.
+- I use coconut oil every single day. I apply coconut oil on my whole body for moisturising. The oil can also be used as make-up remover, as it is light-based and is not sticky.
+- I don't think about it. I have always been linked up with everybody.
+- My sister and I had a tough childhood, but my mom always said that travelling is the most beautiful thing you can do in your life. She always showed us the globe and gifted me an atlas.
+- I feel like an alien. I feel people don't like me. People behaved strangely after 'Rockstar.'
+- It's so lovely to know that people who you would never think know about Bollywood, they know about Bollywood.
+- Stereotyping of any race or culture is narrow-minded, and I can't wait to help break the shackles.
+- You need to train your brain to be positive.
+- I don't have to be a size zero anymore. But I still want to feel and look good.
+- I am not saying one is better than the other. I enjoy both. But Hollywood is far more organised than Bollywood.
+- I've learnt some important lessons: I never rely on the opinion of one doctor alone. I do my own research; I read up and am ready with questions I need answered.
+- Hard work and dedication is important to success, and I have those qualities.
+- If I can still have Hollywood and a piece of Bollywood, I will take it.
+- Dance is something which I like to do, but acting is my passion. I would like to do good and meaty roles.
+- I got a lot of offers after 'Rockstar' but was totally dependent on the team managing my work, who did not want me to sign any of the films I was offered, even though I wanted to.
+- It has been a tumultuous journey, no doubt. But I feel blessed to have got work.
+- I think being directed and mentored by someone as inspirational as Paul Feig not only improves my performance but, as a whole, makes it what it is.
+- I pride myself on my personilty and not my looks because one day, I will be old and crusty with a moustache, and someone is going to love me for my personality and not looks. So whoever is going to marry me is going to laugh till he dies.
+- It's something I am confident about. It gives me an adrenaline rush - who wouldn't want want to wear beautiful clothes and jewellery and look wonderful - it's a dream job for many.
+- I have a variety of styles. I don't stick to one particular style.
+- People will still give me attention: even when my teeth are gone, I'll have some good stories to tell.
+- I am a romantic, and I think dates are wonderful. I like quirky and fun things. Like going for a bike ride or for a pedicure together.
+- Keep your energy levels high by adding bananas and egg whites to your diet.
+- No, I don't have a plan. Whatever happens happens. There's never a plan.
+- I sometimes wonder if I pushed myself to get out there and meet people I'd get more work.
+- I am not into marriage. You look at all the marriages breaking down and all the people cheating on their marriages, and you become cynical. Marriage is nothing but a label.
+- It took me just three months to pick up Hindi. I guess I'm a fast learner when it comes to languages.
+- Ritesh Deshmukh is rock star. He has a lovely family. He works so hard, and he's a great actor. He's funny, friendly, doesn't have an ego, and is so nice to everyone. He's a fine professional, a good husband, and a good father. That's a rock star for me.
+- I'm intrigued by traditional Indian designs. They are so beautifully handcrafted, and the designs are so intricate and beautiful. I really prefer the Indian designs.
+- I crack jokes all the time. Even when I have a fight, I will make a joke, and people will laugh.
+- At the end of the day, the one commonality that both Hindi cinema and Hollywood share is that they are full of talented and inspirational people. Outside of this, there are many differences, from the scheduling and rehearsal to promotion and directing techniques.
+- I come from a culture where we wear white for weddings. In India, it's different. But I really feel that there should be no set notions, and a bride should only wear something when she's comfortable in it.
+- I don't consider myself as a glamour diva. If you get to know me, you will see that I am so dorky and weird.
+- I firmly believe that one of the best kept secrets to soft and glowing skin is moisturisation.
+- I did a B.A. with a major in fine arts and a minor in psychology. I wanted to become a teacher or do art therapy for the elderly. But then I realised I wanted to travel instead.
+- I always wanted to do a bit of Bollywood and a bit of Hollywood.
+- I like to start my day with a glass of coconut water, some protein powder, and a mix of things - goji berries, flax seeds, hemp seeds, even the flesh of a coconut or anything with a lot of fibre. I often add bananas, or eggs - fried or boiled - to my breakfast.
+- No matter where I travel, I make sure to carry a Vaseline body lotion with me to keep my skin well moisturised all the time.
+- I read about human psychology, practise balance, and accept that everything and everyone in our lives is transient. One day, people will criticise you, and the next day, they will praise you.
+- Uday Chopra is a person who will be a part of my life for the rest of my life. He is the most amazing human being who I have ever met in my entire life - not just in India, but around the world. If anyone is his friend, that person is lucky to have him in his life.
+- One day, I will tell my story... where I came from and where I am now and how I remained positive.
+- My mother is happy with whatever I choose to do in life as long as I'm happy, healthy, and safe.
+- I'm really excited about furthering my film career in Bollywood and Hollywood.
+- Fair treatment of human beings and animals in many different realms strikes a chord with me.
+- I don't eat white breads, and I'm off dairy due to an allergic reaction and because of what it does to the body. I've learnt a lot about different foods and how the body breaks it down and what happens when we eliminate or incorporate certain foods, and it's pretty fascinating!
+- If you feel like snacking, stock up on almonds, walnuts and cranberries.
+- I was tall and skinny, and at 15, I was approached to model. I figured that models got to travel, and it became my ticket to travel so much so that if an agency could not fly me to another country, I would fly on my cost so that I could see that country and also make some money.
+- My priority is the script. Get me a good script, and I will sign the movie. I think I should leave the casting up to the experts!
+- Courtship is like simmering mutton. You cook for hours and hours to taste the soft meat. It doesn't happen in two seconds!
+- You learn to be comfortable with your body. It's fine and not a big deal.
+- Health and well-being, as well as how we can live in harmony with our planet, is something I'm passionate about.
+- I have vowed never to take antibiotics again unless I really need them. I also learned to pay attention to my body, know the difference between indigestion, an allergic reaction to food, a parasitic infection or worms. It's incredible how well I know my body. I really love that.
+- I know I'm not the consummate Bollywood heroine. But I'm working hard on it.
+- I think massage is a very important part of life, which is present from centuries as an imminent part of India's tradition.
+- In a time where there are divides between cultures and races, I would love to use my position to show that we are all the same inside and working together is the key to moving forward.
+- I'm tired of the speculation about my personal life.
+- Because I'm in the public eye, I think that I would prefer to date someone regular who isn't in the news all the time, but I think even if you date someone regular, they'll still put it in the news.
+- I knew that all South Indian language films were first made in Chennai and that Tamil Nadu is one of the biggest film-producing centres in the country. I wanted to be part of films here.
+- I would like to be more fit, but I don't think I will put on fat or gain weight for movie roles. I am not going to do that.
+- I shake hands on the first date.
+- Drink lots of water and stay hydrated.
+- You should never go on diet and must follow a healthy lifestyle.
+- My life and my happiness is most important to me than any job or anything in the world.
+- For me, fashion means dare. I don't mind wearing a bikini. I am okay with it.
+- I have learned so much from India: for instance, the use of aloe vera, which I use, and I find it sad when I see certain arts of oiling slowly fading away.
+- I've experienced wrong diagnoses and been given antibiotics for things that could be cured naturally. We may not think much of it, but it destroys our immunity.
+- I believe that, as actors, we have a phenomenal platform to spread positivity and influence people in the same way.
+- I'm usually always very happy and funny and positive. It's only when I'm tired that I get a little low energy.
+- Don't be surprised if you find me doing some charity work in another country.
+- To kill yourself for earning a salary is not worth it.
+- I miss having my mom and close friends around. Thank God for Skype and Face-Time, which keep me connected... but interacting digitally can't come close to the feeling of being hugged by my mom or getting together for a meal with my friends on the same table.
+- When I was 12, my mum put us in a summer camp meant for children from low-income families. It was in upstate New York where we had to live in tents, fetch water, cook our meals, and even dig our own toilet bowls.
+- I generally fall sick if I eat very heavy food.
+- I have worked with the biggest actors from the beginning. I am hoping God will bless me to work with other big actors.
+- In Bollywood, they like to put us in short clothes. And I am very shy; I don't like wearing revealing stuff, though my image is such. Unfortunately, it's a body-obsessed industry.
+- I don't really know what the prerequisites are for Bollywood, but I do believe I can be successful in anything I choose to do.
+- I grew up in the projects in Queens, and we were really poor.
+- When you are sick, you are sick. Period.
+- I don't want to be known as an item dancer. I want to be known as an actress only.
+- I like to take my own time, and I don't like to rush. I do take time, and I have patience.
+- Some critics have been very harsh. That's okay. I like honest criticism.
+- I don't think anyone could play me. It would have to be me.
+- Even though my parents separated, my mother was in love with my father and never re-married.
+- For me, life is about experiencing many new things and working with good people, working on good projects, and in general, just having any kind of job.
+- With Pakistan being in my blood, I would certainly look at opportunities to travel there.
+- Every friendship is different because everyone's personality is different.
+- I think that, occasionally, fame and popularity can garner more attention for individuals or films. But as a person who believes in my craft, I like the romantic notion that skill and hard work is more important than notoriety.
+- My mum was born in the former Czechoslovakia, and even though my grandparents weren't wealthy, they were aristocrats in their time.

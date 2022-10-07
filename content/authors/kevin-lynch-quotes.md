@@ -1,0 +1,23 @@
++++
+author = "Kevin Lynch"
+title = "Kevin Lynch Quotes"
+quotes_len = "17"
+description = "the best 17 Kevin Lynch Quotes"
++++
+- Just like the Internet has transformed the media industry or the e-commerce industry, the software industry is also being affected dramatically by the Internet.
+- We're so connected, kind of ever-presently, with technology now. People are carrying their phones with them and looking at the screen so much.
+- With Typekit, you sign on, you pay a single subscription fee. We're including that as part of Creative Cloud.
+- Adobe and Apple have collaborated a lot over the decades. There's a lot more for us to do as well.
+- AIR grew out of our early thinking about rich Internet applications around 2001. We started to see web developers pushing the boundaries of what could be done inside the browser and taking advantage of Flash in ways that we hadn't expected.
+- We're actually helping advance HTML5 in some very concrete ways, such as Edge, which is in beta.
+- A wide variety of devices beyond personal computers are arriving, many of which will be used to browse the Web... The Flash engineering team has taken this on with a major overhaul of the mainstream Flash Player for a variety of devices.
+- Creative Cloud is Adobe re-imagining itself amid a world of these three transformations - cloud, multiscreen and social computing - which are all happening at the same time.
+- AIR was born from thinking about how rich Internet applications would play out over time and what new pieces of technology would be in demand for these to go to their next generation.
+- You can't go to the store and buy 'the Engagement Platform.'
+- When television came out, there was concern it would kill radio.
+- It's not about HTML 5 vs Flash. They're mutually beneficial. The more important question is the freedom of choice on the web.
+- I'll be involved more with Adobe overall in terms of our technology direction and the problems we are trying to solve, working across the different business units at Adobe.
+- When you're displaying content, any technology will use more power to display, versus not displaying content.
+- We feel confident that, were Apple and Adobe to work together as we are with a number of other partners, we could provide a terrific experience with Flash on the iPhone, iPad, and iPod Touch.
+- Flash and HTML have co-existed, and they're going to continue to co-exist.
+- The productivity and expressiveness of Flash remain advantages for the Web community even as HTML advances.

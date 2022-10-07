@@ -1,0 +1,32 @@
++++
+author = "Tamara Taylor"
+title = "Tamara Taylor Quotes"
+quotes_len = "26"
+description = "the best 26 Tamara Taylor Quotes"
++++
+- One of the scariest moments was being on Tyler Perry's first movie, 'Diary of a Mad Black Woman.'
+- L.A. has a lot of good flea markets - the Rose Bowl is always a good one. I have taken to eBay, too. Some of my favorite things - especially chairs, for some reason - I got on eBay.
+- My latest decorating obsession is dipping - like painting the bottom of things. I've done it to almost every terra-cotta pot in my house. Every African vase I have is painted gold on the bottom. It's so fun and easy, and it instantly livens up a piece. You feel like you've really accomplished something.
+- Every night before bed, I drop down to the floor and do 20 sit-ups, 5 push-ups and stretching. No matter what the day has been like, I drop and give myself 20 every single night.
+- Anything salty and crunch is a world of perfection to me. Put chips in front of me, and I will eat to the bottom of the bag. Because I have the tendency to do this, I found these amazing Eden Brown Rice Chips. They're the perfect amount of salt and crunch, and there's nothing in them.
+- As long as you keep going, you'll keep getting better. And as you get better, you gain more confidence. That alone is success.
+- Have the pride of the brown girl and know that you'll figure out your own beauty in time.
+- The key to my perseverance was absolutely loving the craft of acting. I just figured that if I kept doing it, at the very least I would get better at acting. Even if I didn't become a tremendous success, as long as I knew I was improving and getting better, to me, that was success.
+- L.A. is full of great hiking trails.
+- Hanging out with my girlfriends is my sanity saver. We go out for a bad chick flick and dinner. I suggest you break free from the guys, see a really silly, girly movie, and get a little something to eat afterwards. It feels like a treat.
+- Feeling successful is internal, not external.
+- I've noticed that wherever I've lived, I've either painted murals or done something sort of ridiculously over the top to make a space my own.
+- I was so shy, it almost paralyzed me in social settings. And as shy people know, that can become a vicious cycle: The more uncomfortable you feel around people, the more you retreat, and the more shy you get.
+- I try to be mindful of snacking, but salty chips sometimes sneak in. I tend to avoid sugars - luckily, I am more of a 'salty tooth' - but I try to keep my sugar intake to a minimum and find some healthy alternatives when a craving hits.
+- I recommend people develop a fear of elevators, like I have. Even if something is on the tenth floor, I'm walking up. If you don't have claustrophobia, pretend you do and take the stairs everywhere! It ends up being so healthy!
+- I think people can't say anymore, 'Celebrities should keep their political opinions to themselves,' because we elected a reality TV star, so I think that's off limits.
+- I was an only child, and my mom threw me into some modeling classes to get me out of my shell.
+- I had a Super Beetle that I restored and painted deep purple in honor of Jimi Hendrix that was stolen. After that, I got a Ford Falcon that had no windshield wipers, so whenever it rained - which, thankfully, in L.A. it doesn't do very much - I'd have to lean out my driver's side window like 'Ace Ventura: Pet Detective.'
+- It took many years of acting classes to get even remotely comfortable, but that's OK. It helped me so much on a personal level, not to mention professionally.
+- I have a theory that people are either born 'yeses' or 'nos'.
+- I tried martial arts classes for three weeks, but I quit because you actually get hit. I just want to do the movie kind of martial arts.
+- Furniture should always be comfortable. And always have a piece of art that you made somewhere in the home.
+- The first time I ever actually had a line was on 'A Different World', my best friend Cree Summer's show. I was in L.A. visiting her, and she said, 'Hey, there's a walk-on part, why don't you audition for it?'
+- My philosophy is, 'Eat when hungry, stop when you're full.'
+- I saw 'Mahogany' and 'Lady Sings the Blues' when I was little and thought, 'That's what I want to do.'
+- The world tells lots of people the light is red. You have to trust yourself and say, 'I think the light is green, and I'm going to keep doing this.'

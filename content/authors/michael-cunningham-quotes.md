@@ -1,0 +1,27 @@
++++
+author = "Michael Cunningham"
+title = "Michael Cunningham Quotes"
+quotes_len = "21"
+description = "the best 21 Michael Cunningham Quotes"
++++
+- I revise constantly, as I go along and then again after I've finished a first draft. Few of my novels contain a single sentence that closely resembles the sentence I first set down. I just find that I have to keep zapping and zapping the English language until it starts to behave in some way that vaguely matches my intentions.
+- As writers we must, from our very opening sentence, speak with authority to our readers.
+- Virginia Woolf came along in the early part of the century and essentially said through her writing, yes, big books can be written about the traditional big subjects. There is war. There is the search for God. These are all very important things.
+- I have no useful theories about love and marriage.
+- As any student of literature knows, the books that last are often not the books that are most popular when they are written. Both 'Moby Dick' and 'The Great Gatsby' were complete failures, critically and commercially, when they first appeared.
+- I love movies, I love television, I love narratives of all kinds.
+- I just don't feel much interested in the lifestyles of the rich and famous.
+- Virginia Woolf's great novel, 'Mrs. Dalloway,' is the first great book I ever read. I read it almost by accident when I was in high school, when I was 15 years old.
+- If you've really loved a book, or a movie for that matter, really loved it, what you want is that same book again, but as if you've never read it. And when you get something unfamiliar, you feel betrayed.
+- I know, speaking for myself, no matter what I'm able to do, no matter what book comes out and ends up on paper, I always had something bigger and grander in my head.
+- A certain slightly cruel disregard for the feelings of living people is simply part of the package. I think a writer, if he's any good, is not an entirely benign entity in the world.
+- Before there was any talk of a movie, people would sometimes ask me what actors I would imagine playing these characters. And the only thing I could ever say is: I have such a clear idea of these characters that they'd have to play themselves.
+- Language in fiction is made up of equal parts meaning and music. The sentences should have rhythm and cadence, they should engage and delight the inner ear.
+- I encourage the translators of my books to take as much license as they feel that they need. This is not quite the heroic gesture it might seem, because I've learned, from working with translators over the years, that the original novel is, in a way, a translation itself.
+- I suspect any serious reader has a first great book, just the way anybody has a first kiss.
+- Like my hero Virginia Woolf, I do lack confidence. I always find that the novel I'm finishing, even if it's turned out fairly well, is not the novel I had in my mind. I think a lot of writers must negotiate this, and if they don't admit it, they're not being honest.
+- On a summer night it can be lovely to sit around outside with friends after dinner and, yes, read poetry to each other. Keats and Yeats will never let you down, but it's differently exciting to read the work of poets who are still walking around out there.
+- You have started the book with this bubble over your head that contains a cathedral full of fire - that contains a novel so vast and great and penetrating and bright and dark that it will put all other novels ever written to shame. And then, as you get towards the end, you begin to realise, no, it's just this book.
+- I seem to produce a novel approximately once every three years.
+- The only difference was one of them was trying to make a perfect cake and one of them was trying to write a great book. But if we remove that from the equation, it's the same impulse and they are equally entitled to their ecstasies and their despair.
+- Here's a secret. Many novelists, if they are pressed and if they are being honest, will admit that the finished book is a rather rough translation of the book they'd intended to write.

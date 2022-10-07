@@ -1,0 +1,17 @@
++++
+author = "Tom Noonan"
+title = "Tom Noonan Quotes"
+quotes_len = "11"
+description = "the best 11 Tom Noonan Quotes"
++++
+- I think I probably have a creepy kind of scary quality. Otherwise, I wouldn't get jobs. But I also think it has a little bit to do with, you've done it a couple times, and then people see you that way.
+- I think that's what happens when you get scared, and you're rushing, and you don't have time. Rather than cut things out and take a chance, and build things up you think are working, you cut everything down a little bit, and everything sort of suffers.
+- Making 'bad people' seem human is the key to making them really scary.
+- I've always been a know-it-all. I drive a lot of people a bit crazy. But I can't seem to help it.
+- When I first started acting, somebody once said to me that anything that is a problem that prevents you from getting a job will eventually be a strength. It works both ways. The odder you are, the harder it is to get work, but once you sort of establish it, you have no competition.
+- I've done a lot of action movies, and there has to be a certain amount of emotion in the actual performing of the stunt. It doesn't have to be any particular emotion, but there has to be some life to it, and that's not so easy.
+- To me, acting doesn't really feel that different, one job to another.
+- I tend to be very private. It's easier for me. When you're acting, you're very susceptible to comments that somebody makes, so if they know something is going to happen on the show, and they say something, it can actually throw you off. So I tend to not share things with anybody.
+- Everybody has a lot of darkness in them because without that you're not a whole person.
+- When I was a little kid, no matter what my parents told me, I would always argue - even if I agreed with them. And I've always been a show-off. As I've gotten older, I've found ways to be more subtle about it, but that's the way I am. I suppose that has something to do with why I write and direct.
+- I don't think you go to a play to forget, or to a movie to be distracted. I think life generally is a distraction and that going to a movie is a way to get back, not go away.

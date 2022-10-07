@@ -1,0 +1,91 @@
++++
+author = "Julian Castro"
+title = "Julian Castro Quotes"
+quotes_len = "85"
+description = "the best 85 Julian Castro Quotes"
++++
+- I don't believe we need to choose between addressing economic issues and addressing issues of social or racial justice.
+- Even though I grew up and I didn't always like getting dragged to the meetings or the rallies or the speeches, I developed a very strong respect for participating in a democratic process.
+- The advantage that Democrats have is that they're a big-tent party.
+- My grandmother's generation and generations before always saw beyond the horizons of their own lives and their own circumstances. They believed that opportunity created today would lead to prosperity tomorrow.
+- The overwhelming success of San Antonio B-Cycle has proven that San Antonio is a model city for bike-sharing, and as we work toward creating a fitter city, the bike-share program encourages a more active and healthy lifestyle.
+- This thing has been studied to death by Republicans and Democrats: several committees, including in Congress, that have all said, 'Yes, of course what happened was tragic, but Secretary Clinton was not in any way at fault,' and what you have here with these e-mails is basically a witch hunt.
+- If you're willing to work hard and play by the rules, you should be able to move up.
+- I want to be able to pick up a list of names of graduates from high schools and colleges in the city and to see that that list is longer than it was when I started in 2009.
+- Opportunity today, prosperity tomorrow.
+- San Antonio is an ideal market for Major League Soccer. It's time that we put our best foot forward.
+- My People First Education plan includes universal pre-K for 3- and 4-year-olds, because the research is very clear that if you have a dollar to spend in education, it's best spent early on with high-quality pre-K so that kids can get off to a strong start.
+- You know, I'm not unwilling to listen to people just because where they're coming from. I'll listen to them, but I'm not going to be beholden to them.
+- It's time to remove the stigma associated with promoting homeownership.
+- But one of the most enjoyable things for me is that running for office gives you this license to enter the world of somebody else and to hear about the dreams that they have for themselves, for their family, for the country.
+- I am going out there working hard every day making sure people know that my vision is a compelling one for my country, that I have the experience and that I can win against Donald Trump.
+- I'm a recovering politician.
+- The Tea Party definitely scored a significant victory with Senator Cruz's election in 2012 and scored victories in some statewide primaries. But to me, as the Tea Party gets stronger within the Republican Party in Texas, the prospect of a blue Texas becomes stronger and stronger.
+- Oh, when I was mayor of San Antonio, I pushed for expanding high-quality, full-day pre-K. We didn't have the resources to make it universal, but you could clearly see that that was what I wanted to do.
+- I have a track record of getting things done as secretary of Housing and Urban Development.
+- The destiny of the Latino community is interwoven with the destiny of the United States.
+- My grandmother, when she was young, would've walked past shops where some folks had out a sign that said, 'No Mexicans or dogs allowed.'
+- People are getting more active and living healthier in San Antonio, whether it's walking, cycling, or using our parks. We now have concrete evidence that our investments are paying off and positively impacting the health of our families and the overall quality of life in San Antonio.
+- I stand before you tonight as a young American, a proud American, of a generation born as the Cold War receded, shaped by the tragedy of 9/11, connected by the digital revolution and determined to re-elect the man who will make the 21st century another American century - President Barack Obama.
+- What we see out there is an affordable housing crisis, particularly in the rental market in cities big and small, and we don't have the resources necessary to fill that gap.
+- You know, I'm speaking for myself. I didn't like to have to speak filtering for what I thought somebody else would or wouldn't want me to say.
+- Hopefully, in not a too distant future, we will see a Latino president, and who knows how's that going to happen. It's just a matter of time.
+- The truth is that the dream of homeownership is out of reach for too many Americans.
+- It's a significant contribution if we can get immigration reform done.
+- What I believe we need to do is to be the smartest, the healthiest, the fairest and the most prosperous nation on earth. So in order to become the healthiest nation on earth, we need a different health care system.
+- Growing up, when we would get dragged to these events, I didn't want to be there. Over time, as we got older, I developed a real appreciation of the importance of being involved in the democratic process.
+- I focus on telling the truth and painting a vision of what the country can become in the future if we make the right investments together in things like health care, and education, and jobs and opportunity.
+- And because he knows that we don't have an ounce of talent to waste, the president took action to lift the shadow of deportation from a generation of young, law-abiding immigrants called dreamers.
+- In my plan, I call for breaking up ICE and returning its enforcement functions to the Department of Justice.
+- I have learned in life that the best thing you can do to create a great future for yourself is don't forget what's in front of you. And so I'm trying to do a great job at HUD.
+- In the end, the American dream is not a sprint, or even a marathon, but a relay. Our families don't always cross the finish line in the span of one generation. But each generation passes on to the next the fruits of their labor.
+- Technology has transformed how we live, learn and work, but not everyone has been able to participate in these developments.
+- We all understand that freedom isn't free. What Romney and Ryan don't understand is that neither is opportunity. We have to invest in it.
+- Seven presidents before him - Democrats and Republicans - tried to expand health care to all Americans. President Obama got it done.
+- As my family story shows, Latinos have been a blessing for USA for many generations. The future of America depends in part on the success of the Latino community, and this opportunity is just one more signifier of that.
+- Being the keynote speaker at the convention this year is an honor I don't take lightly. I know I've got some big shoes to fill. Two conventions ago, the keynote speaker was a guy named Barack Obama.
+- I understand Spanish better than I speak it.
+- I see myself as a bridge-builder who can understand both sides.
+- I do think we need to hold countries accountable who violate trade agreements that are already in place. We need to get stronger about enforcement, that in the future if we strike a trade agreement, toughening up labor standards and environmental standards and enforcement standards is something we absolutely need to do.
+- I can understand the value of the immigrant experience and that we have become the nation that we are because people like my grandmother were able to make a life in this country.
+- We believe that housing is a power platform to spark great opportunities in people's lives and help them achieve the American dream.
+- Republicans are so far out to the right, it's pushing people into the Democratic Party.
+- First thing that I put up in my office here at City Hall was a poster from 1971 when my mother ran for city council.
+- To me, as I see it, reparations would be something that is fairly specific to the descendants of slaves, and it would also be an official apology from the United States government for slavery.
+- We have a responsibility to protect public housing residents from the harmful effects of secondhand smoke, especially the elderly and children who suffer from asthma and other respiratory diseases.
+- Now, in Texas, we believe in the rugged individual. Texas may be the one place where people actually still have bootstraps, and we expect folks to pull themselves up by them. But we also recognize there are some things we can't do alone. We have to come together and invest in opportunity today for prosperity tomorrow.
+- We know that in our free market economy some will prosper more than others. What we don't accept is the idea that some folks won't even get a chance.
+- Some people are lucky enough to borrow money from their parents, but that shouldn't determine whether you can pursue your dreams.
+- I had the blessing of opportunity. You need the folks in the boardroom who have consciences and the people in the streets who can picket at the right time.
+- Obviously I'm young and I'm also Hispanic, two important groups in this election. And I'm confident that I can do a good job in articulating why President Obama ought to be the candidate that Americans select for the next four years.
+- I actually believe that one of the lessons of 1993 and 1994, as well as 2009 and 2010, is that when a Democratic president has the opportunity - with a Democratic Congress - that you shouldn't wait to push significant legislation, whether it's health care, immigration reform, other measures.
+- Hispanics have been among the biggest beneficiaries of the Affordable Care Act.
+- Mitt Romney, quite simply, doesn't get it.
+- I grew up in a Texas where people would say, 'I didn't leave the Democratic Party. The Democratic Party left me.' Now, the reverse is happening. People are leaving the Republican Party because the Republican Party is going too far to the right in Texas. And that's a source of great potential support for Democrats.
+- Got a call on April 16, 2014 from President Barack Obama - I remember the date because it's not every day that the president calls you and asks you if you want a job.
+- The number one way that we can address these long-term challenges of poverty, of education, is to invest in early childhood education.
+- The No. 1 thing I want a voter to think about when they see my name, or hear my name, is what I stand for, and what I want to do for them and their family while elected.
+- I do believe that being in public office is all about making choices. And if I'm president, I would steer this nation in a direction where we embrace progressive values.
+- And my mother fought hard for civil rights so that instead of a mop, I could hold this microphone.
+- Our families don't always cross the finish line in the span of one generation. But each generation passes on to the next the fruits of their labor.
+- I believe in the Green New Deal. Fundamentally, what we recognize is that we don't have to choose between protecting our planet and growing our economy and creating jobs and opportunity.
+- When it comes to letting people marry whomever they love, Mitt Romney says, 'No.'
+- I wanted to be a quarterback. I used to like Johnny Unitas, the old quarterback for the Colts.
+- I couldn't help but to think back to my classmates at Thomas Jefferson High School in San Antonio. They had the same talent, the same brains, the same dreams as the folks we sat with at Stanford and Harvard. I realized the difference wasn't one of intelligence or drive. The difference was opportunity.
+- There has been a great challenge in improving educational achievement. It's a long-term issue, not a short-term one. It includes everything from getting more parents involved to addressing issues of poverty and improving what happens in the classroom.
+- If the choice is between universal health care or fixing our broken immigration system or upholding a 60-vote filibuster rule that is nowhere in the Constitution, I'm going to choose actually making progress for the American people.
+- I grew up Catholic. The Catholic faith has played an integral role in my life. At the same time, I don't think that there is a single person that doesn't have some disagreements with their faith.
+- To me, what I believe is that everybody should have the ability to enroll in Medicare. If somebody wants a supplemental plan or a private plan, then I believe they should be able to do that as well.
+- My grandmother spent her whole life working as a maid, a cook and a babysitter, barely scraping by, but still working hard to give my mother, her only child, a chance in life, so that my mother could give my brother and me an even better one.
+- I believe that Secretary Clinton has said, has acknowledged, that that was not the best way to handle her emails back then... and has turned over all of the information and the emails and documents and now the server.
+- I started when I was 39 as a cabinet secretary, and so I feel like I have lived an experience in my life where I can relate to families that struggle, and are scraping by and scrounging.
+- The only part of my mother's experience that still gets to me is the way she and people like her were looked down upon for asking America to be America, for asking for full and equal participation in our democracy.
+- Of all the fictions we heard last week in Tampa, the one I find most troubling is this: If we all just go our own way, our nation will be stronger for it. Because if we sever the threads that connect us, the only people who will go far are those who are already ahead.
+- My grandmother didn't live to see us begin our lives in public service. But she probably would have thought it extraordinary that just two generations after she arrived in San Antonio, one grandson would be the mayor and the other would be on his way - the good people of San Antonio willing- to the United States Congress.
+- I wanted more people from my city to be able to have the kind of opportunity that I had.
+- My family's story isn't special. What's special is the America that makes our story possible. Ours is a nation like no other, a place where great journeys can be made in a single generation. No matter who you are or where you come from, the path is always forward.
+- I believe people want a President for all Americans. And so I'm out there talking about what we can do for every single American.
+- The prosperity of the United States and the prosperity of the Hispanic community, as the fastest-growing community, are one and the same. The destinies are one and the same.
+- My mother dreamed dreams for Joaquin and for me long before we could dream them for ourselves.
+- I consider myself a pretty progressive person, and I think I have a track record that shows that. But I'm also not just going to do a policy because it's the liberal thing to do.
+- Throughout our history the United States has benefited form having stronger relationships, including investments in Europe, that have kept us and the world safer and benefited us economically.

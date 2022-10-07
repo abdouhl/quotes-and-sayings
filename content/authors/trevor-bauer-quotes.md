@@ -1,0 +1,106 @@
++++
+author = "Trevor Bauer"
+title = "Trevor Bauer Quotes"
+quotes_len = "100"
+description = "the best 100 Trevor Bauer Quotes"
++++
+- We have free agents getting signed based on having a higher spin rate than another guy. If I can put pine tar on my hand and increase my spin rate 200 RPM and then get a job over another guy who isn't breaking the rules, how is that fair?
+- I take a lot of pride in growing my brand and connecting with young fans and with the reach that Lids has, with 1,200-plus locations and the amount of merchandise they sell gives me a large opportunity to reach out to fans and keep connecting and trying to grow the game of baseball. Lids has been a partner in that pursuit for a long time.
+- I do think more players should engage with fans, especially on social media.
+- Let everybody compete on a level playing field.
+- I want to be a member of an organization that values me and that I value them.
+- Baseball will never address that problem unless it has to, though, because I would guess 70 percent of the pitchers in the league use some sort of technically illegal substance on the ball. It's just that some organizations really know how to weaponize that and some don't.
+- I'm not a loose cannon. If I'm wrong, I say so.
+- Engineers have a certain mindset of how they approach problem solving. That's basically what engineers are: problem solvers. You identify the problem. Then you design a process to solve the problem. Then you execute the process and repeat it over and over until you get it right.
+- I don't think it's right to be throwing at someone intentionally, and risking injuring them by hitting them in the wrist, or the elbow, or the ribs.
+- I wasn't a natural-born athlete. I was made.
+- This happens in politics. Any sort of leadership role, this happens. There's certain moments that come across when you have to make a decision. Do I do A or do I do B? The decision drastically changes the future.
+- Until I have a season where I do feel like I'm the best, I don't think I'm really going to be satisfied with it. And even when I do have a season where I feel like I'm the best, I'm sure I'll find something that I'm unsatisfied with it. That's kind of how I am.
+- I don't want to be a player that signs a long-term deal and towards the end is resented, either by the fan base, by the organization, or on my end for having my performance slip below what my contract dictates.
+- That's where my vision lies and my passion lies, leaving the game in a better place for my fellow players than it was when I came in.
+- Spin rate itself doesn't make a pitch harder to hit. It just makes it further from what the hitters are used to seeing. It takes a pitch further away from average.
+- I enjoy the pro game because it gives me an outlet to combine my intellect with something that I can still enjoy doing. It's better than applying my intellect while sitting in a corner office somewhere, trying to write code.
+- The professional game, in a lot of ways, sucks. It's not fun like 11-year-old baseball was or college baseball or high school baseball.
+- The playoffs are a different animal, and any team can beat you on any day.
+- I played soccer when I was little, but I wasn't very good at it.
+- Guys that are striking out 200 times, like Joey Gallo - in 1990 he would have hit 75 home runs every year because he's facing guys with an average velocity of 90 miles an hour, good command and O.K. breaking balls.
+- A piece of my training program is doing exercises to force myself to work in an unconscious or a subconscious realm, as opposed to a conscious realm.
+- If I'm around people I don't know well - if I'm at a bar or I'm hanging out with a group of people I don't know or whatever - I'm quiet. I don't say a lot. I listen. I watch. I observe.
+- I really pride myself on not missing starts and being able to take the ball when it's my turn, I want to be able to do my job and take my turn. Especially in the playoffs.
+- I want to win a World Series. I've come in second, both in college and in the big leagues. I'm tired of it.
+- I understand that the truth can upset people, but I'm never going to stop sticking up for myself, or for what I think is right.
+- People get the wrong impression about me. They think I'm elitist or I'm conceited or whatever. But I'm a really good person. I take care of my friends and my family. I'm kindhearted. I'm a better person than a lot of people I'm surrounded by. I'll get chewed up for saying that, but it's true.
+- Everybody is afraid of risk.
+- More so than any other major American sport, baseball has the most diversity of culture and personality, and is the least marketable. Why? It doesn't make any sense.
+- You always have to surround yourself with people that are more knowledgeable than you or are better at certain skill sets than you are, so they pull you up.
+- I just get this reputation of being a bad teammate, but no one would come in and tell me why.
+- Am I perfect? No. Far from it. But that's the same case for everybody.
+- Because I was drafted high, I got the reputation of being conceited, like I'm too good for this person or that person.
+- Personally, I think fans would rather watch a DH hit than a pitcher hit.
+- I like the two-seam fastball. That's a pitch I'm fascinated with.
+- You want to be one of the main guys out there with your teammates and contributing.
+- As the players get younger and younger, and the teams value younger players, the players' best years are when they're being paid the least.
+- It's definitely nice to come and say, 'Yeah, I put in a lot of work and I worked on the right stuff and it is working,' as opposed to saying 'I put in a lot of work and I don't know if it's working or not.'
+- I don't go out of my way to harass anybody. But, I mean, if you're going to come at me, that's just what I do.
+- I want to win. I want to be happy while doing so.
+- I hate losing. It drives me nuts.
+- As a kid, I wore the same Oakland A's hat for like six or seven years. It was faded white and green. It was because I loved Barry Zito and he had signed that hat.
+- I'm an intense competitor, and that fire is what drives me.
+- I'm very much human.
+- Growth and maturation isn't celebrated or isn't talked about in society now. Is it possible that I was a bad teammate in 2012? Sure. Is it also possible that I'm a good teammate in 2019? Sure.
+- That's how I choose to approach my career. I'm constantly trying to find an edge and find the next way to improve myself.
+- I want to make my fastball better. How do I high-grade my fastball to make it the best fastball in the league? I can only throw so hard. I'm close to my genetic ceiling on my velocity.
+- Generally when I say stuff, people take it one way or the other.
+- If I didn't play baseball, I probably wouldn't play a sport because i'm not really that athletic. Baseball was the one sport I could nerd my way to the top.
+- I think when people speak and they come from a place of sincerity and like caring about the situation, you know, it's easy for people to identify that, and to hear that in the genuine nature of it.
+- I haven't heard a single negative thing. Everyone has glowing reviews. A lot of people have told me, 'If you can play for the Dodgers, you should. First class.'
+- I care about making the game, the industry and the people I'm around better because I'm around. Ultimately that's what creates a legacy... But you have to be OK with making people mad because people don't like change.
+- It's definitely nice when you develop a plan and you go out there and you work on it with the idea that it's going to work, but you never really know until you get into a game situation and you see how it plays out.
+- I was a really big - I was a big fan of pitching staffs in general growing up, not necessarily teams. So I liked the Braves pitching staff of Maddox, Glavine, and Smoltz, and I liked the A's pitching staff with Zito, Hudson, and Mulder.
+- I enjoyed baseball more as a kid, when it was just fun.
+- I'm online a lot.
+- Sometimes you don't realize how unhappy you are in a situation until you are out of it, because it's just kind of day-to-day life.
+- There are good parts and bad parts and middle parts about everybody. So what I would like to be known as is someone who was true to himself and passionate about the game.
+- I'm probably in the bottom 25 percent of athletes in the big leagues, just on pure athletic capability. But I've taught myself, through a lot of hard work and study and science, how to be really good at one specific thing.
+- Performing well's always pleasing, especially when the team gets the win and you can help contribute to it.
+- I finally at some point in high school just decided that's what I was going to do. I was going to be true to myself.
+- I spend so much time thinking and I don't generally have strong emotional reactions too much.
+- I have no problem with Gerrit. We had a rocky relationship in college, because he told me that I had no future in baseball and he insulted my work ethic as a freshman. I don't take kindly to those couple things, so we had our issues. And I have, I don't know, those feelings have long since faded.
+- It's so important to grow our game that players share more of their lives than just on the field and that personalities can shine through.
+- I'm not explosive. I can't jump.
+- The more those young fans get to understand that, 'Hey, this guy does some of the same things I do,' it creates a lot of interest and a lot of belief that they could become future big-leaguers. That's really where it starts, inspiring, entertaining and connecting with those young fans in a way that they can understand.
+- I want to be happy. I want to enjoy playing baseball.
+- Look, I'm not that big.
+- I've always enjoyed being on MLB Network Radio as a guest.
+- You grow from failure. That's one thing I try to apply to my life in all aspects.
+- Zito was my favorite pitcher for a good long time, pretty much until Lincecum came into the league. Obviously, if you know Barry Zito, you know the big curveball. So that was kind of my inspiration for learning how to throw it. Tried to pattern that pitch off of him as much as possible.
+- I think at the end of the day, I am myself, to a fault.
+- If anything, I hope to see more players feel comfortable speaking out and sharing their perspectives openly in the future. The game needs more of that in my opinion.
+- I was an athlete, but I was also a nerd. And so I didn't really fit in with the jocks because I was a nerd, and I didn't fit in with the nerds because I was a jock.
+- I like making myself uncomfortable and throwing different stuff my way and trying to find a solution for it. I think that's how you improve. Find a way to make yourself uncomfortable, get comfortable with it, and do it again.
+- Cheating is one thing - it's not OK - but at least if you cheat and you come out and you get caught and you're like, 'Look, I did this and it wasn't right. This is why I did it. I'm not going to do it again, I learned my lesson.'
+- I want to be a member of a winning team.
+- Ice your arm, after a start, pitchers will put the ice bag on their elbow and their shoulder. Makes no sense. It makes a lot more sense to do isometric activity, movement based recovery than to just put your arm in ice.
+- I like to try to learn from my past and be a better person because of it. Better player, better teammate. Better everything.
+- I think it's a fairly well-known thing about me that I'm a big nerd.
+- Everyone makes mistakes in the past. I try to learn from them. I try to learn from them as quickly as I possibly can.
+- The better I am, the better the team is, so you should want me to be selfish about how good I am.
+- In a competition, you get fired up, you're jacked up on adrenaline and you do stuff sometimes that you look at later and you're like 'How the heck did I even do that? Why would I do something like that?' But it's just in the moment.
+- I have no interest in being a reliever. It's not to say I wouldn't do it at some point, but I would have to have a really long time to think about it or if I want to retire.
+- I try to understand other people's viewpoints on things and be better in the future. I think if you look at my history as a baseball player, my history on social media and my history as a person, for those who know me well, they know that I apply that process to everything that I do.
+- I am not tired of being baseball's designated 'outspoken guy.' It's just me being me.
+- When the pressure is on, you're going to default back to how you've played your whole life and how you'd normally pitch.
+- I grew up going to Dodger Stadium and I would look out there on the field with my dad and say, 'Man, those guys are superstars.' And they were. But they almost had this extraterrestrial feel to them, like it wasn't achievable. It wasn't a tangible goal because I didn't know anything about the players.
+- I want to be the best. I don't know by what standard you measure being the best, but I want to go out there and perform and feel like I'm the best.
+- I've had coaches along the way that actively go out of their way to make sure that I don't succeed. They don't like me.
+- Spring training is kind of my offseason. I'm preparing for the season, but the workload that I experience in spring is much lower than any other time of year. And so, I enjoy it.
+- As soon as I sense you're developing feelings, I'm going to cut it off, because I'm not interested in a relationship and I'm emotionally unavailable.
+- I'm not that strong. I'm not fast.
+- From what I've read, Gen Z largely favors players over teams and that's one of the reasons it's so important to showcase MLB player personalities.
+- I grew up in a loving family, but I essentially grew up alone. I had no friends for a while.
+- I like who I am, trying to handle myself with integrity, character, honesty, treat people well and how I would like to be treated. And as long as I do those things, I can look at myself in the mirror and be proud of who I am at the end of each day.
+- Hopefully at some point, someone else behind me will have an easier time with training methods, with being honest, with being true to who they are or whatever, because I broke down some sort of barrier.
+- Why would you lock yourself in a situation that may not make you happy? I think that's highly inefficient.
+- That's really one thing I really care about as a person is trying to make the people's lives around me better. Whether that's just being a friend and listening or with information I can offer. However it is, that's something I care about and I try to do on a regular basis.
+- I ignore the vast majority of things people say to me online. Sometimes, I respond. But all you see is the response.
+- I try to make the things that I say be based in reality, based in facts, and truthful. And if that's the case, and you want to be upset at me for stating the truth, that's your choice.

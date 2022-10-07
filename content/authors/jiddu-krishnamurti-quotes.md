@@ -1,0 +1,79 @@
++++
+author = "Jiddu Krishnamurti"
+title = "Jiddu Krishnamurti Quotes"
+quotes_len = "73"
+description = "the best 73 Jiddu Krishnamurti Quotes"
++++
+- We do not know what love is. We know the symptoms of it, the pleasure, the pain, the fear, the anxiety and so on. We try to solve the symptoms, which becomes a wandering in darkness. We spend our days and nights in this, and it is soon over in death.
+- Truth cannot be brought down; rather, the individual must make the effort to ascend to it. You cannot bring the mountaintop to the valley. If you would attain to the mountaintop, you must pass through the valley, climb the steeps, unafraid of the dangerous precipices.
+- No one can live without relationship. You may withdraw into the mountains, become a monk, a sannyasi, wander off into the desert by yourself, but you are related. You cannot escape from that absolute fact. You cannot exist in isolation.
+- I want to do a certain thing in the world, and I am going to do it with unwavering concentration. I am concerning myself with only one essential thing: to set man free. I desire to free him from all cages, from all fears, and not to found religions, new sects, nor to establish new theories and new philosophies.
+- We all want to be famous people, and the moment we want to be something we are no longer free.
+- If we depend for our happiness on another, on society or on environment, they become essential to us; we cling to them, and any alteration of these we violently oppose because we depend upon them for our psychological security and comfort.
+- You may be educated abroad, you may be a great scientist, politician, but you always have a sneaking fear that if you don't go to temples or do the ordinary things that you have been told to do, something evil might happen, so you conform. What happens to the mind that conforms? Investigate it, please.
+- The end is the beginning of all things, Suppressed and hidden, Awaiting to be released through the rhythm Of pain and pleasure.
+- We are second-hand people. We have lived on what we have been told, either guided by our inclinations, our tendencies, or compelled to accept by circumstances and environment. We are the result of all kinds of influences, and there is nothing new in us, nothing that we have discovered for ourselves: nothing original, pristine, clear.
+- Religion is the frozen thought of man out of which they build temples.
+- It is odd that we have so little relationship with nature, with the insects and the leaping frog and the owl that hoots among the hills calling for its mate. We never seem to have a feeling for all living things on the earth.
+- The movement of search can only be from the known to the known, and all that the mind can do is to be aware that this movement will never uncover the unknown. Any movement on the part of the known is still within the field of the known.
+- Life cannot be without relationship, but we have made it so agonizing and hideous by basing it on personal and possessive love. Can one love and yet not possess? You will find the true answer not in escape, ideals, beliefs but through the understanding of the causes of dependence and possessiveness.
+- Truth is a pathless land.
+- Is it not important to find out how to listen not only to what is being said but to everything - to the noise in the streets, to the chatter of birds, to the noise of the tramcar, to the restless sea, to the voice of your husband, to your wife, to your friends, to the cry of a baby?
+- If we could establish a deep abiding relationship with nature, we would never kill an animal for our appetite; we would never harm, vivisect, a monkey, a dog, a guinea pig for our benefit. We would find other ways to heal our wounds, heal our bodies.
+- Freedom from the desire for an answer is essential to the understanding of a problem.
+- A belief is purely an individual matter, and you cannot and must not organize it. If you do, it becomes dead, crystallized; it becomes a creed, a sect, a religion, to be imposed on others.
+- When the mind is empty, silent, when it is in a state of complete negation - which is not blankness, nor the opposite of being positive, but a totally different state in which all thought has ceased - only then is it possible for that which is unnameable to come into being.
+- To live is to find out for yourself what is true, and you can do this only when there is freedom, when there is continuous revolution inwardly, within yourself.
+- Listening has importance only when one is not projecting one's own desires through which one listens.
+- Love is the missing factor; there is a lack of affection, of warmth in relationship; and because we lack that love, that tenderness, that generosity, that mercy in relationship, we escape into mass action, which produces further confusion, further misery.
+- When you call yourself an Indian or a Muslim or a Christian or a European or anything else, you are being violent. Do you see why it is violent? Because you are separating yourself from the rest of mankind. When you separate yourself by belief, by nationality, by tradition, it breeds violence.
+- The constant assertion of belief is an indication of fear.
+- Meditation is a state of mind which looks at everything with complete attention, totally, not just parts of it. And no one can teach you how to be attentive. If any system teaches you how to be attentive, then you are attentive to the system, and that is not attention.
+- There is no end to education. It is not that you read a book, pass an examination, and finish with education. The whole of life, from the moment you are born to the moment you die, is a process of learning.
+- Have you not noticed that love is silence? It may be while holding the hand of another, or looking lovingly at a child, or taking in the beauty of an evening. Love has no past or future, and so it is with this extraordinary state of silence.
+- All of us have been trained by education and environment to seek personal gain and security and to fight for ourselves. Though we cover it over with pleasant phrases, we have been educated for various professions within a system which is based on exploitation and acquisitive fear.
+- If you listen through the screen of your desires, then you obviously listen to your own voice; you are listening to your own desires.
+- Life is relationship, living is relationship. We cannot live if you and I have built a wall around ourselves and just peep over that wall occasionally. Unconsciously, deeply, under the wall, we are related.
+- Can the mind see the truth of its own incapacity to know the unknown? Surely if I see very clearly that my mind cannot know the unknown, there is absolute quietness.
+- In oneself lies the whole world and if you know how to look and learn, the door is there and the key is in your hand. Nobody on earth can give you either the key or the door to open, except yourself.
+- In seeking comfort, we generally find a quiet corner in life where there is a minimum of conflict, and then we are afraid to step out of that seclusion.
+- If we can really understand the problem, the answer will come out of it, because the answer is not separate from the problem.
+- I maintain that Truth is a pathless land, and you cannot approach it by any path whatsoever, by any religion, by any sect.
+- We never look deeply into the quality of a tree; we never really touch it, feel its solidity, its rough bark, and hear the sound that is part of the tree. Not the sound of wind through the leaves, not the breeze of a morning that flutters the leaves, but its own sound, the sound of the trunk and the silent sound of the roots.
+- For most of us, relationship with another is based on dependence, either economic or psychological. This dependence creates fear, breeds in us possessiveness, results in friction, suspicion, frustration.
+- Meditation demands an astonishingly alert mind; it is the understanding of the totality of life in which every form of fragmentation has ceased.
+- Organized murder is war, and though we demonstrate against a particular war, the nuclear, or any other kind of war, we have never demonstrated against war.
+- Meditation is to be aware of every thought and of every feeling, never to say it is right or wrong, but just to watch it and move with it. In that watching, you begin to understand the whole movement of thought and feeling. And out of this awareness comes silence.
+- One is never afraid of the unknown; one is afraid of the known coming to an end.
+- Die to everything of yesterday so that your mind is always fresh, always young, innocent, full of vigor and passion.
+- Meditation is not following any system; it is not constant repetition and imitation. Meditation is not concentration.
+- Tradition becomes our security, and when the mind is secure it is in decay.
+- The moment you have in your heart this extraordinary thing called love and feel the depth, the delight, the ecstasy of it, you will discover that for you the world is transformed.
+- So when you are listening to somebody, completely, attentively, then you are listening not only to the words, but also to the feeling of what is being conveyed, to the whole of it, not part of it.
+- We are domesticated animals, revolving in a cage which we have built for ourselves - with its contentions, wranglings, its impossible political leaders, its gurus who exploit our self-conceit and their own with great refinement or rather crudely.
+- When you draw or paint a tree, you do not imitate the tree; you do not copy it exactly as it is, which would be mere photography. To be free to paint a tree or a flower or a sunset, you have to feel what it conveys to you: the significance, the meaning of it.
+- You must understand the whole of life, not just one little part of it. That is why you must read, that is why you must look at the skies, that is why you must sing and dance, and write poems and suffer and understand, for all that is life.
+- If one has fear, there can be no initiative in the creative sense of the word. To have initiative in this sense is to do something original - to do it spontaneously, naturally, without being guided, forced, controlled. It is to do something which you love to do.
+- This is love: the flowering of love is meditation.
+- Truth, being limitless, unconditioned, unapproachable by any path whatsoever, cannot be organized; nor should any organization be formed to lead or to coerce people along any particular path. If you first understand that, then you will see how impossible it is to organize a belief.
+- Man has throughout the ages been seeking something beyond himself, beyond material welfare - something we call truth or God or reality, a timeless state - something that cannot be disturbed by circumstances, by thought or by human corruption.
+- When we talk about understanding, surely it takes place only when the mind listens completely - the mind being your heart, your nerves, your ears - when you give your whole attention to it.
+- It is no measure of health to be well adjusted to a profoundly sick society.
+- If you have fear, you are bound by tradition, you follow some leader or guru. When you are bound by tradition, when you are afraid of your husband or your wife, you lose your dignity as an individual human being.
+- In this constant battle which we call living, we try to set a code of conduct according to the society in which we are brought up, whether it be a Communist society or a so-called free society; we accept a standard of behaviour as part of our tradition as Hindus or Muslims or Christians or whatever we happen to be.
+- When I understand myself, I understand you, and out of that understanding comes love.
+- What religion a man holds, to what race he belongs, these things are not important; the really important thing is this knowledge: the knowledge of God's plan for men. For God has a plan, and that plan is evolution.
+- With increasing age, dullness of mind and heart sets in.
+- It is really very important while you are young to live in an environment in which there is no fear. Most of us, as we grow older, become frightened; we are afraid of living, afraid of losing a job, afraid of tradition, afraid of what the neighbours, or what the wife or husband would say, afraid of death.
+- It is violence when we use a sharp word, when we make a gesture to brush away a person. So violence isn't merely organized butchery in the name of God, in the name of society or country. Violence is much more subtle, much deeper.
+- A man who is not afraid is not aggressive, a man who has no sense of fear of any kind is really a free, a peaceful man.
+- When one travels around the world, one notices to what an extraordinary degree human nature is the same, whether in India or America, in Europe or Australia.
+- Why does your mind conform? Have you ever asked? Are you aware that you are conforming to a pattern? It doesn't matter what that pattern is, whether you have established a pattern for yourself or it has been established for you.
+- Have you ever asked yourselves what you are going to do when you grow up? In all likelihood you will get married, and before you know where you are, you will be mothers and fathers; and you will then be tied to a job, or to the kitchen, in which you will gradually wither away. Is that all that your life is going to be?
+- The environment that we call society is created by past generations; we accept it, as it helps us to maintain our greed, possessiveness, illusion.
+- What is needed, rather than running away or controlling or suppressing or any other resistance, is understanding fear; that means, watch it, learn about it, come directly into contact with it. We are to learn about fear, not how to escape from it.
+- You may be able to read Bernard Shaw's plays, you may be able to quote Shakespeare or Voltaire or some new philosopher; but if you in yourself are not intelligent, if you are not creative, what is the point of this education?
+- If you begin to understand what you are without trying to change it, then what you are undergoes a transformation.
+- The question of whether or not there is a God or truth or reality or whatever you like to call it, can never be answered by books, by priests, philosopher's or saviours. Nobody and nothing can answer the question but you yourself, and that is why you must know yourself - Immaturity lies only in total ignorance of self.
+- All ideologies are idiotic, whether religious or political, for it is conceptual thinking, the conceptual word, which has so unfortunately divided man.
+- A consistent thinker is a thoughtless person, because he conforms to a pattern; he repeats phrases and thinks in a groove.

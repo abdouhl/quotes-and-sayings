@@ -1,0 +1,146 @@
++++
+author = "George Osborne"
+title = "George Osborne Quotes"
+quotes_len = "140"
+description = "the best 140 George Osborne Quotes"
++++
+- If the E.U. allows itself to be priced out of the world economy, the next generation will not get jobs, living standards will decline, and the Union will lose the popular consent of the people of Europe.
+- Only the U.K. can trigger Article 50. And in my judgement, we should only do that when there is a clear view about what new arrangements we are seeking with our European neighbours.
+- Working people of this country want economic security. The worst possible thing you can do for those families is bust the public finances, have some welfare system this country can't afford.
+- If we leave the European Union, there will be an immediate economic shock that will hit financial markets. People will not know what the future looks like.
+- Our message to China is very clear: we want the U.K. to be China's best partner in the West.
+- I came into politics partly because I want to be able to reduce taxes so that individuals have more of their money to spend, so that businesses have more of their money to create jobs, but I believe that lower taxes are sustainable when you get the public finances in order, so I will only make promises I can keep on taxation.
+- No ifs, no buts - we will not share the pound if Scotland separates from the U.K.
+- I didn't come from a traditional Tory background; it was urban and metropolitan.
+- I serve at the discretion of the prime minister.
+- Believe me, I understand that most higher rate taxpayers are not the super-rich.
+- Britain helped create the Internet - Tim Berners Lee created the World Wide Web, one of a long line of British scientists who have given us an outsized role in shaping our own digital future.
+- A generous basic state pension is the least a civilized society should offer those who have worked hard and saved through their whole lives.
+- It's normally the kiss of death to be identified as a rising star, or someone to watch.
+- I want to see genuine talent rewarded.
+- Britain can choose, as others are, short term fixes and more stimulus. Or we can lead the world with long-term solutions to long-term problems.
+- The police protect us, and we're going to protect the police.
+- Unless they have disabilities to cope with, no family should get more from living on benefits than the average family gets from going out to work. No more open-ended chequebook.
+- Even as China's growth slows, it will continue to be a powerhouse for the global economy.
+- For families flying out of the U.K. for a winter getaway, airports should be the ideal place to pick up a bargain.
+- Of course the Liberal Democrats are going to say things to try and get attention - but I don't think the country is paying much attention.
+- The Conservative Party mustn't sound like the old man on the park bench who says things were better in 1985, or 1955, or 1855.
+- If we don't get a grip on government spending, there will be no growth.
+- Of all the public services, education is the one I'm most interested in. You get a more dynamic economy, you deal with most social problems, and it's morally right.
+- The Conservative party absolutely must not allow itself to be shut out of parts of the north of England.
+- I think you can look at the British economy with confidence.
+- Frankly, people buying a home to let should not be squeezing out families who can't afford a home to buy.
+- There is lots of evidence that it is this fear of going into debt that most puts people from poorer backgrounds off going to university.
+- Margaret Thatcher's government redistributed money from rich to poor. And that's the nature of a modern western democracy.
+- I support gay marriage. I support gay marriage because I believe Conservatives support the institutions of commitment.
+- We don't see a choice between securing growth and investment and raising human rights issues.
+- You really have to try hard to create space and, at least for a time, stop the political world from rushing in. The important thing is to remain sane.
+- Most successful politicians don't let the job swamp their lives.
+- I've always thought that good politics follows from good economics and good policies.
+- We should be doing more business with China. We should be better connected to the Chinese economy.
+- Well you know I've attracted a lot of criticism by, for example, suggesting that child benefit should be taken away from higher rate taxpaying families.
+- It's difficult to see how Syria can have any long-term future with Assad there as president. Many people would never return to that country if that were the case.
+- Leaving the E.U. was not the outcome that I wanted or campaigned, but now that democracy has spoken, we must act on that result. I will fully respect that result.
+- Every day as Chancellor I see alerts telling me of risks around the world.
+- I believe in public services.
+- To all companies large and small, I would say this: the British economy is fundamentally strong; we are highly competitive, and we are open for business.
+- I think Britain can be one of the great success stories of the 21st century - we've got the talent, the drive, the connections around the world. But if we vote to Leave, then we lose control. We lose control of our economy, and if you lose control of your economy you lose control of everything. That's not a price worth paying.
+- The biggest single thing that has lifted people out of poverty is free trade.
+- We have accepted there is a big role for government to create a framework where businesses can grow in all parts of the country.
+- Well can I just say unlike my predecessors, Conservative and Labour, I have set up an independent body that studies whether what I'm saying is true, whether I've met the targets that I set out.
+- I want to see families with lower energy bills.
+- Britain has always been a home to the vulnerable, and we've always done what we need to do to help people who are fleeing persecution.
+- I am a social liberal.
+- Some things never change, suck up to the government and you get an honour.
+- Politics as a parent is fairly demanding; if your parent is in politics, it's fairly demanding, so I make no excuses about taking two weeks off.
+- I want Britain to be the home of successful competitive and stable financial services.
+- I don't want to watch 'Newsnight.' I just don't understand those politicians who genuinely want to watch it for pleasure.
+- If you want to change the way your banking system is regulated, if you want to learn the mistakes of what's gone wrong, then you have to change your government.
+- In football, as in politics, resilience pays off.
+- The Internet - central to modern life - provides new ways for our enemies to plan and act against us.
+- I think the best solution to this challenge, and I accept there is a challenge with homophobic bullying, is to make sure we get rid of the bullying rather than feeling we have to take kids out of our schools and teach then somewhere else. That would be the best approach.
+- Rather than standing back and being left behind, we must make the most of the opportunities that a growing China presents to us here in Britain.
+- I'm a Conservative who believes in lower taxes. They lead to a more enterprising economy. But I'm not somebody who believes you can fund lower taxes by borrowing more money.
+- It's not easy cutting welfare bills. It's not easy cutting the deficit.
+- If freedom of movement is to be sustainable, then our publics must see it as freedom to move to work, rather than freedom to choose the most generous benefits.
+- Tax cuts should be for life, not just for Christmas.
+- If the country's poorer, it's got less money.
+- The positive news is that the British economy is continuing to grow and is creating jobs. And it is positive news too that at a time of real international instability we are a safe haven in the storm.
+- I can't imagine a God who would ever need to intercede in the daily travails of my life.
+- If we leave the European Union it's a risk to our economy - it's a risk to pensioners, it's a risk to homeowners, it's a risk to people in work.
+- Brexit is for the richest in our country: they can afford recessions.
+- Just as we should never balance the budget on the backs of the poor, so it is an economic delusion to think you can balance it only on the wallets of the rich.
+- Providing great schooling is the single most important thing we can do to help any child from a disadvantaged background succeed. It's also the single most important thing we can do to boost the long-term productivity of our economy.
+- ISIL are already using the Internet for hideous propaganda purposes - for radicalisation, for operational planning, too.
+- I've learned to be true to yourself, stick to the big arguments, don't get distracted by the everyday kerfuffle that is in the nature of any democratic system.
+- I get a lot of letters from people.
+- The Internet has made us richer, freer, connected and informed in ways its founders could not have dreamt of. It has also become a vector of attack, espionage, crime and harm.
+- I will listen to any argument put to me.
+- You know the illusion of the cheap money is over and now Britain has to go out there and graft and earn its way and create wealth and prosperity in a very competitive world.
+- You cannot tackle Britain's debts without tackling the unreformed welfare system.
+- I want Britain to be a global financial centre but I want it to be properly regulated.
+- The former pension minister, the Liberal Democrat Steve Webb said I was trying to abolish the lump sum. Instead, we are going to keep the lump sum and abolish the Liberal Democrats.
+- Cutting budget deficits can never be just an exercise in economics.
+- In opposition, you move to the centre. In government, you move the centre.
+- I think people who sit around and are always yearning for the next thing are not always the happiest people.
+- The threat from terrorists - from extreme ideologies - needs to be challenged head-on.
+- People should know this of me: I will do what is required to keep our country safe and secure because, in the end, that is what people's livelihoods and jobs rely on.
+- I have done everything I can to move Britain out of the financial danger zone.
+- I had the closest thing I have ever had to an out-of-body experience lying in bed one morning. I turned on the 'Today' programme and item four on the news was: 'The shadow chancellor has ruled himself out of the leadership.' I lay there thinking that's interesting, then I realised it was me.
+- The foundations of a strong economy don't rest alone on the decisions of Chancellors or the spending programmes of government.
+- Sound public finances are not the enemy of sustained growth - they are its precondition.
+- The Conservative party, the modern Conservative party, is on the side of people who want to work hard and get on.
+- There were some who wanted all the benefits of E.U. membership without any of the costs. I'm not sure that's very realistic.
+- I'm a very happy, content member of David Cameron's team. I fought very hard to get my friend elected as leader of the Conservative party, then elected as the prime minister of this country, and I'm very happy being part of that team that is bringing change to this country.
+- I believe that I'm entitled to regard my pre-political life as off-limits in terms of what can be looked at and judged.
+- We are very supportive of the economic reforms that the Chinese government have talked about.
+- We are absolutely going to have to provide fiscal security to people; in other words, we are going to have to show the country and the world that the country can live within its means.
+- It's not enough to tackle just the symptoms of poverty. You have to tackle the causes of poverty.
+- We are not quitters. Britain has always gone out there; we have probably been more influential than any other country in shaping our world and the way it has thought about itself, the way we interact as nations.
+- The rise in world oil prices has been larger than anyone forecast.
+- I think its important, particularly when you've got young children, to spend some time with them.
+- We need strength and success elsewhere in our country - not by pulling London down but by building the rest of the country up.
+- Tony Blair was a good politician but not a good Prime Minister, and that's what we don't want to be. We don't want to be just people who are good at winning elections: we want to be good at governing. I think we benefit from having seen the mistakes that we think Tony Blair made in 1997.
+- Our long-term economic plan is all about creating jobs and the economic security that comes with that.
+- One of London's massive strengths is its sporting prowess, its great football teams.
+- Everyone in our society has had to make a contribution towards dealing with the debts.
+- The Conservative party is at its strongest when it's not the party that says there is no role for government and the state should just get out of the way. That is not a strand of Conservative thinking that, by itself, is enough.
+- It was the Conservatives who first protected people in the mills.
+- I first started going to Chelsea games in the mid-Nineties when I lived off the North End Road, ten minutes' walk from Stamford Bridge.
+- I'm tempted to say that Conservative governments are normally elected to clear up the mess left by Labour governments.
+- The wish to pass something on to your children is about the most basic, human and natural aspiration there is.
+- Well British pension funds have not been investing the savings of British people in British infrastructure.
+- I'm not going out to parties every night.
+- I think the British people are very, very attached to the idea that the health service is free at the point of use. But there is no reason why every doctor, nurse and teacher in this country has to be employed by the state.
+- We must bring unity of spirit and purpose and condemn hatred and division wherever we see it.
+- Britain needs a tough, strong financial conduct regulator.
+- To simply argue that public spending must always go up and never be cut is irresponsible.
+- Britain is an open and tolerant country, and I will fight with everything I have to keep it so.
+- I do not want Britain to turn its back on Europe or the rest of the world.
+- I understand the damage the expenses crisis has done to Parliament, and the paramount importance of restoring trust in our politics.
+- It's in our interests that the euro is a successful, strong currency.
+- When I was born, the Internet was barely two years old. It was the preserve of academics, used to connect dozens rather than billions of users. There weren't many who predicted it would transform our world.
+- There was a real fear that a euro-zone bank might fail, that we'd have a sovereign debt problem in one of the larger European economies. That's dissipated, thanks largely to the action of the European Central Bank.
+- The Office for Budget Responsibility correctly stay out of the political debate and do not assess the long-term costs and benefits of E.U. membership.
+- I think the British people have a strong sense of what is fair.
+- Britain has no divine right to be one of the richest countries in the world.
+- It's perfectly reasonable in a coalition between two political parties that you get supporters of those parties you know stressing the things they want to stress.
+- I reject absolutely the idea that people should know their place, and know their class.
+- Autism is a very serious condition.
+- They all said I was a very young guy. Well there is nothing I can do about that but with each day that passes the problem solves itself.
+- I'm not one of those who thinks there is something inherently bad or inferior about watching television.
+- I would say I have taken substantive action to make things easier for people.
+- Britain can only spend what it can afford.
+- Did I want Britain to remain in the E.U.? Yes. Did I fear the consequences if we quit? Yes. Did I argue passionately for that during the referendum? Absolutely I did.
+- I want London to be the global sporting capital.
+- There are always ways to make government better, always ways to make sure that the taxes of people are better spent.
+- Many retailers have complained bitterly to me about the complexity of the Carbon Reduction Commitment. It's not a commitment; it's a tax.
+- One thing I learned about Gordon Brown is you've got to have the strength to just get in there and take him on. When you first hear him spouting his statistics and boasting about his record, it can be quite intimidating. But over time, shadowing him, I just realised that a lot of it was rubbish; a lot of it was baloney.
+- The British people think that if someone is disabled, then they should get all the care and support that we can offer.
+- I fought passionately to remain in the E.U., and I warned of the economic risks if we left the E.U.
+- Every day, I genuinely count my blessings. One of the greatest things in life is to do a job you really enjoy.
+- What's important is that, come the general election, people think the right things of you. They think that you've got the right values and the right policies. And that you're the right kind of person to lead the country.
+- Nuclear power is cost-competitive with other low-carbon technology and is a crucial part of our energy mix, along with new sources of power such as shale gas.
+- If someone believes that living on benefits is a lifestyle choice, then we need to make them think again.
+- We need to think deeply about whether we can sustain banks that are not only too big to fail, but potentially too big to bail.
+- The message I would say to China is, 'Carry on with the reform; carry on with the change you are making.'

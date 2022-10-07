@@ -1,0 +1,126 @@
++++
+author = "Tyron Woodley"
+title = "Tyron Woodley Quotes"
+quotes_len = "120"
+description = "the best 120 Tyron Woodley Quotes"
++++
+- I'm actually one of the sharper tools in the box that haven't been in the streets like that, but I have family members, close loved ones, that that's all they know.
+- Amanda Nunes - I've been telling people that forever - she could compete with a lot of the male bantamweights in American Top Team.
+- I put myself in a position where I made wrestling an option for me. I don't have to wrestle. I don't have to take another shot for the rest of my life if I don't want to. I have good enough hands, good enough boxing, good enough timing to strike with anybody in our division.
+- I know when you do things systematically, non-stop, and repetition, that's how you make things happen in your life. It's the same thing in faith.
+- It can be a grind, training and fighting and waiting for your chance. But when that opportunity presents itself, you have to be ready because you never know if or when you'll get another shot.
+- I owe my family first, but I also have others around me that I have to perform for.
+- I've had five submissions in the first round. I have 3, 4, 5 knockouts. I've had decisions. I've had grinding fights.
+- I don't fight safe; I fight smart.
+- What is there not to market? I fight like hell. I'm built a certain way, never taken performance-enhancing drugs.
+- I just prepare and train to be able to stay on top as long as I can and retire on top.
+- I'm just trying to get paid; I'm going to be straight up.
+- My goal is to go out there and dominate. We all know if I'm in a position and I see my opponent hurt by landing good striking, I'm going to try to get him out of there. If I'm in the top position or in the position to finish by submission, I'm going to look for that. I don't feel the need to prove the haters wrong.
+- There's some ignorant people in the world, and if I spend time trying to convince people to think like me, I'll be wasting valuable time I could use to be growing my business, perfecting my craft as a fighter, watching film, studying, or just enjoying time with my family. Or just sleeping.
+- Fighting is the only sport where fans don't understand this is our living.
+- I want to be compensated. If I'm working at the post office, and I'm sorting the same mail as the person to the right, and they're making $25 an hour and I'm making $21, I need to know what is this person doing so much better that he's getting $4 more than me. That's just knowing the market and being a smart businessman.
+- When you're watching people in non-title fights making four times the amount of money that a champion makes, it takes away the flavor of being a champion.
+- I don't think I'll get the credit I deserve, but I didn't get into this game for credit. I got into this game to be the greatest welterweight ever. If I keep knocking them out one by one, I think that will happen.
+- What got me into MMA first was that I was a wrestler, and I was a gangbanger getting into trouble a lot and getting into fights. I grew up in a family of 15 in a four-bedroom house. It was dysfunctional, so that alone made me want to be an MMA fighter. It's really the only sport where you gotta basically depend on yourself.
+- When someone's portraying something they're not to get underneath my skin, I'm just going to funnel that into a great strategy, and I'm going to try to get him out of there quick.
+- I've beaten Jordan Mein. I've beaten Tarec Saffiedine. Some people might have said I beat Stephen Thompson. I beat Robbie Lawler. These are the greatest strikers in our sport, but I'm the only one out of all those guys that outstruck the best strikers, and I still don't get the credit for being the best striker in our division.
+- For me, in general, I've been blessed to have hospitality from several different camps I've been able to train at and get an approval by the American Top Team guys to go anywhere.
+- There's something about somebody who does something special in the UFC that they're allotted certain freedoms and wiggle room around the rules. I'm just not in that category. So if I want to fight Georges St-Pierre or Nick Diaz or Nate Diaz, then it's all the hooplah and all the talk about it.
+- Let's put the cards on the table. Real is real. If I was a different complexion, I think people and fans would treat me a different way.
+- I'm gonna fall back, do my thing, but goddamn, I'm going to be a tough dude to deal with.
+- Two men can talk on the phone and maybe not agree on everything but at least respect each other.
+- We also have to think as fighters, celebrities - whatever you want to call us - that we have an obligation to point out stuff that's just completely wrong.
+- I ain't Nate Diaz. Nate Diaz is not a welterweight. He did not do well at welterweight because he was undersized, and these dudes are real gorillas in this weight class.
+- I don't believe in ring rust. I used to believe in ring rust, but I talked to my buddy Dominic Cruz, who's a bantamweight, and he basically said it's a mindset. What you do in between in your time off determines how you're going to look when you come in there.
+- You look at the top five right now and see guys like Kelvin Gastelum, who I've beaten, Carlos Condit, who I've beaten, Robbie Lawler, who I've beaten. How are those guys more notable than I am, and I'm the champion of the world?
+- Nick Diaz is in the top five welterweights of all time in my eyes. Georges St-Pierre is the number one welterweight in my eyes.
+- My nickname, T-Wood, came from football because I was so small, but I used knock people's helmets off. All I wanted to do was hit. I didn't care about interceptions or touchdowns.
+- Johnny Hendricks has better credentials, but in MMA, I might be the best wrestler for the style.
+- If you get into an armbar and someone locks it down on you, it's easy for you to tap out, but sometimes dealing with certain things, fighting through certain adversities, and being that I've been in some of the toughest situations in life, it just gives me an edge on my opponent that I'm going to torture him and beat him up.
+- For me, I think you can coach guys in martial artsm, and wrestling can be one aspect of it, but I have no desire to be an NCAA wrestling coach again. It was one of the worst coaching jobs I have ever had.
+- I used to fight every week. Me and my friends used to fight each other, bare knuckle, but then we would be friends that same day. That was our entertainment, though.
+- I gotta be able to beat good guys at any moment. I think that's what I'm taking.
+- I have the highest takedown defense in the entire welterweight division, maybe the second-highest on the UFC roster.
+- I think a kid from the inner city, if I had to recruit, is the ideal person for MMA. They'd be less likely to be affected by hard work. They'd be less likely to not appreciate something when someone is helping them out, because they probably don't have a ton of stuff.
+- There's a lot of guys in my weight class that are talking - they're chirping. Everybody wants the title. Everybody wants to fight me; everybody thinks they can beat me. People are talking because they think I can't fight.
+- I want to leave a legacy behind. I want the chance to measure myself against the top guys and to have them bring out that champion within me in the Octagon.
+- I remember recording over my mom's cassettes and putting on 'Thuggish Ruggish Bone,' and my mom be like, 'What the hell?' Being that I was born in '82, I've been listening to all of the classics throughout my years.
+- The only person I'd be interested in boxing would have to be one of the best of the best. It would have to be, like, Andre Ward.
+- I think Nick Diaz is a great fighter.
+- Guys in our sport bump their gums quite a bit, and they get you to think they're these huge tough guys... they're these gangsters, that they'll fight anybody, anytime. And then when you get in front of a person like me... the crickets start to come out. They don't really wanna fight.
+- It would be silly for me to work almost two and a half years chomping out whoever they put in front of me and for me to not capture that belt.
+- It's always something; it's never going to be something that's pleasing. People will always find something to say, and once you become comfortable with that, you can walk away and smile.
+- I'm a huge fan of the Diaz boys. I'm a huge fan of what they've done for our sport. I feel like it's not about the rankings anymore. Sometimes the rankings are a little shaky.
+- I love playing Rick Ross' 'Port of Miami' album. Jeezy's 'Thug Motivation 101' is a classic in my opinion, and I still listen to that album to this day. I'm a big fan of OutKast, so pretty much any album they put out is great in my opinion, but I find myself listening to 'Aquemini' a lot. Anything Kendrick Lamar does is great.
+- Fighting, especially at this level, is about getting through adversity. You position yourself mentally to go out and take on obstacles that stand in your way. In the Octagon and in life, you face tough situations and have every chance to quit, but the more adversity you push through, the more likely you are to be successful.
+- Why wouldn't the police officers be on edge? Why wouldn't they be alert? And why wouldn't people in the community trust police officers? Because they are consistently harassing them, and they have experience with police officers doing awful things.
+- I've always felt like the underdog.
+- I think the fans are human, and they have their own mind. If someone doesn't like a person because of their skin color, it doesn't matter if you fight or you deliver mail; they're going to have that opinion.
+- If you are the best in the world, and you believe you should be fighting for a title, I think it is important to get those things out. Because a closed mouth doesn't get fed.
+- The true game of mixed martial arts is putting your wrestling in there, putting your striking in there, but also being deceiving - hiding behind your punches if you're wrestling and hiding behind your wrestling if you're punching. It's just a matter of blending it all together.
+- If I'm straight outta shape for a fight, I might need 12 weeks or more to get in shape.
+- Man, I fought since pre-K. I was small for my grade, but I was tough.
+- At the end of the day, it's a big difference to get the draw than to get the win, but I'll take either over a loss any day.
+- Some people say things they think you want to hear, and some people say the things they are actually thinking.
+- When you're working on a Marvel movie, their legal department do not play.
+- It's just comical how short-term people's memories are.
+- Martin Luther King didn't know he was going to have a day named after him; Muhammad Ali didn't know he was going to be the people's champion. He was doing what he was doing because it was right.
+- USADA tested me, and I came back positive for hard work and beast-like characteristics.
+- In the past, I said I didn't want to speak on certain issues because the second I said one thing about race, then 'Tyron's playing the race card.' But if you really think about it, what is the race card? The race card is that the man held me down, I had unfair circumstances, and I wasn't able to be successful because I was held down.
+- Everybody is going to have their moment. I recognize that when my time comes, it's going to be nobody else's time. Nobody is going to have my moment, and I will be a superstar.
+- One of the things I like most about Roufusport is, really, the culture. A lot of times, you're training in fight camps and running and hitting mitts and sparring. Those things get old kind of quick. I like the fact that they allow fun into the room.
+- If a guy isn't in a position to fight for a world title, or if he's not in a place where I can intercept his road to the title, don't offer him to me. I'm not in this to just fight guys for the sake of fighting. I'm not in this to make friends with the people who work in the organization.
+- Wrestling is second nature: I've been doing it for so long, so if it looks like someone's leg is available, it made sense for my first three fights that I would shoot for legs.
+- Rampage Jackson came to the UFC with a brain. He came to the UFC with a huge following from being in Asia with Pride. He was a personality before he came to the UFC. You don't see them putting marketing money behind him to blow him up.
+- You can't get too excited about your own medicine.
+- I fight with a game plan, but sometimes you have an audible.
+- What's on my playlist when I'm fighting is not so much hip-hop. Sometimes, it's something more inspirational. I get a chance to think about what I'm fighting for, like, my family. It takes me to that state because a lot of times, it's a spiritual warfare for me.
+- If I have a chance to make a larger amount of money in a legacy fight against the No. 1 welterweight in history, it makes sense for me to want that fight. You have a lot of pay-per-view money coming to this company. Why shouldn't the champion partake in a piece of that pie?
+- I hate seeing it; I hate watching it. More importantly, I hate people that don't understand the environment - how small Ferguson is, how it's really a sense of community, and, you know, it's a good place. We shouldn't have been looting and rioting, tearing up our own city.
+- When you fighting in New York, I feel like it would be disrespectful if I didn't walk out with some legendary East Coast hip-hop.
+- A lot of people don't understand my reasoning behind wanting to fight big fights and big names. Knocking off these big names in fights really solidifies me as the best welterweight that's ever done it.
+- My strength is my unpredictablity. I can wrestle, I can strike, I can move fast, and I do a good job of covering up. And because of my experience, I'm able to put myself in good positions in the ring. The guys I fight, they have to be ready for anything.
+- I used to be in a street fight at least twice a week, so locking me in a cage with somebody, with a set of rules and a referee to jump in if something get ugly, and a time limit, like, it don't scare me.
+- Look at guys like Demetrious Johnson, who's the pound-for-pound best fighter in the world. Why isn't he on the largest pay scale? Why are there people that aren't even champions making more money?
+- When I was in college, I was a landscaper. Other than that, coaching has been my life and my job. A lot of people like coaching college, but I would never do it again. There are too many NCAA bylaws, rules and politics.
+- Obviously, Robbie Lawler isn't called ruthless for nothing; he's really earned his keep and has a crazy comeback story, probably the best comeback story we've seen in our sport.
+- I think people that came out originally, like 2Pac, Biggie, Snoop Dogg,, and even T.I. and Ludacris, they were original with their vibe, but at the same time, they were classics.
+- I don't want to be the dude that you just think about with a crazy suit, talking crap, fighting in these super fights and driving a Rolls-Royce.
+- My real fear with fighting is just not letting it go out there and hang out. I don't fear other guys. I'm just scared I'm not going to go out there and give everything I have. Like I'm only going to give a fraction of the things we trained and worked on.
+- I'm just going to go out there, pop on my leather gloves, and constantly make connections outside the Octagon, and that will make me bigger in the Octagon.
+- I'm a person who believes that if a team that's producing a champion and producing contenders in that same division, then the coaches should be proud of that and pat themselves on the back because they're really creating a dynasty, so that's the way I take it.
+- To be just straight up honest, Conor McGregor is a guy that fought at 145 - ever in his life. I haven't weighed 145 since my sophomore year of high school.
+- Have you seen any African American athlete that appeals to the urban market actually bring that market to the MMA?
+- No matter what anybody says or thinks, nobody believes that I'm not the number one welterweight in Strikeforce. I think that's not even a question.
+- I didn't pick wrestling over football. My coaches picked that for me. I never wanted to wrestle in college. I always wanted to play football. They thought I was too small, but I had a lot of heart.
+- No one should ever bring my muscular build up and think it is going to have something to do with my output in the fight.
+- The thing I hate about mixed martial arts is that it's no longer a sport. It's a big-money business, and it's an entertainment industry.
+- I've physically seen profiling. I've seen me walking up the street with my friends, and the police officers get out of their car and bust the hell out of my friends. And they can't do anything about it, and the cop gets back in his car and drives off.
+- The second I bring up race in the sport, I'm immediately race-baiting. But I can point out clear facts, where no other champion has been treated like me.
+- Nobody should be treated any type of way because of their color, their race, their gender, their socioeconomic status. We're all human.
+- How do I have to continue to excessively prove myself and always be the underdog? I don't get the respect I deserve, and that leads me to believe that maybe it is a colour issue.
+- I'm a successful individual and maneuvering in a culture where there are some racists. I still find a way to get to the top, whether I go around or weave through.
+- I didn't really get into the sport for fame. I didn't get into it to be this infamous guy that everybody worships. I got into this sport to make a difference.
+- If you bring in testosterone outside your body, it probably stops producing it because it thinks you're going to get it from the outside.
+- I guess you could say I fell into it. The main goal was to be successful and to make my family proud. Back then, MMA was just getting started, and there didn't seem to be a ton of rules. It seemed pretty brutal, and I was still pretty focused on wrestling. But I decided to give it a shot.
+- For me, it's just being wiser, finding my opportunities, and really fighting a smart fight.
+- I don't feel an obligation to go by the rankings - we all know how those rankings are produced anyway. I want to go out there and fight the money fight.
+- For me, I'm going to try to do the same thing to you no matter if I like you, no matter if I hate you, no matter if it pops up. You're not going to be able to say one thing, and now I really want to kick you.
+- My end goal is not to break the record for cashing in the most. I want to be treated fair and what I feel is fair, but that's not my sole purpose; that's not my purpose.
+- When things get you in the corner, and it feels like you can't go on, you can fight back. You're never out of the fight.
+- I don't say MMA fans are racist at all. What I said is that fans are opinionated, especially because we're the only professional sport to give them that access.
+- I think that - this is my personal opinion - but sometimes African American athletes are considered overly cocky.
+- Legacy is really important to me. It's more important than dollars to me. So with that said, I try to find the fights that would solidify my legacy.
+- I want to fight at middleweight.
+- Goal number one is to be the welterweight champion of the world, and I'm away from my family way too often. This is a sport where we can make cash now.
+- People don't realize how sick Amanda Nunes is. She beats some of the UFC bantamweight males in the gym.
+- I think the elements to shock the world is either the ability to wrestle and grind somebody out or the ability to knock someone out.
+- God does things on his time. He wanted me to sit down and wanted me to get some other aspects of my life back in order.
+- For me, it's about the legacy, being the best fighter and a champion who takes all comers. I'm going to make more money outside the Octagon, after my career, than I make in it. But it's making it difficult for me to achieve my goals when I have unnecessary stumbling blocks like my promoter saying damaging comments about me.
+- Growing up as a kid, in elementary and middle school, I was always getting in trouble. Always getting suspended. I got suspended for 90 days for fighting beginning my freshman year, so I missed Homecoming, and that's when I turned the page. I went on honor roll and had good grades after that. It was the changing point.
+- Nobody criticizes The Rock. Nobody criticizes Randy Couture when he goes over and did 'Expendables 3' or anybody who's a crossover.
+- I've had friends who have been beaten up by police officers who put phone books in their T-shirts and then beat them up, then drive off.
+- I've really valued each area of MMA.
+- It's a sport about risk and reward. It's a sport about becoming a legend. You look at guys that have stepped up on last minute, and it changed their lives. I don't think that I should be any different.
+- I'm the person that's been that young, spunky kid that wanted to beat the top guys.
+- Certain athletes show themselves as marketable, and the UFC gets behind them; they help push them. I'm a husband, a father of four, a gym owner, an actor, an analyst, a stuntman, a Christian - every avenue you can take it, I have those layers.

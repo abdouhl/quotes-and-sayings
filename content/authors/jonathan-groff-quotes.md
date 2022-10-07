@@ -1,0 +1,112 @@
++++
+author = "Jonathan Groff"
+title = "Jonathan Groff Quotes"
+quotes_len = "106"
+description = "the best 106 Jonathan Groff Quotes"
++++
+- Whenever you get into a new environment, it's scary. You don't know the people; you're not really comfortable with the machine that the show is.
+- I grew up in Lancaster, Pennsylvania, watching the Tony Awards on TV. Not just 'watching' the Tony Awards on TV - I would record them on a VHS tape and bring them in to school and show them to the other kids.
+- When I was doing 'Spring Awakening' the first couple of years I was living in New York, I was gay, and I was living with my 'roommate,' who was my boyfriend but was my roommate to everyone else.
+- If someone pitches me a really great idea for an album, I would do it.
+- I wish that I could take credit for the success of 'Frozen' and 'Hamilton.' But I just feel lucky to be in 'em.
+- Trying to sound good at 10 A.M. is the worst.
+- I remember telling my mom, 'Mom, I'm gay, but I'm not going to march in a parade or anything.' That's what I was telling my parents and all my friends and everything. I'm gay, but I'm not going to be on a float or something. Cut to five years later, and I was the grand marshal of the gay pride parade.
+- I got cast for 'Spring Awakening' when I was 20. Every dream I had came true in that moment.
+- Dating can be painful, can be great, can be confusing, can be weird, but I don't do it online because I'm not really an online person.
+- I've been fortunate that my career has developed through on-the-job training.
+- I don't hate dating people, but I'm not on social media or anything.
+- I bought the VHS of 'Into the Woods' at the Suncoast in the Park City Mall and watched it in the basement when I got home. And when it was over, I rewound it and immediately watched it again.
+- I'm not on Twitter. I'm not on Facebook. I'm not on Instagram.
+- I just don't know artistically - because I don't write my own music - I don't know artistically what an album would mean for me. I don't know what I would want to say with an album that would be unique to me - something that hasn't been done before. I'm just not sure what that is. But I'm absolutely open to it.
+- Before 'Mindhunter,' I was doing this show called 'Looking' on HBO.
+- I loved 'Weekend,' and it meant a lot to me when I saw it in the movie theater. I think 'Looking' feels more like that movie than any of those other shows, with a little more comedy thrown in than 'Weekend.' But it's certainly got the vibe and look and feeling of that movie.
+- Once I came out of the closet, it was sort of that thing of 'The truth will set you free.'
+- Don't let the world define you. In the world of acting, and I think in any profession, really, people are really eager to put you in a box and categorize you as one particular thing.
+- I was definitely planning to go to college, but I deferred my admission to Carnegie Mellon to be in a non-equity tour of 'The Sound of Music.' But I made very little money in the tour, and college is really expensive, and I thought I'd never be able to pay off those loans.
+- I feel like, with a television show, you're always biting your nails hoping you're going to get that next season.
+- Make sure that you always follow your heart and your gut, and let yourself be who you want to be, and who you know you are. And don't let anyone steal your joy.
+- People create from different places. Some love to create from a tortured place, some from a joyful place. And when I feel like I'm a 5-year-old kid in my backyard playing pretend, that's when I'm happiest.
+- When a piece of art gets really specific is usually when anybody can relate to it.
+- I was playing this character, Melchior Gabor, who was a rebel and who was a person who didn't let the world define him, and who stood up to authority and was this kind of revolutionary... And when I left 'Spring Awakening,' I came out of that experience feeling like... I had cultivated this side of my personality that hadn't existed before.
+- There's not a lot of gay programming on TV.
+- I never look at myself online, and I don't read gossip Web sites.
+- I did have AOL Instant Messenger when I was in middle school.
+- I'd moved to New York to pursue a career in theatre, and it's very practical how you do it - I just went to every open call going.
+- I think about 'Will & Grace,' and I think about 'Modern Family,' and the way that being gay has become sort of middle America... in the way that they show gay people in their specific way.
+- I did 'Spring Awakening' on Broadway for about three years, and I did over 500 performances.
+- For Halloween, I've gone trick-or-treating as Mary Poppins, Peter Pan, and Robin Hood.
+- I am such a huge fan of both of those shows - I've seen every episode of 'Sex in the City' and every episode of 'Girls' at least once, some multiple times.
+- I can say that I've become a David Fincher disciple. I have been completely turned.
+- It's so easy to get the joy sucked out of you.
+- I haven't had anyone say, 'No, we can't because he's gay.' In fact, it's been quite the opposite.
+- I've never met Lena Dunham, but I'm such a huge fan - I think she's a crazy genius.
+- There's kind of a gift in being gay because, if you come out, you're forced to express yourself.
+- With every character, the first thing I want to feel is empathy.
+- When you're always onstage, you really have to focus on listening and reacting.
+- 'Spring Awakening' was a discovery for all involved. None of us will ever have that specific sense of revelation in the same way - that is probably the thing I miss the most.
+- Just follow your joy. Always. I think that if you do that, life will take you on the course that it's meant to take you.
+- I guess I think of myself as an actor before I think of myself as a gay actor.
+- Coming out, for me, was slightly painful. It was a relief, but it was also painful.
+- I'd always done musicals, and so living in the world of straight plays and working with off-Broadway actors and living in that community was a completely life-changing experience.
+- The hardest I've ever laughed was with Lea Michele.
+- I love going to the movies.
+- While I was in high school, I saw Sutton Foster in 'Thoroughly Modern Millie,' and she was the one that was most inspiring to me for sure. I saw 'Millie' 6 times in a span of two years or so.
+- For me, there's nothing more valuable as an actor, or better way to learn, than getting to perform in front of a live audience, no matter where you are. Whether it's on Broadway, in Florida, or doing a tour.
+- As a kid growing up in Lancaster, Pennsylvania, all I wanted to do was be on Broadway in a musical. 'Spring Awakening' kind of answered all of my questions and fulfilled all of my dreams - beyond my wildest dreams.
+- When I was a senior in high school, I worked at a theater where they hired New York actors. And they told me about 'Backstage,' and so I got my school in Pennsylvania to subscribe. And there was an audition for a tour of 'The Sound of Music,' and I got the job. Deferred my admission to college just to go on tour.
+- Even the first suitcase-off-the-train moment, it's easy to be discouraged, frustrated, annoyed, angry. Because you're waiting in freezing weather outside of an open call, and you're like, 'This moment of me right now is not the joy I felt when I was doing J. Pierrepont Finch in 'How to Succeed in Business Without Really Trying' in high school.'
+- I taught a class about the Tony Awards at a summer theater camp the year after I graduated from high school. So, the first time I was nominated for 'Spring Awakening,' it felt like a surreal dream: it was every childhood dream I had come true. It felt like a fairy tale.
+- We didn't have a glee club at my school. It depends on what area of the States you're from. It's more in the Midwest.
+- I feel like certainly there are people expecting 'Looking' to be representative of everyone that's gay, the entire gay community. And it's a dangerous expectation to come in watching the show expecting that. Expecting that out of any show.
+- I left 'Spring Awakening,' and within a month of leaving the show, I came out to my parents and to my friends and broke up with my boyfriend and moved into an apartment of my own and completely changed my life.
+- It's daunting, taking on the task of representing the gay community, because there are so many different facets and different schools of thought and behavior.
+- In the first year in New York, I went to this amazing teacher named Jen Waldman. She does lots of different classes, but one of her classes was where you went and worked on a song. And suddenly I felt like an artist again, and because I had worked the whole song, when I went into the audition room, I could connect to something in the 16 bars.
+- 'Looking' is more than just a television show. It's contributing to the cultural conversation, and for me, those are the most exciting projects to be a part of.
+- I've never had trouble sleeping in my life.
+- I was Mary Poppins for Halloween when I was 3, with lipstick and a carpetbag. And I was Dorothy in 'The Wizard of Oz' in a production in my dad's barn.
+- Some people have the gift where they can just sing. I don't have the fail-safe voice, so it has to be something that I need to sing about.
+- I think the first Broadway show that I saw was 'Beauty and the Beast,' and that was in 5th or 6th grade. Our school would take bus trips up to see shows, and so it was on one of their bus trips that I got to see 'Beauty and the Beast.'
+- I ended up doing three very complicated off-Broadway plays that, in certain ways, were not successes in that they were received in a complicated way. But for me they were successes because they forced me to act without singing, which I'd never done before.
+- I did 'How to Succeed in Business... ,' 'Kiss Me Kate,' 'Godspell,' and 'You're a Good Man, Charlie Brown' in high school, all of which were fun.
+- I beat 'Super Mario Bros 1,' '2,' and '3.'
+- There's something special about 'Looking.'
+- When I was 20 years old, I got cast in 'Spring Awakening' and got swept up in this experience where it was kind of tunnel vision. We were working - it was nonstop.
+- I was born and raised in Lancaster, Pennsylvania - in Amish Country!
+- There is really nothing like doing a play in New York.
+- If I've had roadblocks along the way for being gay, I'm not aware of them.
+- A 'Looking' musical would completely bring me back to Broadway. I would come back in a second.
+- Musical auditions are always the worst because you have to sing and act, and that's so stressful.
+- My first film that I got right after 'Spring Awakening' was called 'Taking Woodstock,' and Ang Lee was the director.
+- I believe in 'Backstage.' It changed my life.
+- The difference between being in the closet and out of the closet as a gay man is such a huge shift. I feel so connected still to that 22-year-old, but the idea that I was not open with that part of my life - which I am now so open about - is sort of surreal.
+- I'm a singer who moves well.
+- I went to a local high school in Lancaster. Not much I can say about it; it was pretty much your typical public high school back in Pennsylvania.
+- Maybe someday I'll have a job where it haunts me or it's hard to move on.
+- Obviously, gay projects play a special role for me because I am gay, so I'm doubly proud of them.
+- I love the you-never-know-what's-going-to-happen aspect of doing concerts.
+- I was obsessed with Nintendo.
+- Personally, for me in my life, I think every journey should be an ongoing journey, for anyone.
+- After 'Spring Awakening,' I wanted to do things that are really challenging and outside my comfort zone: things that scare me a little and make me grow.
+- In a play, you can adjust your performance to audience reaction, but in a film, it's like you're trapped in a bad dream watching yourself act, and you're in the audience.
+- I would say 'Looking' and 'Spring Awakening' are the most important and personal projects I've ever been apart of.
+- I love interacting with an audience. I love just being myself in front of a crowd.
+- I can't think of a better bonding experience than to be able to sit on stage and to watch your fellow performers perform on stage every night.
+- I loved traditional musical comedy. That was my passion. Then 'Spring Awakening' happened, and it took that rock n' roll and pop music to change gears for me.
+- When you get to really involve yourself with a piece and the other people, and you get to feel like it's a community and you're all building something together, it helps me to produce better work, I think.
+- Ultimately, we're actors: I'm putting on a costume, so we're playing pretend.
+- I feel like loyalty is such a rare quality in this world, particularly the entertainment world.
+- I wanted to work with Michael Mayer because I'd seen 'Thoroughly Modern Millie' six times.
+- I was journaling in Florence, and I was like, 'Oh, I have to come out of the closet. I have to break up with this guy' - he was my 'roommate.' So that was my awakening moment, when I stepped into my own skin while in a foreign country by myself and had a very stereotypical moment of revelation.
+- The first job I got was a production of 'Fame - the Musical,' at the North Shore Music Theatre in Beverly, Massachusetts, and it got me my Equity card, too. I waited 12 hours to be seen for it, though!
+- Playing King George, for me, was a lesson in stillness and timing.
+- I smile a lot in my real life.
+- When I moved to New York, I wanted to be in the ensemble of 'Hairspray.' That was my goal.
+- I'm very selective about television because you sign away so much of your life to it.
+- The word 'improv' always makes me feel a little anxious because I always feel like we'll have to pull props out of a bag and find 800 different ways to talk about a stick, the way you do in theater school.
+- As an actor, I have these tics that I don't even know exist.
+- I'd rather be a working actor and not hiding anything in my personal life.
+- The idea of faking empathy to take a step forward to understanding - it's a really powerful idea.
+- Alfred Molina is one of the nicest people on the planet and a complete master.
+- I moved to New York on October 21, 2004, and it was the day that the Chelsea Grill, a restaurant in Hell's Kitchen on 9th Avenue between 46th and 47th Street, opened. I had never waited a table in my life, but I walked in and lied to the manager in a very J. Pierrepont Finch way.
+- It's one thing to experience your Broadway debut alone, but to share it with an entire company was like summer camp or a college experience, where you were really growing up together.
+- It's so awesome to be a part of something that is successful not because there's a famous person in it or because it's a revival of something, but because it's so fresh and original.

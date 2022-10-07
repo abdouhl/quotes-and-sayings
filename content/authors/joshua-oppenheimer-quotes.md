@@ -1,0 +1,84 @@
++++
+author = "Joshua Oppenheimer"
+title = "Joshua Oppenheimer Quotes"
+quotes_len = "78"
+description = "the best 78 Joshua Oppenheimer Quotes"
++++
+- There are committed Indonesian filmmakers who are committed supporters of 'The Act Of Killing.'
+- I believe every time you film anybody, you create reality with that person - whether it's fiction or nonfiction.
+- Yes, it was difficult - making 'The Act of Killing' in particular was a very lonely process. No one really believed in it until very close to the end. But it was also a sanctuary. I was working in obscurity.
+- I think that indignation is pleasurable, and it's pleasurable because it's self-righteous.
+- We can never run away from our past. The past will catch up to us because it is us. It is a part of us; it's what makes us we are. It's what delineates the borders of our societies.
+- In calling someone a bad guy, I reassure myself that I'm good. I elevate myself. I call it the 'Star Wars morality'. And unfortunately, it underpins most of the stories we tell.
+- For my part, as a filmmaker, I've never been a fly-on-the-wall documentarian. I have no commitment to that method. I believe it's a lie.
+- I don't think there's a morally perfect way to do anything in life, but I'm not a filmmaker who tries to hide my mess.
+- I have a British and an American passport.
+- Although we can talk about an Indonesian democracy, or we can talk about democratic elections and democratic rituals - the trappings of democracy - we can't genuinely talk about democracy in Indonesia because there is not rule of law, and democracy without rule of law is a nonsense.
+- Cinema is, of course, the great storytelling medium of modernity.
+- I heard about the Holocaust before hearing the 'Cinderella' story or watching 'Peter Pan.'
+- Testimony always comes from people who are in some way disempowered.
+- I think Direct Cinema's trying to be insightful by looking at reality in a very close way while, in fact, much more is staged than we like to think. In cinema verite, it's about trying to make something invisible visible - the role of fantasy and imagination in everyday life.
+- Waking from any fever dream, one retains, above all, impressions seared into memory.
+- I'm against escapist entertainment.
+- Fiction allows us to both evade truth and to approach it - or, rather, it's fiction that allows us to 'construct' our world. It's haunted by the unimaginable and the unspeakable.
+- At Harvard, direct cinema was the core of the film department, and most of the students were trying to make socially conscious works, but I was trying to combine fiction and non-fiction to show how our seemingly factual world is constituted through fantasy and stories.
+- For a long time, the Indonesian government ignored 'The Act of Killing,' hoping it would go away.
+- What makes art powerful is a flash of recognition, a frightening encounter with something familiar about the human condition.
+- The function of journalism is, primarily, to uncover vital new information in the public interest and to put that information in a context so that we can use it to improve the human condition.
+- I am always a little surprised when anyone sees anything I make, so being nominated for the Oscar is beyond amazing - what a tremendous honor.
+- My father's family was mostly obliterated in the Holocaust, and I grew up very much with the sense that the central moral and political question is how do we prevent these things from happening again.
+- 'The Look of Silence' is able to have a wide public release, although still not in cinemas. It's distributed by two government bodies, the National Human Rights Commission and the Jakarta Arts Council.
+- You finish a film not in the editing, but in the conversations that audiences have with themselves - and in that sense, every viewer is making a slightly different film. And that's wonderful.
+- I think it's our obligation as filmmakers, as people investigating the world, to create the reality that is most insightful to the issues at hand. Here are human beings, like us, boasting about atrocities that should be unimaginable.
+- I think Americans are aware that they are involved in all sorts of violence around the world. They normally don't want to look at that.
+- Like all art, nonfiction film should invite, seduce, or force us to confront the most difficult, frightening or mysterious aspects of what it means to be human.
+- In documentary filmmaking, there's a tradition of telling stories about victims. We often do that from a very patronizing place, but mostly we do it from a very selfish place, to reassure ourselves that our lives are in sympathy and solidarity with the victims.
+- We all identify with the people we see, and in a good documentary, we are not just reading an account of the world, we're seeing and hearing our world.
+- My first memory of cinema is my mother taking me to see 'Silkwood,' which is about a whistleblower at a nuclear power plant.
+- Films can't change the society; they can simply open the space for the discussion which can lead to social change and can start new forms of social activism.
+- Military rule in Indonesia formally ended in 1998, but the army remains above the law.
+- I don't drink in the cinema because I have a bladder the size of a hummingbird.
+- I see myself as an explorer more than a storyteller. A great storyteller, in control of her craft, must be the same person when she finishes telling a story as she was at the start. But I want to be transformed by my filmmaking, by the journey I take.
+- For me, I'm a filmmaker because, above all, I'm an explorer. It's my way of exploring and investigating the problems, the questions, and the mysteries about what it means to be human that vex me most, that keep me up at night, and that, when I finally fall asleep, insinuate themselves into my dreams.
+- I think fundamentally, I had to make a decision really on whether this was a film about the past or the present. And 'The Act Of Killing' is a film about the present.
+- I think it's a great pity in the Anglophone world that we conflate cinema verite and Direct Cinema; they're, in fact, ontological opposites. In Direct Cinema, we create a fictional reality with characters and pretend we're not that.
+- I first went to Indonesia in 2001 for six months. I was to help a community of plantation workers to make a film documenting and dramatizing the struggle to organize a union in the aftermath of the Suharto dictatorship.
+- I think 'The Act of Killing' forced people to look at the problem, but the problem is actually a state run by thugs, or a shadow state, a part of the state that's run by thugs, and a military that enjoys complete legal - not just impunity, but immunity.
+- Millions of Indonesians who live with secrets in their family who have a sense of that kind of secret that their parents never told them, want to be told about what happened so they can know where they come from.
+- The filmmakers have a story they want to tell, and they go get the material they need for it. The film either exceeds or fails to meet up to their expectations or it's different.
+- I don't really want to leave anything in life behind. We have bad experiences, we have difficult experiences, but if you leave everything behind, you have no past.
+- In terms of so-called fly-on-the-wall documentaries, there's a claim that the camera is a transparent window into a pre-existing reality. What really is happening is that the film crew and the subjects are collaborating to simulate a reality in which they pretend the camera is not present.
+- I went looking for embodiments of pure evil, but found ordinary people.
+- If we don't accept the uncomfortable proposition that every perpetrator of virtually every act of evil in our history has been a human being like us, then we actually foreclose the possibility of understanding how we do this to one another and therefore make it impossible to figure out how we might prevent these things.
+- 'The Act of Killing' helped catalyze this basic transformation in how the media talks about the past.
+- I think that our task as filmmakers is to create the most insightful reality given the most pressing questions.
+- I didn't really get any rigorous background in film history.
+- Once you recognize that all documentaries are performance, it's not a matter of 'if' they should be performance. They are performance, and they are performance precisely where people are playing themselves.
+- People may assume 'The Act of Killing' is a historical documentary about what happened in 1965. But our purpose was to expose a present-day regime of fear for what it is.
+- If you film a little boy going to school, the big event in that boy's day and all the classmates' and teachers' day is you being there filming, not the school.
+- You cry the first tear because something is genuinely, singularly upsetting. And you cry the second tear because everybody is crying that first tear with you, and you know that.
+- I don't like to eat when I watch films because it distracts me. Anything crunchy or in a wrapper is terrible.
+- My background is in filmmaking, and my mentor is Dusan Makavejev, who combined fiction and documentary.
+- We are constantly - in order to cope with painful realities - shuffling through third-rate, half-remembered fantasies taken from movies, from TV, from people we admire. We do this individually, we do it collectively - we tell stories to escape our most painful truths.
+- Denial, panic, threats, anger - those are very human responses to feeling guilt.
+- Indonesia can hold regular elections, but if the laws do not apply to the most powerful elements in society, then there is no rule of law and no genuine democracy. The country will never become a true democracy until it takes serious steps to end impunity.
+- I still receive very regular death threats that make it impossible for me to return to Indonesia. I think I could get in, but I don't think I could get out again.
+- You see, 'The Look of Silence' is the first film ever made where survivors confront perpetrators who still hold a monopoly on power. It's normally never done because it is too dangerous.
+- We have to support truth and reconciliation and some form of justice.
+- I'm sure it's one of the most frustrating aspects of human experience for all of us, that when we tell someone who's hurt us that they've hurt us, they tend to react with anger because they feel guilty, and we know we also get angry when we feel guilty.
+- All we can do is find the courage to stand still and to look backwards.
+- To put it crudely, 'The Act of Killing' would blast open the space for the more delicate film, 'The Look of Silence,' to do its work.
+- I'm a big admirer of S21, and I really also like Rithy Panh's work in general.
+- I think, if you're in the United States, we've seen people trying to speak out in different ways and trying to make themselves heard about the United States' failure to move on generationally, given the long-festering wound of our history around race.
+- In Denmark, the annual Christmas party is probably the most important cultural institution in the country.
+- I had been working with a community of survivors who had lost their relatives and were too scared to talk about it.
+- At our production company, the trademark dish - and this sounds particularly revolting - is curried pickled herring.
+- I think we are fascinated and scared by evil at the same time. I think it's important not to suppress our fascination but to walk into it with open eyes.
+- Honestly, it is difficult for me because I cannot return to Indonesia safely. So how am I supposed to make another movie in Indonesia when I cannot safely return to Indonesia?
+- I came across the Indonesian genocide in 2001, when I found myself making a film in a community of survivors. They were plantation workers, and it turned out they were struggling to organize a union.
+- If you acknowledge that filming is an occasion where people express things they might not otherwise express, that offers a much more insightful analysis of why documentaries - even of the fly-on-the-wall variety - are powerful.
+- I wanted to resist in 'The Look of Silence' making a film that ends with any kind of positive hope I feel in human rights documentaries dealing with human survivors.
+- No one forgets the presence of the camera, no matter how long it's there.
+- From 2005 to 2010, I was exclusively shooting 'The Act of Killing' and then editing it.
+- What I've always been most interested in is exposing the way stories and fantasies reconstitute our everyday reality. What appears to be non-fiction is not only totally mysterious, unfathomable, and strange when you really look at what it is.
+- Native Americans' families experience living surrounded, living in increasingly small reservations surrounded by the society that destroyed their civilization, and are still stigmatized. For decades and decades, for hundreds of years except in Indian schools, they weren't allowed to speak their language. That stigma takes a terrible toll.

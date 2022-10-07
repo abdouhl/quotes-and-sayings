@@ -1,0 +1,106 @@
++++
+author = "Jacky Rosen"
+title = "Jacky Rosen Quotes"
+quotes_len = "100"
+description = "the best 100 Jacky Rosen Quotes"
++++
+- What we have to quit talking about is border wall. We need border security.
+- Health care is one of the top kitchen table issues in Nevada.
+- I support comprehensive immigration reform that includes a path to full and equal citizenship for undocumented immigrants who are playing by the rules, staying out of trouble and contributing to our economy.
+- The misguided efforts of some members of Congress to revive Yucca Mountain as a nuclear waste repository pose a serious threat to the health and safety of Nevadans, and our national security.
+- Before I was elected to Congress, I had the honor of serving as the president of the Congregation Ner Tamid in Henderson, the largest Reform Synagogue in Southern Nevada. During my tenure, I witnessed firsthand the beauty in our country's religious diversity and how community engagement strengthens America.
+- I am a granddaughter of immigrants, put myself through college as a waitress, and I started my career as a computer programmer.
+- Regardless of your religious belief, race, ethnicity, gender, sexual orientation, or gender identity, there is no place in our communities for hate.
+- One thing you have to be very careful on when you work in health care is this: when you make a sweeping change, you can't wait to see what falls through the cracks. What could fall through the cracks is somebody's life. You need to move thoughtfully and carefully with a plan incrementally.
+- No one should have to go to school with a bulletproof backpack or be afraid to go to synagogue or church or a restaurant.
+- It's always better to be for something than it is against something.
+- I'm not a politician. I'm not a career politician.
+- I've been working tirelessly in the House to help ensure Nevada does not become a dumping ground for the rest of the nation's nuclear waste, and I will continue that fight in the Senate.
+- I was raised to believe that you need to leave the world a better place than how you found it, as corny as that sounds.
+- Throughout my time in Congress, I've made it my priority to work with my colleagues on both sides of the aisle, to look past partisanship and to help pass commonsense legislation so we can help working families in Nevada and across our country.
+- Anybody who has been in a relationship, raised a family, worked in business or been a systems analyst, you have to look at how the whole system works together. You have to find those opportunities to collaborate.
+- Trickle-down economics does not work, and tax reform should not be defined as partisan tax cuts for the wealthy and huge corporations.
+- Before coming to Congress, I worked as a computer programmer and a systems analyst.
+- I usually get up early because I like the quiet time in the morning to have my coffee, and I look at the news of the day, and give myself a chance to wake up.
+- It's hard to imagine that shipping over 5,000 truck casks of high-level nuclear waste over 50 years wouldn't result in at least one radiological release somewhere in our country.
+- I applaud Lt. Gov. Mark Hutchison and the legislators in the Nevada State Senate who have introduced SB 26 to fight the BDS movement in Nevada.
+- I think the Fight for 15 is a great fight. I think, unfortunately, depending how the Congress works out, we may have to get there in increments.
+- The first thing I tell women is this: They think that coding or being in any computer field is very solitary, very solemn, that you're just set off in a cubicle somewhere and it's not social and it's not creative. I would tell them that it's the furthest from the truth.
+- When we're able to identify disparities in education, we can better determine whether federal grant programs are effectively reaching our students, allowing us to improve how to distribute and implement these funds across communities.
+- Congress needs to work in a bipartisan way to fix the Affordable Care Act, not repeal it.
+- We must not repeat the same mistakes, or commit the same cruelties that were done in the past.
+- We have a bipartisan congressional task force against anti-Semitism, that's fantastic.
+- What happens in Israel should be decided between Israel and the Palestinians.
+- By inspiring children to pursue interests in STEM early on, we are instilling in them the curiosity needed to show them that these fields are as equally accessible to them as anyone else.
+- When you are the head of any philanthropy organization, what you learn is empathy, how to listen and be responsive to people's needs.
+- We must make every effort to extend a hand to the stranger, and continue to fight to make sure we don't give up on our American values.
+- January is National Human Trafficking Prevention Month, a time to recognize that this evil affects communities all over the world, including here in Nevada.
+- By highlighting female pioneers in STEM, we can encourage aspiring young women who want to study or work in these fields.
+- If I ever write a book, 'I Should Have Worn Comfortable Shoes' would be the title.
+- I graduated high school in 1974 when Roe v. Wade had only just been passed. Ms. Magazine was only just starting, and women were really feeling empowered to pursue their dreams and their careers, and I was excited to enter a new field of technology.
+- I absolutely think that we cannot trust Iran.
+- Our country is a nation of immigrants, who, for centuries, have come here, fleeing persecution, bringing their dreams, their fears, and their hopes for a better life.
+- As a member of Congress representing Southern Nevada, I am always advocating for our tourism industry, talking about our millions of annual visitors, and reminding folks in Washington, D.C., that we are the entertainment capital of the world.
+- Aside from introducing and supporting legislation to help close the gender gap in STEM, I believe that shining the spotlight on female role models is one of the best ways we can break the gender stereotype.
+- Nevada is a small state. I think we're doing well trying to diversify and grow and understanding that it takes time. We're going to have to continue to do that while continuing to support the thing that we're most famous for, being the entertainment capital of the world.
+- We must advocate for policies that stabilize our health care markets, lower premiums and drug costs, protect Medicare and address Nevada's physician residency shortage.
+- I've been proud to call Southern Nevada home for more than 35 years and it's been an incredible place to work, raise a family, care for my parents and volunteer in the community.
+- Only if we stand together as one voice, can we ensure that the message is sent and that hate will not be tolerated no matter where it lives in our society.
+- I've seen firsthand the dramatic savings that solar energy can generate.
+- Unfortunately, in Nevada - and more specifically, in Las Vegas and Reno - we've experienced incidents of human trafficking. In Las Vegas, the average trafficking victim is as young as 14. We must act to prevent this disturbing criminal activity from occurring in our communities.
+- I think, deep down, women know that we are the saviors of our families, right?
+- I feel the American people are resilient.
+- Our country and our Congress face many difficult challenges.
+- When most people think about Nevada, they often instantly associate us with the glitz and glamour of the Las Vegas Strip.
+- When I chose to run for public office, I pledged to stand with the people of Nevada rather than follow a partisan line.
+- What you realize when you work in the philanthropic world is that people aren't just numbers: they are families with real needs and you need to make your judgments with kindness and thoughtfulness in order to serve those needs.
+- Broadband access is important for everyone, for telemedicine, for telehealth, for communicating.
+- I have a wonderful synagogue, fantastic rabbi and cantor and membership, and they just enrich my life every day, and I learned so much from helping to grow our synagogue, grow our membership, and meet the needs of such a diverse population.
+- I will do my part every day to work with my colleagues in a bipartisan fashion to unite us, and not divide us.
+- STEM education is an area where we can't afford to leave anyone behind.
+- We must be vigilant in protecting Nevada's outdoor heritage and make this a top priority.
+- There are plenty of ways we can work together to improve the ACA, but destroying the law and leaving Americans at risk is unacceptable.
+- Our efforts in Congress should focus on what we can agree on: investing in the success of local entrepreneurs to create jobs, helping hard-working families get ahead and reducing our spiraling debt.
+- For a country constantly threatened by missiles, rockets and mortar shells from terrorist groups like Hezbollah and Hamas, security is not only a gravely important issue, but is the most critical issue. That's why I introduced the Defend Israel Act as one of my first pieces of legislation.
+- In Congress, I have defended solar energy to safeguard the economic and environmental future of Nevada, and I will continue to do so.
+- When you empower and teach a teacher how to break down barriers, bring innovation and excitement to the classroom, every student in that classroom learns.
+- As a member of the Senate Committee on Health, Education, Labor and Pensions, I will continue to work to bring resources, accountability and relief to our health care system.
+- Israel is a country with a thriving free press and a nation known across the world for its support of women's and LGBT rights, not one that should face sanctions by a supposedly peace-loving world body.
+- I'm a woman in technology, I think that we have to consider our border and use the technology we have to be sure that we secure it. If you build a six foot wall, somebody may jump eight feet. But, maybe there's surveillance... there's many high tech things that we can use to be sure we are protecting our borders.
+- I believe that in both parties, Democrat and Republican, support for Israel is bipartisan, it is strong and it is unwavering, and I don't see that changing.
+- I'm a common sense person who tries to analyze and I have to look at all sides of the issue because you don't want software that only does something but doesn't fix the other errors.
+- There's no question that Nevada has overwhelmingly benefited from the rise of solar energy technology.
+- No issue is more personal or more important than protecting our health care. It's one of the most pressing concerns I hear about when I meet with Nevadans - no matter their age, race or income.
+- Palliative care is something that you don't know you need until you're in the space where you need it, either from someone who has a terminal disease, like my mother, or for people who live with chronic disease and have particular issues that need care.
+- We have a moral obligation to raise awareness and educate those around us so we can create a world where human trafficking is a thing of the past, and bring these human rights violations to an immediate end.
+- Nevada contains an extraordinary diversity of outdoor landscapes and recreation experiences. Red Rock Canyon, Black Rock Desert, Lake Tahoe and the Great Basin are each a part of our history, our character and our way of life.
+- We cannot allow the Trump administration to invalidate our nation's health care law.
+- ICE does a lot of other things that people don't realize. They work on counterterrorism, cyber security.
+- It's really great to have Harry Reid or whomever come say, 'Oh you're terrific.'
+- When you start a new job, a lot of times everybody's been there a long time and so you think, 'Oh, it's going to take me a while to make friends and do all that.'
+- I decided to run for Congress because when I was approached as a community leader, I felt that one of the things that spoke to me most was the constituent services.
+- In the House, I was named one of the most bipartisan members of Congress, and that's a title I plan on continuing to hold in the Senate.
+- I'm supporting plans in Congress to fully ban bump stock devices and prohibit the sale of high-capacity magazines.
+- Before representing Nevada in Congress, I worked in Las Vegas as a computer programmer and systems analyst in what's been long considered a male-dominated industry. It wasn't easy.
+- In Washington you legislate, but at home you touch people's lives; that's what I try to do when I go there.
+- In addition to sponsoring the Defend Israel Act, I am a proud co-sponsor of the Israel Anti-Boycott Act, which will protect the state of Israel from politically motivated attacks in the United Nations and economic discrimination here in the United States.
+- Thinking I'd be in politics just wasn't something I'd thought of as a younger woman. There just weren't a lot of role models there.
+- I will continue to be a voice for Nevadans in the Senate, opposing Yucca Mountain and working to identify viable alternatives for long-term repositories in areas that are proven safe and whose communities consent to that storage.
+- The gender disparity in STEM is depriving our country of talented minds that could be inventing the next breakthrough technology, founding the next big startup or keeping our nation safe from cyberattacks.
+- Counterterrorism, cyberterrorism, it's real.
+- Human trafficking is a communitywide problem, and as such, it requires communitywide solutions.
+- Every day I get up and I try to do the very best I can.
+- I'll continue to work with my colleagues to fight efforts to roll back access to affordable health care for Nevadans.
+- Let's not forget, we are all one diagnosis away from having a pre-existing condition.
+- We're in the west, and we have a rich history of gun ownership and hunting, but people here across the state understand the difference between public safety and personal ownership and that we can have both if we protect the second amendment.
+- All asylum seekers at our border should remind us that we are a nation of immigrants and that we were once strangers at the border.
+- Depending on the kind of code you write, depending on the kind of ideas you have, you can be creative in problem-solving and you can really make things work in a very gratifying way.
+- I'm the granddaughter of immigrants.
+- I was ranked the fifth most bipartisan freshman when I went to Congress, and I think that my motto really is, 'Agree where you can and fight where you must.'
+- For more than 30 years, the state of Nevada and local communities have rejected the Yucca Mountain project. In fact, the state has filed over 200 contentions against the Department of Energy's license application, challenging the adequacy of the department's environmental impact assessments.
+- If we are going to create the future, then we must break down the barriers that are holding us back from our full potential.
+- Solar energy is clean, renewable and easy to harvest - and Nevada is blessed to have no shortage of sunshine.
+- I want kids, young women, young girls especially, who oftentimes by junior high they think they can't do math or science... I want them to know that it's creative, it's problem solving, and it's for everyone.
+- Good policy usually comes from working across the aisle, and I believe tax reform needs to be tackled with Democrats and Republicans finding common ground.
+- Of course, being the synagogue president, for me it was a great blessing.
+- I'm going to try to give people someone to vote for instead of something to vote against.

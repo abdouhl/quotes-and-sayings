@@ -1,0 +1,21 @@
++++
+author = "Margo Georgiadis"
+title = "Margo Georgiadis Quotes"
+quotes_len = "15"
+description = "the best 15 Margo Georgiadis Quotes"
++++
+- Consumers have a different path to purchase. They don't shop less than they used to; it is just that the footsteps went online. You have to think differently in how you engage with users.
+- Inspiring children through play and creativity is crucial to early development, and no company has done more in that space over many generations than Mattel.
+- People think it's so easy to make hamburgers. That consistent quality in so many restaurants, in that many parts of the world, is not an easy thing to do.
+- From my experience, the best advisors help in three ways: encourage you to look at the problem or opportunity from multiple angles; help you balance the tug of the short-term with important long-term priorities; and ask the tough questions you need to know to reach the best solution.
+- Generation Alpha has very different expectations for the entire world. Everything that's going to happen in their lives needs to be visual, on demand, adaptive, in demand, and we have to find a way to embed that into our toy experiences.
+- I'm really focused on looking at where the industry is headed and how the world is evolving. Toys really need to adapt to this new era.
+- Toy time is holding steady, but kids are spending more time on digital, and toys need to adapt.
+- It is our job to ensure everyone feels included and empowered. We are living in a world that is increasingly diverse, and part of helping kids develop and be those successful leaders of tomorrow is helping them learn how to embrace multiculturalism and diversity.
+- As you become more senior in your career, it can be thin at the top - It's harder and harder to get unbiased and direct feedback when making decisions. You want people who will speak truth to power. Say no to any 'yes men or women' on your personal board. When you face a personal crossroads, you need honest advisors.
+- In tech, you create the foundation; even sometimes if it doesn't work, you take that same developmental idea, and you use it to apply to a different area.
+- Cultivating a strong group of personal directors takes time and commitment. For me, it took more than 10 years to find a diverse group that could give me sage advice when I needed it most.
+- If you don't integrate the technology in a way that's actually fun, the kids don't stay with the play pattern.
+- The best way I've learned to navigate pivotal moments in my career is by actively cultivating a personal board of directors. The most successful companies and nonprofits have strong boards to help guide them, so why not create our own? The needs are quite similar.
+- We want the next generation of products being innovated to reflect our users. And when women are not part of the equation, we won't have products that reflect the unique needs and opportunities across our society.
+- It is an honor to serve as the Ad Council's next Chair of the Board of Directors. I am deeply committed to its mission of creating campaigns that improve everyday lives. I look forward to working with the Ad Council team and Board to continue to shine a light on the most important social issues of our day.

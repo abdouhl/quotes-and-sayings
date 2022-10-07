@@ -1,0 +1,18 @@
++++
+author = "Karen Blixen"
+title = "Karen Blixen Quotes"
+quotes_len = "12"
+description = "the best 12 Karen Blixen Quotes"
++++
+- I think it will be truly glorious when women become real people and have the whole world open to them.
+- Difficult times have helped me to understand better than before, how infinitely rich and beautiful life is in every way, and that so many things that one goes worrying about are of no importance whatsoever.
+- If I know a song of Africa, of the giraffe and the African new moon lying on her back, of the plows in the fields and the sweaty faces of the coffee pickers, does Africa know a song of me?
+- When in the end, the day came on which I was going away, I learned the strange learning that things can happen which we ourselves cannot possibly imagine, either beforehand, or at the time when they are taking place, or afterwards when we look back on them.
+- I don't believe in evil, I believe only in horror. In nature there is no evil, only an abundance of horror: the plagues and the blights and the ants and the maggots.
+- Love, with very young people, is a heartless business. We drink at that age from thirst, or to get drunk; it is only later in life that we occupy ourselves with the individuality of our wine.
+- When you have a great and difficult task, something perhaps almost impossible, if you only work a little at a time, every day a little, suddenly the work will finish itself.
+- The cure for anything is salt water: sweat, tears or the sea.
+- God made the world round so we would never be able to see too far down the road.
+- A great artist is never poor.
+- All sorrows can be borne if you put them into a story or tell a story about them.
+- Who tells a finer tale than any of us. Silence does.

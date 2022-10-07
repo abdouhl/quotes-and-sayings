@@ -1,0 +1,38 @@
++++
+author = "Morihei Ueshiba"
+title = "Morihei Ueshiba Quotes"
+quotes_len = "32"
+description = "the best 32 Morihei Ueshiba Quotes"
++++
+- To injure an opponent is to injure yourself. To control aggression without inflicting injury is the Art of Peace.
+- Loyalty and devotion lead to bravery. Bravery leads to the spirit of self-sacrifice. The spirit of self-sacrifice creates trust in the power of love.
+- Everyone has a spirit that can be refined, a body that can be trained in some manner, a suitable path to follow. You are here to realize your inner divinity and manifest your innate enlightenment.
+- Always keep your mind as bright and clear as the vast sky, the great ocean, and the highest peak, empty of all thoughts. Always keep your body filled with light and heat. Fill yourself with the power of wisdom and enlightenment.
+- All life is a manifestation of the spirit, the manifestation of love.
+- Economy is the basis of society. When the economy is stable, society develops. The ideal economy combines the spiritual and the material, and the best commodities to trade in are sincerity and love.
+- Failure is the key to success; each mistake teaches us something.
+- Opponents confront us continually, but actually there is no opponent there. Enter deeply into an attack and neutralize it as you draw that misdirected force into your own sphere.
+- It is necessary to develop a strategy that utilizes all the physical conditions and elements that are directly at hand. The best strategy relies upon an unlimited set of responses.
+- The heart of a human being is no different from the soul of heaven and earth. In your practice always keep in your thoughts the interaction of heaven and earth, water and fire, yin and yang.
+- Study how water flows in a valley stream, smoothly and freely between the rocks. Also learn from holy books and wise people. Everything - even mountains, rivers, plants and trees - should be your teacher.
+- Life is growth. If we stop growing, technically and spiritually, we are as good as dead.
+- A good stance and posture reflect a proper state of mind.
+- There are no contests in the Art of Peace. A true warrior is invincible because he or she contests with nothing. Defeat means to defeat the mind of contention that we harbor within.
+- When an opponent comes forward, move in and greet him; if he wants to pull back, send him on his way.
+- Progress comes to those who train and train; reliance on secret techniques will get you nowhere.
+- All the principles of heaven and earth are living inside you. Life itself is truth, and this will never change. Everything in heaven and earth breathes. Breath is the thread that ties creation together.
+- If your heart is large enough to envelop your adversaries, you can see right through them and avoid their attacks. And once you envelop them, you will be able to guide them along the path indicated to you by heaven and earth.
+- Your spirit is the true shield.
+- Each and every master, regardless of the era or the place, heard the call and attained harmony with heaven and earth. There are many paths leading to the top of Mount Fuji, but there is only one summit - love.
+- The art of Peace I practice has room for each of the world's eight million gods, and I cooperate with them all. The God of Peace is very great and enjoins all that is divine and enlightened in every land.
+- In extreme situations, the entire universe becomes our foe; at such critical times, unity of mind and technique is essential - do not let your heart waver!
+- Those who are possessed by nothing possess everything.
+- The purpose of training is to tighten up the slack, toughen the body, and polish the spirit.
+- One does not need buildings, money, power, or status to practice the Art of Peace. Heaven is right where you are standing, and that is the place to train.
+- As soon as you concern yourself with the 'good' and 'bad' of your fellows, you create an opening in your heart for maliciousness to enter. Testing, competing with, and criticizing others weaken and defeat you.
+- When life is victorious, there is birth; when it is thwarted, there is death. A warrior is always engaged in a life-and-death struggle for Peace.
+- Create each day anew.
+- Your heart is full of fertile seeds, waiting to sprout.
+- Mankind's role is to fulfil his heaven-sent purpose through a sincere heart that is in harmony with all creation and loves all things.
+- Do not look upon this world with fear and loathing. Bravely face whatever the gods offer.
+- The divine is not something high above us. It is in heaven, it is in earth, it is inside us.

@@ -1,0 +1,106 @@
++++
+author = "Jimi Manuwa"
+title = "Jimi Manuwa Quotes"
+quotes_len = "100"
+description = "the best 100 Jimi Manuwa Quotes"
++++
+- From my three loses in my entire career I've always learned from them and came back stronger.
+- I'm not really into supplements, I mostly try to get it all from my food. I take multivitamins, vitamin D - which is really important - zinc and magnesium, but that's about it.
+- Some fighters enjoy the limelight. I get nervous, I mess up when I'm trying to explain things, because I'm a fighter pure and simple, and not really a talker.
+- The London fans know what I bring to the table. Destruction.
+- I'm a bit of a night owl, I'm always visiting the gym throughout the night.
+- I like all styles of MMA, my first classes in the sport were BJJ but I prefer to stand up.
+- I enjoy healthy foods but I'm not scared to have a cheat meal or cheat day, have a burger or whatever.
+- Mixed martial arts has small windows of opportunity and there's always new faces coming through, so it's easy to forget you.
+- I'm a big fan of Anderson Silva.
+- In the UFC, nothing is guaranteed. Anything can happen when it comes to getting a title shot.
+- It's all about experiences and taking positives from each fight, even if it was a loss.
+- As soon as I found MMA, I knew that this is what I wanted to do, and it gave me focus because I was good at it anyway, and it gave me a goal to reach. I kept winning my fights, and it's given me a goal and a career opportunity.
+- I remember being happy and a little wild kid.
+- On fight day, I usually have peanut butter and porridge in the morning; bananas and a nice fruit salad. Then, as the day goes on, I'll have some carbs.
+- If an MMA fighter is going to call out a boxer it's got to make sense.
+- Daniel Crawford, who was BAMMA featherweight champion, used to train with me.
+- Whatever the crowd is - cheering, booing or whatever - it's not anything I bother to think about.
+- I want the belt. I'm focused on the belt, I'm focused on the world championship belt.
+- I don't think anyone hits as hard as I do in the light heavyweight division.
+- In every sport you get cheats.
+- The most important thing is to stay fresh - physically and mentally - and to also avoid injury of course.
+- Stylistically, every fight in the division is a hard fight. Lyoto Machida is unorthodox, Jon Jones is long and tall with good wrestling, Ryan Bader has good wrestling. You can't pick one and say, 'I want to fight him.'
+- I'm not interested in story lines or trash-talk.
+- And I took to fighting very well. I'm a fast learner, and I needed to learn quickly. I knew this was what I wanted to do and I put everything I had into it.
+- I listen to my body and if I need to rest then I rest, but at the same time I'm not lazy.
+- It doesn't matter to me who the opponent is, I'll be ready in all areas.
+- I'm a knockout artist.
+- The last few weeks are always the hardest during any fight camp.
+- It's been frustrating. Since I've broken into the top five, I've seen the politics of fighters dodging fights, cherry picking fights and this that and the other.
+- Every fight is a must-win for me.
+- I had lots of fun; I was in the boy scouts, I went camping. I just used to mess around like a normal kid.
+- I'm an explosive fighter so I've always got to have that strength, but you've got to mix it with endurance.
+- But that's the great thing about MMA, you know, you can never predict what's going to happen.
+- I was introduced to money as a teenager, my friends had nice things. It came naturally to me to try and make money.
+- When you're away from home for a fight camp it's the simple things that you miss the most. For me, that's laying on the sofa with my daughters and spending quality family time and small things like that.
+- I'm a knockout specialist who comes to fight and who's exciting to watch.
+- I don't know anything about CM Punk. I'd never even heard of him until he was mentioned in UFC. I wouldn't know him if I walked past him in the street, I don't know... he might be a good wrestler but there are people in the UFC who are just good wrestlers.
+- I like watching athletics and I like watching boxing. Probably the sprints, I like watching sprinting.
+- I'm a bit rusty when it comes to football.
+- Fighting isn't an ordinary career, so you have to allow your body time to recover in between training sessions.
+- It would be great to fight on UFC 200 obviously. It's going to be an historic event but the card is getting full quickly.
+- I always like to keep busy, I always say if you're not injured then you should fight.
+- When I started fighting I've always thought about being a UFC champion.
+- We used to go to the fairground, and there's that punchable thing that measures your power. It was from one of those that I knew I could punch.
+- I ruptured my bicep tendon in a sparring session.
+- I dunno - there's always a beast that comes out whenever I want it to... I can control the beast and everything, but it comes out when I want to.
+- I don't care where I am in the rankings or anything like that - I just want a UFC belt.
+- I've got big respect for Corey Anderson. He's a great fighter, he poses a big threat.
+- At school, I was a lot more advanced compared to the other kids but I didn't like authority and was kicked out for fighting.
+- That's what it's all about in MMA, we're not the highest paid athletes in the world, so when you can get the big money fights you have to take them.
+- I think everyone knows that I keep myself to myself and I don't get involved in trash talk or anything else.
+- Yeah, like '300,' I've probably watched it 300 times. It's one of my favourite films. I've just finished watching 'Spartacus,' another great series. I relate a lot to those kind of films. I think most fighters should relate to those films. It just seems natural. I am Spartacus, I am Leonidas, I am the lead role in those films.
+- The fear of losing motivates me, and that's it.
+- I expect whoever gets in a UFC Octagon to put on a great show, because that's why we're there.
+- My plans are to avenge my loss against Volkan Oezdemir and get the UFC title.
+- MMA has improved my life leaps and bounds.
+- Now I've got near the top, I can see the games that people play. I thought everyone wanted to fight the best, and earn title shots, but it's not like that.
+- I like exciting fighters - Anthony Pettis, Jose Aldo. I like all the great fighters, Cain Velasquez, all the champions. They're so good at what they do. I just admire people who are good at what they do and people you can watch and learn from.
+- I'm happy I found discipline, something I love, and I also found God.
+- I just love putting on a show for my fans.
+- There's not so many 'big names' in cruiserweight that would interest me.
+- I don't think there's anyone who strikes like me in the world.
+- My earliest sporting memory is probably going judo when I was about 6 or 7 years old. My dad and my brother did it for a couple of years when I was young, in Nigeria.
+- That was one of the great moments for me, getting a knockout in front of my home crowd in London.
+- When you're in a fight camp, you're working your body harder than normal and it's important to still look after yourself and to relax.
+- I can definitely get the belt. It's something I always wake up believing every time I train.
+- There's no such thing as a lucky punch. You throw to hurt someone and if you hurt someone, job done.
+- It's always great fighting in front of familiar faces and not having to travel and deal with jet-lag and all of that stuff.
+- But the thing about Brazilian fans is that they respect top fighters and I will win them over. When my hand is raised I believe they will cheer for me.
+- Brad Pickett is one of the coolest guys in MMA and someone I have a huge amount of respect for.
+- To me a fight is a fight, it's not a contest or a martial arts competition, it's a fight.
+- But when you're cheating against your fellow athletes, that's something I can't forgive.
+- I always say if you can't knock someone out with four ounce gloves on there is something wrong with you.
+- I am who I am and I tune my training to the fighter I am.
+- One little mistake at the highest level costs you a fight, which I've learned.
+- I love apple crumble and custard - that's my little treat.
+- How I fight is what got me into the UFC in the first place.
+- I always predict a knockout. That's what I go for, I hit to hurt.
+- Look at my record - I always bring a finish.
+- David Haye was the perfect opponent for me because he was a small heavyweight with a big name and we were about the same size.
+- I've never been a decision fighter.
+- It's easy to say when you're on the outside and when you're the coach or for people to say, 'Oh, you should have done this, you should have done that.' But when you're in there in front of thousands of people and you get hit and you want to win the fight, it's totally different.
+- I can't think of any heavyweights that would match up well with me. They're all too big.
+- My diet is just the normal stuff that you know is healthy - nice, clean food - meats, vegetables, fresh juices. I don't have too many sauces, I just like really plain chicken, broccoli: all clean stuff.
+- Yeah, I call my warrior spirit the lion.
+- I know the mistakes I made against Gustafsson and I won't do that again.
+- For whatever reason, I've always been able to hit very hard.
+- I've learned about every aspect of MMA.
+- Thankfully, hamstring injuries don't take that long to heal.
+- I'm a 'come forward' kind of guy, I will never fight any other way and I don't think I could learn anything different either.
+- I've never turned down a fight in my life. Ever.
+- Massages and swimming are feel-good activities which are both mentally and physically relaxing.
+- When I'm champion, I'll fight the best because I am the best.
+- I used to fight in school. I was a rough, athletic child. I always knew I could fight and, watching UFC, I was always fascinated by it.
+- I'm not bothered about where I'm ranked in the world. I'm just worried about fighting the best people in the world and being a natural, original champion.
+- I've knocked out a lot of people so I'm not going to cry about being stopped, it's part of the game and I can accept that.
+- It never is a boring fight with me fighting.
+- I'm not one to call people out, if you look at my history in the fighting game, I've never called anyone out.
+- A lot of people think they're better than they are and it can be very hard to get found out when you come up against a good fighter, getting dominated in every single way - every area you thought you were good in.
+- When I was ranked No. 11 or 12, they offered me Gustafsson who was the No. 1 contender, and I didn't hesitate. I was No. 10 when I fought Anthony 'Rumble' Johnson who was the No. 1 contender. We accept fights, but not everyone is like that, I'm beginning to find out. It's not right.

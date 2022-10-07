@@ -1,0 +1,64 @@
++++
+author = "Tim Daly"
+title = "Tim Daly Quotes"
+quotes_len = "58"
+description = "the best 58 Tim Daly Quotes"
++++
+- I am a member of the human race. There's a certain irony about the cyberworld. You don't know who is talking to you, if it's a machine, so I tend to try to reach out to those fellow humans.
+- It's an actor's job to play all the human conditions - light, dark, and medium.
+- Eastern medicine is not about curing your sickness. It's about keeping you well.
+- 'Wings' offered me the rare opportunity to be a full-time dad and a working actor for eight years.
+- I was a little bit of a slob who was sort of surrounded by dirty laundry. I can trace the exact moment that I became a tidy human being, and that moment was the day my son Sam was born.
+- It's become a cliche to think of marriage as a disaster area and a war zone.
+- I appreciate all the devices the Windows people are coming up with, but the operating system... I just want to smash it.
+- I didn't dream of being in television or film. But then I got married pretty young and had children, and I wanted to feed the children, so I worked a lot of film and television.
+- I used to build lofts in SoHo back when there was nothing there. I had a stoop on West Broadway between Prince and Spring. My partner and I would sit there, eat dinner, and watch the world go by.
+- The biggest compliment I can ever get as an actor is to have someone say, 'We didn't recognize you.'
+- I love exploring the relationship between fathers and daughters. I think that's a special thing, especially with daughters who are dealing with being adults.
+- I've always felt if my nose were more crooked, critics would focus more on my acting.
+- I love babies - I love being with them. As for acting with them, it's kind of hard because they don't know how to act.
+- Twitter, just every once in a while I put something out there basically to promote whatever I'm doing, but I don't see any of that as representing me or who I am or being a brand.
+- I just can't stand the fact that they're going out on their own - I love having my kids around, and I'm angry at them for going out and becoming independent. I want to tuck them in and drive them to school in the morning, but they just won't let me do that anymore.
+- I've had - I don't really know how to describe them, except moments of 'extrasensory perception' of some sort. I've also had sort of a 'white light' moment.
+- What can I say: I got started on the whole wife-and-kids thing at a young age. I had my kids while I was in utero.
+- I realized that my grandfather walked with Martin Luther King forty years ago. That was his dream. And in his little way, he helped us get closer to where we are today.
+- I think I'm a lot more complicated than my looks might indicate.
+- One of the things that I share with Bryan Becket is this hole in my childhood memory. There's about five years of my life that's virtually gone. I've thought about it a lot, and I've come to the conclusion that it might be for my own protection that those memories are gone, and maybe I don't want to dredge up those things.
+- I had so much fun on 'The Mindy Project.'
+- Well, I've seen a bunch of acupuncturists and one of my sister-in-laws is an herbalist. So I know a lot about alternative medicine. I don't know a lot about the practice but I know about the world.
+- No one's banging down my door. People see the way I look, and they don't feel threatened, but they should watch out for me. They don't know there's a steel rod that drives me. I get ticked off, and the rage just gets me going. My motor is anger.
+- I can't help teasing people. That's the way that I am, and I hope that nobody takes it too personally.
+- We sort of have given up on the idea of taking any sort of personal responsibility for what we see. I don't understand it at all. There are many things that I won't let my kids watch.
+- I get offered a lot of parts where I want to say, 'Why don't you just hire a model? Don't hire an actor.' I'm trying to convince people I'm a real actor, not some mannequin.
+- I never have thought of myself as a brand. I've thought of myself as an artist.
+- I have a farm in Vermont; that's my main residence, where I do lots of digging and mowing, and ride tractors - just so you don't get the wrong idea that I'm too girlie!
+- What can I say: I got started on the whole wife-and-kids thing at a young age.
+- 'Wings' was a blessing, but it was also very difficult. Whenever you do situation comedy, no matter how excellent the execution - and we had a great cast and great writers - but the format is somewhat limited.
+- I have this burgeoning reputation for playing a scumbag.
+- 'Superman' was a total accident. The producers of the animated series were having a hard time finding someone to read the character. I was brought in through a connection and, I think, out of desperation.
+- I like bothering people and stirring things up.
+- I look for characters that offer me opportunities to explore some aspect of the human condition. I think a lot of actors would say that and would look for that. I've been lucky enough to find projects that let me do that.
+- It's ironic, really, because I've spent the bulk of my career making my living in a very commercial realm: network television. And yet, my sensibilities don't necessarily line up with how I pay my rent.
+- Thank God for acupuncture. It's been around for 2000 years. It's not going anyplace and people use it all of the time for a variety of cures and to avoid illnesses.
+- I never had the desire to get in front of the camera. It never occurred to me! I always thought I'd be a theater actor.
+- There are two jobs. There is being an actor, and there is being a celebrity. Some people are really good at both. Some people are really good celebrities and terrible actors, and some people are really good actors and terrible celebrities. Hopefully, I am a really good actor and an OK celebrity.
+- I have a beautiful wooden Superman statue with a removable cape - I really love that piece.
+- The creative tension with spirituality vs. practicality in the world of politics is a vital conversation.
+- I have no illusions of being the big box office draw. But I would like to have some choices.
+- I'm probably my own harshest critic. If I get a hundred good reviews and one really bad one, it's that one out of a hundred that I remember. I think we actors are hard on ourselves, and I don't know why that is.
+- I love getting on the subway because you get on the car, and you see the entire human race represented in any given subway car.
+- Usually when I see myself in a film or on television, there's about a six-month period where I can't look at it because all I'll see are the mistakes. I'm just appalled by the person that I see.
+- I was 9 years old, and this was - well, whenever it was, they paid a thousand bucks. I thought I was going to be rich forever! But I had no thought I would be an actor at that point.
+- My natural self is John Goodman. If I relaxed, I'd be him.
+- I don't think I gave 'Wings' its due. I was young. I wanted to light the world on fire.
+- What I've realized, and had to become comfortable with, is that I'm just, I don't think, a star. I'm an actor.
+- I will always look for things that are different from the last thing I played.
+- It's not like I walk around being Superman in real life. But when you read the script and put yourself in the position that Superman is in - I mean, he's always saving the planet, for God's sake. When you realize that, it's not difficult to take the gravitas of the situation and make your voice do what it needs to do.
+- I could have been a rich kid who stayed in college and got by on the path of least resistance, but I got much more out of being in the world and pulling my own weight.
+- People are human beings. They talk about stuff, they make mistakes, they try to impress each other with their tidbits.
+- Everybody wants to have their 'Breaking Bad.' It went to Bryan Cranston. It couldn't have happened to a better guy or a better actor.
+- For people like me, who have blocked out a chunk of their past, you wonder - if you open that door, if you walk into that room of your memories, what will happen? Will it destroy you or will it make you stronger?
+- My public Facebook page is what it is. My Twitter account is sort of what it is, but if I'm totally honest with you, that is not my personal, private self. I have another Facebook page that is devoted to my dear friends and family, and they can keep in touch with me that way.
+- I grew up with actors, so I never thought of them as anything but human - sort of horribly, inextricably human.
+- I know this sounds stupid, but in some ways, the way I look is a drawback.
+- Well, I have a farm in Vermont that's my main residence, where I do lots of digging and mowing, and ride tractors - just so you don't get the wrong idea that I'm too girlie!

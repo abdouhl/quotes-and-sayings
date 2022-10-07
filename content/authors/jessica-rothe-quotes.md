@@ -1,0 +1,50 @@
++++
+author = "Jessica Rothe"
+title = "Jessica Rothe Quotes"
+quotes_len = "44"
+description = "the best 44 Jessica Rothe Quotes"
++++
+- I took ballet when I was eight, like a lot of other people.
+- People can change, learn, and grow, and it's better to face your demons instead of perpetually running away from them.
+- Every project I do, I learn something new.
+- Change is hard. A lot of times, at the end of films, even if they're amazing, I look back, and I'm like, 'I don't think anyone changed,' and that's an important thing to see.
+- I love 'The Princess Bride.' That is a movie that, no matter how I'm feeling, I can turn it on and it makes me feel good.
+- I love down-and-dirty and grit. But I do think that my favorite dramas are ones that are dark comedies because I think that the only way the audience and the actor can really go as dark and deep as you may want to go is if there's some levity added to it.
+- Many times, people who are self-involved or bullies, it stems from a place of hurt and insecurity within oneself.
+- This business can be so fickle, and a lot of times, hard work isn't enough.
+- I was trained in classic theater, so I love me some good old crying.
+- I watched horror films growing up, and I would love watching them with friends. But then, I would spend the next week sleeping in my parents' room because I would be so scared.
+- I'm lucky my parents are incredibly supportive and generous people who have put so much faith in me as I jump into this crazy business. It really is so far outside their comfort zone in terms of what a profession can be.
+- I love power ballads and the earnest lack of irony and emotion that exists in '80s music, along with synth guitars, of course.
+- When you think about the OG scream queens and all of the incredible women who have really defined this genre, such as Jamie Lee Curtis, they are all so talented and so multidimensional.
+- The first time I ever saw a horror movie, I think I was in middle school, and we watched 'I Know What You Did Last Summer' and 'It' at a slumber party.
+- I absolutely love reading.
+- I saw 'Get Out,' and I loved that.
+- I would love to play a Bond Girl one day, but I'd also love to work on a project as challenging and heartfelt as 'Room.'
+- The thing that's amazing about working with Chris Landon is that he has such an encyclopedic knowledge of all films in all genres.
+- I would love to play a sociopath or, like, an unreliable narrator.
+- The '80s are amazing.
+- One thing that feels very important to me as an artist is to continually challenge myself and push myself to do all kinds of different things.
+- When I was a kid, my parents told me that every time we went to see a play or musical, I would sit there with my mouth hanging open completely immersed. I think it has just always spoken to me, been the thing that makes me feel alive, seen, and the way I can express myself.
+- I love getting to be someone else, to explore the parts of myself and other people that we may keep locked away or have no idea exist within us. I also love starting new projects because I always walk away with such a wonderful new group of friends.
+- I did know that I could do scream very well. When I was in high school, I got a very strange job one Halloween filming screams for a radio station. I would just go into a soundstage and scream and scream and scream, and everybody would put on ear plugs, so I had an inkling.
+- When I decided to do 'Mary + Jane,' one of the things that I was most excited about was the demographic that we would predominantly be reaching out to, which is 12- to 25-year-old women.
+- I adored Boston, and I loved school there.
+- When I was a little girl, whenever I would get sick, my mom would go and get stacks and stacks of VHS tapes from Blockbuster.
+- I personally think montages are one of movies' great gifts to everyone. I think they're so much fun and so effective when done right.
+- I grew up loving, like, 'Pretty Woman,' 'How to Lose a Guy in 10 Days' - which is one of my favorites - 'Head Over Heels.'
+- I loved Jamie Lee Curtis. I think she is brilliant.
+- I remember the first scary movie I ever watched was 'Scream,' and I watched it at a sleepover.
+- Every person I work with, I learn something from.
+- I love movie musicals because I think there is an amount of emotional honesty that's needed to portray someone who feels so deeply that all they can do is break into song.
+- It's kind of a lost art form, the musical, in a way, so when 'La La Land' came around, I couldn't believe my luck. I just felt like I needed someone to keep on pinching me 'cause not only was it a chance to make a musical but to work with Damien Chazelle, Emma Stone, and Ryan Gosling.
+- I loved rom-coms growing up. So, of course I wanted to be in one and be the girl that I had watched up on the screen so many times when I was 13.
+- Idris Elba blows my mind.
+- Running with your hands behind your back is so hard.
+- I think it's very important for young women, young people and older people as well, to know that love is important, but it's also important to find a partner who respects you and loves you the way you deserve to be treated.
+- It's very rare to watch a movie and think, 'That's the movie we shot!' So many things happen, with edits and things getting cut out.
+- I grew up on musicals, and I love them so much.
+- 'Happy Death Day' had so many things that, at the time, we were like, Oh no, no, no, no! that ended up being brilliant, so I knew it was special to me.
+- When 'The Ring' came out, it destroyed me for an entire week. I just couldn't deal with how terrifying that film was.
+- When the movie 'Sliding Doors' came out, it almost sent me into existential crisis because I think about that all the time. Like, 'Wait. If I left my house five minutes later, maybe this would have happened and I'd be on this different track of my life. How would that affect me?'
+- I, in middle school, started really, really liking country music because it tells a story. It's really dramatic; I'm really dramatic. There's a lot of emotion. It was like, 'This is a perfect fit,' and I was teased mercilessly for it.

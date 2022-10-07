@@ -1,0 +1,82 @@
++++
+author = "Karthik Subbaraj"
+title = "Karthik Subbaraj Quotes"
+quotes_len = "76"
+description = "the best 76 Karthik Subbaraj Quotes"
++++
+- Importantly, Rajini sir doesn't take his fans and audiences for granted.
+- 'Iraivi' is about women, men, and their priorities. It talks about women's freedom, how men look at it, and how women use it. It's neither preachy, nor is it about women's empowerment.
+- Good actors can make a huge difference to a scene that might sound or read flat.
+- I would say 'Jigarthanda' had a lot of Tarantino in it, but it ends there. 'Iraivi' is inspired more from directors like Balu Mahendra, Mahendran, and K. Balachander.
+- In a silent film, the visuals are of utmost importance.
+- There are some stories that can be told in two hours and some in 20 minutes.
+- Although technology has been playing a key role in filmmaking, I feel there are plenty of opportunities in other branches of filmdom.
+- My father has been a part of a few short films I made; he played a small but significant role in 'Jigarthanda.'
+- I didn't foresee troubles in my second film.
+- I basically like the unpredictability factor. When I watch a film, if it becomes predictable, I lose interest in it.
+- Rajini sir's character in 'Petta' is inspired from the same name from Tamil film 'Mullum Malarum.'
+- On an average, any short film will cost at least Rs. 60,000. Apart from film festivals, where is the avenue to get that money back?
+- Until I was pursuing my collegiate education, I was in Madurai with my parents. Bengaluru was the first place where I was independent. So, the city is very close to my heart.
+- At any filmmaking class, you learn the power of the visual medium and are always trying to minimise the words.
+- I have been trying to get theatre releases for short films ever since I have been making them. I didn't get any response from theatres initially.
+- I made a lot of short films before making a feature film. Actually, I learnt film-making by making short films.
+- I worked in a software company in Bangalore and made short films during weekends. I learnt the basics during a one-day workshop called Film Camp Sanjay Nambiar.
+- Having spent five years in the technological domain, I see the experiences in the entertainment industry from a technological perspective.
+- If one makes a short film with reasonable technical finesse, it will cost between Rs. 50,000 and Rs. one lakh. That's a lot of money for someone starting off.
+- We considered a few Bollywood actors as well for the villain role in 'Jigarthanda,' but we finally zeroed in on Simha because we felt he would be the most unexpected person to play it. Had we cast someone popular, then it would have become predictable.
+- I started learning filmmaking by joining a weekend film school in Bengaluru. I made some amateur short films that got appreciation from people around me.
+- Short films are good, especially since independent films are making waves now, more than before.
+- Out of the five years I spent in software, I was in the U.S. for two.
+- Other countries are open to purchasing foreign short films because they have a market for them.
+- When I thought of writing for Rajini sir, I told myself it will be a really cool character with a very happy-go-lucky attitude. We took such a character and placed him in a strong story, and I believe, as a combination, it has worked wonders.
+- Besides being one of the most ambitious projects I have worked on, 'Mercury' has also helped me enhance my skills as a director.
+- Cinema is a visual medium one has to communicate through visuals, and therefore, dialogues should be less.
+- Vijay Sethupati has been a part of almost all my films. He trusts me blindly, and I feel the same trust in his abilities each time.
+- When I was watching 'Sivaji,' I had no clue I will be a filmmaker; I had not even started making short films at that time.
+- When it comes to Sandalwood, I loved all the films of Rakshit Shetty and Pawan Kumar.
+- I started as a short filmmaker and found that one of the toughest challenges was getting your film to be watched. I would enter it in competitions and release it online, but getting a mainstream theatre-going audience to view the film is difficult.
+- I would say my parents were really supportive after a point. I had to prove to them that I am not just dreaming; I can really make it.
+- You need actors and performers, but there has to be content in a film.
+- A short film is not a shortened feature film. It has a soul of its own.
+- 'Mercury' is about a big company exploiting a small town. There is a place in Tamil Nadu called Kodaikanal. It had a thermometer factory, which would dump the mercury into the river. This affected a lot of people. This incident is the inspiration for this film.
+- I worked with an indie filmmaker called Mark Williams, a lawyer who was making a zero-budget family drama called 'Move Me.'
+- Luckily, 'Petta' encompasses all the dimensions of Rajini sir's performances. His main strengths are his charm, style, and the fun that he represents.
+- 'Mercury' is one of the most challenging projects I have worked on. From the nuances of the actors' expressions to the minute technicals of the movie, everything needed to be monitored and looked into. The actors were required to emote purely with their face.
+- Rajini sir gave me an opportunity to work with him because he liked my work, especially my style of narration and dialogues. Now, I can't go out and make something very different just to please him. He wanted me to make 'Petta' the way I want it and with my sensibilities intact.
+- Rajini sir has always been a part of my life from childhood. And I entered into filmmaking because I was influenced by his films.
+- For a cinematographer, every frame has to be important.
+- I start writing with an open mind without thinking about genre and realise, only after writing, that it falls under many genres.
+- There are some sites that pay, but access to them is quite limited. And a very small chunk of the population uses the Internet. So, a director goes on YouTube only for better reach.
+- For any actor, voice is his strength.
+- A theatrical release is not possible for a short film.
+- I grew up in a house that adored Thalaivar. There would be major discussions at home whenever a film of his was due for release, and we would manage to watch the film on the first day.
+- When I was making short films for the TV show 'Naalaya Iyakunar,' I wasn't just competing but making films that I could potentially show at international festivals.
+- The girls who come into Tamil cinema today are educated and from well-to-do families. Unlike the actresses of my generation, they do not need cinema for survival. We cannot write a small role - dead cast, as I call it - and expect them to be excited.
+- Mani Ratnam is my biggest inspiration.
+- Usually, I write my scripts first, then think of the actors, or I have a reference of someone.
+- I grew up idolising Rajinikanth, and I've always wanted to see him in a certain way. When I knew I was going to write for Rajini sir, I wanted to show him in the most stylish way and bring back his mannerisms and machismo.
+- After doing two feature films, I got an idea for a thriller film and felt this could be made without any dialogues.
+- I would like to direct good actors, and there are good actors who are stars.
+- I met Rajini sir after 'Jigarthanda,' and he said he liked my film. He told me I could approach him whenever I had a good idea. I had never thought he would listen to scripts from new directors. After the meeting, I wondered, 'Should I take his words seriously or not? Should I write something?'
+- When I made 'Pizza,' all I had in my mind was to make the film reach as many people as possible.
+- Filmmaking is never easy as long as you continue learning from the process.
+- I roughly draw the scene beforehand to be more confident on the set. Instead of talking and explaining certain things, I try to visually communicate the scene to my team with the story board. This is how I work.
+- Even during my short film days, I approached theatres with the idea of playing them during the interval. They thought it was problematic to screen an offbeat short film in between a commercial film.
+- The core plot of 'Mercury' is so gripping that when I thought of making it as a silent film, it only made it more interesting. Once I finished writing the first draft, making a silent film that's both thrilling and engaging seemed possible. When the film team read the final script, they felt the same.
+- My parents have let me do whatever I am interested in. Initially, they were apprehensive, but when they realised that filmmaking was my passion and that I was doing a good job with the short films and the recognition in 'Naalaya Iyakkunar' TV show, they supported and encouraged me.
+- If a star film does not have a good story, it will not run. This will make stars choose good scripts consciously.
+- When I was working in Bangalore, short film making was fun - almost like a weekend getaway for me and my friends from the software industry.
+- I did a lot of short films before doing feature films.
+- For 'Neer,' we spent about Rs. 70,000 just on the boat.
+- No, I am not after huge stars. But I have no reservations about working with stars.
+- I believe filmmakers must travel with their creations long after release.
+- Once I heard Karunakaran was part of 'Lingaa,' I told him to somehow arrange for me to meet Thalaivar. The 'Jigarthanda' team met him when he was shooting in Shimoga. It was a memorable meeting, as he opened the door for us, sat, and answered whatever we asked him. And, I got to meet him twice in two days!
+- I remember, when I was working in Bengaluru, Rajinikanth's film 'Sivaji' was releasing, and I wanted to watch it the first day, first show. My manager did not want me to take the day off, and I made up excuses stating that there was an issue at home and I had to go.
+- While working in Bangalore, I was making short films.
+- I was doing it the amateur way, doing everything myself till 'Naalaya Iyakunar.' They said, 'You need crew members'; they insisted on having proper production values. So I learnt a lot about making films for that show.
+- Ever since I made the short film 'Black And White,' which had almost no dialogues, the idea of making a silent feature film fascinated me.
+- In India, we always look at feature films as a progression over short films. But, abroad, people make a living making short films. The revenue might not be as much as in feature films, but the return on investment is good.
+- When I hear the news that the pirated version of my film is doing rounds, I cannot keep quiet.
+- When I was making short films, I didn't see a way to give them a wider reach or earn revenue out of it.
+- Following the success of 'Pizza,' I am really glad that C. V. Kumar of Thirukumaran Entertainment has extended his support to a new director, Deepan Chakravarthy, to direct 'Pizza 2 - The Villa.' I wish this team to have a great success like 'Pizza.'
+- You need to be a good filmmaker to make a compelling two-minute film as well.

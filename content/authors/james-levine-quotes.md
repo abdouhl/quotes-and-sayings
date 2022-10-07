@@ -1,0 +1,44 @@
++++
+author = "James Levine"
+title = "James Levine Quotes"
+quotes_len = "38"
+description = "the best 38 James Levine Quotes"
++++
+- Second, if you're the boss, just because they don't ask doesn't mean your employees don't have needs.
+- The invisible dilemma is that men face the very real problem that they don't feel comfortable bringing these issues up and they tend not to be acknowledged at work.
+- What's interesting is that both men and women are struggling with this issue in remarkably similar percentages, but the big difference is that women tend to talk about this when men keep it silent.
+- My hunch is that probably men are doing more both outside the home and inside the home.
+- We found that when people put this issue on the table, it turns out that men acknowledge the issue, and employers and employees can work out solutions just as working mothers do.
+- But the important thing is to lie down and fall asleep. That little nap means you wake up fresh again and can continue.
+- Most people treat the office manual the way they treat a software manual. They never look at it.
+- I thought I'd write one book and the world would change overnight.
+- I think this orchestra's strengths involve drama and voice.
+- There is no relationship between the gestures and what an orchestra will do.
+- As major orchestras around the world are gripped in various kinds of crises and upheaval, we need to be sure that we are bringing up this new generation.
+- Everybody blames the culture without taking responsibility.
+- Art has never been a popularity contest.
+- It was just that we had this phenomenal honeymoon relationship that just kept on going.
+- It wasn't that I ever knew I'd be at the Met for 20 years, or 30 years, or 40 years, or anything like that.
+- Employee fathers need to step up to the plate and put their family needs on the table.
+- It has to be able to play at the maximum expression and communication in every style, and the only way you can do that is - like Verdi said - working with a file, every day, little by little, until the orchestra's collective qualities emerge.
+- We're in the midst of an evolution, not a revolution.
+- It's just that, when the orchestra look at me, I want them to see a completely involved person who reflects what we rehearsed, and whose function is to make it possible for them to do it.
+- I can imagine wanting to work with this ensemble and this company always.
+- So, the total number of hours spent on the stuff you have to do to take care of a family, working and caring for stuff at home, the total number of hours is actually about the same for mothers and fathers.
+- You try on purpose to get players with different qualities which will rub off on one another.
+- A lot of people get impatient with the pace of change.
+- More and more couples are having this negotiation or discussion, but I'm still amazed at the number who aren't and where the cultural norm sort of kicks in and they just assume that mom's got to be the one who stays home, not dad.
+- Working mothers do an hour more per day than working fathers do and working mothers do on average an hour more per day with the kids than working fathers do.
+- If you factor in not just who's doing what at home, but how much more time working fathers are spending on work outside the home, on average they spend two hours more per day outside the home.
+- I was lucky that I met the right mentors and teachers at the right moment.
+- When they are performing in front of the public, they ought to have a sensation that's relatively easy, if the technical and the interpretive work was done before.
+- I grew up in an era where an orchestra was like a treasure chest.
+- At my age, you are naturally inclined towards teaching.
+- And so, little by little, I gradually divested myself of pretty nearly all of the guest conducting I used to do, because I was at the same time working in the places like the Met, where I could work in this sort of depth.
+- They've really got to recognize that all of us bring some of our family issues to work and our work home.
+- Great cataclysmic things can go by and neither the orchestra nor the conductor are under the delusion that whether they make this or that gesture is going to be the deciding factor in how it comes out.
+- I have a big problem with conductors who gesture a lot.
+- And, over the last thirty years we have seen men's participation in both housework and childcare has increased and women's have stayed at about the same.
+- We do not seem to be finding tomorrow's Toscas.
+- Where my tastes in music are concerned, I'm a real maximalist.
+- Women tend to have recognition and peer group support - recognition from friends and family that this has to be a big issue in their lives. They're more comfortable expressing the need for support and receiving it.

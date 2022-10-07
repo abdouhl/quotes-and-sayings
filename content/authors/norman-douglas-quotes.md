@@ -1,0 +1,22 @@
++++
+author = "Norman Douglas"
+title = "Norman Douglas Quotes"
+quotes_len = "16"
+description = "the best 16 Norman Douglas Quotes"
++++
+- Never take a solemn oath. People think you mean it.
+- The longer one lives, the more one realizes that nothing is a dish for every day.
+- You can construct the character of a man and his age not only from what he does and says, but from what he fails to say and do.
+- What is all wisdom save a collection of platitudes?
+- They who are all things to their neighbors cease to be anything to themselves.
+- To find a friend one must close one eye - to keep him, two.
+- A man can believe a considerable deal of rubbish, and yet go about his daily work in a rational and cheerful manner.
+- Education is a state-controlled manufactory of echoes.
+- It takes a wise man to handle a lie, a fool had better remain honest.
+- Distrust of authority should be the first civic duty.
+- The pine stays green in winter... wisdom in hardship.
+- There is in us a lyric germ or nucleus which deserves respect; it bids a man to ponder or create; and in this dim corner of himself he can take refuge and find consolations which the society of his fellow creatures does not provide.
+- You can tell the ideals of a nation by its advertising.
+- Many a man who thinks to found a home discovers that he has merely opened a tavern for his friends.
+- Shall I give you my recipe for happiness? I find everything useful and nothing indispensable. I find everything wonderful and nothing miraculous. I reverence the body. I avoid first causes like the plague.
+- The sublimity of wisdom is to do those things living, which are to be desired when dying.

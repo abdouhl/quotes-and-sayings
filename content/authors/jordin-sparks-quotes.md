@@ -1,0 +1,75 @@
++++
+author = "Jordin Sparks"
+title = "Jordin Sparks Quotes"
+quotes_len = "69"
+description = "the best 69 Jordin Sparks Quotes"
++++
+- I do consider myself a competitive person, but I'm not competitive to the point where I will do anything to win. I wouldn't step on somebody just to get to the next level. I would have to do it fair and square. I'm kind of competitive in a way to where I like to figure out things myself, and if I need help, I'll ask.
+- I looked massive next to Ryan Seacrest! But I was lucky that I've never had anyone say, 'Jordin, you need to lose weight.'
+- I know what I want to look like. I don't want to look trashy. I want mothers to be able to look at me and not have to close their kids' eyes!
+- Right now, I feel like I can take on the world. Ambition is the perfect word for where I am in my life right now.
+- I am so used to being up on stage and talking to my fans that it's strange to be on stage and be someone else. I can't look at the audience during 'In the Heights' or I will start talking to them.
+- It's funny. When I saw the script in my inbox and it said 'Sparkle,' I thought, 'For real? It's really called 'Sparkle?' I was wondering, too, how does 'Jordin Sparks as Sparkle' sound?
+- It's cool to have parents and family who will always tell me the truth no matter what. They'll tell me if I'm doing something stupid!
+- I like to wear sleeves because they cover up my arms.
+- I'd love to do something with Kelly Clarkson because she's been a monumental influence on me. I love how she handles her celebrity. She's not in the tabloids a lot but everyone knows and respects her because she's got an amazing voice. That's something I aim towards.
+- I love being able to sing for my job. I am blessed beyond words and I hope my fans can feel that while I'm on stage!
+- When I was on Broadway, I got really sick with walking pneumonia. I decided not to take my health for granted anymore and make it a priority. The great thing is, the pounds just started to fall off.
+- There are a lot of parallels to the 'Sparkle' story and my story.
+- With 'Idol' it's kind of just like 'OK, here's this competition - I need to do better than somebody else.'
+- I'm excited about the new judges on 'American Idol.' Jennifer Lopez was a real mentor to me my season and I admire her so much. And I kind of have a crush on Steven Tyler. It's going to be interesting to see is one person going to stand out among the judges or if everyone will sort of be equal.
+- It's really hard when people write nasty things about you all the time. As much as good things are said about you, it's always those one or two bad comments that really stay with you and gnaw at you. I try not to read that stuff if I can.
+- My goals are to tell meaningful stories through songs and touch people's lives... and hopefully make a living doing it.
+- If I don't laugh at least 20 times a day - it hasn't been a good day.
+- I am growing and learning. There's so much more that I want to accomplish and do. I'm gonna do it at whatever pace it happens. I'm not trying to rush anything or slow anything down.
+- When I got to write for the 'Battlefield' record, it was almost therapeutic. I had gone through a few things in the two years prior and it was really nice to take those thoughts and emotions and get them out. I definitely want to hone that side of my artistry.
+- I'm so excited for my first fragrance! I chose to partner with Dots because I love what they do for their customers, bringing them the hottest trends in fashion, accessories and fragrance at unbelievably low prices. It's amazing!
+- For me, 'I Am Woman' is all about transition. I turned 21 in December, so I'm not completely grown up yet but I'm not a little girl anymore. Just in that in-between stage. The song is everything I have ever heard a woman say. I loved this song for me and every young lady, girl and woman to be able to feel empowered in being female.
+- When I was on 'Idol' and 17, everything was so new. Everyone is so nice and wants to see you succeed.
+- That term's definitely got a negative aura to it, because people think a diva is somebody with an attitude who demands things all the time. Of course there is that type of diva, but my idea of a diva has always been a singer - whether male or female - who gets on that stage and captivates you with their presence and their voice.
+- I can do accents really well.
+- For me to even be talking about bikini confidence is crazy. If you had asked me a couple of months ago, I probably would have been like, 'what are you talking about...' so it's actually huge for me to even feel okay with putting a bikini on.
+- In school, when we lived in New Jersey, we went to Broadway a lot, so I saw a lot of Broadway plays, and I just loved being able to see people play a different character and, you know, be able to be themselves at the end of the night. So, I've always wanted to do it.
+- The weight really started falling off, and I could see my muscles. It was awesome.
+- I'll splurge on Toblerone. I love Toblerone with the Swiss chocolate and nougat in it.
+- Since 'Idol' I've gotten used to having an amazing hair and make-up team around me, so I'm starting to get picky. I know what I like now and I'm happy to say 'Could we maybe change that?' if I don't like something. I don't yell or anything, but I think I could definitely start to act a little diva-ish when it comes to my look.
+- With my schedule being so crazy, I can't call every day or hang out with my friends like I used to and that's definitely sad.
+- Sometimes I'll go on a Twitter spree and reply as much as I can. Talking to my fans is so much fun even if it is in 140 characters or less.
+- I always wanted to work with Michael Jackson. His music will live forever and with technology nowadays... maybe I could.
+- When I turned 18, my mom, my nana and I all went and had tattoos of our favorite Bible verses put on the inside of our wrists. Mine is 1st Timothy, 4:12.
+- As far as friendships go, things change even without the fame. People start moving on. I have a few friends that are married and are starting to have kids and I'm like, 'Oh my goodness gracious - that's so insane.' I also have friends who are just doing their own thing, which is cool.
+- I love dill pickles! They're on my rider for my concerts so I eat one every day.
+- 'Battlefield' was one of those slow-building songs, the way 'Tattoo' was. It was kind of a word-of-mouth hit. The more people heard it, the more they started requesting it on the radio.
+- I used to eat because food tastes so good. I love food, it's one of the best things on this planet. But I changed the way I was thinking. I started asking myself, 'Hey, am I eating because it tastes good? Or because I really need some more? Am I really still hungry?'
+- I like the way my heart beats, I like the way I think; I don't need or want anything to change that.
+- Well, ever since I was little, I knew that singing was what I wanted to do, and then I got into, you know, doing drama club and community theater.
+- I was always okay with the fact that I was taller and bigger than everybody else growing up. My mom, my dad, and my friends always told me I was beautiful.
+- My heroes are just everyday people who work hard, are honest and have integrity.
+- When I go out clubbing I can dance 'til three o'clock in the morning with just a water bottle in my hand. I love dancing to anything with a good beat really. My favorite song to dance to at the moment is probably Drake's 'Best I Ever Had.'
+- I like what I see in the mirror. I liked what I saw in the mirror before. It just didn't work in a bikini. And now it does. So I'm excited!
+- If I eat something a little crazy or if I feel sluggish, I know I have to eat better the next day and work out. I work out, I do circuit training so I try to keep my heart rate up whether I'm doing cardio, lifting weights or jumping rope. I like to mix it up. I also take Zumba classes - I love those, those are a blast.
+- I've written poetry since I was in the first grade, and it wasn't until I was a little bit older that I realized poetry could be put to music and become a song.
+- Being on 'Idol,' you have no choice but to be an open book.
+- 'Sparkle' fell into my lap. I had heard a little bit about it, that it was being redone in early 2011. I was just kind of like, 'Oh, that would be really cool,' and not really thinking too much about it, and then it came through my agency. I read it, I fell in love with the script and I went in to audition.
+- Not yet, but I do wanna work with Leona Lewis. I love her, she's so sweet! I think she's working on her album as well so I'd love to do a nice powerful female duet with her. I think our voices would blend really well. There's a couple of other people I'd love to work with - like Fergie, Justin Timberlake and Alicia Keys.
+- The faith-based thing is really important for me. There are certain situations that I would not have been able to make through without the promises He makes and gave for us.
+- Well... I had braces and I had to wear headgear! I loved my braces, actually. For me, they were like a piece of jewelry! Instead of the silver or pewter I had gold braces. It was so much fun, I loved them. I got to change the colors and stuff and I had the rubber bands.
+- With the '60s era and Motown, my grandparents actually introduced us to that when I was younger, so I grew up listening to the Jackson Five, Aretha Franklin, The Temptations, The Supremes and Diana Ross' solo stuff. I just loved it.
+- I think 'Tattoo's a song that can go so many different ways. Some people think of it as a break-up song, but, for me, it's about somebody who comes into your life and really touches you - be they a friend, a family member or someone you're in a relationship with.
+- 'Lizzie McGuire' was my big thing when I was younger. I did buy some pencils and back-to-school stuff of hers because she was on it. I loved her.
+- My favorite song is 'No Air,' a duet I did with Chris Brown. I don't want to sound weird or anything, but I listen to it a lot - it's always on my iPod!
+- I played softball and basketball growing up. I really wanted to play football but both parents said no. I was mad for a second, then got over it. Now, just because I'm tall doesn't mean I can play basketball. I was waaaaay better at swinging a bat.
+- I've performed in Auburn Hills, at The Palace, so I haven't really been in downtown Detroit, but I've been able to be here, and I can really see, what the city was. Like, I can feel why Motown started here and how amazing it was.
+- I love football. My weekends are booked. Saturday college games and Sunday NFL and 'Monday Night Football.' Booked! Football is first, then basketball and then everything else.
+- I'd love to own a bakery at some point. My grandmother could help me run it - she is an amazing baker! I'd also love to do a cookbook.
+- With the R&B, gospel feel that 'Sparkle' has, that opens the door for my fans to be more accepting of that sound and also for me to try it.
+- My whole journey has been about self-acceptance.
+- Hollywood large is so different than real-life large.
+- The stick-thin thing, I'm kind of just like, 'Not gonna do it' and 'I couldn't.'
+- Sometimes I feel like there are people just waiting for me to fall. The funny thing is, I can't give them anything. I have just never been a partier, even in school.
+- I love berries. Strawberries, blueberries, raspberries, black berries, anything with an 'errie' in it!
+- I've had lots of friends who've gone through 'Battlefield' situations in their relationships, so when I was singing the song I put myself in their position and tried to imagine what they were going through. I got so, so into it and I think you can tell.
+- I'm a responsible soul. But anyone who has the chance to spend time with me can see I'm still 22 years old. I love talking about clothes and guys and shoes and makeup. Plus, I'm obsessed with anything Hello Kitty!
+- There's no quick or magical way to lose weight. You just have to do it the natural way - diet and exercise and stick to it - and be able to do it at your own pace.
+- I love the expression that 'When your Bible is falling apart, the man isn't.'
+- I love food and I love my curves.

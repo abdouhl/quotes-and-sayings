@@ -1,0 +1,13 @@
++++
+author = "Joaquin Castro"
+title = "Joaquin Castro Quotes"
+quotes_len = "7"
+description = "the best 7 Joaquin Castro Quotes"
++++
+- I learned that Congress is a place with more heart than courage; there are more good souls in Washington than brave ones. I learned that the whole is not always the sum of its parts: that what you put in doesn't always match what you get out.
+- I just believe that if I work hard and do well, who knows what the future holds?
+- As a state legislator, I had worked with Republicans and Democrats to pass a number of bills, including some related to higher education and juvenile justice; I'd created what would become San Antonio's largest book drive and literacy campaign.
+- Since becoming mayor in 2009, Julian has worked tirelessly to pursue policies that honor the aspirations of the people he represents. I'm proud that my brother has achieved his dreams, but I'm even more proud of the work he's done to help others achieve theirs.
+- Doing your job requires different modes, and you can't just be stuck in one mode where you're always the shrill outsider screaming at everybody.
+- A lot of folks feel like my brother and me or other politicians chart out their careers from Day 1 until the end. I've never been like that.
+- There's no doubt about it: Hillary is the best person to be our 45th president. Hillary has always been a tireless advocate for working families - she's never ceased to make sure everybody has a fair shot at achieving the American Dream.

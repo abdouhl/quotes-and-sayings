@@ -1,0 +1,106 @@
++++
+author = "John Mcginn"
+title = "John Mcginn Quotes"
+quotes_len = "100"
+description = "the best 100 John Mcginn Quotes"
++++
+- If you get too high it comes back to bite you on the backside so I was always aware in spells before when I've done well in a season, eventually there was a wee dip.
+- You cannot look back and think what if.
+- The advice I would give to young players is always give St Mirren an opportunity.
+- When I broke into the St Mirren team thing went pretty well for me and I managed to hit the ground running.
+- The benefit of coming to a place like Greece and winning is priceless for your development.
+- I've worked under a lot of managers, whether it's the national team or at St Mirren and everyone has their moments. I think it is important, you can't just let things pass if they are not good enough.
+- There's something special about big midweek games at Easter Road, under the lights, that makes us have that little bit extra about us.
+- It's never nice looking over your shoulder and needing other results but sometimes that happens in football. It's a lot better to know your future is in your own hands.
+- You dream as a player of having fans chanting your name.
+- The Villa boys will not be shy in telling me that I talk about Hibs all the time. I loved my time here, it was a special three seasons so I have a lot to be thankful for from my time here.
+- If you try too hard to fit in you become something you are not.
+- I look at the likes of Darren Fletcher and Scott Brown and they're just normal people. They are humble and work away to become the best they can. That's the path I've tried to follow.
+- When a Scottish player goes down the road you're always going to get doubters. You always get people saying you're from a pub league.
+- We don't want to have to rely on last-minute goals every time!
+- That's football. Sometimes luck swings your way and sometimes it doesn't.
+- Playing away from home in Europe is never easy.
+- If you've not got the doubts to go and prove people wrong, that's when you get into that comfort zone and stop progressing.
+- There is not really any point in having a big squad if you don't use it.
+- Two-footed players always get a lot more recognition, so I always practised as a kid with my right foot.
+- Football is a great place to get away from things, and going over to Greece was amazing and I've loved it - it is basically getting away from all the talk.
+- When you have a good relationship with a manager, and he leaves, it is disappointing.
+- Sometimes in football you have to take risks.
+- I feel as if I'm getting better all the time. At the same time, though, I'm ambitious.
+- I feel loved at Hibs and I've loved my time here.
+- It is not easy to get out of it. It is much nicer to be fighting at the top of the league but it is only nicer if you can get something at the end of it.
+- I'm the kind of guy who always gives 100 per cent.
+- I remember when I was at St Mirren someone called me the ugliest thing they had seen at Tynecastle, and two minutes later I scored - it was brilliant. I just laugh it off - I agree with them most of the time!
+- It's always nice to be getting personal recognition, but I wouldn't be getting it if it wasn't for the help of my team-mates and the backroom staff.
+- If you are a player wanting to improve then Hibs will be a club you want to go to.
+- There's a lot of good midfielders all desperate to play for their country and all I can do when I get called up is prove that I deserve to be there.
+- That is what all the top players do and if you want to be the best you know you are going to get marked.
+- Everyone just needs to be his own man.
+- I won't jump two-footed into something without really thinking about it.
+- When you are growing up to even be involved in a Scotland squad is a massive achievement, to go on and play for your country is an amazing thing, something I will never take for granted.
+- Every young kid growing up playing football dreams of playing in those big famous stadiums.
+- You learn more from defeats and it makes you hungry to go and improve the next time. That's the way I have dealt with things during my whole career.
+- It's an amazing feeling playing at a packed-out Villa Park.
+- We need to go into every game believing we are going to win.
+- You work so hard to get to a level and you need to grab your chance with both hands.
+- I like to win the ball back for the team and I can contribute going forward.
+- You always need to be on your toes.
+- I'm ambitious, which is why I chose Villa.
+- You want to be challenging for titles and in semi-finals and finals. Everyone is excited by that.
+- All you want to do is first and foremost a job for the team but if you can entertain the people in the stands, and make then enjoy their day, then it helps.
+- It was always going to be a risk if I went to America.
+- If someone is going to spend a whole game marking you, then there may be games when I will have to sacrifice myself for the team and take them away and create space for a team-mate.
+- I remember when I was training with St Mirren as a young boy Ralston was my Hampden and my Wembley.
+- I think it's really hard to replace what Scott Brown brought to Scotland. He was one of a kind and there aren't too many players like Broony. But for me, the more you try and replicate him, the more difficult it becomes.
+- Scoring at the big stadiums in Glasgow is something I have dreamed about doing since I was a wee boy and now I have managed to do that.
+- Alan Hutton and I are always fighting the corner for Scottish football. It's a really tough league down here with a lot of quality players trying to get into the Premier League.
+- I think you're always fighting a losing battle when you're Scottish and I don't think that's right. I think the way that people look at Scottish football is wrong, but at the same time, we have to start proving it on the park and start showing it again.
+- People do like to talk us down, it's a Scottish thing. We are pessimistic, we look for the negatives all the time.
+- You just want to prove people wrong and, over time, people start believing in you.
+- I think people maybe had a perception of me that I was just a hard working player, just a runner. Don't get me wrong, I think I am that but I've got a lot more to my game than that.
+- I was so used to playing at St Mirren and then Hibs all the time, so it was really important that the next place I was going I was going to play.
+- Hopefully I can challenge myself and establish myself as a Premier League player for Aston Villa.
+- You need to be brave to able to stand up to tough atmospheres and against top players.
+- There are always challenges that come your way and I'm probably better prepared to deal with them now I've been at Hibs.
+- I'd been with Saints for 13 years, so it was always going to be a bit strange going back for the first time.
+- You are professional so you want to win every game you play.
+- If I could achieve half as much as Broony's achieved in his career, I'll be delighted.
+- It doesn't matter the level whether it is League Two or anywhere, you want to win games.
+- You have to be able to deal with the pressures that playing for a big club like Hibs brings and it's not for everyone.
+- It's one of the reasons you play football, to make people happy.
+- A lot of players and pundits can be talking the Scottish league down and it's not until players and coaches actually experience it they start respecting it.
+- Opponents know how to get the fouls and it's gone against me a couple of times.
+- We do our best to keep our feet on the ground and that's how it will remain.
+- If you are going to be successful in football you have to make sacrifices and that's something I am happy to do.
+- I'm going from Somerset Park one week to Wembley the next. It's crazy but that's football. You don't get to where you want to be without going through all these different places.
+- I've never hidden the fact I'm ambitious at some point.
+- I want to play for Scotland at a major tournament, that is the dream and the drive for me.
+- I'm not your normal central midfielder.
+- There's always going to be that question going up a division. Can you do it? Are you only good against the players in a lower division?
+- You always have to get your head down, work hard and things fall into place.
+- We can take these things for granted, when we have everything on a plate.
+- You're always looking to go one step further and I'm an ambitious boy.
+- For every Scottish player and whoever qualifies to play for Scotland, it's important to put in the performances and, when a squad is coming up, to stay on your toes and prove you deserve to be there.
+- Well I'm still a massive Celtic supporter. And I always will be. That will never leave you.
+- In football you can take the praise when it comes, but you've got to be ready to take the criticism as well.
+- The refs try their best. Sometimes they get it right. Sometimes they get it wrong.
+- In Scotland you can enter a comfort zone. I felt I had already developed a reputation there and felt it was important to prove I can play elsewhere.
+- You have to beat the best if you want to win tournaments.
+- I think everyone will agree that it doesn't matter how we get to an international tournament. We are going to do whatever it takes.
+- I'm grateful for what this club has done for me and I love playing for Hibs - I never take that for granted.
+- I was fortunate to be able to go to the Scotland games with my grandad and it's scary to think I could now be playing in one.
+- I've got confidence in my ability.
+- To be honest, I had a brilliant group of players at Hibs and the support were very fair with me. They didn't make it difficult.
+- Sometimes you just need a wee bit time away from football to freshen things up.
+- When you come to a club like Hibs not everyone can handle it, there's pressure in every single game to get results.
+- Going to places like Tynecastle, where you're so close to the crowd, you get reminded how ugly you are and stuff like that!
+- When you experience lows like I have it just makes you hungry to go and succeed even more, and make sure days like that don't happen as much as they have done.
+- Hibs are such a brilliant club, amazing training ground, good coaches, and a great platform for Scottish players to get better.
+- I know I have been compared with Broony and he is a player I've looked up to massively. When I first went into the Scotland squad he took me under his wing.
+- No matter where it is or who it's against, I will always be available for Scotland as long as I am fit.
+- If we can get Hibs into European football it would be massive for everyone involved.
+- You will always have people to prove wrong. I always have done and I always will. I use that to spur me on and stay hungry and that's the big aim.
+- You want to play in big games.
+- Every time I've come away with Scotland I've learned and improved.
+- I've always said the same thing - I'm learning, I'm getting better and I'm loving playing in front of sell-out crowds.
+- Sometimes a manager will assess the other team through the warm-up and try to get an inkling as to what way they are going to be playing.

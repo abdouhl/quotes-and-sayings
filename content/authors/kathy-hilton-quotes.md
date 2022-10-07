@@ -1,0 +1,63 @@
++++
+author = "Kathy Hilton"
+title = "Kathy Hilton Quotes"
+quotes_len = "57"
+description = "the best 57 Kathy Hilton Quotes"
++++
+- I've been fortunate enough to travel and wear beautiful clothing by designers from all over the world.
+- The term 'socialite' makes me feel pretty uncomfortable. To me, those are the women who get dressed up and go from party to party. That's all they do.
+- Paris works so hard. I always say, 'Paris, you also have to stop now and again and smell the roses.'
+- We TiVo 'Two and a Half Men' because it's our favorite show.
+- You only get one family, so why not make it work? I don't understand friends who say they haven't talked to their mother in 10 years. To me that's the most important thing.
+- My children were not overly spoiled. They had to make their beds. They had to line up their shoes.
+- I am very strict.
+- My mother is my greatest inspiration. She was an amazing mother and was very glamorous. My other inspirations include Audrey Hepburn and Grace Kelly.
+- My husband always makes me go through what I'm not wearing and donate it, so the driveway is full of boxes.
+- Even I have a hard time manipulating escargot.
+- You don't have to put on everything in the closet.
+- I would have loved to have been a psychiatrist or therapist.
+- Fear, to me, is the most powerful feeling there is - fear.
+- I live in a little dream world.
+- I love planning weddings - I'm the wedding planner.
+- I met my husband at 15, got married at 19, got pregnant a year later and then had three children after that.
+- I always believe there's a reason for everything.
+- 'Paris the Heiress.' I tease her about that.
+- As a mother, there are often times you wish your daughters would wear a few more clothes. Or at least different ones. But there's really no point in saying, 'You're not going out in that' because they'll do it anyway.
+- The minute 'The Osbourne' thing came out, everybody started calling us wanting to do something with the family and we said, 'No, no, no.'
+- If everything is too organized or too perfect, I get bored.
+- I have kept a lot of beautiful things, including some gorgeous Valentino from the '90s.
+- I love to have my plate full.
+- Christmas is my favorite time of year.
+- With my babies, if I wanted to go pick them up I would just go in the room in the middle of the night, but Nicky is very much on a schedule. This is nap time, this is tummy time, so I'm just kind of like, 'Okay.'
+- There are people that get jealous and they say Nicky is a snob or Paris is a snot. I know I've heard it, but I think they're pretty sweet kids.
+- I'm not about drama. I just want to have fun.
+- Paris is the most modest girl.
+- What we like to do is have family dinners at home so we don't have to have make-up on.
+- It is okay to be alone; you don't have to always be with someone.
+- I've always loved fashion and growing up with sisters, we always enjoyed clothing.
+- I'm not dressed up all the time.
+- I make a very special Christmas brunch. And I start early in the morning because I like the smell of the turkey cooking.
+- Paris has really helped me when I've been down. She's a real helper. She's got a big heart.
+- My favorite part of any holiday is spending time with my wonderful family and friends.
+- My dating advice for Paris would be just to take your time.
+- But you can't be possessed by your possessions. Those are just things.
+- I love to be busy! I love to have a million things to do.
+- I guess everyone wants their 15 minutes of fame, and they want to be heard, and they wanna talk and chat, and I see people at parties doing this and I think to myself, 'What are you doing?'
+- It's true that blondes attract most of the attention. But it's the brunettes who look prettier as they get older.
+- Paris didn't get a car until she was 19. Nicky didn't get a car until she was 20.
+- Honestly, I'm a traditional girl.
+- I think it's very hard to be with somebody that's in the limelight when you're really not into that.
+- We're not girls who lunch unless it's a birthday or special occasion.
+- I always believe that where there's a negative there's a positive.
+- I love listening to the oldies like Johnny Mathis, Bing Crosby and Dean Martin - songs I grew up hearing and still know every word.
+- I have been together 33 years with the man of my dreams.
+- When they were taking Paris to jail for the second time, she went to kiss me goodbye. The guards said 'No' and just took her.
+- Life is a poker game, and everybody has to show their cards.
+- I love planning parties and love planning weddings.
+- Nicky would not ever go on a reality show.
+- I don't know how to work the computer.
+- And it is hysterically funny to see someone eating oysters for the first time.
+- I've always tried to live my life perfectly.
+- I have a special place in my heart for New York City. I spent my early childhood there before moving to Los Angeles.
+- Whoever you are - whether you're Paris Hilton, anyone - if you do something illegal there's a consequence.
+- Paris could go to Patricia Field, find a pair of pants or a skirt, and then she would pair it with one of my good jackets. She was quite the character in the day.

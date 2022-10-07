@@ -1,0 +1,21 @@
++++
+author = "Tom Cairney"
+title = "Tom Cairney Quotes"
+quotes_len = "15"
+description = "the best 15 Tom Cairney Quotes"
++++
+- It's about believing in your ability, and believing in the right way to win games. You need to stick by that, no matter how loud the crowd is or how big the game is.
+- The Championship is relentless sometimes with the Saturday, Tuesday, Saturday, Tuesday.
+- When you bring a lot of new players in, that is the hardest thing, getting everyone playing together.
+- But last summer I signed a contract extension and that was me committing my future to Fulham. I live around here, I'm settled. I love it.
+- I obviously want to play in the Premier League and if I can do that with Fulham it would be amazing.
+- I wanted to show my happiness to the fans, let them know that I want to be here and try to take Fulham forward.
+- For a long time at Blackburn and at Fulham last season, I was playing on the right wing. I've never seen myself as a right-winger. I could play there and come inside and try to create.
+- I try to keep in contact with the fans on social media.
+- I don't think the bottom beats the top very often in the Premier League, if ever.
+- Football is strange like that. People become a big part of your life and then they lose a job and you might never see them for the rest of your lives. It's the worst thing about football, really.
+- I feel a responsibility to Fulham. It's been great ever since I arrived. I enjoy playing football, I really enjoy playing it at the Cottage and long may it continue.
+- The play-offs are a great occasion to be involved in; the semi-finals were amazing. When you're in it it's special and you do enjoy it but if you are in it, you have to win it. It's a lot of pressure.
+- The Championship is one of the best leagues to watch in the world.
+- It is a little bit strange from when you share a dressing room with someone, you play with them and then all of a sudden they are your manager but you used to have conversations with them that stay in dressing rooms and now you can't really have those conversations!
+- Everyone is different but I love to watch that type of football: the clever players, the technical players. The beautiful game.

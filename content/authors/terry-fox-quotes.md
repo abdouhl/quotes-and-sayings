@@ -1,0 +1,31 @@
++++
+author = "Terry Fox"
+title = "Terry Fox Quotes"
+quotes_len = "25"
+description = "the best 25 Terry Fox Quotes"
++++
+- If they are not positive about the run, I won't talk to them. I'm not here to play games with the media.
+- One Roman Catholic School I will never forget. They sang a song to receive me. Part of the words were, 'Thank you, Lord, for giving us Terry.' It was beautiful; it really brought tears to my eyes.
+- It was really beautiful. The mayors of Glovertown and Gambo introduced me, and then I talked to the crowd. In fifteen minutes, we raised more than $700 in a town with less than 3,000 people. It was a fantastic feeling and a day I will never forget because I hope it is a start of things to come.
+- Our privacy is starting to be invaded and we can't get anything done. I'm happy with the fundraising but upset we don't have time to talk and meet with people.
+- One thing hurts me. I keep hearing 'Terry Fox.' I'm not doing the run to become rich or famous... To me, being famous is not the idea of the run. The only important part is that cancer can be beaten.
+- Twenty-six miles is now my daily minimum.
+- Even though I'm not running anymore, we still have to try to find a cure for cancer. Other people should go ahead and try to do their own thing now.
+- I have a saddened and weakening attitude toward the media and press.
+- There might have been a thousand people who had a better athletic feat than what I did. So for me, just the fact that they gave Canadian Athlete of the Year - and also, I was voted third in the Male Athlete of the Year - the fact that some people did consider what I did an athletic feat, that really makes me feel good.
+- Even if I don't finish, we need others to continue. It's got to keep going without me.
+- Who would have thought it would be possible to run across Canada on one leg, eh? I wanted to try the impossible and show that it could be done.
+- I don't feel that this is unfair. That's the thing about cancer. I'm not the only one; it happens all the time to people. I'm not special.
+- I do have a belief in God, and no matter what happens to me, things are gonna be OK. It doesn't matter whether the tumours have spread or not, because either way, I'm gonna turn out a winner.
+- The Cancer Society here in Nova Scotia is doing nothing, and money is being wasted. I would love to get my hands on the people in Halifax.
+- I just wish people would realize that anything's possible if you try; dreams are made possible if you try.
+- I've said to people before that I'm going to do my very best to make it, and I'm not going to give up. And that's true. But I might not make it. And if I don't make it, the Marathon of Hope better continue.
+- The only thing I want to sponsor is cancer, and cancer can be beaten. Not any other product. And I hope nobody tries to use me, because I won't let them.
+- When I started this run, I said that if we all gave one dollar, we'd have $22 million for cancer research, and I don't care, man, there's no reason that isn't possible. No reason!
+- I am tired and weary because people are continually forcing me off the road. I was actually honked off once.
+- Maybe now, instead of being afraid and saying, 'Look how hard Terry tried, and he still got cancer,' instead people will say, 'Look at the effort he put in, and he died of cancer. We're really going to have to try hard in order to beat it - harder than we ever have before.'
+- I loved it. I enjoyed myself so much, and that was what other people couldn't realize. They thought I was going through a nightmare running all day long.
+- If I ran to a doctor every time I got a little cyst or abrasion, I'd still be in Nova Scotia.
+- I bet some of you feel sorry for me. Well don't. Having an artificial leg has its advantages. I've broken my right knee many times and it doesn't hurt a bit.
+- If there's a pro-Canadian, or someone who's a real proud Canadian, I am. Nobody in Canada would want a united Canada more than me.
+- It almost hurts me to walk down a road and have people grab my hand and ask for my autograph and not sit and talk. When I'm finished I'm not going to be on the front page, but I'm going to be just as happy without the publicity.

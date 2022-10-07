@@ -1,0 +1,22 @@
++++
+author = "Natasha Henstridge"
+title = "Natasha Henstridge Quotes"
+quotes_len = "16"
+description = "the best 16 Natasha Henstridge Quotes"
++++
+- I think I have been very lucky as far as my acting career goes.
+- I believe that every role that I have done this far has had quality and content. My roles have been very demanding and every role has been a challenge and a learning experience that has helped me mature as an actress.
+- I was a tomboy right from the time I was a kid and loved to be like that. I'd hate all the girlie things. Well my best friends as a kid have been boys. I get along best with the opposite sex. I guess that's the case with most people though!
+- Where is this Hollywood scene, where is it? I'd like to find it one day... If I want to go out and have a good time, I go to New York.
+- Even my parents are so cute, and they deal with every movie of mine excellently. They check with me ever so casually by asking 'Now how much of nudity are we going to see in this one?'
+- I began as a model, but that did not really hold my interest for too long! I believe I stood out from the parade of models trying to make it in Hollywood, which helped launch my career beyond the one-night-stand horror movie.
+- I started off as a model and struggled for some time until I got a break as an actress. I was too stubborn to let go and was sure I was in the right place at the right time. I just fought and I think that's how I am where I am today.
+- It is kind of cliche to say you like a man to smell like a man, but I really do. My husband can go three or four days without taking a shower and the man never smells.
+- When you're doing some things that are damaging you, you don't really realise it at the time.
+- The nude scenes were a little eerie and I felt a bit odd. Yeah, when the camera scanned up my body, I said to my friend, 'Now, that's a close-up.' I mean, you see every inch of my body. But I'm okay with it and so it was cool.
+- My main aim has always been to do good quality films with roles that have some substance. With Power and Beauty there were loads of things that I liked about the movie, which made me opt for it.
+- When I started off, I didn't only ride to fame on my looks though many people I know think otherwise.
+- Well, I have a couple of projects in the pipeline, but I'm taking things slow for now and being choosy about the roles I take up. One thing I can assure you of is that you are going to see a lot of me!
+- Today, I guess I give a lot more thought to the roles before I sign them.
+- I never forget my old days and I never fly too high I have my feet fixed firmly on the ground!
+- I guess Species was a movie made for me and hence I bagged the role. In fact even when acting, I never thought the outcome would be so good which I think it was! The entire role was a challenge. I was to be this strange yet sexy thing which was challenging!

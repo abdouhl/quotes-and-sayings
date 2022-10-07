@@ -1,0 +1,70 @@
++++
+author = "Theodore Bikel"
+title = "Theodore Bikel Quotes"
+quotes_len = "64"
+description = "the best 64 Theodore Bikel Quotes"
++++
+- One might have thought the world would stop ascribing moral equivalence between acts of terrorism and acts of punishing terrorism. It has not happened that way.
+- No doubt unity is something to be desired, to be striven for, but it cannot be willed into being by mere declarations.
+- You can't expect the entire world to come to New York to see you. You have to travel to them.
+- I know for certain of only one commandment, one obligation, that God imposes upon us, and that is to be compassionate toward other human beings.
+- I'm exceedingly proud of being an actor, but I never recommend it to anyone.
+- Every actor wants to direct.
+- I remain convinced that I can be a true universalist only when I am a better Jew.
+- But there is a difference here: When Jewish children are murdered, Arabs celebrate the deed. The death of an Arab child is no cause for celebration in Israel.
+- But, when I toil in the field of Jewish culture which I frequently do, I am indeed a Jewish artist.
+- I am not a specialist but a general practitioner in the world of the arts.
+- Although I am deeply grateful to a great many people, I forgo the temptation of naming them for fear that I might slight any by omission.
+- I am a Zionist, an ardent supporter of Israel, its defender when I deem Israel to be right and its critic when I deem it to be wrong.
+- I am first, and foremost, an actor. That's what I am. To me, a song is a mini-drama. My musical ability informs the actor as well because it gives me a sense of timing that non-musicians don't have. So, one hand washes the other.
+- You always draw on your experiences with live audiences to know how to do comedy on films. You're working for a laugh that may or may not come six months later, but you're working in a vacuum at the time you are doing it.
+- I have always striven to raise the voice of hope for a world where hate gives way to respect and oppression to liberation.
+- I prefer to make common cause with those whose weapons are guitars, banjos, fiddles and words.
+- I do prefer the stage. It's really the granddaddy of them all.
+- In my mind the city of Ariel is a thorn in Israel's side and a serious obstacle to peace.
+- 'Visiting Mr. Green' is a good play. I enjoy being in it, and I have a wonderful colleague, Aidan deSalaiz, to work with. Audiences like it a lot. What's not to like?
+- By showing hunger, deprivation, starvation and brutality, as well as endurance and nobility, documentaries inform, prod our memories, even stir us to action. Such films do battle for our very soul.
+- In my world, history comes down to language and art. No one cares much about what battles were fought, who won them and who lost them - unless there is a painting, a play, a song or a poem that speaks of the event.
+- We live in a world of guns, bombs and terror. To conquer hate seems a nigh-impossible task.
+- I am not, and have never been, in favor of boycotting Israel.
+- 'Retiring' - within that word is 'tiring,' and I'm not tired. I don't believe in retirement, really.
+- As an artist I have an even more abiding interest in the compact between the Arts and Government.
+- Having come to live in this age is as though one were to have entered another country. Learn its language or risk being left out.
+- We Jews have a special attachment to the Book. The study of page after page in tomes yellowing with age was obligatory.
+- I created the role of Captain Von Trapp.
+- I don't speak out because I am an actor nor will I keep silent because I am an actor. I respect my profession, but it endows me with no special privileges; but it also does not limit me or muzzle me. I am a person and a citizen with the attendant responsibilities of voice and vote.
+- When something is moving you get that intake of breath and that stillness from the audience.
+- For I firmly believe that Jewish life, indeed any communal life, can only be organized according to democratic principles.
+- If I have one vanity wish, it would be to direct. It's the only thing I haven't done yet that I would like to.
+- I tried for a while to be an agricultural worker and was hopelessly bored. I would stand around in heaps of manure and sing about the beauty of the work I wasn't doing.
+- After the advent of the written word, the masses who could not - or were not permitted to - read, were given sermons by the few who could.
+- Despite a large body of work in films, TV, theatre and concerts, I am viewed by many as a Jewish artist. I do not resent the label, except for the fact that I disapprove of labels in general.
+- You cannot please all of the people all of the time, and that is truer in the arts than anywhere else.
+- You don't really need modernity in order to exist totally and fully. You need a mixture of modernity and tradition.
+- No movement can afford to be caught in a time warp and exist in a state of suspended animation.
+- Must we be put to shame by much smaller and poorer countries, by Ireland, France, Austria or Sweden, who have understood that a nation's support of its arts is a matter of both national pride and cultural survival?
+- An actor is supposed to emulate life. Instead, alas, many are imitating other actors. You don't fashion your knowledge of theatre or your approach to a role on the basis of what other actors have done. This kind of thinking is a great danger, especially in dealing with TV producers who frequently say things like, 'This is a Sean Connery type.'
+- I glory in the fact that a human being has multiple talents and exercises them all with a degree of integrity and artistic proficiency. That's what I do.
+- It's a sad thing to contemplate, but I'm the last surviving cast member of 'The African Queen.'
+- You learn more from the flops than from the hits.
+- I prefer to choose which traditions to keep and which to let go.
+- Throughout my life I have cared as deeply about the songs of all peoples as I have about the rights of all peoples.
+- No heirloom of humankind captures the past as do art and language.
+- There is no role I cannot play except a midget.
+- On the stage you're there, it's live. There's a beginning, a middle, an end. When something is funny you hear it right away.
+- I am a universalist, passionately devoted to the cause of equality within the human family.
+- What moves me is neither ethnocentric pride nor sectarian arrogance. I make no claim that Jewish culture is superior to other cultures. But it is mine.
+- No doubt, unity is something to be desired, to be striven for, but it cannot be willed by mere declarations.
+- I am determined to give the Yiddish language a fighting chance to survive.
+- Accents. I'm very good with accents. I'm exceedingly good.
+- Right up to the middle of this century all perceptions of the world around us were delivered via the bookshelf or the paper route.
+- I refuse to do shows that are narrowly constructed, that appeal to only one sentiment. I do a lot of Jewish material in front of non-Jews and a lot of non-Jewish material in front of Jews on the simple theory that the non-Jews are entitled to a glimpse of a Jewish world and the Jews are entitled to a glimpse of the world.
+- I am filled with awe that filmmakers have the capacity to stir us and give us back a sense of wonder.
+- Epistemology is the study of knowledge. By what conduit do we know what we know?
+- All too often arrogance accompanies strength, and we must never assume that justice is on the side of the strong. The use of power must always be accompanied by moral choice.
+- I always sang, I always acted, I always played.
+- I do not know who there is among us that can claim to know God's purpose and God's intent.
+- While we all could agree that the Zionist ideal is alive and well, there is serious doubt whether the Zionist movement can be said to be an ongoing proposition, fragmented as its components are in ideology and in practice.
+- The play is always fresh to me. It's not the audience's fault that I've said the words before.
+- Audiences are audiences.
+- I make no claim that Jewish culture is superior to other cultures or that the Jewish song is better than the song of my neighbor.

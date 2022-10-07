@@ -1,0 +1,23 @@
++++
+author = "George Newbern"
+title = "George Newbern Quotes"
+quotes_len = "17"
+description = "the best 17 George Newbern Quotes"
++++
+- I think any politician, regardless of their religious conviction, has to be a megalomaniac - they have to be! Anyone who works in that kind of job has to be so full of himself to do that kind of thing.
+- I go to the Catholic Church. God is an important part of my life. If he was not, I don't think I could have survived.
+- With a movie, the die is cast. It is what it is. With TV, it's a living organism in a way. Fans can have input, with the whole social media thing, and they can track what fans are liking and not liking.
+- Acting in Los Angeles can be very isolating because you either have a job or you don't have a job - and if you don't have a job, it's all about getting out of your house. It sucks to sit around waiting. That's death.
+- When I first came to L.A., I was plotting out my career choices as if I actually had a choice. Unless you're Brad Pitt, Johnny Depp, impossibly good-looking, or look like a freak, you have to be malleable and open to everything that comes your way because that's what makes it possible to pay your mortgage and eat.
+- I did a lot of musicals when I was younger. And then I went to Northwestern University, and I did more musicals. I went on to do more work in Chicago, and then while I was in college, I got flown out to Los Angeles to do a screen test for 'Back to the Future.' When I got to Los Angeles, I was like, 'Hmmm, this is different.'
+- Look at these ISIS people. These people are ruthless. They don't operate by any sort of normal civilized code. That's the world. There's a shadow world that exists out there.
+- No one really cares about you but you. They say they do, but everyone in Hollywood is a heat-seeking missile, and it's easy to go after the cute girl or guy that's new to town.
+- I wasn't that great in sports. I started doing children's theater and loved it. I thought I had a great thing going with musicals. I thought, 'I can do this. It's fun.' I wanted to go for it, and I thought I'd like to make a living doing this.
+- Raising children is like a hit and run. You've been hit, you can't flag the person down, you're wounded and you don't know who to blame, and no one helps you. And it's weeks, maybe months, before you find out what really happened.
+- As an actor, you always feel like you're not going to work again. You're always unsure about how things are going to work out, and you start thinking you're going to just fade off into the distance.
+- I've done every imaginable job possible out there - movies, TV, animation, TV movies... and, at this point, almost reality, it seems. It's been a real blessing. It's been a great ride.
+- I'm in the mood for 'Shark Tank' sometimes. When I am, my son and I can't stop watching. But I probably watch 'The Bachelor' more, and Scott Foley and I text about it, like, 'Oh my God, did you see that?!' I love it. It's such a train wreck.
+- Doing narration is a totally different art form. I do some video games, and some that I've done are iconic.
+- I keep all irons in the fire because, 'You never know.' It's because I have to, and otherwise, life gets boring.
+- With Superman, super powers are just ancillary. It's that character, with all those principles and understanding... that's who he is right there. I think I tried to portray a sense of trust and power and charisma for Superman. That's what we believe Superman is.
+- I did a movie with Christopher Reeve when I first came to L.A. called 'Switching Channels.' I asked him if it was weird to be Superman. He said, 'You know, George, I've fought against this whole Superman thing, but one day I realized, 'Hey, I'm Superman.'' So, at some point, I just started saying, 'Good for me, I'm Bryan MacKenzie.'

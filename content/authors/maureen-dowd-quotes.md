@@ -1,0 +1,45 @@
++++
+author = "Maureen Dowd"
+title = "Maureen Dowd Quotes"
+quotes_len = "39"
+description = "the best 39 Maureen Dowd Quotes"
++++
+- It takes a lot of adrenaline and fear to make me actually write.
+- Eric Schmidt looks innocent enough, with his watercolor blue eyes and his tiny office full of toys and his Google campus stocked with volleyball courts and unlocked bikes and wheat-grass shots and cereal dispensers and Haribo Gummi Bears and heated toilet seats and herb gardens and parking lots with cords hanging to plug in electric cars.
+- When you go into a fight saying you're probably going to lose, you're probably going to lose.
+- The Clintons want to do big worthy things, but they also want to squeeze money from rich people wherever they live on planet Earth, insatiably gobbling up cash for politics and charity and themselves from the same incestuous swirl.
+- My eating habits were so bad for many years that I didn't actually know the intricacies of making a salad.
+- One must not attempt to justify them, but rather to sense their nature simply and clearly.
+- Digital platforms are worthless without content. They're shiny sacks with bells and whistles, but without content, they're empty sacks. It is not about pixels versus print. It is not about how you're reading. It is about what you're reading.
+- For two centuries, the South has feared a takeover by blacks or the feds. In Obama, they have both.
+- If Americans are worried about money in politics, there is no larger concern than the Clintons, who are cosseted in a world where rich people endlessly scratch the backs of rich people.
+- Americans want to be protected, but not at the cost of vitiating the values that make us Americans.
+- The Republican game is hilariously transparent: if Obama doesn't shift to more muscular postures, he's not a patriot. If he does, he's a flip-flopper.
+- We are supposed to believe that every dollar given to a Clinton is a dollar that improves the world. But is it? Clintonworld is a galaxy where personal enrichment and political advancement blend seamlessly, and where a cast of jarringly familiar characters pad their pockets every which way to Sunday.
+- I find having a column a very difficult form of journalism. I'm not a natural like Tom Friedman and Anna Quindlen.
+- Everybody is continuously connected to everybody else on Twitter, on Facebook, on Instagram, on Reddit, e-mailing, texting, faster and faster, with the flood of information jeopardizing meaning. Everybody's talking at once in a hypnotic, hyper din: the cocktail party from hell.
+- Washington is a place where people have always been suspect of style and overt sexuality. Too much preening signals that you're not up late studying cap-and-trade agreements.
+- The guilty pleasure I miss most when I'm out slogging on the campaign trail is the chance to sprawl on the chaise and watch a vacuously spunky and generically sassy chick flick.
+- The minute you settle for less than you deserve, you get even less than you settled for.
+- I feel like I owe it to the readers to try to pull back the veil and give them the honest version of what's going on. But it's not more fun. If Obama, as he does sometimes already, gets a little snippy with me about something I've written, you're thinking, 'Oh God, the president of the United States is already annoyed with me.'
+- I'm into clothes, but in a way that's related to wanting to walk into a film noir movie. You know, I love to go to vintage stores, but mostly it's stuff that I don't have anywhere to wear... I don't have the life that goes with the clothes.
+- As blue chips turn into penny stocks, Wall Street seems less like a symbol of America's macho capitalism and more like that famous Jane Austen character Mrs. Bennet, a flibbertigibbet always anxious about getting richer and her 'poor nerves.'
+- Journalism, spooked by rumors of its own obsolescence, has stopped believing in itself. Groans of doom alternate with panicked happy talk.
+- Obama invented himself against all odds and repeated parental abandonment, and he worked hard to regiment his emotions. But now that can come across as imperviousness and inflexibility. He wants to run the agenda; he doesn't want the agenda to run him. Once you become president, though, there's no way to predict what your crises will be.
+- If there's one thing white men have never had a problem with in this clubby, white marble enclave of Washington, it's getting pulled up the ladder by other men.
+- Obama hates selling. He thinks people should just accept the right thing to do.
+- Celebrity distorts democracy by giving the rich, beautiful, and famous more authority than they deserve.
+- F.D.R. achieved greatness not by means of imposing his temperament and intellect on the world but by reacting to what the world threw at him.
+- Obama sees himself as such a huge change that he can be cautious about other societal changes. But what he doesn't realize is that legalizing gay marriage is like electing a black president. Before you do it, it seems inconceivable. Once it's done, you can't remember what all the fuss was about.
+- Maybe Obama was not even the person he was waiting for.
+- Reagan didn't socialize with the press. He spent his evenings with Nancy, watching TV with dinner trays. But he knew that to transcend, you can't condescend.
+- When I started as a White House correspondent, there was a lot of criticism from guys saying, 'She focuses too much on the person but not enough on policy.' I never understood that argument at all. I just didn't agree with the premise.
+- It's passing strange that Obama, carried to a second term by women, blacks and Latinos, chooses to give away the plumiest Cabinet and White House jobs to white dudes.
+- The Obamas, especially Michelle, have radiated the sense that Americans do not appreciate what they sacrifice by living in a gilded cage. They've forgotten Rule No. 1 of politics: No one sheds tears for anyone lucky enough to live at the White House.
+- As a woman, I know that if I write about another woman, it will be perceived as a catfight.
+- The wound-tight, travel-light Obama has a distaste for the adversarial and the random. But if you stick too rigidly to a 'No Drama' rule in the White House, you risk keeping reality at bay. Presidencies are always about crisis management.
+- Wooing the press is an exercise roughly akin to picnicking with a tiger. You might enjoy the meal, but the tiger always eats last.
+- President Obama thinks he can use emotion to bring pressure on Congress. But that's not how adults with power respond to things.
+- The C.E.O. of Google doesn't look like a Dick Cheney World Domination sort whom we should worry about as Google ogles our houses, our oceans, our foibles, our movements and our tastes.
+- Why can't Google, which likes to see itself as a 'Don't Be Evil' benevolent force in society, just write us a big check for using our stories, so we can keep checks and balances alive and continue to provide the search engine with our stories?
+- And as far as doing God's work, I think the bankers who took government money and then gave out obscene bonuses are the same self-interested sorts Jesus threw out of the temple.

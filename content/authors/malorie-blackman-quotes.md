@@ -1,0 +1,62 @@
++++
+author = "Malorie Blackman"
+title = "Malorie Blackman Quotes"
+quotes_len = "56"
+description = "the best 56 Malorie Blackman Quotes"
++++
+- I remember being in a history lesson and saying to my teacher, 'How come you never talk about black scientists and inventors and pioneers?' And she looked at me and said, 'Because there aren't any.'
+- I think what we need, especially in publishing, is more commissioning editors and editors who are people of colour.
+- What I want is to try and get across the idea that reading for pleasure is so beneficial. And turn children on who have maybe been switched off reading or never found a love of it in the first place.
+- I believe each individual can have a say and make a difference.
+- Part of my job as Children's Laureate is to visit schools and talk about my love of books and stories and encourage them all to do it as well - to read, to write, to never be afraid of their own voice. Because we all have something to say.
+- I didn't even enter a bookshop until I was 14 because I couldn't afford books until I got my first Saturday job, but by the time I was six or seven, I spent practically every Saturday down my local library reading as much as I could and getting out as many books as I could.
+- Reading is an exercise in empathy; an exercise in walking in someone else's shoes for a while.
+- The worst thing about being the laureate has been the attitude of a tiny minority of adults who haven't liked some of the things I'm supposed to have said and who have used it as an opportunity to be verbally abusive and nasty, but I haven't let it rule my world!
+- I subscribe to the online Urban Dictionary's definition of nerd: 'one whose IQ exceeds his weight'. I'm also keen on the same Urban Dictionary's definition of geek: 'the person you pick on in high school and wind up working for as an adult'. I happily proclaim myself a book nerd/reading geek and proud of it.
+- I think fan fiction is the way most writers start, and the same goes for music and design.
+- Books allow you to see the world through the eyes of others.
+- What I'm trying to do is to write a story. If you take something from it, that's wonderful; if you don't, that's wonderful as well.
+- I remember, when I was at school, we would have a 10-minute storytelling session where we'd all sit on the floor cross-legged, and the teacher would read. It became something we all really looked forward to. That was part of the reason I grew to love stories.
+- I would like to use stories as a springboard for children to make their own creative responses. I would like to encourage them to express themselves using music, art, film or whatever, and upload it to a website having been inspired by particular stories.
+- I read a lot of highly unsuitable books for an 11-year-old. I was desperate to read as widely as possible. I thought, 'There are so many places I am never going to get the chance to visit, but I can if I read them.' And I did. I could go anywhere in the world - and off it - by reading.
+- Any anxieties publishers have about putting a child on the front cover of a book who isn't white is very old fashioned.
+- When I was a child, we used to look forward to the end of the day when we would hear another ten minutes of a story.
+- In a television interview, I said that diversity in our children's books should include the adventures of disabled children, travellers and gipsies, LGBT teens, different cultures, classes, colours, religions. It shouldn't be a token gesture, nor do such stories need to be 'issue-based'.
+- History should belong to all of us, and it needs to include people from different cultural backgrounds. Otherwise, it risks becoming irrelevant to children, who could then become disenchanted with education.
+- The best thing about being Children's Laureate has definitely been all the children and teens I've met.
+- I work in my attic, and the view is next door's chimney stack.
+- Shakespeare's 'Othello' was inspired by Cinthio's 'A Moorish Captain'; his 'Hamlet' came from Saxo Grammaticus's 'Amleth.'
+- I hope to instill, in every child I meet, my love and enthusiasm for reading and stories.
+- I have encountered those who feel that libraries have served their purpose and are no longer needed. There are those who consider them a soft target when it comes to local authority budget cuts. In certain political quarters, there is a refusal to see that our public library service needs active protection.
+- Books teach children to see the world through the eyes of others and empathise with others. It's about the story.
+- You can have all the talent in the world, but without determination, you won't get very far.
+- I started reading seriously at seven or eight, books about myths and legends, the Narnia series. By the time I was 11, I had read all the children's books in my local library, so I moved on to 'Jane Eyre.' What I loved about Jane Eyre was that she didn't rely on her looks but her character. She had a spirit nobody could break.
+- A film of my life would never happen!
+- Life isn't about quantity, it's about quality.
+- When I wrote 'Noughts and Crosses', I was halfway through it when I realised this was very like 'Romeo and Juliet'... as long as you make it your own, and put your own spin on it, I think it's brilliant to use other great work to find your own voice.
+- I remember going into a bookshop, and the only book I saw with a black child on the cover was 'A Thief in the Village' by James Berry, and I thought, 'Is this still the state of publishing?' Then I thought, 'Either I can whine about it or try to do something about it.'
+- Children find prescriptive reading lists daunting, and they are a dangerous thing to have in schools.
+- I personally, as a teenager, didn't like books I felt were trying to preach to me... I did not believe in happy endings. I wanted to read books which reflected life as I thought I knew it.
+- I wanted to have a body of work behind me before I wrote about racism.
+- I'm one of the few adults lucky enough to love their job. And when you've got bills to pay, you get on with it! I like challenges.
+- We need more people working in the publishing industry itself who are people of colour.
+- A good book is a good book. End of story.
+- We had a few non-fiction books at home, but my dad was of the opinion that fiction was a complete and utter waste of time because it wasn't real - so what was the point of reading it?
+- I would like to champion diverse forms like graphic novels and works told in verse and diverse writers and illustrators and diverse authors as well.
+- A love of books has opened so many doors for me. Stories have inspired me and taught me to aspire.
+- What I wanted to do was use literature and different kinds of stories and poems as a springboard, tapping into the creativity of our teens - I wanted teenagers to come up with their own creative responses to literature - using books themselves as a starting point.
+- What I would like to do is make sure every primary school child has a library card, so where parents don't get their children library cards, we'll see if we can get schools to step in and make sure that every child has one.
+- Children will go with any story as long as it's good, but white adults sometimes think that if a black child's on the cover, it is perhaps not for them.
+- Being the Children's Laureate has been educational, sometimes hectic, but most of all, great fun.
+- Book sales and teens reading is always a fantastic thing, but we should also be celebrating and consuming the huge wealth of U.K. and U.K.-based writing and illustrating talent. Authors such as Charlie Higson, Darren Shan, Holly Smale, Tanya Byrne, Catherine Johnson, Sophie Mckenzie, to name but a few.
+- I suppose I've always lived in my own head. I didn't discover boys till sixth form. Then suddenly it was, 'Oh! Boys!'
+- I loved reading when I grew up but did feel totally invisible because I couldn't see myself and my life reflected in the books I was reading.
+- If a child wants to read 'Twilight' over Middlemarch, they should be encouraged - the important thing is to get them reading in the first place.
+- When I was a teenager, reading for me was as normal, as unremarkable as eating or breathing. Reading gave flight to my imagination and strengthened my understanding of the world, the society I lived in, and myself. More importantly, reading was fun, a way to live more than one life as I immersed myself in each good book I read.
+- I believe we need more culturally diverse books - about disabled characters, though not about their disability, about people with different sexual orientations, or a boy who is a cross-dresser. We need to reflect the diversity of our society.
+- When life knocks you down, keep getting up.
+- I try to widen the horizons of every child I meet, and part of that is promoting diverse forms, be it graphic novels, stories told in a narrative voice, or more translated books, as well as more diverse writers and more diverse characters.
+- I don't believe in regrets. There are a few things I'd do differently, but I can't go back in time and redo them, however much I might wish to. All I can do is learn from past mistakes and move forward.
+- There is a saying: 'The child is parent to the adult', which means whatever happens to you as a child or teenager affects the adult you become. You are forged in your history. And fiction is an incredibly important force in shaping children, and that's why fiction needs to be diverse.
+- Teenagers are some of the most passionate, dynamic and creative people I know. Yet, too often, this creative spark is left to flicker precariously and sometimes fade entirely.
+- I'm a voice for children's books and children's reading.

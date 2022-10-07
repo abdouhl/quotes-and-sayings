@@ -1,0 +1,24 @@
++++
+author = "Kate Bernheimer"
+title = "Kate Bernheimer Quotes"
+quotes_len = "18"
+description = "the best 18 Kate Bernheimer Quotes"
++++
+- With our evolved busy hands and our evolved busy brains, in an extraordinarily short period of time we've managed to alter the earth with such geologic-forcing effects that we ourselves are forces of nature. Climate change, ocean acidification, the sixth mass extinction of species.
+- When humans become gods, when our wings grow so great as to beat about the very edges of the earth, no one can answer but us.
+- As a reader, coming to my reading as a writer immersed in fairytales, I can't help but notice in so many stories, plays, poems that I read, the sort of breadcrumbs of fairytale techniques, so I'm very excited when I notice that.
+- It wasn't until I was an adult reader that I began to fathom the influence of fairy tales on writers I was in love with over the years, from Louisa May Alcott to Bernard Malamud to John Cheever to Anne Frank to Joy Williams.
+- When I first read Anne Frank's 'Diary of a Young Girl,' I saw for the first time that a girl could be a writer and that it had something to do with survival and with ethics and fighting against evil. I admired her, though her diary remained terrifying and mysterious to me. She was a character in a real fairy tale - fairy tales are brutal.
+- Well documented, the relationship of literature to myth in the Western world has undergone much change over the millennia, as first the age of gods fell away before the notion of a single god, and then, for many people, that single god slipped away, too.
+- There are recurring elements in popularized fairy tales, such as absent parents, some sort of struggle, a transformation, and a marriage. If you look at a range of stories, you find many stories about marriage, sexual initiation, abandonment. The plots often revolve around what to me seem to be elemental fears and desires.
+- When I wrote the eight fairy tales that appear in 'Horse, Flower, Bird' I was working toward a completely new form of artistic expression, trying to create a new kind of tale that also felt vintage: innocent and childlike, but haunted. I tried to write a picture-less picture book.
+- As I read more and more fairy tales as an adult, I found massive collusion between their 'subjects' and those in my fiction: childhood, nature, sexuality, transformation. I realized that it wasn't by accident that I was drawn to their narrative structure and motifs.
+- Books are no different from goats! They enjoy an afternoon out on the lawn.
+- Sometimes, violent details have been eliminated from fairy tales simply because they were deemed too graphic. So one does not, at the end of Disney's version of 'Cinderella,' see the stepsisters' eyes get pecked and pecked by doves, because Disney wanted to market the story for wholesome family viewing.
+- I often visit Maria Tatar's 'The Grimm Reader' for a cold dose of courage. Her translations come from the Brothers Grimm, whose now-famous collection of 'Kinder- und Hausmarchen' ('Children's and Household Tales') was first published in 1812. The book was not intended for young readers.
+- I have been writing fairy tales for as long as I can remember. Not much has changed in terms of my natural attraction to the narrative techniques of fairy tales. My appreciation of them in the traditional stories has deepened, especially of flat and unadorned language, intuitive logic, abstraction, and everyday magic.
+- I love the idea of the 'vignette,' which is associated with the decorative, illustrative, small, and thus with the feminine, and thus easily maligned. I mean, Emily Dickinson wrote vignettes, right?
+- I think pink is one of the saddest colors in the world, and many American humans are taught not to take anything pink seriously, which is weird.
+- As scientists have discovered - or perhaps explained is a better word, or perhaps identified - we now live in the age of the Anthropocene. The geologic age of the Anthropocene. Those high priests of material evidence have given us our own epoch like the Holocene, the Pleistocene! Apparently we now, it seems, have superhuman powers.
+- In the old fairy tales, often a 'moral' was tacked on at the end of the story - say, if a book was going to be marketed to young readers. And the morals don't really suit the stories at all, which makes them super weird - part of why I love the tradition so much. I do play with this, though I am more concerned with ethics than morals.
+- People tend to think of fairy tales as 'archetypal.' They are also extremely sensual, something which translates well over the ages.

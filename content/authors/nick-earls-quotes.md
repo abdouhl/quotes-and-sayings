@@ -1,0 +1,21 @@
++++
+author = "Nick Earls"
+title = "Nick Earls Quotes"
+quotes_len = "15"
+description = "the best 15 Nick Earls Quotes"
++++
+- I grew up in a family full of strong women. A great aunt on my mother's side had been a matron on a hospital ship in World War II, and one on my father's side had served in the Women's Royal Naval Service.
+- One of the most interesting female characters I've written about was Meg Riddoch, the lead character in 'The Thompson Gunner'.
+- I got into writing because books and stories were always a big part of my life. I loved listening to them and then reading them, and I loved making them up.
+- I'm happy to work until I'm 70 if I'm able to. Actually, I'm happy to keep writing as long as people keep buying my books.
+- I wrote my first novel-length story when I was 14 but had no idea what to do with it. Brisbane was a long way from the publishing industry then. Nowhere's a long way from the publishing industry now.
+- My maternal grandmother was the longest-lived of my grandparents. She migrated to Australia in her 80s and lived into her 90s. It was great that she got to be part of my adult life.
+- When I create a character, particularly my central character, I want someone who is interesting and feels real and who might have quite a few virtues but is unlikely to be perfect, who hasn't necessarily made all the right choices.
+- I want to grow up to be Tom Keneally or David Malouf: still in the game, relevant, putting out quality work, and paying tax aged 78 and 80.
+- I think one of the things the writers' festival does that is very good is that it brings writers from around the world and around the country and locally and puts them all in the one spot together, and that's what a lot of the world's great writers' festivals do.
+- E-books present the greatest opportunity readers have ever had to find each other. It's a chance for stories written for paper to find new life and a chance for new stories to appear, freed from the constraints of paper publishing.
+- Being a parent means my time use has to be a bit more focused, but it also gives me a new non-writing dimension to my life, which is a healthy thing. I can't wander along for weeks with an idea drifting through my head - I have someone who will drag me back into life, and that's a good thing.
+- I like to jot down ideas on the back of envelopes and to recognise the potential value in small things. I also like the freedom to think without feeling compelled to write too early. Stories are often better if we can hold back and get to know the characters and the sounds of language.
+- When I was about eight, I realised the person whose name was on the book got money for it, and it seemed almost too good to be true that you could get paid for making things up.
+- Having to think so much about fictitious relationships that work or don't work, and with each relationship between characters managing to do one or other of those in its own peculiar way, I spend a lot of time thinking about relationships, real and imagined.
+- You can have your own language. You can have your own dialect; you can have your own way of saying things, but if you don't actually understand the way the language fits together, it's chaos.

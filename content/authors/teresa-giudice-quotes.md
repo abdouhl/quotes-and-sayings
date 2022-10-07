@@ -1,0 +1,106 @@
++++
+author = "Teresa Giudice"
+title = "Teresa Giudice Quotes"
+quotes_len = "100"
+description = "the best 100 Teresa Giudice Quotes"
++++
+- We're all works in progress and we'll all keep growing.
+- Clearly, I'm not psychic.
+- I absolutely love-love-love the summer. I love when it's hot outside.
+- Families have ups and downs, we all fight about stupid things, but at the end of the day, we're blood, and we love each other and we always will.
+- I only care about my family.
+- I have everything from leopard print slippers to leopard print sheets and pajamas.
+- I've had - after my mom passed away - like a lot of resentment, a lot of things that just happened after I lost my mom.
+- Everyone has issues, but they're always talking about my issues.
+- I've learned a lot by watching myself on television, and I hope I've changed for the better.
+- Kids are just full of energy.
+- I don't think there's any better present than something passed down from your mama, no matter what it is.
+- I have a fashion degree and worked as a buyer for Calvin Klein and Macy's before I had kids. I've always worked. I love to work. But my family comes first.
+- I don't want negative. I want peace.
+- If someone is nice to you, how can you be mean to them?
+- It's fun to be silly sometimes!
+- Since my family is in the public eye, we've got to be strong, we've got to support each other, and we've got to stand united.
+- You do grow, and you learn from your experiences, and that's obviously what happened to me.
+- Everything about Italy is hot: the climate, the people, the fashion, even the shape of the country - how much hotter can you get than a tall boot with a high heel?
+- Everyone loves my sayings like, 'happy wife, happy life,' 'delicious and juicy,' 'love love love,' 'fabulous.' So I've made T shirts with that and hats and I've started a custom-made jewelry line.
+- Someone once described being a Housewife to me as being one big chess game, and in many ways, I guess it is for some people, but not for me.
+- Normally when you meet a person you don't like, you might have words with them, but then you walk away. When you're filming a show, you can't walk away.
+- As I've said before, I just want peace.
+- I've always been very open about how my mother taught me to cook and how I'm delighted to share my family's recipes.
+- If you know me, you know my parents mean everything to me. I love them so much and am very close to them.
+- There's no reason for me to lie. If I did something, I'll admit to it. I don't want to be accused of something I didn't do.
+- Going away to prison was nothing, I'm just saying, compared to losing my mom.
+- Leopard is timeless... especially in Jersey!
+- I'm religious about making sure I always moisturize and wear eye cream.
+- I cannot believe how blessed I am to have such amazing, amazing fans.
+- I'm always switching up my foundation. I like good coverage. I figure if you're going to wear foundation, it might as well have coverage.
+- Reality TV is hard. You put yourself out there and you have no control over which parts they show (and don't show). And you are shooting sometimes 15 hour-days for months and months. It's exhausting - physically and mentally.
+- I'm the type of person that forgives.
+- Whether you like it or not, with me, what you see is what you get.
+- I make 'skinny' Italian food.
+- Being on TV, there's good and bad, like anything else.
+- It's hard to keep moving forward, keep working, and keep your head up, but that's what strong women do. Especially being a mom, I can't fall apart.
+- My best friends - the people I trust the most - are Catholic, Jewish, African-American, gay, tall, short, blonde... you name it. I love people for their hearts, not their appearance or lifestyle.
+- Nothing could prepare you for being instantly famous.
+- I love the way yoga makes me feel and sharing that with other people so they can feel the way I do.
+- I'm a mom. I live for my daughters.
+- I do love to laugh!
+- I have to say 'Celebrity Apprentice' is an eye-opener - what people call each other, what people say about each other. This is different - because this is a business atmosphere, you would never expect it. There was a lot of cattiness going on. It was something that I wasn't used to.
+- I keep an open mind and try and make my opinions after I meet someone based on their actions toward me personally.
+- I try and see people for who they are, not who they're married to.
+- I have always said that 'The Real Housewives of New Jersey' has the most amazing and loyal fans on the planet.
+- I don't start shooting off my mouth. I'm not like that. I'm a mother.
+- You see, one of the things about being a Housewife, and a New Jersey Housewife in particular, is that most of the drama seems to happen behind the scenes when the cameras aren't around.
+- Please hug your parents while you have them, tell your children how much you love them every second of the day, and don't let the petty things in life separate you.
+- I'm really, truly, deep down happy for my friends when they do well. I want them to all succeed and be billionaires.
+- No woman has ever come up to me and said that my husband was having an affair with her.
+- I am an entrepreneur and I wanted everyone to see the business side of me, and everyone will get to see that on 'The Celebrity Apprentice.'
+- I have a lot of friends.
+- If you see my vanity, I have so much makeup.
+- I give people my heart right away, I trust them, and I'm loyal.
+- For anyone who wants to do yoga at any studio anywhere, check out TheYogaPass.com... it's fantastic!
+- I don't like to hold on to anger. It eats you up alive.
+- Those who know me well know that I don't wear my emotions on my sleeve like other people do. That's just the way I was raised.
+- In my book, that's the most important thing: loving and taking care of your family.
+- I'm a real housewife.
+- I do the laundry, cook all the meals, take care of my kids and I love it.
+- I don't hate any of the Housewives.
+- I really believe that being positive and being happy is a choice.
+- I love decorating the house, seeing my family, and spending time with my girls.
+- I think it's refreshing that someone on TV can admit they drink beer, eat meat, and wear fur.
+- Women are strong. We have babies. We do it all.
+- If you've seen me on 'The Celebrity Apprentice' or 'The Real Housewives of New Jersey,' you know that I find myself in hot situations far more often than I'd like.
+- When you're famous and you're young then you go partying, and you go to all the parties and stuff, I wasn't into that.
+- I don't think kids climbing up the leg of someone is a big deal.
+- When it's hot, there's no hiding. You have to face yourself and your neighbors and your body... and that's an amazing, happy thing!
+- You marry someone, they're supposed to protect you.
+- It's important for girls to have a strong father figure in their lives.
+- In the shower, I love to exfoliate my body.
+- People change. They get successful and change. They get unsuccessful and change.
+- I'd have to say that reality TV ruined our family, and it's a disgrace.
+- I'm honored to have so many beautiful, intelligent, loyal, and wonderful fans.
+- I don't live with my head in the sand - I see people's flaws. I don't like everything my friends do or say. But one, I don't judge or reprimand them to their face because it's not my job to tell them they're screwing up; it's just my job to love them.
+- I'm getting certified to become a teacher because I love it so much.
+- My great-grandmother taught my mom to cook and she passed down the recipes to me.
+- You can only get hurt so much before you get numb.
+- I adore my niece and nephews and love spending time with them.
+- Like some people they're into nannies and the whole social life and they don't spend time with their kids. I'm always with my kids.
+- My heart goes out to anyone who suffers, and of course, to their families.
+- My first and most important job is being a mommy.
+- You know, we live in a crazy world, I have to say.
+- You've got to have thick skin in this business.
+- I get it that lots of people want to get on TV. If you can get cast, God bless you. Just please don't do it by bashing my family.
+- It's one of the best parts of being on the 'Real Housewives' and why I love it: getting to talk to so many great people.
+- I adore my girls and I'm so proud of them. So proud to be their mama.
+- Housewives' is real, yes. We say what we're thinking at the time. But filming our real lives is a huge production that takes a long time. Sometimes you have to sit there for hours and hours while the show is being produced.
+- I want to spend time with family and friends who make me happy and don't try to hurt me or my family.
+- I'm the type that's always happy, I let things roll of my shoulder.
+- Believe me, I don't let my kids run wild. They are all such good kids with good hearts. They make me so proud!
+- The reaction I get from my fans is they love me, and I love them back.
+- I have the most amazing fans in the world and just want to tell you that I love, love, love, love you all!
+- Sometimes in life you reach your breaking point, when you just can't deal with something anymore.
+- My girls had to grow up quick because of everything we've been through.
+- I don't believe everything I read.
+- After I lost my mom, something snapped inside of me and I got really angry.
+- I'm humble - I'll always be humble. I'll never change, that's just not me.
+- I love hanging out with my family in the warm sunshine more than anything.

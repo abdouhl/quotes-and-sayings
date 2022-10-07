@@ -1,0 +1,112 @@
++++
+author = "Thich Nhat Hanh"
+title = "Thich Nhat Hanh Quotes"
+quotes_len = "106"
+description = "the best 106 Thich Nhat Hanh Quotes"
++++
+- We humans have lost the wisdom of genuinely resting and relaxing. We worry too much. We don't allow our bodies to heal, and we don't allow our minds and hearts to heal.
+- You accept that this civilisation could be abolished and life will begin later on after a few thousand years because that is something that has happened in the history of this planet. When you have peace in yourself and accept, then you are calm enough to do something, but if you are carried by despair there is no hope.
+- One Buddha is not enough; we need to have many Buddhas.
+- There are many, many Christians who practice Buddhism, and they become better and better Christians all the time.
+- In the past there were people who were not rich but contented with their living style, laughing and happy all day. But when the new rich people appear, people look at them and ask, 'why don't I have a life like that too, a beautiful house, car and garden,' and they abandon their values.
+- Nothing can be by itself alone, no one can be by himself or herself alone, everyone has to inter-be with every one else. That is why, when you look outside, around you, you can see yourself.
+- We fear that this moment will end, that we won't get what we need, that we will lose what we love, or that we will not be safe. Often, our biggest fear is the knowledge that one day our bodies will cease functioning. So even when we are surrounded by all the conditions for happiness, our joy is not complete.
+- To meditate means to go home to yourself. Then you know how to take care of the things that are happening inside you, and you know how to take care of the things that happen around you.
+- People sacrifice the present for the future. But life is available only in the present. That is why we should walk in such a way that every step can bring us to the here and the now.
+- We will be more successful in all our endeavors if we can let go of the habit of running all the time, and take little pauses to relax and re-center ourselves. And we'll also have a lot more joy in living.
+- Compassionate listening is to help the other side suffer less. If we realize that other people are the same people as we are, we are no longer angry at them.
+- I realize that many elements of the Buddhist teaching can be found in Christianity, Judaism, Islam. I think if Buddhism can help, it is the concrete methods of practice.
+- In Buddhist culture, offering food to the monk symbolizes the action of goodness, and if you have no opportunity to support the practice of spirituality, then you are somehow left in the realm of darkness.
+- With mindfulness, you can establish yourself in the present in order to touch the wonders of life that are available in that moment.
+- Because of your smile, you make life more beautiful.
+- If you truly get in touch with a piece of carrot, you get in touch with the soil, the rain, the sunshine. You get in touch with Mother Earth and eating in such a way, you feel in touch with true life, your roots, and that is meditation. If we chew every morsel of our food in that way we become grateful and when you are grateful, you are happy.
+- You know that your happiness and suffering depend on the happiness and suffering of others. That insight helps you not to do wrong things that will bring suffering to yourself and to other people.
+- If you have the chance to be exposed to a loving, understanding environment where the seed of compassion, loving kindness, can be watered every day, then you become a more loving person.
+- Fear, separation, hate and anger come from the wrong view that you and the Earth are two separate entities, the Earth is only the environment. You are in the centre and you want to do something for the Earth in order for you to survive. That is a dualistic way of seeing.
+- Every thought you produce, anything you say, any action you do, it bears your signature.
+- Happiness is the cessation of suffering.
+- If you're a politician, you might want to learn the Buddhist way of negotiation. Restoring communication and bringing back reconciliation is clear and concrete in Buddhism.
+- We can continue to learn generation after generation and now is time to begin to learn how to love in a non-discriminatory way because we are intelligent enough, but we are not loving enough as a species.
+- When you learn about the teaching and the practice of another tradition, you always have a chance to understand your own teaching and practice.
+- The practice of peace and reconciliation is one of the most vital and artistic of human actions.
+- When you love someone, the best thing you can offer is your presence. How can you love if you are not there?
+- Sometimes your joy is the source of your smile, but sometimes your smile can be the source of your joy.
+- Meditation can help us embrace our worries, our fear, our anger; and that is very healing. We let our own natural capacity of healing do the work.
+- There is no way to happiness - happiness is the way.
+- Let us fill our hearts with our own compassion - towards ourselves and towards all living beings.
+- Listening to and understanding our inner sufferings will resolve most of the problems we encounter.
+- You carry Mother Earth within you. She is not outside of you. Mother Earth is not just your environment. In that insight of inter-being, it is possible to have real communication with the Earth, which is the highest form of prayer.
+- Anyone who is practicing understanding and compassion can exemplify true power. Anyone can be a Buddha.
+- Freedom is not given to us by anyone; we have to cultivate it ourselves. It is a daily practice... No one can prevent you from being aware of each step you take or each breath in and breath out.
+- Mother Earth is very talented. She has produced Buddhas, bodhisattvas, great beings.
+- We have the tendency to run away from suffering and to look for happiness. But, in fact, if you have not suffered, you have no chance to experience real happiness.
+- Every breath we take, every step we make, can be filled with peace, joy and serenity.
+- Anger is like a storm rising up from the bottom of your consciousness. When you feel it coming, turn your focus to your breath.
+- When we recognise the virtues, the talent, the beauty of Mother Earth, something is born in us, some kind of connection, love is born.
+- Usually, people have a tendency to be caught in the worries concerning the future or in the regret concerning the past. There is some kind of energy that is pushing them to run, and they are not able to establish themselves in the present moment.
+- Science and mindfulness complement each other in helping people to eat well and maintain their health and well-being.
+- Changing is not just changing the things outside of us. First of all we need the right view that transcends all notions including of being and non-being, creator and creature, mind and spirit. That kind of insight is crucial for transformation and healing.
+- I love to sit and eat quietly and enjoy each bite, aware of the presence of my community, aware of all the hard and loving work that has gone into my food.
+- If you can feel that Mother Earth is in you, and you are Mother Earth, then you are not any longer afraid to die because the earth is not dying. Like a wave appears and disappears and appears again.
+- Many Communist government officials have a rigid, dictatorial power, but they live in constant suspicion and fear of anything that might undermine the power they have.
+- Fearlessness is not only possible, it is the ultimate joy. When you touch nonfear, you are free.
+- We need enlightenment, not just individually but collectively, to save the planet. We need to awaken ourselves. We need to practice mindfulness if we want to have a future, if we want to save ourselves and the planet.
+- Breathing in, I am aware of my heart. Breathing out, I smile to my heart and know that my heart still functions normally. I feel grateful for my heart.
+- If in our daily life we can smile, if we can be peaceful and happy, not only we, but everyone will profit from it. This is the most basic kind of peace work.
+- If we are peaceful, if we are happy, we can smile, and everyone in our family, our entire society, will benefit from our peace.
+- Many of us have been running all our lives. Practice stopping.
+- Smiling is very important. If we are not able to smile, then the world will not have peace. It is not by going out for a demonstration against nuclear missiles that we can bring about peace. It is with our capacity of smiling, breathing, and being peace that we can make peace.
+- True self is non-self, the awareness that the self is made only of non-self elements. There's no separation between self and other, and everything is interconnected. Once you are aware of that you are no longer caught in the idea that you are a separate entity.
+- You carry Mother Earth within you. She is not outside of you. Mother Earth is not just your environment.
+- In true dialogue, both sides are willing to change.
+- People have a hard time letting go of their suffering. Out of a fear of the unknown, they prefer suffering that is familiar.
+- When you look at the sun during your walking meditation, the mindfulness of the body helps you to see that the sun is in you; without the sun there is no life at all and suddenly you get in touch with the sun in a different way.
+- We have more possibilities available in each moment than we realize.
+- Fear keeps us focused on the past or worried about the future. If we can acknowledge our fear, we can realize that right now we are okay. Right now, today, we are still alive, and our bodies are working marvelously. Our eyes can still see the beautiful sky. Our ears can still hear the voices of our loved ones.
+- Breathe in deeply to bring your mind home to your body. Then look at, or think of, the person triggering this emotion: With mindfulness, you can see that she is unhappy, that she is suffering. You can see her wrong perceptions. You can see that she is not beautiful when she says things that are unkind.
+- Mindfulness helps you go home to the present. And every time you go there and recognize a condition of happiness that you have, happiness comes.
+- When we have peace, then we have a chance to save the planet. But if we are not united in peace, if we do not practice mindful consumption, we cannot save our planet.
+- If you have the insight of non-self, if you have the insight of impermanence, you should make that insight into a concentration that you keep alive throughout the day. Then what you say, what you think, and what you do will then be in the light of that wisdom and you will avoid making mistakes and creating suffering.
+- Most of us experience a life full of wonderful moments and difficult moments. But for many of us, even when we are most joyful, there is fear behind our joy.
+- You practice mindfulness, on the one hand, to be calm and peaceful. On the other hand, as you practice mindfulness and live a life of peace, you inspire hope for a future of peace.
+- True self is non-self, the awareness that the self is made only of non-self elements. There's no separation between self and other, and everything is interconnected.
+- The real power of the Buddha was that he had so much love. He saw people trapped in their notions of small separate self, feeling guilty or proud of that self, and he offered revolutionary teachings that resounded like a lion's roar, like a great rising tide, helping people to wake up and break free from the prison of ignorance.
+- In order to rally people, governments need enemies... if they do not have a real enemy, they will invent one in order to mobilize us.
+- The situation the Earth is in today has been created by unmindful production and unmindful consumption. We consume to forget our worries and our anxieties. Tranquilising ourselves with over-consumption is not the way.
+- To be a monk is to have time to practice for your transformation and healing. And after that to help with the transformation and healing of other people.
+- Many people are alive but don't touch the miracle of being alive.
+- If you abandon the present moment, you cannot live the moments of your daily life deeply.
+- Enlightenment is always there. Small enlightenment will bring great enlightenment. If you breathe in and are aware that you are alive - that you can touch the miracle of being alive - then that is a kind of enlightenment.
+- In Buddhism, we talk of meditation as an act of awakening, to be awake to the fact that the earth is in danger and living species are in danger.
+- People deal too much with the negative, with what is wrong. Why not try and see positive things, to just touch those things and make them bloom?
+- You are a child of the sun, you come from the sun, and that is something true with the Earth also... your relationship with the Earth is so deep, and the Earth is in you and this is something not very difficult, much less difficult then philosophy.
+- When you have enough understanding and compassion in you, then that amount of understanding and compassion will try to express itself in action. And your practice should help you to cultivate more understanding and compassion.
+- Peace in the world starts with peace in oneself. If everyone lives mindfully, everyone will be more healthy, feel more fulfilled in their daily lives and there will be more peace.
+- Everything we touch in our daily lives, including our body, is a miracle. By putting the kingdom of god in the right place, it shows us it is possible to live happily right here, right now.
+- People suffer because they are caught in their views. As soon as we release those views, we are free and we don't suffer anymore.
+- Meditation is not to avoid society; it is to look deep to have the kind of insight you need to take action. To think that it is just to sit down and enjoy the calm and peace, is wrong.
+- We are looking for happiness and running after it in such a way that creates anger, fear and discrimination. So when you attend a retreat, you have a chance to look at the deep roots of this pollution of the collective energy that is unwholesome.
+- Civilisations have been destroyed many times, and this civilisation is no different. It can be destroyed. We can think of time in terms of millions of years and life will resume little by little. The cosmos operates for us very urgently, but geological time is different.
+- The happiest moments are when we sit down and we feel the presence of our brothers and sisters, lay and monastic, who are practicing walking and sitting meditation.
+- Hope is important because it can make the present moment less difficult to bear. If we believe that tomorrow will be better, we can bear a hardship today.
+- If every day you practice walking and sitting meditation and generate the energy of mindfulness and concentration and peace, you are a cell in the body of the new Buddha. This is not a dream but is possible today and tomorrow.
+- There are many levels of Christianity. There are many notions about God. To believe that God is a person is just one of the notions of God that you can find in Christianity. So, we should not say that there is one Christianity. There are many Christianities.
+- If we chew every morsel of our food, in that way we become grateful, and when you are grateful, you are happy.
+- It's very important that we re-learn the art of resting and relaxing. Not only does it help prevent the onset of many illnesses that develop through chronic tension and worrying; it allows us to clear our minds, focus, and find creative solutions to problems.
+- In order to heal others, we first need to heal ourselves. And to heal ourselves, we need to know how to deal with ourselves.
+- The purpose of a vacation is to have the time to rest. But many of us, even when we go on vacation, don't know how to rest. We may even come back more tired than before we left.
+- When I became a novice monk, I lived in a temple where the atmosphere was quite like in a family. The abbot is like a father and other monks are like your big brothers, your small, younger brothers. It is a kind of family.
+- With compassion you can die for other people, like the mother who can die for her child. You have the courage to say it because you are not afraid of losing anything, because you know that understanding and love is the foundation of happiness. But if you have fear of losing your status, your position, you will not have the courage to do it.
+- It is possible to live happily in the here and the now. So many conditions of happiness are available - more than enough for you to be happy right now. You don't have to run into the future in order to get more.
+- I think Buddhism should open the door of psychology and healing to penetrate more easily into the Western world.
+- Mindfulness practices enhance the connection between our body, our mind and everything else that is around us. Mindful living is the key to understanding our struggles with weight and to empowering us to control our weight.
+- When you have peace in yourself and accept, then you are calm enough to do something, but if you are carried by despair, there is no hope.
+- Buddhism teaches us not to try to run away from suffering. You have to confront suffering. You have to look deeply into the nature of suffering in order to recognize its cause, the making of the suffering.
+- We have to continue to learn. We have to be open. And we have to be ready to release our knowledge in order to come to a higher understanding of reality.
+- Doubt in my tradition is something that is very helpful. Because of doubt, you can thirst more and you will get a higher kind of proof.
+- Love is the capacity to take care, to protect, to nourish.
+- We really have to understand the person we want to love. If our love is only a will to possess, it is not love. If we only think of ourselves, if we know only our own needs and ignore the needs of the other person, we cannot love.
+- Total relaxation is the secret to enjoying sitting meditation. I sit with my spine upright, but not rigid; and I relax all the muscles in my body.
+- Meditation is to get insight, to get understanding and compassion, and when you have them, you are compelled to act.
+- When we give ourselves the chance to let go of all our tension, the body's natural capacity to heal itself can begin to work.
+- It's normal for human beings to identify with their own separate self. The problem is that we get caught in that notion of ourself as a separate individual and caught in that individual self's agenda.

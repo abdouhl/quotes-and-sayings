@@ -1,0 +1,14 @@
++++
+author = "Mihaly Csikszentmihalyi"
+title = "Mihaly Csikszentmihalyi Quotes"
+quotes_len = "8"
+description = "the best 8 Mihaly Csikszentmihalyi Quotes"
++++
+- Discipline is not always internalized and actually can breed resentment among children.
+- And, in fact, you can find that the lack of basic resources, material resources, contributes to unhappiness, but the increase in material resources do not increase happiness.
+- If we know what that set point is, we can predict fairly accurately when you will be in flow, and it will be when your challenges are higher than average and skills are higher than average.
+- Goals transform a random walk into a chase.
+- And it has become a kind of a truism in the study of creativity that you can't be creating anything with less than 10 years of technical knowledge immersion in a particular field.
+- People enter Web sites hoping to be led somewhere, hoping for a payoff.
+- Competition is an easy way to get into flow.
+- A Web site that promotes flow is like a gourmet meal. You start off with the appetizers, move on to the salads and entrees, and build toward dessert. Unfortunately, most sites are built like a cafeteria. You pick whatever you want. That sounds good at first, but soon it doesn't matter what you choose to do. Everything is bland and the same.

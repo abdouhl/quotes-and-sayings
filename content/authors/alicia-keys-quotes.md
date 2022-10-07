@@ -1,0 +1,112 @@
++++
+author = "Alicia Keys"
+title = "Alicia Keys Quotes"
+quotes_len = "106"
+description = "the best 106 Alicia Keys Quotes"
++++
+- When I was younger, studying classical music, I really had to put in the time. Three hours a day is not even nice - you have to put in six.
+- As a lyricist, you love to hear other great lyrics or other great concepts.
+- When I'm on stage, my interaction with the audience is something that really makes me come alive. It's a feeling like no other. The energy of the crowd fuels something new inside.
+- The desire to play has always been in me. I remember my first experience at about four or five of really dying to sing and dying to play that came from no one telling me to do so.
+- Things can be really empty in this world, and I don't just mean the music world. It can become a very meaningless place if you don't really understand: 'who am I? Why am I here? What am I doing?' To feel fulfilment and have a deeper level of understanding, personally, that is the most important thing.
+- I grew up around the theatre. My mother is an actress. I would fall asleep on tons of theatre chairs. It's in my blood; it's in my spirit and my fabric of who I am.
+- Not because I'm trying to be fabulous, but I love those big crazy Jackie O shades.
+- If I want to be alone, some place I can write, I can read, I can pray, I can cry, I can do whatever I want - I go to the bathroom.
+- When I first started getting into the business, a young woman in a music game that was mostly men, I did feel inadequate.
+- I have big everything on the bottom, but I love my legs. You've got to love what's yours.
+- I feel the presence of a higher power. I believe that what you give is what you get. It's universal law. I believe in the power of prayer and of words. I've learned that when you predict that negative things will happen, they do.
+- I love my heritage! I have my mother, who is an Irish-Italian, and my father who is African, so I have the taste buds of an Italian and the spice of an African.
+- How terrible would it have been if I had come out with some watered-down version of who I am? People fell in love with the real me, and I still feel blessed that that was how the journey began.
+- People don't expect me to be as funny as I am.
+- My mom always said, 'Don't date a guy who thinks he's prettier than you.'
+- My music comes from many, many, many places. My emotions, my feelings, my thoughts, and conversations I have with people I know who influence me.
+- You've got to love what's yours.
+- I feel like B sides are always better, no matter whose record it is.
+- When I had nothing else, I had my mother and the piano. And you know what? They were all I needed.
+- I fell in love with the piano. I knew it was me. I was dying to play.
+- If I didn't love it, I would not record it.
+- I lived with my mom in a really small apartment. My bedroom was like in the living room. That's why I still love to sleep on couches now.
+- We have the potential to help people out of poverty, out of disease, out of slavery and out of conflict. Too often, we turn the other way because we think there's nothing we can do.
+- Music is funny. I shouldn't even ever talk about music, because you can have all the ideas in your head, and it never goes exactly the way that you think it's gonna go.
+- Most times, your blessings are also your curses. And for me, I have this ability to express myself so clearly with pen and paper, but when it comes to expressing myself verbally, I put up a big wall.
+- I see what happens when one gets very attached to material things. That's just not what my life is.
+- My parents weren't married. It wasn't like my dad up and left. I maintained a steady relationship with my grandparents. My dad's mother is my nana, and I'm closer to her than almost anybody in this world.
+- From the beginning, I've had to juggle and weigh the silly things people say - and I've learnt that they're meaningless, and they're mostly inaccurate. So I don't worry about it, because there's nothin' for me to deal with.
+- We're all going to change. Otherwise, it's boring.
+- Soul music is timeless.
+- Maturity and experience are part of my liberation.
+- I believe in the limitlessness of humans. We're capable of incredible things. At times, that realization is frightening.
+- When I was a kid, I'd practise Chopin on piano - and I love Chopin! He's my dawg! Then I'd go out on the stoop and blast the radio. I'm from New York, the concrete jungle. Hip-hop influenced me from day one.
+- I find myself to be truly primal and passionate. Everything I do comes from a primal place.
+- Once people see this 'Unplugged,' I just want them to feel the spontaneity, to feel passionate... I want you to see another side of me, that's free, and feel where my head is, where whatever happens, happens. I want you to feel inspired.
+- I promised myself that I'd never actually admit to listening to 'New Kids on the Block.'
+- My mixed-race background made me a broad person, able to relate to different cultures. But any woman of colour, even a mixed colour, is seen as black in America. So that's how I regard myself.
+- I'm very happy with my body.
+- Stevie Wonder's records introduced me to '70s soul when I was 12 or 13.
+- I've learned that while I'd be a fool not to stay open to the advice and experiences of the smart, amazing people in my life, I also need to listen to what I have to say.
+- I am able to hang with the hardest, the baddest, the worst, and I'm able to hang with the most proper and be at ease. I'm able to hang with any skin colour, any belief. I just fit in everywhere.
+- When I was first learning songs, I'd have a favorite song, and I'd take the chords and twist them around. I'd learn the chords and then play them backward. That was my first experimenting with writing a song.
+- I know people who've gone to jail. It don't mean you stop loving them! They deservin' love just as much in there, and maybe they needin' it more.
+- I have solid decent people around me, and I believe that is all it is, because you will get destroyed if you have people bringing you down.
+- I grew up in a pretty tough neighborhood.
+- I really appreciate Frank Ocean's lyrical style, I appreciate the way that he can kind of draw you into this personal space, but it's still lyrical. It's almost poetic, in a way, but it's very personal at the same time.
+- The element of fire to me is very powerful because of what it symbolizes, how it symbolizes a strength. It symbolizes something that's unstoppable. You can't get through it, you know.
+- I grew up in the middle of everything. I walked the streets alone, I rode the trains alone, I came home at three in the morning alone; that was what I did.
+- I'm a very caring person.
+- I feel like the majority of the fear that I had or that we have we hold from other people. They're like people that we trust; they're their fears. All of a sudden we think that they're our fears.
+- But when I first fell in love with the piano, I knew it was me. I was dying to play.
+- I don't dream - only if I'm uncomfortable or I'm going through something.
+- When I was younger, my mother and I, we'd have these crazy, crazy fights. Everyone would storm out mad, and the only way that I'd be able to express myself was to write her. We would write letters back and forth for days. When I'm writing, I feel uninterrupted. I write what I'm going through and how I see it.
+- I'm inspired by artists and musicians. There are so many wonderful and talented people in the world. I love discovering new music, new writers, or new art.
+- What breaks my heart is suffering of any kind. Too often, our world is divisive and cruel where it needs to be uniting and loving.
+- I don't have a ton of friends, but the friends I have are great ones. I don't have huge family, but the family I have is a great one.
+- I love my own music.
+- I definitely want to act, but I also want to score movies, and I have this idea to fuse classical music with other styles that would give it a different perception.
+- I believe Aids is the most important issue we face, because how we treat the poor is a reflection of who we are as a people.
+- We are all one. We're not as separate as we oftentimes think.
+- It's not until I hear songs that I've done, that I realize how much of an inspiration music from the '60s and '70s has been.
+- I don't think even when you find a person, you can be completely honest, ever. There's still pieces of you that you don't give away. I do believe you always need that place where it's just you, your thoughts, no one else's judgment or anything.
+- I'd rather believe in my own choice and see it all go wrong than do something I'm not fully convinced of and later feel guilty about it.
+- For me, doing a show, the excitement of singing live, and the possibility that you're not gonna be perfect - that's the thrill of it.
+- I just wanted to be who I was, which was like so many other girls I knew. We grew up in the city, had a hard edge and obstacles to overcome, but we were still young and beautiful. I didn't want to be all dressed up, all made up - I wanted to be myself, which hadn't been done before.
+- It's when we become afraid of everything and worried about everything that you are never going to reach your highest potential.
+- My mother is an actress, and she used to drag me from theater to theater and reading to reading.
+- I always want to stay focused on who I am, even as I'm discovering who I am.
+- I was tired and I had overworked myself and burnt myself out. So I went to Egypt by myself. When I saw what was built there, it made me understand how powerful we are, that we can create anything. And I felt like I needed to create things that were timeless too.
+- I love my heritage!
+- I think you are who you are, and your kids will see who you are. So you'd better be a good person, because they are going to see it, and that's going to shape them. They are going to become you.
+- I really like to live my life in a low-key fashion.
+- I feel more like I'm a person who has so much to offer in different capacities that it would be a danger for me not to give myself a chance to spread my wings in all different directions.
+- I would hate to make music and people love me for something that isn't me.
+- I'm a very positive person, but this whole concept of having to always be nice, always smiling, always happy, that's not real. It was like I was wearing a mask. I was becoming this perfectly chiselled sculpture, and that was bad. That took a long time to understand.
+- Some of the greatest artists did their best work when they got political.
+- I'm the cofounder of Keep a Child Alive. We provide medicine for families affected by HIV and AIDS in places like Africa and India.
+- I love children and I love family and I love that interaction. Because I had a really close relationship with my mother, I understand that deep powerful love, and it's so beautiful. To be a mother to a child is the most brilliant gift; it's gorgeous.
+- Mozart would play a counterpart with his left hand while using his right to mock it. It was blue, dark, shadowy - and it made me feel something. That's when I realized music was inside me.
+- The last thing I want is to walk into my house after a long day and see all the Grammys and awards. It would make me feel weird.
+- I love Bono. I really respect what he has done for Africa and how he has used his fame to do good in the world. I hope I can do half as much in my life.
+- Simplicity makes me happy.
+- A Minor is one of my all-time favorite keys to play in. It's a very moody key, and also 'A' is the first letter of my name. It just represents the songs through my eyes.
+- I think I grew up really fast; I grew up in this really fast-paced business, and I never understood what it meant to take a break or take time off or recover, and I paid for it.
+- Adam Levine and I remade the Rolling Stones' classic Wild Horses, and it is right up my alley, that whole style. It has a style of its own but still stays very true to the classic arrangement, and I love it.
+- There's too much darkness in the world. Everywhere you turn, someone is tryin' to tear someone down in some way; everywhere you go, there's a feeling of inadequacy, or a feeling that you're not good enough. I want to bring a certain light to the world.
+- When you're talented, you're talented.
+- I'd rather not have anything than be a liar.
+- To be able to help a 13-year-old kid from the Bronx follow her dreams just by letting her know she's not forgotten in this crazy world - that's why I got involved with Frum Tha Ground Up.
+- I love the written word so much, I know it's gonna flow naturally.
+- I've stepped more into my business and really... taken control for how I want that to be.
+- I love my legs.
+- A lot of times I watch TV and I watch film and there's so many things I'd love to talk about that I feel don't get the opportunity to be shown. Sometimes things become very stereotypical and one-sided, and I feel like it's such a colorful world.
+- And I love kick boxing. It's a lot of fun. It gives you a lot of confidence when you can kick somebody in the head.
+- Sometimes I've gotten photographs back and people have literally shaven off pieces of me, and I tell them to put it back.
+- My mom is definitely my rock.
+- I want to continue to produce film, television, and theater, and to make the most amazing music that I've made in my life.
+- I've always been very private, maybe because I discovered my mother, who is a wonderful lady, is very emotional.
+- I was worried that one day, 40 years from now, I would look back and wouldn't be able to remember the details of my life, so I've written them all down.
+- I'm not ashamed of what I am and that I have curves and that I'm thick. I like my body.
+- I've stepped more into my womanhood, I'm a mother now, I'm having a beautiful relationship as a wife and as a friend.
+- Failure isn't an option. I've erased the word 'fear' from my vocabulary, and I think when you erase fear, you can't fail.
+- I've always been strong-minded, but I wonder.
+- I have my mother who is an Irish-Italian, and my father who is African, so I have the taste buds of an Italian and the spice of an African.
+- I've always valued the input of the people I love. So in the past, whenever I'd make a decision - what to wear to an event, whether to pursue a job opportunity - I'd consult those closest to me, like my mother, husband, or manager.
+- I have this vintage Harley-Davidson motorcycle jacket. When I put it on, it has this supercool feeling to it.

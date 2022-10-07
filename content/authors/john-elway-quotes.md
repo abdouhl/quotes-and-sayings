@@ -1,0 +1,38 @@
++++
+author = "John Elway"
+title = "John Elway Quotes"
+quotes_len = "32"
+description = "the best 32 John Elway Quotes"
++++
+- How ironic, to be my last game that I ever played would be against Dan in a Super Bowl. The thing I always was afraid of was playing in a Super Bowl when it was raining. I can't throw a wet ball.
+- I'm happy with the Arena Football League right now. I'm happy in Denver.
+- Being thrown into the fire and getting the thing turned around in a hurry made it more difficult. Things have been done the hard way. I think you learn better when things are done the hard way.
+- There are a lot of people who might not get another chance to win a Super Bowl, not just me.
+- I was a baseball player and a football player at Stanford, so I didn't play a lot of golf in college. I really started playing a lot after I turned pro and I had some time in the off-season.
+- I would have loved to have played for Joe Gibbs. Look at his record of winning three Super Bowls.
+- You always want to have good balance. That's the key to winning a Super Bowl. You look at the teams who have won championships, you got to have balance. So, to be able to run the ball effectively and throw the ball effectively is what gives you the chance to win a world championship.
+- It's really been a better situation for me being with the Crush than it would if I were with the Broncos because this has given me a lot more broad range.
+- I'm watching the Weather Channel more than I've ever watched it. I'm scared to death it's going to rain.
+- I would hope this experience would help me if that NFL opportunity were to arise. But I also know that it's a totally different league. There's a lot more to it.
+- I've experienced the highest of highs and lowest of lows. I think to really appreciate anything you have to be at both ends of the spectrum.
+- I've always joked about Joe Montana not appreciating his Super Bowls nearly as much as I do because he never lost one. We lost three before we got one.
+- You learn a lot more from the lows because it makes you pay attention to what you're doing.
+- To be able to get a football team that's capable of competing for world championships, you always got to get a little bit lucky, but you got to have all phases to win it all.
+- As football players you have all the experience on the field. You don't have the experience off the field.
+- The Arena League is the best thing that could have happened to me because I get to run the whole process. I'm seeing not only the football side but the business side.
+- A guy as great as Brett Favre has been for the length of time he's been, you would hope that he would be able to leave the game with a positive flavor in his mouth.
+- I think I'm lucky in life and not just in football. I was very fortunate to play for a great organization and a great team that was really good near the end of my career.
+- I look at my career and it's still hard for me to believe the way things turned out and how things happened. I've been so blessed.
+- When I retired, I really wanted to spend time with my family and kids. Coaching would have prevented that due to the commitment of the job and travel that goes with it, too.
+- Even when I retired, there was part of me that didn't want to retire. But once you decide it's time to move on then you have to stick with it.
+- There have been openings, but I have not interviewed for any jobs, nor do I want to right now.
+- I'm getting the basics with the AFL, but the NFL is a different animal.
+- I was so lucky to walk away with two Super Bowls and know that the last year was positive.
+- It's all about putting the best team together - not just in the front office but the players on the field.
+- The patience that goes with the game, the little things that go along with the game, you have so much more time to think in golf than you do in football - you have to keep your thoughts positive. I'm not sure I've got that mastered.
+- I don't know if I like being the sentimental favorite.
+- I can't compare quarterbacks as apples and oranges in my mind because everybody's in a different system.
+- I don't have any pangs to where I want to be with the Broncos.
+- We get done with the game, and it's an absolute downpour 30 minutes later. That's when I thought God was telling me that's enough-time for you to go do something else.
+- I always believe there's a reason why you go through everything.
+- I had a great time doing Vegas. It's just that it takes a lot of time.

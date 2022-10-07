@@ -1,0 +1,73 @@
++++
+author = "Marcia Clark"
+title = "Marcia Clark Quotes"
+quotes_len = "67"
+description = "the best 67 Marcia Clark Quotes"
++++
+- There are bombshells that happen in court. Especially when the defense doesn't share discovery of material the way the prosecution does, and so surprises always happen. Things pop out without warning.
+- I loved my job... then the Simpson case happened.
+- I have always thought of myself as someone for equal rights. I don't mind being called a feminist, and I get really upset when female celebrities resist the title as if it's a bad thing, because it's a very good thing.
+- By no means did my first book sell. I took a few runs at it. You'll never see those early efforts 'cause they're burned, straight to the fireplace where they belong.
+- If you're going to educate the public and tell them how things happen in the courtroom, then you really owe them the duty to do it right. Don't misinform.
+- The minute you step into a job where you have to be at all tough and assertive, that's when the mischief happens. And you're not allowed to be assertive and feminine.
+- I wasn't unsympathetic as a defense attorney, but my strong feelings for the victims were getting in my way. I identified too much with the victim.
+- I don't feel like an icon; I don't think of myself as an icon.
+- As I listened to the verdicts in the Casey Anthony case, acquitting her of the homicide of her baby girl, I relived what I felt back when court clerk Deirdre Robertson read the verdicts in the Simpson case. But this case is different. The verdict is far more shocking. Why? Because Casey Anthony was no celebrity.
+- After the verdict was read in the Simpson case, as the jury was leaving, one of them, I was later told, said, 'We think he probably did it. We just didn't think they proved it beyond a reasonable doubt.'
+- Trayvon Martin broke my heart.
+- For a long time, I missed being in the courtroom every day. I missed trial work. It was so much a part of my life. It was what I did and who I was. But over the years, I did find the opportunity to realize my childhood dream of writing crime fiction.
+- I was famous in a way that was kind of terrifying. I had no protection. When reporters showed up at my house, there wasn't even a sidewalk. They were literally parked on my front lawn.
+- The prosecution has to go with the evidence and the facts and tell the story as it happened. The defense has more creative freedom. All you have to do is look for a defense that works. But it doesn't have to be the truth. Sometimes you get lucky and it is, but sometimes you don't, and either way, it doesn't matter.
+- To the extent that someone goes out to criticize another woman about hair, makeup, silliness like that - unless you're talking about a makeup artist or something, really stop and think about what you're doing and why you're doing it.
+- I was a defense attorney before I was a prosecutor, and so knowing what the defense is going to try to do is something that you have to do constantly when you're in trial. I always went to trial knowing what they were doing. So I was always in both mindsets anyway. 'Oh, they're going to do this, then I'm going to do that.'
+- I agree with Scott Turow: A courtroom is inherently dramatic. You walk into court - it's like an ER, you know? Life and death is going on there. And it's moment-by-moment, and it's packed with energy. And even though you think you know what a witness is going to say, you can be wrong. Witnesses surprise you.
+- I'd always wanted to write crime fiction. I loved Nancy Drew.
+- When I first started, it was so male-heavy, so male-dominated, that on the 18th floor of the criminal courts building, which was where I worked, there were three men's bathrooms and only one women's bathroom.
+- When you're writing fiction, you're in every character 'cause you can't help it.
+- I chose law because writing was involved. I didn't realize how boring legal writing was, but I even learned to love that.
+- I was the only female in the special trials unit for many years.
+- When jurors are forced to spend day and night with each other, apart from their families and friends, they become a tribe unto themselves. Because they only have each other for company, and because most people prefer harmony to discord, there's a natural desire to cooperate, to compromise in order to reach agreement.
+- The prosecution has an ethical duty to ensure not just that they get a conviction when the defendant is guilty, but also to ensure that they get it by means of fair trial, and that means a fair trial for the defense as well as the prosecution.
+- I'm a woman, and I see women get put through an awful lot of grief and be subjected to the kind of criticism, remarks, and suggestions that no woman should ever have to tolerate. And I think we should be helping each other and supporting each other.
+- I have been addicted to crime since I was born. I was making up crime stories when I was a 4- or 5-year-old kid.
+- I loved writing when I was a kid and thought about being a writer then. But I didn't have the confidence or belief that I could earn a living that way, so I never took myself seriously.
+- Most people don't go back to trial work after being in management, but I couldn't do anything else.
+- I love Viola Davis.
+- I like cable stuff; I really do - 'American Horror Story,' 'American Crime Story.'
+- My life is a mosaic, and there's no room in between pieces at all.
+- I kind of like to write fast. It keeps the pacing up. And it keeps me off the streets.
+- To me, one of the big silver linings of the Simpson trial is the advances we've made in understanding domestic violence as a lethal problem. Before that trial, I think there was a widespread sense that it was a family affair, a normal part of a relationship, not really a crime. The reality is that it's very much a crime, and a very serious one.
+- I remember being called 'feminazi' and all that. I'm so proud of these young women who are coming out and not afraid to say they are feminists.
+- I can write dramas that are about inside and outside the courtroom.
+- Before I was a prosecutor, I was a defense attorney. I took a cut in pay because I wanted to stand up for the victims.
+- I didn't understand why people cared about my hair or my makeup or my clothing. It was like, 'I'm a prosecutor. I'm not a model. I'm not an actress.'
+- I had the perm because I wanted wash-and-wear hair. I didn't want to be bothered with it.
+- I think women in general, we just soldier on. Whatever it takes, you just have to do it. It's your job. Whatever it is.
+- I am a feminist. And I don't think of that as being anti-men, I think about it as equal rights for women.
+- I'm just not a religious person, not at all. I consider myself a spiritual person. I was always very drawn to Buddhism, Hinduism. I still meditate.
+- It's gratifying when younger women come up and say, 'I went to law school because of you.' My heart swells; then it's like, wait, are you glad, or do you blame me?
+- That's who I was: a prosecutor. I really loved it.
+- I'm a big supporter of women doing anything they want to do!
+- I wound up getting pulled into being a consultant on the Lifetime drama 'For the People.' The executive producer said, 'I want you to write scripts.' We sold pilots to a bunch of different networks.
+- If you get robbed, no one's going to ask you, 'Well, what were you wearing?'
+- Most of my interviews have been with millennials, and it's been a fascinating window into my kids' world. It's been so wonderful to see a generation that seems so savvy in so many ways - and so much cooler than we were.
+- I actually was a defense attorney first.
+- You amp things up and you speed things up, but technically, you can still be legally correct. This is the big beef I have with novels as well as television shows - it actually makes for a better show when you accommodate the truth.
+- Every little pocket of Los Angeles County is almost like its own state. It has its own way of being and own way of feeling, and parts of it feel like the Midwest, and parts of it feel like the East Coast. It's a rich tapestry.
+- Jury instructions are so numerous and complex, it's a wonder jurors ever wade through them. And so it should come as no surprise that they can sometimes get stuck along the way. The instruction on circumstantial evidence is confusing even to lawyers. And reasonable doubt? That's the hardest, most elusive one of all.
+- As a lawyer, particularly in criminal law, you really do have to try to tell your story to the jury and hope that the judge makes rulings that allows your story to get through.
+- When I went to the prosecutor's office, I wanted to be one of the good guys that the defense could trust. I'd try fair, clean cases, pull no punches, no below-the-belt stuff. Honorable. Because that's the kind of prosecutor I wanted to deal with.
+- You never know what's going to happen when somebody endeavors to do a true crime story. It can be horribly misleading.
+- I decided to have a life: to become - pardon the expression - a soccer mom.
+- Sarah Paulson is mind-blowing. I mean, she always is. She's always fantastic.
+- Too frequently, we see women being pitted against each other.
+- It's one thing to evaluate a woman's work. it's another thing to say, 'Your hair was this; your makeup was that.'
+- I am devoted to my two children, who are far and away more important to me than anything.
+- The only thing the defense has to do is take care of the client and see to it that they attack every weak spot on the prosecution's case. It's up to the judge to make sure that they don't pull any fast ones.
+- People are used to streaming and binge-watching. When they see an author they like, if there's only one book, even if they like the book, they're going to forget about you. The way to keep you in their mind and to get you to become a habit for these readers is you have to have a lot of product out there for them to read.
+- When I first joined the DA's office, there weren't that many women. So there was a fair degree of sexism. Everybody kind of got over it when they saw you doing your job.
+- I made mistakes in every trial.
+- I have straight hair. If I don't blow it out, it's not good.
+- I think cameras should be in the courtroom, but they need to be managed properly. You need a judge to hold the line.
+- I don't think any prosecutor should walk into a courtroom and think they're going to wow a jury with catchphrases and cliches and that kind of performance.
+- Where a man is forceful, a woman is shrill.

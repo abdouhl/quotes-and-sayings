@@ -1,0 +1,31 @@
++++
+author = "A. Bartlett Giamatti"
+title = "A. Bartlett Giamatti Quotes"
+quotes_len = "25"
+description = "the best 25 A. Bartlett Giamatti Quotes"
++++
+- A tremendous social responsibility comes with being a successful public performer.
+- Universities are not here to be mediums for the coercion of other people, they're here to be mediums for the free exchange of ideas.
+- The university is our culture's assertion that what is made by the mind has value and can convey values.
+- My goal has been to encourage jointness, to push people to think of affiliations rather than to operate as solo entrepreneurs.
+- I'm not going to sit here now and say 'do this,' or 'do that.' But you must - must - expunge any vestige of racism.
+- Major sports are major parts of society. It's not anomalous to have people who love sports come from other parts of that society.
+- I think that the young people today feel a tremendous sense of responsibility to their brothers and sisters because of the sacrifices that most families make to send their children to college.
+- There are many who lust for the simple answers of doctrine or decree. They are on the left and right. They are not confined to a single part of the society. They are terrorists of the mind.
+- Americans have been remarkably devoted to the capacity for belief, to idealism. That's why we get into trouble all the time. We're always viewed as naive.
+- A liberal education is at the heart of a civil society, and at the heart of a liberal education is the act of teaching.
+- This is not the first time in my life where you know going into a job that you're going to hear in stereo what was wrong with what you did.
+- There are a lot of people who know me who can't understand for the life of them why I would got to work on something as unserious as baseball. If they only knew.
+- Baseball has undergone and absorbed a whole set of dislocations.
+- For me, baseball is the most nourishing game outside of literature. They both are re-tellings of human experience.
+- Some of my academic friends think I've fallen from a very special grace.
+- I'm the world's expert on sterotypes held by academics about athletes and held by athletes about academics. To me, both of them are caricatures.
+- Teaching is an instinctual art, mindful of potential, craving of realizations, a pausing, seamless process.
+- The professionals must set a good example.
+- On matters of race, on matters of decency, baseball should lead the way.
+- We have an obligation to spread amateur baseball both at home and abroad. Building up the game at all levels - Little League, Babe Ruth Leagues, the colleges - is in our own self-interest. That's where the pool of talent is - and also of fans.
+- There's nothing bad that accrues from baseball.
+- Teachers believe they have a gift for giving; it drives them with the same irrepressible drive that drives others to create a work of art or a market or a building.
+- All I ever wanted to be was president of the American League.
+- No one man is superior to the game.
+- To go from Yale to the National League is simply to go from one form of management to another.

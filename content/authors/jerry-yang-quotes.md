@@ -1,0 +1,53 @@
++++
+author = "Jerry Yang"
+title = "Jerry Yang Quotes"
+quotes_len = "47"
+description = "the best 47 Jerry Yang Quotes"
++++
+- I will continue to focus on global strategy and to do everything I can to help Yahoo! realize its full potential and enhance its leading culture of technology and product excellence and innovation.
+- If you're not in the game to win, you shouldn't be in the game.
+- Companies such as Microsoft, Cisco and Intel were just starting at their 10-year anniversary.
+- Once you meet an entrepreneur like Jack Ma, you just want to make sure you bet on him. It's not a hard decision.
+- I haven't gotten any calls to run GM.
+- I like Google.
+- I'm a Stanford kid through and through.
+- China's Web has grown away from just duplicating services from the U.S.
+- Companies that banked their future on broadband - most of them are not very successful.
+- Any enterprise that is serious about experiencing the power of Big Data in real-time should be looking at DataTorrent.
+- The Openbucks Gift Card Payment Network taps into a whole new market of consumers that either by choice or due to limited resources may not have been able to previously buy goods online.
+- The Curbside founders are successful entrepreneurs, who each have sold their companies to Apple.
+- Search is not just an activity or a destination. It's becoming more integrated and more of a platform.
+- Curbside is primed to fundamentally change the way people shop - by creating a seamless way for consumers to access products from local merchants - by successfully developing complex location and inventory technology.
+- Yahoo is a consumer brand. It is a consumer brand that allows people to get what they want from the Internet in a way that only Yahoo can deliver it.
+- The Internet, as a First Amendment medium, hinges on free expression, and that means free advertising.
+- Not only does Yahoo! have a unique franchise, it increasingly has industry-leading tools, technology and, most importantly, people.
+- Yahoo is positioned for accelerated financial growth. We have a powerful consumer brand, a huge global audience, and a highly profitable operating model.
+- There's definitely a huge opportunity for businesses to transform their operations and decision making by using data.
+- I will never be a CEO again.
+- My time at Yahoo, from its founding to the present, has encompassed some of the most exciting and rewarding experiences of my life.
+- Without rain, there is no life.
+- You have to ask what is going to happen to a lot of companies when there is not a lot more money to be gotten. That changes everybody's perspective, I think.
+- In 2010, when the Lotus Sutra was made available to me by a private dealer, I was very fortunate to be able to have it. It is very long, 30 feet or something crazy like that. It has some 15,000 very small standard script characters that the artist Zhao Mengfu in the Yuan dynasty made when he was in his 60s.
+- I wanted to be able to do things at my own pace, make mistakes and nobody would care.
+- Obviously, no one knows when the market is going to bottom out, and I am certainly not an economist.
+- I have a business to run and stockholders to think about.
+- The cloud has become the next-generation supercomputer, and the smartphone has provided the revolution to spur its use.
+- We always describe a piece as 'really lively' where it seems the work dances off the paper or the silk. Art has to hit you on an emotional level rather than just the analytical.
+- I don't think Yahoo can be Facebook tomorrow, and don't think Yahoo wants to be Facebook.
+- The last bastion of competitiveness is local advertising sales. There's little being spent by local advertisers on the Internet. That's where local media have leverage.
+- I thought I wanted to be an electrical engineer, which I turned out to be. But I was always curious about other things too, and what if I got interested in history or the law?
+- Delphine Lucielle's paintings are profound, unique, and moving. It is rare to find contemporary art that combines both beauty, innovation, and creates a new style of painting by fusing technology and nature. Delphine Lucielle is pushing the boundaries of what art is capable of.
+- People are getting patents on things that are too general.
+- The Yahoo story is still being written.
+- I invest in things for the long term and have a long horizon and the flexibility.
+- I started collecting in the late 1990s. My first purchase was from an auction, a scroll by Dong Qichang, from the early 16th century, the late Ming Dynasty.
+- People regard Yahoo as a platform for essential services, and it's had a profound impact on the way people obtain information, communicate, and their entertainment.
+- Yahoo is in everything from pets to old people to finance to communications to e-commerce and more, and I really thrive on that.
+- I'm not sure at all that I'm any good at this mentoring/investing business - that's why I'm using my own money, and that's why it's not a career.
+- Certainly Yahoo! wouldn't exist without the sort of environment that Stanford gave us to allow us to create it.
+- The Internet's a driving force in the change from mass media to 'my media,' in which consumers will be their own programmers.
+- I believe Yahoo!'s best years are still ahead of it.
+- The time has come for me to pursue other interests outside of Yahoo.
+- I am excited to join the Workday Board at an exciting time in the company's growth and look forward to leveraging my past experience as a technologist and entrepreneur to provide advice as they continue to look at new areas of growth.
+- Scanadu is right at the heart of the next generation of computing, which combines mobility, sensors, cloud and big data. I am bullish on Scanadu and its potential to revolutionize the way we think about our health.
+- It's not healthy for patents to be used to stop other people from doing business.

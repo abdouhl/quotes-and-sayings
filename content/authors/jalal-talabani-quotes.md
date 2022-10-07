@@ -1,0 +1,28 @@
++++
+author = "Jalal Talabani"
+title = "Jalal Talabani Quotes"
+quotes_len = "22"
+description = "the best 22 Jalal Talabani Quotes"
++++
+- Justice for the major perpetrators cannot be separated from the vindication of the rights of the individual victim.
+- Every human must take responsibility for his actions.
+- This will be Iraq for all without discrimination among Iraqi citizens, or ethnic or sectarian discrimination.
+- Conciliation is not capitulation, nor is compromise to be deemed equivalent to imbalanced concession.
+- A military coup needs a sacrifice and courage that you can't find in an army without morale.
+- All I wanted was to be a university teacher.
+- Wishful thinking is one thing, and reality another.
+- The Kurdish people have the right of self-determination like every other nation in the world.
+- Self-determination could mean independence, confederacy, federal and autonomy.
+- We believe that an Iraqi founding national assembly, freely elected, must decide the future of Iraq.
+- My door will always be open to those who genuinely renounce violence and seek peaceful accommodation into our nascent democracy.
+- Our plan is to struggle against terrorism and have security for the country and help draft a democratic constitution as soon as possible.
+- As president of Iraq, I shall strive to represent the diversity of a country that has too often in the past denied difference.
+- The justice of our cause must be reflected in the manner in which we rectify the crimes of the past.
+- The Kurdish people welcome the no-fly zone protection, contrary to the Iraqi regime that is against it.
+- Iraq is not occupied, but there are foreign forces on its soil, which is different.
+- I shall stand for freedom of thought and expression in a place where it has been trampled and penalized.
+- We must provide all kinds of freedom, personal and economic, to all Iraqis. I will fight for that.
+- Democracies, unlike dictatorships, are forgiving and generous, but they cannot survive unless they fight.
+- Military confrontation is not a suitable alternative in confronting terror and current security threats.
+- Our gratitude to the American people is immense and we should never be embarrassed to express it.
+- Rather, it is through conciliation and compromise that we are building a fair Iraq, a just state for all its peoples.

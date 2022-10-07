@@ -1,0 +1,30 @@
++++
+author = "Kim Young-Ha"
+title = "Kim Young-Ha Quotes"
+quotes_len = "24"
+description = "the best 24 Kim Young-Ha Quotes"
++++
+- It's an open secret: Even now, in the 21st century, Korean executives often consult spiritual advisers before making major business decisions - decisions that can affect their employees around the world.
+- From the early 1960s to the mid-1980s - the era of military dictatorship when South Korea was rebuilding itself from a postwar economic basket case to a humming, modern nation - military schools were the track of choice for ambitious young men.
+- The most difficult thing about living as a writer is precisely 'having to write.' Pretending to be a writer is easy. Living freely, reading many books, going on frequent trips, cultivating minor eccentricities... but genuinely being a writer is difficult, because you have to write something that will convince both yourself and readers.
+- When I wrote 'Your Republic Is Calling You,' it was Franz Kafka's writing that I had most in mind, and James Joyce's 'Ulysses.' Entirely out of the blue, Kafka's characters receive an order to go somewhere, and when they try to comply, they never quite manage it. Ki-yong in 'Your Republic Is Calling You' is precisely that sort of character.
+- Here's a question we all ask ourselves at least once when we're young: Where does that starlight come from? It's been there before I was born, and before my grandmother, and her grandmother were born. So just how far is that star from Earth?
+- When the head of the Hyundai Motor Company, Chung Mong-koo, was fighting with his younger brother Chung Mong-hun over the company's management, he is said to have consulted a fortune-teller.
+- Where I teach students in drama school, there's a course called Dramatics. In this course, all students must put on a play. However, acting majors are not supposed to act. They can write the play, for example, and the writers may work on stage art. Likewise, stage art majors may become actors, and in this way you put on a show.
+- In 2013, Samsung accounted for about 20 percent of South Korea's total business profits. Samsung Electronics, just one of scores of subsidiaries, accounts for close to 15 percent of the total shares in the South Korean stock market. But you don't need to know these figures to get a feel for Samsung's hold on the country.
+- I like to take certain aspects of genre fiction and modify them in my own way. 'Your Republic Is Calling You' follows the form of a spy novel, but it leads readers into a world of Kafkaesque irrationality.
+- When the moon covers the sun, we have a solar eclipse. What do you call it when birds do that?
+- In my 20s, I became obsessed with the role-playing game 'Romance of the Three Kingdoms,' named after a classical Chinese novel, and later 'The Sims,' a life-simulation game, and 'StarCraft,' a science-fiction game.
+- Just like any other company, Samsung can fail, and if that happens, how will the South Korean economy overcome the shock? If we don't decrease our over-reliance on the chaebols and prepare to let smaller, dynamic start-ups fill the gaps in their place, it won't.
+- One must live the way one thinks or end up thinking the way one has lived.
+- Handwritten political posters - often composed in an artless and unadorned style, usually just words on plain white paper - were ubiquitous in South Korea in the 1970s and 1980s and were one of the few outlets available for expressing political views. Most posters were anonymous and put up under the cover of night.
+- For all the popularity of spiritual advisers in South Korea, it still shocks to see the leaders of huge public companies relying on fortune-tellers. A shaman may advise a struggling executive to move a building's front entrance, tapping the widespread pungsu belief that your luck depends on the direction of your house.
+- Don't be a fish; be a frog. Swim in the water and jump when you hit ground.
+- South Korea first allowed women into the military in 1950 during the Korean War. Back then, female soldiers mainly held administrative and support positions. Women began to take on combat roles in the 1990s when the three military academies, exclusive to men, began accepting women.
+- The constant movement of a military life can be tough on children. My father was an officer in the army, and I was forced to change elementary schools six times.
+- In the early 2000s, people expected that anonymity on the Internet would be positive for the development of democracy in South Korea. In a Confucian culture like South Korea's, hierarchy can block the free exchange of opinions in face-to-face situations. The web offered a way around that.
+- We are all born artists. If you have kids, you know what I mean. Almost everything kids do is art. They draw with crayons on the wall.
+- Of John Le Carre's books, I've only read 'The Spy Who Came In From The Cold,' and I haven't read anything by Graham Greene, but I've heard a great deal about how 'Your Republic Is Calling You' reminded English readers of those two writers. I don't really have any particular interest in Cold War spy novels.
+- We don't know why we should be artists, but we have many reasons why we can't be.
+- The moment kids start to lie is the moment storytelling begins. They are talking about things they didn't see. It's amazing. It's a wonderful moment. Parents should celebrate. 'Hurray! My boy finally started to lie!' All right! It calls for celebration.
+- A military career offers the stability many South Korean women crave.

@@ -1,0 +1,30 @@
++++
+author = "Jack Prelutsky"
+title = "Jack Prelutsky Quotes"
+quotes_len = "24"
+description = "the best 24 Jack Prelutsky Quotes"
++++
+- After I'd produced about two dozen pen and ink drawings, one evening I decided that they needed poems to accompany them. I still have no idea where that notion came from, but it took me about two hours to produce verses for these creatures.
+- Frankly, writing poetry for children is plain old fun, and I consider myself blessed to have such a delightful career.
+- I write the poems first, with only a few exceptions for odd reasons, where I'm given the illustration first.
+- I'm usually working on eight or 10 things at once.
+- I'm mostly influenced by life, what's around me, and my own childhood.
+- My reading is extremely eclectic. Lately I've been teaching myself computer graphics, so I'm reading a lot about that. I read books of trivia, of facts.
+- Poetry seems to sink into us the way prose doesn't. I can still quote verses I learned when I was very young, but I have trouble remembering one line of a novel I just finished reading.
+- There's not too much difference between writing a picture book and writing a collection of a hundred poems or so, except that the bigger books take a lot longer to do.
+- Then I decided to draw from and on my own imagination, and everything came out perfect.
+- We all need ways to express ourselves, and poetry is one of mine.
+- I'm working now on a collection of Shakespearean sonnets, about 100 of them, that I may publish if anyone's interested. My take on life is a little different from the bard's.
+- Otherwise I don't read much adult poetry at all, because I'm not smart enough and mostly I don't get it.
+- I would go to sketch groups and draw. I really enjoyed the subject matter, but I wasn't good at it.
+- When I began writing, I didn't read any other children's poets... I didn't want to be influenced until I'd found my own voice. Now I read them all.
+- I always knew would be some sort of artist, but didn't know what.
+- I'm never bored.
+- I invented animals and birds - I had about two dozen. After working on them for six months, I sat down and just for fun wrote two dozen poems to accompany the drawings. It was for no one to every see, but a friend sent me in to an editor.
+- I look for poetry in English because it's the only language I read.
+- I accept challenges, I have always done that in writing.
+- My wife used to tell me one of my best qualities was that my feet don't smell, but I remember my brother's did when we were kids.
+- Children seem naturally drawn to poetry - it's some combination of the rhyme, rhythm, and the words themselves.
+- I keep a guitar around while writing and will improvise music. I do this for several reasons, such as that it's fun, and sometimes it helps me with the meter.
+- I've been influenced by poets as diverse as Dylan Thomas, Lewis Carroll, and Edgar Allan Poe.
+- Writing gives me the opportunity to explore ideas, play with language, solve problems, use my imagination, and draw on my own childhood.

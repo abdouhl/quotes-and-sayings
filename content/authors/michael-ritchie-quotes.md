@@ -1,0 +1,20 @@
++++
+author = "Michael Ritchie"
+title = "Michael Ritchie Quotes"
+quotes_len = "14"
+description = "the best 14 Michael Ritchie Quotes"
++++
+- It's exciting to see a kid at a rehearsal meeting with someone who seems like such an icon.
+- Sitting in this chair, my recommendation would carry too much weight.
+- The audience includes subscribers, so you have to be careful.
+- I had no training in the theater. I did not study it but just did it.
+- The trick is to have my own particular taste and feel for the theater to audiences who have been used to one particular style and taste for nearly 40 years.
+- I've never presented. The logistics of that is a challenge.
+- I have no interest in directing. I'd be a bad director.
+- I feel that I'm leaving Williamstown too early, but I'd rather leave too early than too late.
+- In next five to 10 years I probably would have done my best work, but I was afraid of having another 10 or 15 years ahead of me and feeling stale, so this was an opportunity to reinvigorate myself.
+- I went into this job to do plays, but that's here for 10 weeks, and the rest of the year I do a lot of other things-the administrative work of planning, reading plays.
+- There's been a big spur in downtown development with new business, restaurants and a lot of loft buying. The buses run, and there's a subway that runs through downtown.
+- Just go out there and do it. It's not the easiest path.
+- I'll be going to the granddaddy of the Los Angeles theaters.
+- Los Angeles has always been on the table with us.

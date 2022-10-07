@@ -1,0 +1,33 @@
++++
+author = "Tammy Faye Bakker"
+title = "Tammy Faye Bakker Quotes"
+quotes_len = "27"
+description = "the best 27 Tammy Faye Bakker Quotes"
++++
+- Religious people today are courts and juries. When it comes down to it, Jesus died on the cross so that we could learn to love others like we love ourselves, not judge them or persecute them.
+- I can trust in Jesus. And this Gospel that we preach does work. So those who are hurting and suffering today, hang in there. The sun will shine again.
+- I'm a real simple person. I believe that the Bible means what it says, and says what it means.
+- I don't want my faith level to go up or down. And so I don't fear.
+- I don't think God cares what you put in your body or on your body.
+- Every single day, I get up and I say, 'I am going to live and not die.'
+- When you - when someone dies in your family and you think you're over it, and then you wake up in the morning and it hits you, 'I won't ever see my brother again. I won't ever see my mom again.' And it just kind of hits you like that.
+- I've been very ill. You just have to trust the Lord.
+- The Bible says, 'Judge not lest ye be judged.' Our lives are supposed to be hospitals, not courtrooms.
+- I won't be in gay parades - I don't think they need them. I believe in class - I believe that people should have a bit of class about them.
+- I believe when I leave this earth, because I love the Lord, I am going straight to Heaven.
+- You don't have to be dowdy to be a Christian.
+- I always say shopping is cheaper than a psychiatrist.
+- Sometimes, poor people don't smell too good, so love can have no nose.
+- That's a real secret. You can trust God. I feel I love the Lord with all of my heart, and he will not put more on me than I can bear. And so I always say, 'Lord, I trust you with me.' So I figure, anything that happens in my life, I must be able to bear it, or he wouldn't allow it to happen.
+- Honey, God loves everybody. It's human beings who mess things up.
+- I think people need to know that there's great peace and joy in knowing the Lord - the Lord Jesus Christ - as your savior.
+- People think that if they read something in the newspaper or see it on TV, it has to be true.
+- You can educate yourself right out of a relationship with God.
+- I've been disappointed by so many movie stars that I've seen, and they go out and they don't do it up, you know. And they don't - I just get so disappointed.
+- I wish people could have seen what they called our mansion. They would have been so disappointed, because it was just an old house that we fixed up, and I love the old house.
+- Don't let fear rule your life. Live one day at a time, and never be afraid.
+- I talk to God every single day. And I say, 'God, my life is in your hands, and I trust you with me.'
+- There's a verse in the Bible says, 'In everything give thanks, for this is the will of God in Christ Jesus concerning you.' And what brings me peace is the scripture.
+- I wake up every morning and I wish I were dead, and so does Jim.
+- Honey, I am going to my grave with my eyelashes and my makeup on.
+- I shop, therefore I am.

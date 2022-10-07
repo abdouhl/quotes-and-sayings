@@ -1,0 +1,16 @@
++++
+author = "Johannes P. Muller"
+title = "Johannes P. Muller Quotes"
+quotes_len = "10"
+description = "the best 10 Johannes P. Muller Quotes"
++++
+- The sense organs experience the external light, sound, etc. with difficulty; the different sense organs only have a so-called specific receptivity for particular stimuli.
+- To speak, therefore, of an electric current in the nerves, is to use quite as symbolic an expression as if we compared the action of the nervous principle with light or magnetism.
+- The organizing principle, which according to an eternal law creates the different essential organs of the body, and animates them, is not itself seated in one particular organ.
+- It is exceedingly improbable that the identical action of the corresponding parts of the two retina is the result of a certain habituation, or of the influence of the mind.
+- The cooperation of the two retina in one field of vision, whatever is its cause, must rather be the source of all the ideas to which single or double vision may give rise.
+- Physiology is the science which treats of the properties of organic bodies, animal and vegetable, of the phenomena they present, and of the laws which govern their actions. Inorganic substances are the objects of other sciences, - physics and chemistry.
+- Sensation is not the conduction of a quality or state of external bodies to consciousness, but the conduction of a quality or state of our nerves to consciousness, excited by an external cause.
+- He who feels compelled to consider the consequences of these facts cannot but realize that the specific sensibility of nerves for certain impressions is not enough, since all nerves are sensitive to the same cause but react to the same cause in different ways.
+- We shall probably never attain the power of measuring the velocity of nervous action; for we have not the opportunity of comparing its propagation through immense space, as we have in the case of light.
+- The essential attribute of a new sense is, not the perception of external objects or influences which ordinarily do not act upon the senses, but that external causes should excite in it a new and peculiar kind of sensation different from all the sensations of our five senses.

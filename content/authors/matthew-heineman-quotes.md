@@ -1,0 +1,65 @@
++++
+author = "Matthew Heineman"
+title = "Matthew Heineman Quotes"
+quotes_len = "59"
+description = "the best 59 Matthew Heineman Quotes"
++++
+- It's going to take each of us coming together to muster the strength to look in the mirror and ask, 'How can I help create a sustainable health care system for the 21st century?'
+- Hospitals should be paid to keep patients out of the hospital, not for signing up more and more patients.
+- My dad sent me a clipping about the self-defence militias in Mexico. Immediately, when I read it, I knew I wanted to create a parallel story about vigilantes on both sides of the border.
+- I don't start out making films with a certain goal in mind.
+- Just like with America, there are many Americas, and there are many different Mexicos.
+- The amount of money that's being put into long-form investigative journalism has become less and less.
+- You can't win a battle against an idea with bombs, with guns, or militarily.
+- I think one of the major themes in 'Escape Fire,' really, if you break it down, is that huge institutions, the military, the Safeway Corporation and others, are being forced to change.
+- Sundance is incredible and has been very important for my career as a filmmaker, but it's also not the only route to success. There are a ton of great movies that don't get in and go on and do wonderfully.
+- The contrast of ISIL's videos - which proclaim a fully-functioning and prosperous state - with those of RBSS, which captured the dysfunction and violence of everyday life, is shocking. In a sense, it's a war of ideas, a war of propaganda, a war being waged with cameras and computers, not just guns.
+- I have faith in an audience being able to interpret complex material.
+- I barely speak Spanish.
+- I found out I wanted to be a filmmaker almost by accident after graduating from college in 2005.
+- Sound is the most important thing on any film, especially documentaries.
+- So much of the access that I was able to gain with the Autodefensas was over months, not days.
+- My job is to generate discussion.
+- I want to move people to think and ponder the question of their own healthcare. And it doesn't need to be political thinking.
+- I love the challenge of taking these really complicated subjects and trying to humanise them.
+- I'm not a war reporter.
+- I'm so grateful to be part of the Sundance family.
+- Too often, we rely on other people - whether it be politicians or institutions - to effect change.
+- Growing up in the digital age of filmmaking, I'm as guilty as anyone of overshooting.
+- With newspapers cutting foreign bureaus and budgets shrinking for long-form, investigative journalism, documentary filmmakers are often filling a void nowadays in the media landscape with their ability to spend time with their stories and subjects.
+- 'Cartel Land' explores what happens when - in a Mexican society without order, law or security - vendettas, terror, and corruption go hand in hand with the pursuit of a better world.
+- We as a society need to become healthier.
+- 'Cartel Land' seeks to give voice to the people of Mexico who suffer grievous harm from cartel violence and government corruption.
+- I think we as a society, a global community, we as governments, need to figure out ways to combat ISIS, not just as a military force but as an idea.
+- I don't drink coffee.
+- Bombs are not going to fix ISIS.
+- It's hard making people sitting in hotel rooms interesting.
+- We have a disease care system, not a health care system.
+- Health care has become a political football that is being tossed back and forth by both sides in Washington. And it's divided our country.
+- I fell in love with Mexico. I fell in love with the people.
+- I think health care is incredibly, incredibly important.
+- I landed a job at HBO, working for two years on the 'The Alzheimer's Project,' which aired in May 2009. I was fortunate to work with a great mentor, producer John Hoffman, and the amazing doc filmmaker Susan Froemke.
+- There's this fascination in America that more is better: we want that procedure. And more is not necessarily better when it comes to health care. We as consumers really need to understand that.
+- The story is supposed to change; it's supposed to evolve. In making 'Cartel Land,' I ended up with a much, much different story than I started with.
+- I went on a cross-country trip with three buddies to find out what our generation is about. I bought a video camera, started shooting, learned as I went, and ended up with 'Our Time,' a feature-length documentary about what it's like to be young in America. I was hooked.
+- I don't like to talk about myself.
+- I think in 'Escape Fire,' we really look at the military as a microcosm for the rest of America.
+- At medical centers such as the Cleveland Clinic and Kaiser Permanente, teams of doctors and nurses provide coordinated care while working for salary instead of getting paid for every procedure.
+- There's a wide range of motivations that led folks to patrol the border, to be part of Arizona Border Recon.
+- My favorite way of making films - and what has allowed me to get key scenes in 'Cartel Land' and 'City of Ghosts' - has been when I've been able to operate alone.
+- If you're going to see 'City of Ghosts' because you want to understand everything about the Syrian conflict and how to fix it, then it's the wrong film to see.
+- I was fascinated by what happens when government institutions fail and citizens take the law into their own hands.
+- We have a fee-for-service system that rewards quantity, not quality: profit-driven care rather than patient-driven care. So doctors order more tests, more procedures, and more drugs - we actually consume more prescription drugs in the U.S. than the rest of the world combined.
+- ISIS is an idea. And we have to fight this idea with the same tools that they're using.
+- Health is the one thing we all have in common regardless of race, creed, or income. Everyone should participate in creating the solutions.
+- In my humble opinion, propaganda is one of the most evil tools humans have used against humans throughout history to justify wars, justify atrocities, justify evil. ISIS has taken it to a new extreme.
+- When you are part of a cartel, you don't have a Costco card that says, 'I'm a card-carrying member of the cartel.'
+- I almost obsessively began reading about what was happening with the so-called Islamic State. But I couldn't find an angle on the story.
+- What Americans desperately need is a way to transition from the current system - which is fragmented and focuses on high-cost, high-tech interventions after illness strikes - to a modern system that delivers coordinated, high-touch, lower-cost, patient-centered care with an emphasis on primary care and prevention.
+- I think it doesn't matter, the color of your skin; it doesn't matter where you are from. It matters how you relate to people, how you connect with people, and the open-mindedness with which you approach the subject. That's to me what matters when you are making a film, not who you are or where you are from.
+- We mainly shot 'Cartel Land' with the Canon C300. The camera was dropped, smashed, hit by guns, in dust storms, torrential rain, and it never, ever failed.
+- For 'City of Ghosts,' I really didn't speak any Arabic. It obviously made it more difficult, but I also found it to be an advantage while shooting. It allowed me to focus on the emotion of the scene as opposed to just chasing dialogue.
+- The story of everyday people rising up to fight against evil to protect their families - it's a story that we've seen play out throughout history and across the world today.
+- We have this fascination that more is better, and we - what we learned was more isn't better ; that more care can actually hurt you. That fascination with the quick fix is often hurting us. One-third of health-care spending doesn't even improve health care.
+- I was fascinated by what motivates men and women to fight for what they believe in.
+- In the Affordable Care Act, Congress provided access to medical care for nearly 30 million uninsured Americans. Access is critically important, but offering access to an already broken system won't provide a lasting cure. We need to ask and answer the underlying question: Access to what?

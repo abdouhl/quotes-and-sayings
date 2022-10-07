@@ -1,0 +1,19 @@
++++
+author = "Kyla Reid"
+title = "Kyla Reid Quotes"
+quotes_len = "13"
+description = "the best 13 Kyla Reid Quotes"
++++
+- I'm never not singing.
+- Dreams do come true if you work hard and you get your head down.
+- I love being a mom. I love singing. Why can't you have both? A lot of people would say you can't, but I think you can balance it; if you work hard, and you plan everything out properly, it works.
+- I got married and had a baby, so I was doing the mummy thing. I got hyperemesis and was only supposed to go away for maternity leave, but then it ended up being three or four years, and by that time, it was hard to get back into the music world, so when Drake called, it was the perfect opportunity.
+- When I left school, I went and bought my own sound system, and me and my dad would just go along to all the pubs and clubs around the local area and just sort of do our own little cover shows.
+- Aaliyah was one of my favourite artists.
+- I honestly felt someone was having me on when they were like, 'Drake wants you on this track.'
+- Fingers crossed, you'll hear a lot more of me.
+- I've always been a fan of Drake's. I wouldn't say I listen to all of his music, but I would say that I pick tunes out of his that I love and then put them on repeat.
+- Any songs that I like, I sort of rinse them out.
+- I want to show everybody the diverse me and show people that I can do a tune on an R&B song, I can do a tune on a house song, I can do something on an Afrobeat. I really want to show that.
+- I remember at one stage, I was like, 'Oh no. I'm going to be remembered as the 'Do You Mind' Girl.'
+- When I was first going out to funky events, it was a lovely kind of music to dance to - it had such a nice vibe.

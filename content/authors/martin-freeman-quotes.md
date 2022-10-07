@@ -1,0 +1,193 @@
++++
+author = "Martin Freeman"
+title = "Martin Freeman Quotes"
+quotes_len = "187"
+description = "the best 187 Martin Freeman Quotes"
++++
+- I've been well-known in Britain for a long time.
+- I've always been attracted to darkness.
+- Rehearsals are one of my favourite things in the world.
+- When I wear jeans I want to look like a man, not a child.
+- It's always the case, whenever you're doing someone real, how much you want to do an impression or a characterisation. If I was doing Churchill, or Gandhi - people know exactly how they talked, walked.
+- To be honest, if people thought my performance in 'The Office' was the same as my performance in 'The Hobbit,' it would tell me everything I needed to know about what they know about acting.
+- We all know that people who've never been on a film set think it's way more glamorous than the people who work on them.
+- My ambition is to do what I like and to do good things that I might not have done before.
+- I did a play once where a reviewer said, 'Martin Freeman's too nice to play a bad guy.' And I thought: 'Well, bad guys aren't always bad guys, you know?' When I see someone play the obvious villain, I know it's false.
+- Are there many Tims in America? I don't know if I can think of many American Tims.
+- I like being called 'Mr. Freeman' occasionally.
+- I buy DVDs. I don't really buy CDs unless they're for other people.
+- I think what 'The Hobbit' and Middle-earth deal in are quite universal and timeless themes of honour and love and friendship... so they're things that do resonate with people.
+- Acting is reacting, and it's always easier to react when someone is doing a good job.
+- As an actor, you know there are things you get asked to do that you do quite well, with less effort.
+- Any pigeonhole is something to be rebelled against.
+- I value being able to go into a record shop and people leaving me alone.
+- There are about 20 people in my life that I want to love me, and none of them are the 'Daily Mail.'
+- Your slippers last a lot longer in your bedroom. On a film set, they do get very scuffed up.
+- I was probably cool around the end of 2002.
+- My first engagement with any art was music.
+- Like any friendship or marriage, familiarity breeds more contempt, and love, and everything.
+- What makes Shakespeare eternal is his grasp of psychology. He knew how to nail stuff about us as human beings.
+- My default state is wariness.
+- I'm not particularly affable in real life, I have to tell you. I've got that side to me, of course, but that's not all I am.
+- I like out, I like the outside world.
+- There are lots of things that keep me awake at night, but work isn't one of them. I mean, no-one's going to die if someone doesn't like what I do. So I don't feel a great pressure.
+- I don't like affectation.
+- My main priority in any job is when is the soonest I can get back to the three people I love most in the world.
+- Organised religion, organised anything, requires commitment and requires an engagement with something. A lot of the time, we don't want to commit.
+- Without sounding overly pompous about it, I don't really trust certainty in anything, actually. Especially as I get older. Except love. I'm certain of love, I guess.
+- I've got an overly developed sense of what selling out is, and I of course worry about it too much.
+- I've always loved Christmas and that's not really gone away from me from being a child to now. It's always a magical time and I'm unashamed in my love for Christmas.
+- I'm not posh or common, I'm in between.
+- I enjoy fighting scenes. I like fighting in film. I like pretending to fight in films.
+- There was very little drama and performance at my school, so I've never forgotten the people who did encourage me and I've thought whether it would be a good idea to even get in touch with them and just say thanks, because they really opened a door for me mentally and emotionally - that's really important.
+- If you are a plumber, you can work on a shed, or you can work on a mansion. It's just scale.
+- 'Sherlock' is beautifully done, if I may say so myself. Even if I wasn't in it, I would like the show.
+- I like talky scenes.
+- I think acting is all about the other people. Sounds like a worthy thing to say, but it's true.
+- If you're alive for more than five minutes, you're going to be disappointed.
+- In London we give ourselves a pat on the back, rightly, for not killing one another, for our prejudice being subtle rather than lethal.
+- As soon as you get two actors in a room and they're locking eyes, they're doing a scene.
+- Name anything - high-definition TV, computer obsolescence - and I'm pretty much annoyed by it.
+- Being an actor is just like being any other sort of self-employed person - we're all just happy to have a job in the first place, but we also thrive off the uncertainty of it.
+- I think the world needs to see more of my face.
+- I think people just like seeing friendship. I think people like seeing people who just drive each other up the wall, but at same time, can't live without each other.
+- I read 'Animal Farm' when I was 11, and it remained my favorite book, really.
+- I have less than no interest in trying to replicate another brilliant actor's work, thank you very much.
+- Most actors are either a shower of bloody scruffs or think they should dress like Hamlet off stage.
+- I love a good suit.
+- I have no opinion on 48 frames a second at all. I'd be completely unsuitable to talk about that.
+- It's hard talking about acting, in a way, because it's like explaining a joke: I do think it loses something in the telling.
+- I have a very extreme state of mind. Things are very black or very white.
+- Please God, I'll never be in a war zone, but everything I sort of know about people who come back is that it's a hard transition to make. I mean, even if you've not been in a war, even if you've just been in the Forces, you come back and probably have more fights in civilian life.
+- I love home. I'd rather be at home than anywhere else.
+- I don't want to sound like a grumpy old man, but nothing winds me up more than people saying, 'Chill out' to me when I'm irritated!
+- I like anything with my face on it, just from an aesthetic point of view.
+- I like the quiet life sometimes. I also love a bustling press conference sometimes as well. I love a 600 metre red carpet.
+- I think I'm less gloomy than I used to be - I've got a very supportive other half.
+- It would be a shame for me if I were to become 'Mr. Half-Hour Sitcom.'
+- As soon as a job finishes, I am done with it. When I'm really, really enjoying the job, I love the job, I want it to end because it's supposed to.
+- Television is where the great movies that used to exist have gone.
+- I could say, 'I want to play a French-African humpback,' but I probably won't get that role.
+- I didn't audition for 'Fargo.' It was a straight offer.
+- With superheroes and comics and fantasy and sci-fi being absolutely the popular currency in cinema, it's like people have said in endless magazines, it's the revenge of the geeks and all that. There's some truth in that.
+- If it were purely up to me, my kids would probably be vegetarian Catholic Marxists.
+- Fans want to see a story with characters, and they want to see a story.
+- My idea of a good night out is staying in.
+- I suppose the real cult things now are independent films made for a million pounds.
+- To my mind there are not enough things that show the Nazis as human, as smart people, charismatic people, who are not inhuman naturally. But who are able to be fantastically inhuman when they choose to be.
+- There are always challenges to green screen.
+- Not all art is great; most of it's rubbish.
+- When I was at youth theatre and drama school, I never thought people would mistake me for a stand-up.
+- My job as an actor is for you, so why should my private life be for you, too? That's not fair.
+- I love the smaller scenes. I love the smaller, slightly more theatrical scenes.
+- I've got no anti-America or anti-Hollywood kick, it's just that I never wanted to go and kick my heels around L.A. for six months hoping something would happen.
+- I have quite catholic taste in music.
+- I don't think anyone looks into their family tree and expects it to come up smelling of roses.
+- Actors are people who are doing a job they want to do, which isn't the case for many of the people who watch what we do.
+- I think when see you a character on the screen who is actually being touched by the world, and the stuff is actually landing on him, it makes you empathize.
+- The Marx Brothers isn't subtle, and that's hilarious.
+- If everyone's just saying what they feel and doing whatever they want, there's no drama in the world. And there's also no truth to it, 'cause that's just not the truth.
+- My mum was Labour-voting, but wanted us to know we were important. Basically, everyone's equal, but you, my children, are a bit better.
+- I've never been to a festival. I'm a creature of habit, mashed-potato comfort, I like rugs. Our sofa's squishy. Maybe too squishy - it's hard to get up sometimes.
+- I can live without endless television programmes and films just centered around computers. I can sort of live without that.
+- I'm afraid I don't have a very pragmatic or unromantic view of props. I don't imbue them with any great sense of mystery or anything.
+- Trouble is, some accents lend themselves to comedy.
+- I've always got my eye on my deathbed.
+- I don't think it was a surprise that I ended up as an actor, and it was anything but a disappointment.
+- I like things that are simple, such as an alarm clock.
+- I don't write anything off without reading a script, and if it's a good one, I'll consider it, whether it's for $20 or a million dollars.
+- Acting is the only thing I'm even vaguely good at and acting is something that I think I do know about.
+- I've got a stag weekend coming up and I've said I'm not doing anything more than a few drinks. I won't have it. I'll go home and watch Antiques Roadshow.
+- I don't want to be alone; the thing I love about acting is the other people you're doing it with.
+- I don't have sentimental attachments to characters at all.
+- I hate the fact that so much of our life is computerised rather than mechanised.
+- I like bootcut jeans in a plain style with a nice line.
+- Like, honest to God, I don't expect people to be into what I'm into.
+- Most people have a passive relationship with music and clothes, with culture. But music was my first contact with anything creative. Music is it, as far as I'm concerned.
+- I'm geek royalty now.
+- I can't actually believe how good 'The Sopranos' is. I genuinely am dumbfounded by it. It's like when you realize how good The Beatles are, and you think, 'How did they do that?'
+- I'm not a writer, director or producer.
+- I work in public.
+- Humour is - how do I say this without sounding pompous - it's a huge part of my life.
+- I like the idea of not everything happening between two human beings to be everyone's property.
+- I always kind of think if The Beatles were still around now, people would've lost interest quite a long time ago. Seven years of recording - it's there forever. I think not outstaying your welcome is a vital ingredient.
+- I hadn't grown up with 'The Hobbit;' I hadn't grown up with 'Lord of The Rings,' anything like that.
+- I don't like 'cool telly.'
+- I can spot someone with similar fashion sense to me a mile off.
+- Whenever someone says to my mum: 'How's your son doing?' she says: 'Which one?' If you're a parent, you're not going to go: 'Oh I'll concentrate on the famous one.'
+- True heroics, obviously, is not the absence of fear, but having that fear and doing something anyway.
+- I look like the man in the moon.
+- I'm very proud of 'The Office' - it was one of the best things I'll ever do. But you do become a slight victim of your own success in the sense that people think that's you, that's what you are, and that's what you'll play forever.
+- I like life to surprise me.
+- Don't get me wrong - I'm a big fan of things American - but when American people do British stuff, it's so universally dreadful.
+- On the surface, you think you wouldn't have to think at all about being asked to play Bilbo in 'The Hobbit.' It's not prison; it's a good gig. But you know it's going to take a long time, and it does. There are times when you thought: 'Gee, I've not seen my house for months.'
+- We can all look on the Internet and go, 'He hates me! Oh, but she loves me. Oh, but he hates me,' you know. And that way, madness lies.
+- 'The Hobbit's a big gig. It's a huge circus that you become a part of.
+- Although there's an inherent light-heartedness to 'Sherlock,' I slightly err towards not doing the comedy.
+- I've had several really tangible dreams about UFOs, and they've been amazing!
+- I've always slightly envied other actors I know who have different reputations. I think, 'God, you don't get people coming up to you, going, 'Hey!' - because they're scared of you.'
+- If I could get bands to come and play in my house, I'd like that.
+- If you want your film to be instantly green-lit, your first approach is not to go to a relatively unknown English actor. They're not going to throw millions of dollars at you for that.
+- I'm one of the few people I know who believes in God.
+- We all know the films that have affected us from the age of nine onwards, that mean so much to us.
+- I have played nasty people, but not everyone has seen that stuff. Before 'The Office,' I mainly got cast as little toe-rags.
+- I'm a big believer that life changes as much as you want it to.
+- I know very few people who have literally improvised a film from start to finish.
+- The design of 'Love Actually,' the typeface, the basic line of that poster and that DVD cover has been ripped off so many times.
+- It's more fun to keep stuff secret.
+- I don't get cast as the guy who steps off a yacht in a white linen suit with a martini.
+- I've been doing interviews for years, and in all that time, I've virtually never read one and gone, 'Yep, factually and tonally that's exactly what happened.' Pretty much never.
+- Being a mod is more of a sensibility than a style.
+- I wasn't like a Fifties dad.
+- You don't want your children to look at you like you are anything special other than their dad.
+- I think the only directing I'd be any good at is theatre directing. It's the only thing I can see myself doing.
+- I like uncertainty in roles, and I like uncertainty in art, really.
+- I think the hardest part about anything you do for 18 months is just keeping yourself together for 18 months.
+- I've got a pretty good musical ear, and I can pick things up.
+- I'm just a sucker for a good script.
+- I don't want to be poor, of course. But I try not to make that the guiding force behind whether I choose to do something or not.
+- I grew up in the suburbs, so I remember arriving at Waterloo and seeing Big Ben and the coloured lights on top of the Southbank Centre and thinking, 'Wow!'
+- You're not fully you until life has booted you in the behind.
+- I've tried not to treat Shakespeare as a marble giant.
+- I wanted to be an actor because I saw 'Dog Day Afternoon,' you know what I mean?
+- You absorb 2,000 years of history just by being near the Thames.
+- When people bully us, we are complicit in it in some way. We do allow it to happen to some extent.
+- 'Sherlock' is one of the biggest things I will do, ever - we could never have predicted that level of insanity around the series.
+- The reason I've never gone for pilot season even as a younger actor, and wouldn't entertain that sort of thing now, is the idea of signing a piece of paper that binds me for six or seven years.
+- There is nothing far-fetched about disappointment as a subject for comedy. It's something we are all too familiar with.
+- There's a difference between the parts that I play and who I am and who people think I am. There's quite a big discrepancy sometimes between those things.
+- Half of us are partly German! Half our language and culture, generally, in Anglo-Saxon terms, is German.
+- I only really watch my own films, I don't watch any other films and I don't particularly like any other actors.
+- Even someone as truly dark as Lorne Malvo is still very attractive, and you want to spend time with him because he's a fun character.
+- Comedy can't be about continuous success.
+- Americans assume all British people have at least one servant.
+- I am a fan of the Coen brothers. I'm not a fanatic. I'm a big admirer. They create unique worlds, and there is a real atmosphere to their films. Not everyone can get that. That's a massive part of their appeal: you can recognise them. Like all the great directors or artists, you know it when you see it.
+- I love eating. I mean, I really, really love eating.
+- You could say I'm a mod, but with a small 'm'; I don't wear a parka, but I do question what I wear and what I listen to, which is what it's all about.
+- Why does everyone have to pretend to be stupid and not know long words?
+- You have to, in a way, just get your head down and do the work and not expect every day to bring riches and not expect every minute to bring wild excitement, 'cause it just doesn't. It doesn't on films, anyway.
+- All my life, I've felt people are looking at me. So, when I became known, it was like, 'I'm not imagining this any more. People genuinely are staring at me. Oh, Christ, now they're coming over!'
+- Coming back from doing 'The Hobbit,' you think 'Sherlock' is realistic, but of course, it's not that realistic.
+- The best of American television is thought-provoking, original, brilliant, exciting - from 'The Sopranos' on, whether it's 'The Wire' or 'Breaking Bad' or 'House of Cards,' they're fantastic pieces of art.
+- I'm quite a disciplinarian: I can be a shouter. But I can be a very demonstrative kisser and hugger.
+- I've always liked clothes, since I was a kid.
+- I would wear a full-length cape if I could get away with it - I do love a good swirl in a fog.
+- I love that pre-mod jazz look of the late Fifties, the Steve McQueen style that influenced the British modernists.
+- I'm always interested with other actors in what their process is, and are they still interested in acting, as opposed to being a star.
+- I hope I inspire children to make films.
+- There are still things technically about films that I think are a mystery to me and I want to remain a mystery. I don't particularly want to know what everyone's job is because I've got lines to learn.
+- Disappointment is an endless wellspring of comedy inspiration.
+- 'The Hobbit' would have been very difficult to pass on, do you know what I mean? It's not the kind of ship that comes into dock very often.
+- It's a funny thing, 'The Office,' because millions and millions and millions and millions of people didn't watch it. But culturally, it is more of a phenomenon than almost anything else I can remember as far as British television is concerned.
+- Michael Caine, Tom Courtenay and Al Pacino made me want to act. I've always been interested in men with a vulnerable side.
+- I was on record before I did 'The Hobbit,' saying I don't care at all about 3D. And I suppose I should now say I care a lot about 3D. I've always loved 3D, I think everything should be 3D, and I think it's just a shame 'The Godfather' wasn't in 3D.
+- It's more fun playing someone who isn't just a bad guy.
+- I have never been in, nor have I had any strong particular desire to be in, what is termed a costume drama, but I keep forgetting to think of 'Charles II' as a costume drama.
+- This isn't meant to make me sound interesting and rock 'n' roll, but I wouldn't want to live with me a lot of the time.
+- My relationship with my belief has never been easy.
+- I want to inspire children to be obsessed over jewellery.
+- I love watching Billy Bob, just as a punter anyway. I like his work. But working with him is really easy and really straight-forward. He's immediately good. He doesn't have to work up to it. He doesn't make your life difficult. He listens. He's a very good listener, in terms of his acting.
+- In my life, the strongest evidence of any fandom is 'Sherlock' - 'Hobbit' fans are positively restrained.
+- People misunderstand me.
+- I've not been called on to do a lot of accent work.
+- Most people aren't these grandstanding heroes.

@@ -1,0 +1,36 @@
++++
+author = "Mike Yaconelli"
+title = "Mike Yaconelli Quotes"
+quotes_len = "30"
+description = "the best 30 Mike Yaconelli Quotes"
++++
+- I think being negative is being positive. You can't improve without stating the problem.
+- If I were to die today, I would be nervous about what people would say at my funeral. I would be happy if they said things like, 'He was a nice guy' or, 'He was occasionally decent' or, 'Mike wasn't as bad as a lot of people.'
+- I long for a life that explodes with meaning and is filled with adventure, wonder, risk, and danger. I long for a faith that is gloriously treacherous. I want to be with Jesus, not knowing whether to cry or laugh.
+- I think that when you follow Christ, one of the things that happens when you start listening to His voice is that you really are alone.
+- A calling is the place where your gifts, abilities, desires, and feelings of worth all meet. When you follow your calling, you feel at home, at peace - you feel as though you're where you're meant to be.
+- There have been times where I've said, 'Jesus, I don't believe in you anymore, get out of here. I don't know. I don't even trust you.' And it's like, okay. And he's still hanging on.
+- Evangelicals always assume that humor and faith are contradictory. It's OK to smile, to be nice, but not frivolous.
+- Spirituality is not a formula; it is not a test. It is a relationship. Spirituality is not about competency; it is about intimacy. Spirituality is not about perfection; it is about connection. The way of the spiritual life begins where we are now in the mess of our lives.
+- The authority of a life for Christ always has greater influence than the authority of talking. A young person can possess all of the benefits of authority - influence, respect, and strength - just by following Jesus wherever he leads.
+- Dullness is more than a religious issue, it is a cultural issue. Our entire culture has become dull. Dullness is the absence of the light of our souls. Look around. We have lost the sparkle in our eyes, the passion in our marriages, the meaning in our work, the joy of our faith.
+- I'm ready for a Christianity that 'ruins' my life, that captures my heart and makes me uncomfortable. I want to be filled with an astonishment which is so captivating that I am considered wild and unpredictable and... well... dangerous. Yes, I want to be 'dangerous' to a dull and boring religion.
+- Boldness isn't something you're born with; you either choose it or you don't.
+- I came from a tradition where souls were a theological reality, not a faith reality. Souls were for saving, not for communing. Souls were for converting and, once they were converted, they were to be left alone. Souls were too mystical, too subjective, too ambiguous, too risky, too... well, you know - New Age-ish.
+- For as long as I can remember, I have wanted to be a godly person. Yet when I look at the yesterdays of my life, what I see, mostly, is a broken, irregular path littered with mistakes and failure. I have had temporary successes and isolated moments of closeness to God, but I long for the continuing presence of Jesus.
+- Pretending is the grease of non-relationships. Pretending is how you and I get through the day without ever having to know each other. When I walk in the room, you say to me, 'How are you?' Well, you don't want to know. And, frankly, I don't want to tell you. So I just say, 'Fine,' and you go, 'Fine.' And off we go.
+- We've lost touch with our souls. We've been nourishing our minds, our relational skills, our theological knowledge, our psychological well-being, our physiological health... but we've abandoned our souls.
+- That's why we trust the Bible - it speaks to both realities: the unchanging human condition and the constantly changing cultural conditions. It speaks to all generations. We trust the Bible because it's the truth. It was the truth when it was written, and it is the truth now. It's the truth now because it's living truth.
+- I just want to be remembered as a person who loved God, who served others more than he served himself, who was trying to grow in maturity and stability.
+- Boldness doesn't mean rude, obnoxious, loud, or disrespectful. Being bold is being firm, sure, confident, fearless, daring, strong, resilient, and not easily intimidated. It means you're willing to go where you've never been, willing to try what you've never tried, and willing to trust what you've never trusted. Boldness is quiet, not noisy.
+- Not only are drinking, smoking, swearing, dancing and going to movies not issues... they simply do not matter. They matter to fundamentalists, of course, but to anyone else outside the church, they could care less whether we smoke or attend movies. Absolutely no one gives a tinker's damn whether I say 'tinker's damn' or not.
+- I think satire is most effective when you love the thing you're satirizing rather than... have a vendetta against it.
+- When I was younger, I believed my inconsistency was due to my youth. I believed that age would teach me all I needed to know and that when I was older, I would have learned the lessons of life and discovered the secrets of true spirituality. I am older - a lot older - and the secrets are still secret from me.
+- Americans have perfected the art of reducing complicated truths into formulas and products. We're desperate for instant, visible, measurable ways of knowing God, instead of trusting that it's complicated and a mystery.
+- I want to be a good person. I don't want to fail. I want to learn from my mistakes, rid myself of distractions, and run into the arms of Jesus. Most of the time, however, I feel like I am running away from Jesus into the arms of my own clutteredness.
+- The grace of God is dangerous. It's lavish, excessive, outrageous, and scandalous. God's grace is ridiculously inclusive. Apparently God doesn't care who He loves. He is not very careful about the people He calls His friends or the people He calls His Church.
+- I can remember the night I became a Christian. And man, this weight came off of me and all that kind of stuff. What I didn't realize was, that was just the beginning - of a huge journey.
+- I'm unfinished. I'm unfixed. And the reality is that's where God meets me is in the mess of my life, in the unfixedness, in the brokenness. I thought he did the opposite, he got rid of all that stuff. But if you read the Bible, if you look at it at all, constantly he was showing up in people's lives at the worst possible time of their life.
+- The reason people don't take Christianity very seriously anymore is because all people do is put it on their business cards and blab to get on television.
+- Looking back over the years, I realize the Bible isn't magic, but it is corrective; it isn't an answer book, it is a living book; it isn't a fix-it book, it is relationship book. When I confront God's word, I am confronted; when I read God's word, it reads me; when I seek God's presence, He seeks me.
+- Sin is more than turning our backs on God - it is turning our backs on life! Immorality is much more than adultery and dishonesty: it is living drab, colorless, dreary, stale, unimaginative lives.

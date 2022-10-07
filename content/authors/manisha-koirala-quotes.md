@@ -1,0 +1,106 @@
++++
+author = "Manisha Koirala"
+title = "Manisha Koirala Quotes"
+quotes_len = "100"
+description = "the best 100 Manisha Koirala Quotes"
++++
+- Cancer treatment is very expensive, and the process is painful and long. This is something that we have to collectively think about, on how to make it affordable.
+- I am keen to do roles that are down-to-earth, appealing, and sensitive.
+- Every director, when they make a film, their souls speak. The kind of stories they choose to make, it shows their souls.
+- Some directors are like poets.
+- When I'm in Kathmandu, I go out into the hills and go trekking.
+- If you build your immune system, eat right, God knows how long you are going to live!
+- I believe in all the secular values that Indian democracy is famous for.
+- I have to tell you this - as a teenager, I never used to see any horror films till I started acting in films.
+- I'm extremely unhappy with the projection of 'Tum' as a hot film. It's demeaning not just to me but to the producer and director.
+- Do your best and leave the rest to God.
+- There is nothing compared to the feeling of losing life. The moment when you are close to death is nothing but a profound experience.
+- I think when an actress is good, roles in mid-forties is a great thing.
+- Creative people are more emotionally charged, so I am a super sensitive person.
+- I knew right from the beginning that if I was going to write a book, I would write my version of the truth and then put it out there for people to decide if they will accept it or hate me.
+- I have done my share of looking glamorous on-screen in many films.
+- We tend to not value anything that we get for free.
+- Being a woman, I want to look pretty in every phase of my life.
+- Cancer definitely rekindled my spirit. It made me realise that every human being has the capacity to overcome a huge setback.
+- I cannot digest too much junk food. I just have it once in a blue moon.
+- Yes, I tend to be self-critical at times. This is because during my cancer period - while I was going through the whole process of treatment - I had time to reflect.
+- I don't watch my old films. It's over and done with. I'm proud of my films, but who watches their movies after 20 years?
+- After being diagnosed with cancer, one is in a lot of fear and anxiety about the anticipated pain and the painful treatment.
+- I think 'Ek Chhotisi Love Story' has really damaged me. People think they can compromise my reputation and get away with it.
+- We should value what we have and not take it for granted.
+- I found that this life is a gift, and everything that comes with it is a gift.
+- I am completely a director's actor. If the director gives me the liberty and freedom, then I give my inputs. Otherwise, I just follow instructions.
+- I am a foodie, but my antennas are always up regarding the healthy and nutritional values of food.
+- On the sets, I used to scare people. I team up with my level of people and sometimes do spooky things. I've inherited this from my mother, as she used to scare my neighbours by dressing up like a ghost.
+- We need to live our truth. We need to discover ourselves. And no matter how much you prepare for everything, life will always find a way to surprise you.
+- The moment I started watching my thoughts, I realized how futile fear is.
+- I feel somewhere there is a fault in this whole mindset of not accepting the natural process. To age gracefully, to accept life with grace has more beauty and charm. But you have to be fit and healthy. And that is something we should strive for.
+- I am looking to play powerful characters and as far as biopics are concerned.
+- When I got to know about my cancer, I was at the rock bottom of my life, and my work suffered for it.
+- I firmly believe in mind over matter.
+- During cancer, when I was flat out on the bed, I was so helpless. I wanted to do things my way, but it was not happening. I learnt to trust the process of life and letting other people also sometimes take control. I became more easy-going.
+- I've decided that whether I succeed or fail, I have to give it 100 per cent. That way, at least I know I tried.
+- I take care of my health. I nurture it.
+- I don't miss what has passed. I am enjoying the present. I am not one of those people who live in the past.
+- I do feel at a loss for not having a child of my own at times, very much so.
+- Fame will go away; people will not have interest in your work anymore. That has to happen. To overcome, all you can do is reinvent and work hard.
+- I would love to play Indira Gandhi.
+- It's not that I am a difficult person; it's just that I have certain strong likes and dislikes.
+- I feel that 'Saudagar' was the best debut for me. I wouldn't want it any other way.
+- When you have a good director, everything is taken care of.
+- By and large, I think female directors are far more sensitive.
+- I came from an affluent family, am well-known and well-read.
+- Looks matter a lot, and it has always mattered. We always judge. I have not only been on the receiving end, but I have also judged others.
+- I don't see things from a worm's perspective but a bird's perspective. I smile at problems.
+- It was a wonderful experience acting with Prasenjit Chatterjee, the reigning king of Kolkata's film industry.
+- One has to stay dignified about whatever is happening in life.
+- I had kept notes during my cancer treatment, but I wasn't sure what my outcome was going to be. A part of me wasn't sure if I would make it into a book. If it was going to be morbid, I wouldn't want to tell it.
+- For growth, I need to be challenged and excited about the project. I need to venture out into unknown territories.
+- For a young, unexposed Nepalese girl, Bollywood was a terrifying experience.
+- There's no substitute to hard work.
+- I don't have sugar and try to avoid it as much as possible. At home, I don't have it at all.
+- I don't take anything personally.
+- I'm a spontaneous actress, not a studied one.
+- Truth of life is that in difficult times, my family was my backbone.
+- I don't watch too many films.
+- Being diagnosed with cancer helped me identify all that was wrong in my life. It also helped me search for the solutions. I discovered self-love; I learned to prioritise myself over others and, most importantly, realised that I had to love myself first before somebody else loves me.
+- I think cancer came into my life as a gift. My vision is sharper, my mind clearer, my perspective realigned.
+- Every actor prepares a scene in their own way. For me, it's about understanding the scenario, the room I'm going to be working in, the obstacles in and around the frame, etc.
+- I believe there is a time for everything. Time changes, and you need to accept that. Else, you stagnate.
+- I love working with the younger generation.
+- Wherever I go, I'm followed by trouble.
+- Cancer makes you realise that you will be dead one day. It's so common seeing people dying and falling sick, but we aren't really ever able to comprehend it ourselves. The realisation that I am here for a certain period of time and will be gone after that made me value my time and life.
+- Life is full of risks, and often, you have to take them. Just don't be scared of taking one.
+- With my mom and dad around, I became a child yet again.
+- When I look at my audience, I think life has been kind.
+- In the film industry, we work more on the basis of good faith and verbal commitments rather than legalities.
+- Whether I live long or short is not the question: what quality that I surrounded myself is!
+- I'll be very careful about what kind of energy I'm inviting into my life and whether it's going to be helpful for me or help me evolve as a person.
+- I come from a family where we were taught to love and respect every community and religion.
+- The poor lifestyle I had been leading made my body susceptible to diseases. Had it not been cancer, some other malady would have struck me.
+- It is good to enjoy your life, follow your passion, do things that give you joy.
+- What we get at home is 100% organic food. We are also 90% vegetarian.
+- One of the many joys of being an actor is to understand the human psychology.
+- I wanted to be a complete person and realised that the well-being of mental health is extremely important in achieving that.
+- On one hand, I want to be successful and give my best to everything I do, but I don't want to be too consumed by anything.
+- Procrastinating is a habit that I have to overcome.
+- I've been constantly under male gaze. In our movies, women are constantly objectified.
+- I always wanted to be an acclaimed artist and to be at the top of my game.
+- Life is about falling down, getting up, and moving ahead.
+- Earlier, I was traveling all over the world. Then I got married. Everyone presumed I had lost interest in my career. That was not true.
+- I was supposed to direct a film on Gautam Buddha. That didn't work out. A pity, because the entire script had been written. It was in English.
+- I am a great fan of Rituparno's films and have always nurtured a wish of acting in his films. I was very impressed with his 'Chokher Bali,' 'Bariwali,' and 'Raincoat.'
+- We think till the last minute that nothing can happen to us. But cancer will grab you by surprise, and then it's too late.
+- If I am exhausted, I will pamper myself, take an extra nap, eat well, take a spa treatment.
+- I was ahead of my classmates in some ways. While they were enjoying Mills & Boons, I was reading Ayn Rand.
+- I don't believe in harbouring ill feelings about anyone.
+- I think I am more liberated as an artiste in my late 40s.
+- When you're sick, you actually realize how important health is.
+- Women have started speaking their minds, and men have graciously started accepting that. I love this.
+- I just don't want to be known as the face for cancer. It is one part of my life. Yes, it was a major part because it changed me a lot, but that is not all my life.
+- Even after spending a substantial time in the entertainment business, before the release of a film, I am nervous.
+- I love watching the sunrise and sunset and the sky, the birds.
+- I'm a Hindu and a Nepali by birth.
+- I am very content being single. I don't feel the need of someone absolutely having to be with me to make me feel like a woman.
+- I like working with creative people who are receptive to new ideas, who want to do things that are different, who want to create films of a different mould.
+- What's important is to do good work and interesting roles.

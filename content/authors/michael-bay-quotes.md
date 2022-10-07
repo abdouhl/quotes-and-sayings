@@ -1,0 +1,34 @@
++++
+author = "Michael Bay"
+title = "Michael Bay Quotes"
+quotes_len = "28"
+description = "the best 28 Michael Bay Quotes"
++++
+- For me, the great joy is to watch an audience watching what I've made. To hear not a peep from the audience at the right moment, and then to hear the laughs and the cheers.
+- I allow a lot of room for improvisation and funny stuff. I always feel planned.
+- What I look for in a script is something that challenges me, something that breaks new ground, something that allows me to flex my director muscle. You have got to think fast in this business, you've got to keep reinventing yourself to stay on top.
+- A lot of directors don't want the pressure of a movie the size of Pearl Harbor. But I love it. I thrive on it.
+- You'll hear people say now, 'Oh, I don't want to see something in 3-D. That's wrong, because what they've seen is 3-D done poorly.
+- It is really cool to have created a movie that has turned out to become the biggest movie of the year.
+- I look at directing as a sporting event. It's a race, a marathon. It's great when it clicks, which is why I push my crews so hard so we can excel.
+- Nobody in the world knew about Megan Fox until I found her and put her in 'Transformers.' I like to think that I've had some luck in building actors' careers with my films.
+- I can be very reserved about things. My business side isn't shy. I can be like a general. But I've got a shy side. I'm also a lot deeper than people think, and a lot more sensitive. But I don't let people in too much.'
+- There are many movies that have done it very badly. The studios have gone for quick profits and audiences are feeling angry. People aren't taking the time and spending the money to do it right. I am.
+- Everybody knows about Pearl Harbor. The thing that really fascinated me is that through this tragedy there was this amazing American heroism.
+- The press don't like to say nice things because nice is boring. It's much better to label me the devil. What we do is not brain surgery. We are entertainers, plain and simple, and we're responsible to bring that money back, to make a profit.
+- It's great that I get accused of not being politically correct. People need to take themselves less seriously. This world is so screwed up as it is, we've all got to relax a bit more.
+- Maybe I have just a younger voice than many other directors.
+- I'm one of the few directors that actually shoots a lot in camera.
+- I'm at that point in my life where I definitely want to get married soon. I've got my dogs as surrogates, but I'm ready for kids.
+- I'm done with effects movies for now. When you do a movie like 'Transformers', it can feel like you're doing three movies at once - which is tiring.
+- Fast cars are my only vice.
+- Do you know what directors go through? It's just hell. Like, why do I work so hard - to think I'm only going to see this movie five times and then never see it again 'cause I'm so sick of it? What is it worth, honestly?
+- We don't make movies for critics. I've done four movies; there's millions upon millions upon millions of people who've paid to see them. Somebody likes them. My greatest joy is to sit anonymously in a dark theater and watch it with an audience, a paying audience.
+- And a lot of the artists and people that we hired were fans of Transformers growing up, so having so many fans working on my crew really kept me on point.
+- I make movies for teenage boys. Oh dear, what a crime.
+- I love doing big movies. It's awesome! You have all these toys. The thing I like about this movie is, like they always say, directors have the biggest train sets! Don't tell anyone, but I'd do this for free.
+- Directing is not a job. It's more like a career. Which is great!
+- I make movies that audiences like, that I'd want to see. That's all.
+- I go out there to win. People don't care if you die in this business. The only way I get back is with success.
+- It's... a hard thing for a director, to think you came up with a shot, something from your mind, and someone died while doing it. It's the worst thing you'll ever have to live with. It was very hard for me to get back on the horse again.
+- There are things that I invented - the creaky geriatric robot that is always grumpy, for example, or the little wheelie guy, he's not in the Hasbro lore. But kids love that stuff - this little guy as a pet on a chain. They gravitate towards it.

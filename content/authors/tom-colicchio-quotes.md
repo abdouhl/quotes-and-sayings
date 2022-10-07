@@ -1,0 +1,69 @@
++++
+author = "Tom Colicchio"
+title = "Tom Colicchio Quotes"
+quotes_len = "63"
+description = "the best 63 Tom Colicchio Quotes"
++++
+- Every chef should have an understanding of pastries or desserts.
+- I hate okra and grated mountain yam for the same reason. They're both slimy.
+- I don't have a Facebook page and I don't think I will but Twitter for me is a way to take control of the message. Kind of wrestle it back. It's something I'm enjoying.
+- I think steak is the ultimate comfort food, and if you're going out for one, that isn't the time to scrimp on calories or quality.
+- You want to be the baddest guy in the kitchen and you want the person next to you to know it.
+- Recipes tell you nothing. Learning techniques is the key.
+- I can't deliver lines, but I can talk about food all night long.
+- I'm not a fan of grilling meat, since that tends to dry it out, and I find grill marks leave a bitter taste. A good steak house will offer different options for preparation, and I would ask them to broil or pan-roast the steak and finish it with butter. It ends up a dark chocolate color and stays very juicy.
+- I know nothing about hip-hop... There's only so many times you can grab your crotch and prance around stage. I'm gonna get slammed now for this.
+- I have kind of a weird technique with zucchini. I cut it into small cubes; sweat it in olive oil, adding just a little oil at time so it crisps. Then I cover it with boiling water, not stock, which really brings out the flavor of the zucchini, add lemon, thyme, and serve it with burrata and a fried zucchini flower.
+- It's my belief that cooking is a craft. I think that you can push it into the realm of art, but it starts with craft. It starts with an understanding of materials. It starts with an understanding of where foods are grown.
+- I have very good knife skills. I learned to butcher on my second job - I was 18 years old. Every other day we would break down six legs of veal.
+- I get angry when I think that people are blatantly incorrect on matters of fact.
+- We're adults. We're the ones who should teach the kids what's good to eat. I don't think the government should ever regulate what we eat at home, but we're feeding them in school with tax dollars. Quite frankly, if my tax dollars are being spent to feed kids, I'd rather feed them better food.
+- One of the first jobs I ever had was opening clams in a seafood restaurant, so I'm pretty quick at it.
+- A steak needs fat to taste great.
+- I want to feed my kid something that is real and not processed. It's hard to do. People are working and busy. The question is: Is it worth it? Is it worth stopping at the farm stand or supermarket to buy fresh ingredients?
+- Making ribs in Texas isn't that unusual a choice for 'Top Chef'. We played the stereotypes everywhere we go. It's not only in Texas. We do it in New York; we did it in San Francisco. Listen if we shoot it in Seattle you know we're going to be throwing salmon somewhere.
+- My feeling is, if you're going to be called a celebrity, you might as well use it for some good. It's better to testify for school lunches in front of Congress than get drunk in a bar somewhere and misbehave.
+- Many of them have accomplished a lot before they ever get to 'Top Chef' although they're not well known. The show just provides them with a platform. There's just one winner and on some seasons you can get numerous chefs that are really good. Even if they don't win, they're all talented.
+- It's funny how I use social media because I don't use it to promote my restaurants that much. I use it for social issues and I think that's what it's for. I do a few things - I mess around with music a lot because that's a passion of mine. If something strikes me and I want to share it, I do.
+- I can't deal with a lot of spice but I have to eat it. I pay the price - I'm on medication for heartburn, so that's how I deal with it.
+- I call all chefs 'cooks.' They're all cooks. That's what we do, we cook. You're a chef when you're running a kitchen.
+- I started cooking 30-something years ago. When I was 14, 15, I was a short-order cook in a snack bar. That was at a place called the Gran Centurions. It was an Italian-American swim club my parents belonged to.
+- Don't touch my napkin. I do not want the server to pick up the napkin and put it on my lap. I know it belongs there; maybe I don't choose to put it there.
+- My chefs don't apply for 'Top Chef'. They all know that there is no way. At the end of the process I look at the resumes of the last 25 options just to make sure they've never worked for me before.
+- You have to know the classics if you want to cook modern food.
+- There's a food revolution going on throughout the country. And it doesn't matter if you're down south, up north in Maine, if you're out west in Portland or Seattle.
+- When I was 26, 27 years old I was running a kitchen in New York, and I was a raving lunatic. The older you get, you figure out you don't need to do that. You realize at a certain point, there's a certain gravity to what you say and what you do. If that's not enough, all the yelling in the world is not going to matter.
+- Buy the best you can find or afford and don't over manipulate it. If I cook a scallop, the best praise you can give me is that it tastes like a scallop.
+- Every season we try to do something new. And not for gimmicks. We feel the show has to evolve and keep changing.
+- As a chef, I had started working with groups like Share Our Strength and various local food banks in New York, raising money for hunger-related issues. And not only me, but the entire restaurant industry has been very focused on this issue.
+- My son, before he went to school, he'd eat pretty much everything. Then as soon as he went to school, he got some peer pressure, and other kids would say, 'Oh, you're gonna eat that. That's horrible. That's disgusting.'
+- If you're dining with someone who wants the same cut, it's always better to get a 16-ounce steak and split it than to order two eight-ounce steaks. The longer something cooks, the more flavor it develops, so you'll get a better taste with a bigger piece of meat.
+- I remember at The Quilted Giraffe, when I was when working there to try out for the sous-chef position. I really wanted it, and the woman working the line next to me kept messing up and making me look bad. The last day of my kitchen trail, I just said to her very quietly, 'Do me a favor and get out of my way, because I want this job.'
+- This is what people don't understand: obesity is a symptom of poverty. It's not a lifestyle choice where people are just eating and not exercising. It's because kids - and this is the problem with school lunch right now - are getting sugar, fat, empty calories - lots of calories - but no nutrition.
+- I travel around and hear from so many kids. Their parents say they were always very picky but they watch the show and they want to try stuff. The show is entertainment, but I think it has done so much for the public perception of what food can be.
+- 'Chef' doesn't mean that you're the best cook, it simply means 'boss.'
+- Most cooks try to learn by making dishes. Doesn't mean you can cook. It means you can make that dish. When you can cook is when you can go to a farmers market, buy a bunch of stuff, then go home and make something without looking at a recipe. Now you're cooking.
+- Men with shaved heads are always better. Just ask my wife.
+- I started cooking in kitchens right out of high school, and I was lucky to work with a lot of great people, but I had no idea it would turn into this. Of course no one should go into this business because they want to be the next Emeril.
+- I know from personal experience, if a chef yelled at me in a kitchen, the first thing I'd want to do is hit them with a pot.
+- In an ideal world for me, school lunch would be free for everybody.
+- I think the patterns are set very early when the kids are young. But at the same time, there are some flavors kids just don't like.
+- Even cooking at home, the difference between my wife cooking and me cooking is major. When my wife cooks, the kitchen looks like a disaster. When I cook it's completely clean and organized and it doesn't look like anyone has been cooking in there.
+- A lot of professions happen to be male-dominated because women drop out at a certain point. It's unfortunate.
+- You hit a certain age and - especially because of TV - the young cooks coming up say, 'You're a sellout, because you're doing something other than what you should be doing.' 'Top Chef' is a double-edged sword for me: There's a whole group of people who will not come to the restaurants because they assume I'm not in them anymore, all I do is TV.
+- I'd like to see 'Top Chef: Amateur'. Sometimes we have an amateur chef on the show and they just can't cut it against the pros but there are some great stories there.
+- Right now I am kicking around an idea to do a web talk show on a boat. Guests would come on and go fishing with me. I would like to take people who have never fished: You get them out on the water and they really open up.
+- I think the most effective way to run a kitchen is to teach, not to just yell.
+- Sometimes these challenges naturally select more chefs that can think on their feet very quickly. There are chefs I know who won't put things on the menu unless they've tried it four or five times. So you just naturally select a certain kind of chef, people who maybe don't win a bunch of challenges but they hang around.
+- Asian food is very easy to like because it hits your mouth very differently than European food does. In European food, there may be two things to hit - maybe sweet and salty, maybe salty-savory, but Asian kind of works around, plus you have that distinct flavor that's usually working in Asian food.
+- There's the issue of hunger, and there's an issue of if you're going to cut out food programs. We should be focusing on healthy food. Right now, fruits and vegetables are very expensive. So what can we do on the policy side to bring the cost of fruits and vegetables down?
+- I know how to make sausage, and now that I've seen how laws are made, I'll stick with sausage.
+- You can buy a box of low-fat macaroni and cheese made with powdered nonsense. I'm not worried if I'm using four different cheeses and it's high in fat. It's real food. That's what's more important.
+- Hunger is a political issue, and there are several things politically that are keeping people hungry - not funding food stamps adequately, not funding school lunches adequately. So there is a political solution to the problem of hunger.
+- We are not really privy to all that crazy stuff that goes on in the show. I go to work, eat, and talk about food. The wild things happen when we aren't around. I expected Top Chef to last three or four seasons and we are now shooting season ten.
+- So you can say, 'Get Big Government out of here, and don't tell me what to eat,' but when kids are going to school, and they're being fed junk, we're pretty much telling them what to eat, and we're telling them junk is OK.
+- I remember in the first season going, 'This is retarded. I can't believe they're making chefs do this.' But then it actually does show off certain skills. And at the end of the day, this is entertainment and this stuff is very entertaining. Is a lot of it ridiculous? Of course it is. But that's what makes it interesting.
+- I don't know too many parents that want to feed their kids soda, but high-fructose corn syrup is cheap. The price of soda in 20 years has gone down 40 percent while the price of whole foods, fruits and vegetables, has gone up 40 percent and obesity goes up right along that curve.
+- A couple of months ago, I was down in Florida for the Food and Wine Festival. And this journalist grabbed me and said, 'How does it feel to be a TV guy? You're no longer in the restaurant business.' And I laughed. I asked him, 'How long do you think it takes me to do a season?' He said, 'Well, 200 days.' And I was like, '200 days? Try 20!'
+- If I'm doing an event, if it's a charity event, where it's a walk-around event, where I gotta put a thousand small plates out in the course of a four-hour event, I gotta make sure I can do something that I know I can produce, that's going to be consistent and good all night long.
+- In New York, I'll walk down the street and someone will say, 'Nice show,' and that's it. If I'm at a food festival, it's open season.

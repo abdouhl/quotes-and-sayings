@@ -1,0 +1,48 @@
++++
+author = "Tracey Emin"
+title = "Tracey Emin Quotes"
+quotes_len = "42"
+description = "the best 42 Tracey Emin Quotes"
++++
+- People don't remember. Revenge is sweet.
+- I've got over so much. Mum wouldn't want anything to come into my life that would make me fragile again.
+- One thing about an artist, it doesn't matter how much your work sells for in your life, it's going to sell for ten times more than that after you're dead, and that's what you have to protect.
+- I didn't have an exhibition anywhere until I was 30. My first exhibition was at 30, and then for my first show in America, I'm 50. It's kind of all right: I'm just a slow burner.
+- I've been making bronze sculptures for a long time. My sculptures are wholly unsuccessful and uncommercial. No one is even the remotest bit interested in them. So it's almost like my hobby.
+- When you don't have children you have to define and make your own purpose, and make your own reason for being here.
+- I have hardly any friends who aren't gay.
+- A man doesn't know what it's like to be a woman; it's that simple.
+- I don't ask for an apology because it's only tomorrow's fish-and-chip paper.
+- I've got to start using my brain more - I've got to be more ethereal and more enlightened.
+- In New York, working at the foundry, I was making these little figures. I desperately would like to make big figures, but I just can't do it; my hands don't do it. We were talking about making bronze plinths, and then we made one, a square one. I wrote on it, then I put a little figure on top, and it just looked really good. It worked.
+- There's so much stuff said about me that's not true, so now if something is hurtful and wrong, I send an e-mail or letter immediately, saying, This is not true.
+- It's my memory, and what happened between that moment 10 or 15 years ago and now, there's a lot of gray area.
+- I know I'm supposed to say ageing doesn't bother me, then suddenly you're like, 'Yeah, I care about it, I really worry about it. I'm getting old. I'm old!'
+- It wasn't so much destroying my dancing, it was destroying me.
+- With any story I write, I could actually write it from three or four different perspectives, which would end with a completely different moral at the end.
+- I'd make a good friend, not mother. I'm too selfish. I think a lot of mothers are selfish and they end up having children, but I don't want to put some small tiny person through that.
+- I never grew up.
+- Women, at 50, are on a plateau with their careers, but later they ascend.
+- People try constantly to use me, and I hate it.
+- The idea that I'm going to have to sit down to write some fiction where I'm going to have to think of a plot would really scare me, because it would come out a mess.
+- I'm not trying to find another thing that's wrong with me, but I'm such a nice person, and I have a couple of drinks and I'm really good fun and then I'm really not fun.
+- One thing that success has taught me is censorship.
+- I'm out of here, I'm better than all of you.
+- All the mistakes I've ever made in my life have been when I've been drunk. I haven't made hardly any mistakes sober, ever, ever.
+- If I didn't want to work for a couple of years, I wouldn't have to-it's a great feeling, to know I'm doing it because I want to do it.
+- What is truth? Truth doesn't really exist. Who is going to judge whether my experience of an incident is more valid than yours? No one can be trusted to be the judge of that.
+- My work rarely comes up in secondary market, so it means that my prices stay low.
+- It pleases me that people can be interactive.
+- I really love animals. My cat is my little soul mate. He's not just a cat, he's my friend.
+- There's different kinds of love, and I'd never experienced that kind of totally platonic love. All the love I've experienced has always been a kind of deal, and now, as I get older, I realise that there's this other love out there.
+- There is nothing difficult about my work, and people get to hear it from me.
+- They look at someone like me, and I just really get up their nose. I really wind them up.
+- I'd like to think I inspire young people to be creative.
+- I thought it would be my one and only exhibition, so I decided to call it My Major Retrospective.
+- It's happened time and time again, but the committee has always decided against it-the work was too conservative or didn't fit within the budget; there are millions of different reasons.
+- I want to spend my life with someone and do nice things and go on adventures, read books and have nice food and celebrate things. I don't want to spend the rest of my life in the bedroom like some people who just go to bed and never get out again.
+- I am fiercely independent and I probably wouldn't be if it wasn't for the way in which I was brought up.
+- My mum has never wanted me to have children. She thinks I would be destroying my life, even now.
+- I've been slagged off completely by the art world.
+- When you're 20 or 30, looking ahead, you see these benchmarks for relationships, career, ambition, sexuality, and they went off into infinity. When you get to 50, you look at what's ahead of you, and there's an end. It goes into a nothingness, a void.
+- Maybe I don't believe things myself, as well. Truth is such a transient thing.

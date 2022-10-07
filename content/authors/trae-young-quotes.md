@@ -1,0 +1,51 @@
++++
+author = "Trae Young"
+title = "Trae Young Quotes"
+quotes_len = "45"
+description = "the best 45 Trae Young Quotes"
++++
+- People keep asking me if I feel pressure. But I don't feel pressure. I realize there's a lot on my plate, a lot of expectations for me to come in and win and do certain things. But I'm just playing the way I always have.
+- There's gonna be stretches where I don't play as well. People are gonna be talking bad about me and not always on my side and cheering me on.
+- Not a lot of people take advantage of that opportunity of being different. A lot of kids that are highly touted coming out of high school, like, doing the traditional thing and going to the blue bloods and all that, but I was always different growing up.
+- I want to do something different in this league, even as a rookie.
+- I want people to say that I'm something new, something different. Something they've never seen before.
+- I'm just trying to get better each and every game.
+- I just hope I get picked by the right team and the team that really wants me and a team where I can help and take it to the next level.
+- Rod Strickland has been influential. He gives me a lot of advice, good and bad games; he is someone I really look up to a lot.
+- I'm glad people get excited watching me play. Hopefully I show them something new each time I step on the court.
+- I bring immediate impact off the court as much as I do on the court.
+- Never in my wildest dreams did I think I would become a constant topic for national television and radio shows - never mind mentioned by some of the country's most respected journalists.
+- The history behind the Garden and all the players that have come through and played on that court in the Garden, I think that the history is the reason why it still is, in my mind, the mecca of basketball. It definitely draws me in. That's the thing about New York; that's a big thing about the history, and the Garden is a big part of that.
+- I bring a lot to a team. I bring immediate impact. As far as my skillset, I can attack defenders in multiple ways and get my teammates involved.
+- I've played a lot of basketball during my life - and it's not always been good.
+- I'll always have a chip on my shoulder until I hang my shoes up. No matter how long I play this game, the chip on my shoulder will always be there. That won't change.
+- My hair is different than a lot of people's. I like my hair. I like the fade. I like the little design I have. I'm cool with it. Obviously my hair is thin on top, so it looks like a bald spot, but I really could care less.
+- I'm actually enjoying attention. Who wouldn't?
+- Who wouldn't want to be compared to a guy like Steph Curry?
+- I'm light-skinned. I'm mixed with black and white.
+- I'm excited about getting the opportunity to show people that I can play defense.
+- I was never the big leaper, the dunker, the long and athletic kid who looked the part of a traditional basketball star. Truth be told, I wasn't even considered a top guard coming out of my recruiting class.
+- It's a mystery coming out each and every game to try and figure out how a team is going to guard me and how I'm going to dictate how my team wins.
+- When you're around somebody all the time, you butt heads every now and then. That's what happens in every family.
+- I just try and make the right play. It led to me leading the country in points and assists.
+- That's the nature of basketball. You gotta go out there and compete.
+- One of my dreams was being called a 'Diaper Dandy' by Dick Vitale. He calls me that all the time now. It's surreal.
+- I think my ability coming into the NBA is going to make it that much easier for me with the space and the different type of players here. I think just by the spacing alone is going to make my game that much easier and that much better for my teammates.
+- I think I can pretty much do it all for a team. And I'm looking forward to whatever team I go to, making a huge impact.
+- I would love playing with a guy like Porzingis who can score, stretch the floor, who can do a lot, a lot of different things. But I could see myself doing some pretty good things with other teams, too.
+- To me, I'll always be the skinny, 5-foot-6 eighth-grader on the YMCA court, trying to get grown men to choose me for pickup games. It wasn't always easy. And that's what drives me.
+- A lot of my family is from Texas, stuff like that, so I was always in Texas, and when you grow up in Texas, around Texas, you want to go to the biggest Texas school, and UT was that.
+- I'm just trying to be the best version of Trey Young.
+- I know what I need to work on, and I know what I need to prove and to show, and that's all that matters.
+- My goal is to the best player in the NBA. That's what I'm focusing on each and every day.
+- I love when people try to be physical with me. They think that's the way to try to guard me and to get physical with me. I use that to my advantage.
+- I'm getting guarded like nobody else in the country is being guarded, scouted on like no one else in the country is.
+- I feel my overall skill set, my ability to make players around me better, and my ability to help my team win is unique.
+- I remember me being that kid growing up. Me being the kid that grew up going to games and being a ball boy and wanting a high five from Blake Griffin or the other players.
+- If you ask the guys I played with when I was little, they'll all tell you the same thing. All I did was catch and shoot. I didn't do anything else.
+- My favorite player growing up was Steve Nash, so that's been a guy I look up to and a guy I've gotten to talk to a few times, too.
+- I think people get caught up a little bit in the fact of finding things that people can't do instead of looking at the things that the player can do.
+- That's what my mindset is, making the right play and doing the right thing each and every possession.
+- I'll never regret a moment I spent at the University of Oklahoma or my decision to stay home and become a Sooner for life.
+- If I'm able to get drafted by the New York Knicks, it would be a blessing.
+- My confidence level never varies.

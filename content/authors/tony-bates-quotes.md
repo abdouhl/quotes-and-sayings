@@ -1,0 +1,16 @@
++++
+author = "Tony Bates"
+title = "Tony Bates Quotes"
+quotes_len = "10"
+description = "the best 10 Tony Bates Quotes"
++++
+- The amount of education, in the most basic sense of the word, I receive on a daily basis through Skype amazes me. The technology is one of the reasons I wanted to join Skype and am eager to get Skype into every classroom around the globe.
+- With Skype video calling, teachers can provide their students with first-hand knowledge from experts around the world and with other classes who are studying the same subject halfway across the world.
+- I do come from fairly humble beginnings.
+- When you set a goal, it's a personal thing, and that goal should be very big, hairy and audacious.
+- Skype is kind of amazing - look at Skype in the classroom - those are things that can really excite your organization. That's what has been really great to me.
+- Microsoft is committed to the ubiquity of the Skype experience - communication across every device and every platform will remain a primary focus.
+- Every day at Skype, I am able to connect with employees from around the world and engage with them on a level that just is not possible through a conference call or email.
+- GoPro represents everything that excites me in a company - incredible products, compelling content, a world-renowned brand and, above all, amazing people who make it happen.
+- There's a shift to mobile apps; I'd like to see a more pervasive communications experience, and I think Skype can contribute to that.
+- The education process is moving beyond the traditional classroom/lecture setting. More and more teachers are seeking tools and techniques to engage their classes and enrich their lessons. Video calling is one of these tools, as it removes barriers to communication and lets students move beyond the boundaries of their classrooms.

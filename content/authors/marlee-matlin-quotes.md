@@ -1,0 +1,82 @@
++++
+author = "Marlee Matlin"
+title = "Marlee Matlin Quotes"
+quotes_len = "76"
+description = "the best 76 Marlee Matlin Quotes"
++++
+- I find the mantle of, she works hard for the money, or, she's overcome so many obstacles a bit overused.
+- I did my first series lead back in 1991 on a show called 'Reasonable Doubts' and have done many shows with other actors who are deaf. But 'Switched at Birth' is the first TV show where there is more than one actor who is deaf or hard of hearing and who are series regulars.
+- When it comes down to it, it's about who you know, and who's a fan. It's about whether you're the right age, whether you're hot or not, whether the studio is into you or not.
+- I'm different, and my manner invites questions. I'm never afraid to answer.
+- Hollywood embraced me in the late '80s because there was a good project I was in and it was different. Nowadays, it's about corporate mentality, box office, youth.
+- There is nothing better than being a parent. It is the most challenging job one could ever ask for. I love being a mom and I love being a friend to my children as well.
+- For people who are afraid to talk about cancer, for people who are afraid to communicate with their loved ones about it, and for the people who want to pretend cancer doesn't exist, either delaying diagnosis or not getting regular checkups, the consequences can be fatal. Doing nothing about cancer will kill you.
+- Looking back now, thinking about that moment in the lights, with my heart pounding, Oscar in my hand, all I can say is I am grateful and humbled - still to this day. Next to marrying my husband and the birth of my children, it is one of the best days ever.
+- When you're up for an award at the Oscars, try as you might, it's hard to concentrate on the show.
+- I learned a long time ago from when I did 'Seinfeld' never to take anything seriously, and to be part of the joke is the best way to show what a good sport I was.
+- At some point we have to stop and say, There's Marlee, not, There's the deaf actress.
+- I hope that through my example, such as my role on 'The West Wing,' I can help change attitudes on deafness and prove we can really do everything... except hear.
+- Every one of us is different in some way, but for those of us who are more different, we have to put more effort into convincing the less different that we can do the same thing they can, just differently.
+- The hearing aids are very helpful for speech reading. Without the hearing aids, my voice becomes very loud, and I cannot control the quality of my voice.
+- As a kid, during the school year, my head was often buried in a textbook or Judy Blume book; the words and pictures were the perfect, barrier-free environment for me.
+- I'm particularly proud of my work with the Starkey Hearing Foundation for whom I raised a million dollars in one day on 'Celebrity Apprentice.' They do great work around the world helping deaf children in developing countries get proper attention and free hearing aids.
+- The best feeling in the world is when you child just comes up to you and lays their head in your lap, for no other reason but just because.
+- My parents were the ones who gave me the independence, who gave me the spark to do anything that you set your mind to, as all parents should do for their kids.
+- I listen to Billy Joel. He is fabulous. I saw him with Elton John when they toured together, it was so great.
+- When I was 13, I told Henry Winkler I wanted to act. He said, Do it and don't let anyone stand in your way. His validation just made it all the more true. I haven't stopped thanking him since.
+- Living modestly in a suburban neighborhood while trying to support four children through private school is not extravagant or living large.
+- I was the youngest and only girl in a family of two older brothers.
+- There are many deaf people who couldn't imagine living in a marriage without someone who doesn't speak their language. For me, I believe that hearing or deaf is fine as long as both parties are willing to communicate in each other's language. But if there's no communication, then the marriage, I believe, will be difficult if not doomed.
+- I'm the only one in my family who is deaf, and there are still conversations that go around me that I miss out on. And I ask what's going on, and I have to ask to be included. But I'm not going to be sad about it. I don't live in sad isolation. It's just a situation I'm used to.
+- I got a good handshake. A lot of executives tell me I have the best handshake in Hollywood.
+- Humor comes in all forms, and everyone has their cup of tea about what makes them laugh. But the day we censor humor is a sad one for sure.
+- The only thing I can't do is hear. I can drive, I have a life with four kids, I work on TV, I do movies, so the deafness question, is it that they want to know because, what? Not sure.
+- I grew up in the suburbs of Chicago, and in spite of what most people might have expected from a young girl growing up deaf, life for me was like one long episode of 'The Brady Bunch.' Despite whatever barriers were in my way, I imagined myself as Marcia Brady skating down the street saying 'hi' to everyone, whether they knew me or not.
+- What the Bleep Do We Know was not written with a deaf person in mind, but when they met me, it clicked with them to have me in it. But that happens with a lot of actors in Hollywood, not just with me.
+- Maybe my way of communicating through sign made me more in tune with my body and how it moved. Who knows? I just know when I saw a stage for the first time, I wanted to be on it.
+- It seems we're always in transition and that it's more about trends than it is about what's meaningful.
+- You can do anything if you set your mind to it. Look out for kids, help them dream and be inspired. We teach calculus in schools, but I believe the most important formula is courage plus dreams equals success.
+- I like to play around with people who don't know me. Often I'm talking to people through my speaker phone, and after 10 minutes or so they say, 'Wait a minute, Marlee, how can you hear me?' They forget I have an interpreter there who is signing to me as they talk. So I say, 'You know what? I can hear on Wednesdays.'
+- I've always wanted to write a book relating my experiences growing up as a deaf child in Chicago. Contrary to what people might think, it wasn't all about hearing aids and speech classes or frustrations.
+- It was my father who instilled the 'never say no' attitude I carry around with me today, and who instilled in me a sense of wonder, always taking us on adventures in the car, never telling us the destination.
+- I personally have dealt with any adversity in my life with humor. That's why I told America to 'Read my hips!' on 'Dancing With the Stars' or was happy to play along with Jason Alexander and Jerry Seinfeld in the great restaurant scene on 'Seinfeld.'
+- I like to say that the greatest handicap of deafness does not lie in the ear, it lies in the mind. I hope that through my example, such as my role on 'The West Wing,' I can help change attitudes on deafness and prove we can really do everything... except hear.
+- How many deaf people do you know in real life? Unless they live in a cave, or are 14, which seems to be true for most people in this business, what could I possibly tell them that they don't already know?
+- Everybody's got a job to do, and I do mine as best I can.
+- I have a great husband, great parents and in-laws, and I have help with a nanny. It's not easy, but there are others who do it every day and don't have a high-profile job as I do.
+- I would love to do a talk show. Naturally, I would love to do more films. I'd love to be able to see casting directors more willing to put in a character who happens to be deaf. I'm not talking about doing deaf storylines, but putting in deaf characters. I'd love to be able to do Broadway.
+- I've been around since I was 19, I won the Oscar when I was 21, I've had a couple of TV series. I've continued to work despite the predictions of some naysayers.
+- Silence is the last thing the world will ever hear from me.
+- It was ability that mattered, not disability, which is a word I'm not crazy about using.
+- When I learned to sign and speak at the same time, the whole world opened up to me. That's the beauty of encouraging kids who are deaf to use whatever it takes to communicate.
+- When I was young I knew I was deaf. I couldn't accept it.
+- I became deaf when I was 18 months old. And I learned to sign when I was 5 years old.
+- I'm not broke. Like everybody else, I owe money.
+- I guess not being able to hear just made me adventurous and daring. And in most cases, that didn't make my parents very happy with me.
+- If I were offered a cochlear implant today, I would prefer not to have one. But that's not a statement about hearing aids or cochlear implants. It's about who you are.
+- At the end of the day, 'My Deaf Family' is about a typical family that all of us can identify with but told from an unusual and what I believe will be a fascinating perspective.
+- I have made the choices that work best for me. I know I cannot please everyone, and that's fine.
+- Popular broadcast shows and movies have their closed captions stripped when they go to the Internet.
+- There are so many people, deaf or otherwise abled, who are so talented but overlooked or not given a chance to even get their foot in the door.
+- When I was 11, I knew that I wanted to write a kid's book and tell the world what it was like being deaf.
+- I can hear you and I can watch your mouth move, and then I put together the sounds and the visual image, and I can understand the words as I integrate the two signals.
+- Differences are scarier now. The dollar isn't so guaranteed if you don't follow what they see as the norm. But I don't moan about it. I just keep working.
+- I did three DVD's for 'Baby Einstein,' teaching babies how to sign. It really helps a parent communicate because babies can't talk. But it has been proven that they can communicate using their hands to communicate. So sign language is a great tool in that way.
+- I want roles without anger and feistiness. I want to show weakness and sadness, some love, some happiness.
+- I was 21 years and 218 days old when I received the Academy Award for Best Actress. I had just stepped into an imaginary world that I'd seen at a distance for years.
+- The handicap of deafness is not in the ear; it is in the mind.
+- I live my life like everyone else; everyone has their own obstacles. Mine is deafness.
+- Every one of us is different in some way but for those of us who are more 'different,' we have to put more effort into convincing the less different that we can do the same thing as they can... just differently.
+- By the time I was a teenager, my desire to be daring and taste everything got me in trouble. Too often, I was in the company of kids my parents would call 'wild.'
+- We aren't handicapped in any way except by what other people think. Focus on people's abilities. I can't be on 'American Idol,' but there's all kinds of stuff I can do.
+- During a visit to California, when a friend of my grandmother's told my parents that I must be deaf because I was not responding to sounds, my father was absolutely convinced that I was simply being stubborn.
+- YouTube is akin to having my own network.
+- Google, as usual, is one step ahead of everyone and provided the means where all videos on YouTube can be automatically captioned through voice-recognition technology without having to be told that it's the responsible thing to do.
+- I know what it's like to be growing up, called 'deaf and mute' and 'deaf and dumb.' They're words that are very degrading and demeaning to people who are deaf and hard of hearing. It's almost... it's almost libelous, if you want to say that.
+- I hope I inspire people who hear. Hearing people have the ability to remove barriers that prevent deaf people from achieving their dreams.
+- I learned to speak first, and then to sign. I have never really known what it was like to hear, so I can't compare hearing aids to normal hearing.
+- I'm tired of seeing listings of programs I want to watch that aren't closed captioned. And I'm tired of looking for the symbol on the side of the video package.
+- I began acting on stage when I was 7 years old. My first role was as Dorothy in 'The Wizard of Oz' at Chicago's Center on Deafness in Northbrook, Illinois.
+- In the deaf community, there are different types of people who have different philosophies. Some believe that they should only sign. Some believe they should only speak. Some people say you should use cued speech. Some say you should use cochlear implants. Some say you shouldn't sign. Some people say you should sign.
+- Watch me when people say deaf and dumb, or deaf mute, and I give them a look like you might get if you called Denzel Washington the wrong name.
+- What parent has it easy? I just never make the difficulty of it an obstacle. I just do it.

@@ -1,0 +1,24 @@
++++
+author = "Kristan Higgins"
+title = "Kristan Higgins Quotes"
+quotes_len = "18"
+description = "the best 18 Kristan Higgins Quotes"
++++
+- One thing about 'Thelma & Louise' we can't forget: Brad Pitt. Oh, yes.
+- Humor writing is something that comes naturally to me.
+- An entire empire built on teenage angst, yes? Thank you, John Hughes!
+- I guess my ambition is simply to keep doing what I'm doing for as long as I can.
+- A lot of people ask for sequels, but what they really want is just to know the characters are happy and safe.
+- It's hard to stop loving someone on cue, especially when he's still so kind and loving toward you.
+- Honestly, my entire childhood could be summed up with one word: Reader. I was always hunched over a book; in fact, I was the only kid in the world who got paler in the summer, because I'd sneak down into our cool, dank cellar and sit alone with a book for hours.
+- After about the age of 13, I was a romance addict. Still am, though I read just about every other genre as well. The only thing I really shy away from is political thrillers.
+- Sometimes, I'll hear from other writers or folks in the publishing industry that my books are rule-breakers, which I take as a compliment.
+- I think writing well takes a little bit of talent and an awful lot of work.
+- You know what I loved about 'Sideways'? Well, the wine, of course. But it was one of the few movies in which being a writer was realistically depicted. I loved how the Paul Giamatti character tries so ineptly to talk about his book.
+- I think it's always interesting to learn what the seemingly spontaneous one-nighter actually reveals about a character.
+- I took piano lessons as a kid, and my daughter's played piano since before she started kindergarten, so classical piano is something I really love.
+- There's something so satisfying about road trip movies - and books!
+- Humor writing requires a rhythm and timing, as well as some kind of connection to the reader, and I think that's how I tap into it.
+- My love of cleaning is symbolic of my desire to rule the world... I always wear a seat belt because I enjoy being alive... and I like having two eyes, so yes to the safety goggles, too!
+- I do think people should be proud and supportive of their friends, in publishing and everywhere else.
+- I think self-doubt, as grim as it can be, makes me a better writer. Stasis and hubris would probably be the death knell for my career.

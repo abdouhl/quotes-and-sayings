@@ -1,0 +1,17 @@
++++
+author = "Mel Martinez"
+title = "Mel Martinez Quotes"
+quotes_len = "11"
+description = "the best 11 Mel Martinez Quotes"
++++
+- We need a new Latin American policy that is bold - different. We need to focus on building civil society, focus on the lack of infrastructure. We need look at ways to foster economic opportunity. There needs to be a more comprehensive economic vision in the region.
+- Our focus needs to be on freeing dissidents and continuing to support the opposition movement within Cuba - not rewarding Castro and subsidizing and strengthening his totalitarian regime.
+- From time to time, the irresponsible acts of the Cuban government remind us that this is far more than about the freedom of one country, but it really is about the stability and security of the region and the national security interests of the United States.
+- In America, all things are possible.
+- Senator Martinez is not driven by polls; he is driven by the needs of the state of Florida and its 17 million constituents.
+- It's shortsighted not to view the education of a future generation of Americans as a priority for all Americans.
+- Forty-two years ago, I came to America from communist Cuba so I might have a better way of life, a freer way of life - a more democratic way of life. I wanted to live the American Dream where if you worked hard and put your mind to the task, anything was possible.
+- It is proper that the federal government help alleviate short-term disruptions and price spikes such as those brought about by Hurricane Katrina.
+- I will always vote on the side of freedom and our right to keep and bear arms.
+- I don't want to come to Washington to be just another vote. I want to lead on issues that are important.
+- Al Gonzales is a dedicated public servant and exceptionally qualified to be our nation's next Attorney General. I know that a lot has been said about Judge Gonzales' life story. It is a story of the fulfillment of the American Dream.

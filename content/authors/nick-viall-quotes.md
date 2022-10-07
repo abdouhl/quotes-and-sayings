@@ -1,0 +1,106 @@
++++
+author = "Nick Viall"
+title = "Nick Viall Quotes"
+quotes_len = "100"
+description = "the best 100 Nick Viall Quotes"
++++
+- I have always been incredibly grateful for my time in the Bachelor world, and while overall I have no regrets, my time on the show hasn't come without its hardships. But I have always been a risk taker and have always believed the greatest things in life often come with the greatest risks.
+- Meeting the real Santa? Another first I'll never forget.
+- When you're going to consider spending the rest of your life with someone, you need to have some pretty transparent conversations.
+- I'm someone who likes to acknowledge the obvious and not feel like we must do or say things because it's what we're supposed to do.
+- As the Bachelor, all eyes are on you. It's certainly nerve-racking. The process was as hard as I thought it would be - a lot of highs and lows.
+- I think being the Bachelor is like nothing else.
+- I appreciate women who lay all their concerns out, and can talk through things.
+- My family has always been my biggest support.
+- I remember when driving and traveling through Lapland, every road is surrounded by huge beautiful trees. Eight out of 10 times I would see a family of reindeer run beside the road or even through the highway holding up traffic. They're huge and unbelievable to see in person.
+- A lot of people say I'm a lot nicer as a person than they thought I was, but I don't know what that means.
+- You have to make your own decision, especially when it comes to your relationships.
+- I would do anything for love.
+- No disrespect to 'The Bachelor' and things like that because I am a big believer in the process, but it's also not reality. It's a very beautiful, engineered environment. It does work, has worked; people have been born as results. You certainly cannot mock the process. I have no regrets.
+- You can say a lot of things to someone while being pretty clear between the lines.
+- Growing up, some of my best memories are visiting my grandparents who had a house on a lake not too far from Waukesha.
+- I had a great career selling software.
+- Believe it or not, I thought each season of 'The Bachelorette' would be my last, and 'Bachelor in Paradise' was no different. So, when I was asked to be the Bachelor it was avery surreal moment. In fact, it was so surreal that my first response was, I don't know if I can do this.
+- It is tragic to lose someone close, but having that reminder to take advantage of every opportunity that life gives you.
+- I'm very progressive in a lot of ways, but I'm a very proud American. It sounds so corny to say, but I am and have always been very... I'm just so proud. I don't ever not want to live in America.
+- When you're on the road it can feel like your routine is a little off.
+- I always try to take each situation as it comes to me.
+- It is a terrible feeling to have to say goodbye to someone who so badly wants to make it work.
+- I'm vain, I can be vain!
+- I think sometimes, especially 'The Bachelor,' feels like you're being judged. You play it safe, so to speak. I've never played it safe and I think that made for a really good season.
+- I'm not big on throwing out the phrase 'right reasons' in Bachelor world. I feel like it's used too often just because someone is going about a situation in a different way than you.
+- It's always good to hear positive things.
+- It's been over 10 years since I've lived in Wisconsin, but it'll always feel like home to me.
+- My parents are the biggest role models in my life, and if I find a woman that I can have a love like they have for one another, I'd be the luckiest man in the world.
+- New York is my favorite city in the world.
+- Who doesn't love Captain Kirk?
+- I always try to get a workout in.
+- Zero G is such a surreal experience, and something that is a once in a lifetime opportunity.
+- It's been kind of a weird transition from ending 'The Bachelor' to starting 'Dancing with the Stars.'
+- I don't like how sometimes people pretend to not be a certain way.
+- I was very lucky to be raised by a very strong woman, and I have strong sisters. I've always been attracted to those types of women.
+- I briefly dated January Jones, and people know about that.
+- I can strongly say with conviction that as far as being on a TV show that documents my love life of any kind, I'm done with.
+- I think you can take things seriously and still have fun.
+- I think a lot of people go into 'The Bachelor' assuming it's going to work out, but I went in knowing there are no guarantees.
+- You don't want your lack of connecting with someone to have to do only with the fact that you were just exhausted.
+- Women have as much right as men to do whatever they want behind closed doors.
+- Don't be righteous and a liar at the same time - I have a problem with that.
+- The importance of a tan and a haircut cannot be understated.
+- Sometimes no matter how strong your imagination is and how many days you spend picturing a life with a woman, she turns out to be so amazing that only being there with her in the moment, holding her in your arms, can you find the truth in your heart.
+- It's incredibly tough dating multiple women and trying to have them enjoy the experience.
+- I'm a big believer in confidence, but I think sometimes that can be misleading.
+- People tend to fear what they don't understand and in a pressure-filled environment with all sorts of personalities, it is very easy to cast unfair accusations.
+- There's a lot of great things about being the Bachelor, but it is challenging to know that every decision you make is going to affect everyone.
+- For better or worse, I say what I'm thinking or say what other people are thinking and might be afraid to say.
+- Anything is possible in the Bachelor world.
+- Dancing hurts, like physically is painful, but being the Bachelor is an emotionally - it's a lot of emotional pain.
+- I think I would be open to any great opportunity.
+- I truly believe that closure doesn't need to come from the other person. You can always get closure from yourself.
+- I think sometimes you learn more about someone when they're upset about a situation and how they might communicate versus when things are going their way.
+- Being the Bachelor might be one of the hardest things ever.
+- I want to be with a woman who feels empowered.
+- I'm definitely done with the 'Bachelor' franchise, but I'm very grateful for my time. It's had its ups and downs. It's been a long journey.
+- When you are the Bachelor, you have very limited resources and time to get to know these women, and I think you try to use everything at your disposal.
+- If you tell me you hit on my brother on a date, I might not be the most conversational.
+- I'll never take another picture with a mall Santa after having a cup of joe with the confirmed real big guy.
+- It's important to remember that when someone says, 'It's not you, it's me,' that it is definitely you and they absolutely do not think it's them.
+- I've been called a villain and things like that, but I never put the blame on editing.
+- I like to think I'm a nice guy and have a good heart, and I'm a loyal person.
+- Listen, I can't judge anybody for what blessings they have in their lives.
+- In past relationships, I learned so much about that person through the tough conversations and how we handled them together.
+- It sounds cliche, but if someone is willing to be themselves and not try too hard to someone they're not - that sticks. That is what makes an amazing first impression.
+- Of course, helicopters and yachts are romantic and unbelievable experiences - but there is something about just walking through a city with no real plan that makes a bond so much greater.
+- I'm a big believer in transparency in any type of a relationship and in life.
+- Seeing how people react to a situation, you can tell a lot.
+- Before I was asked to be the Bachelor, I had been living in L.A. and I'd done some stuff in this entertainment world.
+- I'm a one-woman guy, so dating multiple women was hard.
+- I've used my business acumen that I've learned in corporate America and the platform that I've been fortunate to gain in the Bachelor world to kind of see if those two can work together.
+- You never know how you view things as time passes.
+- Well, I have a big personality, and I've been attracted to women with big personalities.
+- Friends and family - those are the people whose opinions count.
+- Since my mid-20s I have put more time than I would like to admit into keeping a youthful appearance. Most of that time was spent just buying random products, hoping some of them might actually work! Sadly that method resulted in a huge amount of time and money wasted.
+- Meeting someone's family can affect a relationship so drastically. Usually for the best, but you never know.
+- I'm a big Kings of Leon fan. And there's probably some Britney Spears and Justin Bieber in my playlist too - which I'm definitely not ashamed of.
+- It was so cool taking a helicopter ride around scenic Lapland. In Lapland there are more reindeer then people, unbelievable snowcapped mountains and the most unbelievable skyline.
+- It takes a lot of confidence for people to be expressive, but it also takes confidence to show vulnerability and open up right away. I think that tells a lot about someone.
+- In this world it's important to remember where you came from.
+- It's like everyone you talk to in Bachelor Nation had their Hannah Brown story. The reason you haven't heard that from Bachelor people, to be totally honest, is they're afraid of Hannah and her fans and, specifically, they are afraid of Hannah's willingness to steer her fans' energy in the direction of her critics.
+- I follow my heart and do what I think is best, regardless of the majority opinion.
+- I'm very lucky that being in the Bachelor world gives you a platform.
+- My priorities of having a family are still No. 1.
+- Before 'The Bachelor,' I was out in L.A. kind of dabbling in modeling a little bit.
+- I know I'm not perfect.
+- I'm a big 'Barry' fan.
+- There's a reason why people don't and shouldn't date multiple people outside the Bachelor world. It's messy and it's not always fun. While it can work, it's not ideal.
+- I do not like admitting that the Internet gets to me but I felt maybe it would be beneficial to acknowledge it, and again, just be mindful when you're out there or even when you see a friend and you want to first comment on their appearance, like, 'Ooh, you're looking a little thin,' or whatever you wanna say.
+- I will say, if you are planning a seaplane expedition anytime soon I urge you to brace yourselves.
+- Vanessa Viall has a nice ring to it, eh?
+- I wanted said yes to 'The Bachelor' for the chance of finding love and to find someone I could spend the rest of my life with.
+- In general, men are just kind of slow and dumb. We just figure things out later.
+- I never thought I'd go back on 'Paradise' or 'The Bachelorette' or 'The Bachelor,' but I think I have learned in life that it is best to sit back and let things come your way, and take each situation on its own.
+- There is no denying that when you show up to be on 'The Bachelor,' you are filming a TV show.
+- In that world, 'villain' can simply be a label given to someone who doesn't conform. There are these unwritten rules in Bachelor Nation... I never follow those rules.
+- I don't want to be a Trivial Pursuit question.
+- I've always been an analytical person.
+- The SS Sapona shipwreck, is such a cool site.

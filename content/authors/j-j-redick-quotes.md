@@ -1,0 +1,106 @@
++++
+author = "J. J. Redick"
+title = "J. J. Redick Quotes"
+quotes_len = "100"
+description = "the best 100 J. J. Redick Quotes"
++++
+- Anything I can use on the court to help me is good.
+- In terms of my career, it's been a lot of incremental improvement slowly over time.
+- I feel like I'm a guy who consistently makes the right play and the right reads offensively and that helps my teammates.
+- I'm not naive - I think it's rare in the NBA every day to actually be able to enjoy being around the people you're working with.
+- Some collectors do but no, I don't look at watches as an investment.
+- As a professional athlete, the onus is on you to take responsibility.
+- I'm not into trends, but more enduring classics and styles.
+- I shoot my highest percentage from the right corner, and it's also the shortest shot.
+- We're going to have a generation of kids whose norm will be people just being addicted to their phones. And that's what scares me. The impact on my kids, I think about that daily. Like, what is this doing to me and my family?
+- I feel like when I look back at my career I've always done better and I've always been happier when there's more expectation and more pressure.
+- My parents always wanted me to do the right thing. My mom, I think her exact words were, 'You're not a chicken in the coop playing in the scraps, you're an eagle.' I was like, 'Oh, OK... ' But really, I've used that throughout my life.
+- I've been very fortunate to be on some great teams and in great locker rooms.
+- My second year in the league I played zip.
+- My thing is just trying to figure out how we can win ball games.
+- I think I can pass the ball pretty well and I move the ball.
+- My mother is a nutritionist, so we always ate well.
+- Basketball is like the one game I can't figure out when it comes to videogames.
+- As we grow up and we're developing, our ego needs to be contained, otherwise we'd all be selfish two- and three-year-olds, screaming every time we didn't get our way.
+- New Orleans has an incredible culture. Everybody brings up food first, but I realized there's a lot more to that in terms of music and art and people and history.
+- I've certainly benefited from the three-point line and the emphasis on shooting them.
+- I think it's important to have open lines of communication and I think the best lines of communication are two-way lines.
+- Kind of making that leap from a team that wins occasionally to a team that wins the majority of the time, a lot of times just comes down with figuring out how tough it is to win, and then executing down the stretch to do it.
+- There's certain points in the season - I think players go through it and teams go through it - where you just have stretches and you're stuck in a rut or you feel like nothing's going right. You just got to keep grinding, and eventually it'll turn.
+- Obviously, you look at a situation and you say, 'What do I need to do to fit in?' I looked at the Clippers and said, 'I really need to work on my dunk shots.'
+- I'm very proud of my time at Duke, my career at Duke, but as you get older and become an adult, you lose some head bobs. That's not part of the routine anymore.
+- I think anytime you have expectations for your team and for yourself and you have goals that you want to accomplish you can't overlook the small stuff and the baby steps.
+- To be able to give back and be able to help people, it means a lot to me. I'm humbled by it, honestly.
+- It seems like you have to put so much into winning on the road and playing well on the road.
+- I don't care about starting or coming off the bench or anything like that. To me, whatever role I'm in I'm going to try to help us win.
+- I was never a very adventurous eater growing up, despite the fact that my mother is a nutritionist and my parents have always had a garden in our yard.
+- Twitter has now just become a bunch of angry voices. That for me, I had to detach from there.
+- I think winning Game 7s, it's an incredible feeling.
+- Our job collectively, players and coaches, is to figure out a way to play that we can put ourselves in a position to win.
+- Nutrition is a big part of my life and it always has been.
+- I feel so fortunate to have great coaching. Coaches that have taught me great habits and taught me great things about basketball and life, but I've always played for coaches who have held me accountable and that's made me a better player and person.
+- I always enjoy competition.
+- It's always a great joy to give back.
+- I played ACC and NCAA Tournament games in my backyard - these imaginary games - and when I finally got to experience it in real life, it was better than I could imagine.
+- When I come to the arena, my mind is on basketball, not thinking I'm walking a runway.
+- As late as my junior year, I was taking Italian at Duke because I thought I was going to have to go overseas and play. Then I had a great senior year and became a lottery pick.
+- I think anytime you have any sort of injury, you know I've come back from a pulled hamstring in college one time, foot injuries. The movement that causes the initial jolt of pain you always kind of are tentative when you have to make that movement, especially as you kind of build back up.
+- Kobe never got complacent. He always wanted more. And I think, ultimately, that's going to be his legacy.
+- Generally speaking, you want to put three or four shooters around a dominant center and have him just roll to the basket.
+- I would never say never, but it's not in my plans to be a coach.
+- I've been on teams where you literally don't talk to each other at dinner. Just six guys on their phones.
+- I have this personality where I'm all in on something or I'm off of it.
+- For me, I spent four years at Duke, and I was 22 my rookie year. For a lot of guys, I was old as a rookie, but nothing could prepare me for the NBA, both on the court and off the court.
+- My closet is my happy place.
+- With social media, I've never felt completely comfortable with it.
+- I think my confidence and competitiveness - that will - comes from my mother. I always knew my mom loved me, and she always made me feel like I was - I don't want to say 'special' - but that I was capable of doing things. Before I ever shot a basketball or before I ever threw a baseball, I had confidence, and that was from my mother.
+- I watch video now of me in college, and I just think, What are you doing, man?
+- Winning is really hard in this league.
+- I feel like every guy has a job to do on the defensive end, and that job can change night to night. My biggest thing is, I try to do my job, and compete.
+- I think the coach-player relationship is a two-way thing. You have to be willing to take suggestions as a player and vice versa.
+- At the end of every season, I try to assess what I did well and what I didn't do well.
+- As you progress as a basketball player, the world around you becomes more and more chaotic. There's more talent, there are more distractions - and these are all factors that create a lack of control. By having a routine, by having habits that I can fall back on, it's my way of enacting control. It's the only thing I can control.
+- You always look forward to the start of the regular season. It's like opening presents on Christmas morning.
+- I always feel like you can get better in any area.
+- Out of all the records, my proudest was breaking Coach Johnny Dawkins's scoring record.
+- As a shooter, you always want to be in a rhythm.
+- I listen to a lot of hip hop artists, and I think hip hop and poetry go hand in hand. The 'Def Jam Poetry' on HBO is just so sick to me.
+- I would much rather invest in stocks, bonds, private equity and hedge funds than watches.
+- It's certainly a different feel in the locker room after the game when you win.
+- For the most part, someone who is in love with mechanical watches is not going to decide to wear a smartwatch over a mechanical watch.
+- You want your kids to grow up in a world that's better than the one you grew up in. I'm not talking about my own family's wealth. I'm talking about the actual world and all the issues that we have.
+- When I got done at Duke, I almost felt ashamed of it. I almost tried to distance myself from being the Duke guy.
+- Tattoos are a thing I've never really planned out. They just kind of happen spontaneously, on a whim. It's kind of like curating a watch collection, it just kind of happens. I like it to happen organically.
+- For me, I can only talk so much about basketball, and I get a little bored.
+- As I finished up my time at Duke, I certainly wasn't a 'foodie' but I was learning to enjoy the finer things in the culinary world.
+- I feel like I've been mentoring young guys for a long time.
+- I'm from the middle of nowhere, Virginia.
+- I'm very grateful to be able to give back.
+- I always talk about shooting being broken down into three things. You have to have some semblance of good form. The second part is repetition: doing things over and over again until you really develop a skillset. And then the third part is confidence. But for me, you can't have confidence without having that second part.
+- One of the reasons that the NBA is so good is NBA Twitter.
+- Nothing can prepare an 18-year-old for the fishbowl that is Duke basketball. So that was difficult.
+- I like to write, I like to reflect, and not just poetry, I like to write my thoughts down. I think it's good for people who are more introspective, and it helps me get a better understanding of myself.
+- I'm no dummy. So much of the NBA is just fit and situation, and I always say this, for 85 to 90 percent of the league, your performance is often dictated by your situation and your coaches.
+- I'm not sure my own family liked me at Duke.
+- As a U.S. History major, there is something very cool about being in cities, and walking the streets of Philadelphia or Boston or New York and seeing historical sites.
+- At the end of every season I look in the mirror and ask myself what can I do better? Where did I screw up this year?
+- To use a phrase that I don't often use, the NBA is very much a woke league. It's at the forefront of a lot of things - training, fashion, food, diet.
+- I won't take a shot unless I think it's going to go in.
+- I know when I was a kid, I looked up to athletes. So, if an athlete spoke out on an important issue, then I was probably more likely to hear that opinion and to see that stance and recognize the importance of that.
+- There needs to be a dialogue between coaches, fans, players and administrators to promote positivity in the stands.
+- Player movement is good, and guys should be able to choose where they want to play.
+- I hate to admit it, but anytime you're at a stoplight and your phone is within reach? You pick it up. It's become instinctual. Even if you put the phone down and walk out of the room, you're always aware of where it is. It's become an extension of you.
+- I didn't like the way I shot the ball in Milwaukee, so I worked really hard on my shooting - threes off the move and off the catch. And also continued to work on my ball-handling and my in-between game - my runners and floaters.
+- Growing up, I didn't know anyone that was a watch collector or into watches, but I was always kind of curious about them. Before the NBA Draft, I knew I was going to get drafted, and I wanted to commemorate that by buying a watch.
+- Would I want to get traded again midseason? Hopefully, never.
+- My requirement of my fitness level is different than some players.
+- Most of my shots are threes and long 2-point jumpers.
+- My second year was particularly difficult because I had high expectations.
+- Every situation I've been in in my career, you just sort of adapt, and figure out where you can be effective.
+- My last four years in Orlando, I was a really good player but I wasn't a full-time starter.
+- I've never valued material things. I've always been more attached to people. The pursuit of material things takes time, and I realized my time is very valuable especially during the season. My time with my kids, what I do to take care of my body, and of course any intellectual pursuits I may have on the side. Those are all things that I value.
+- I don't own a watch anymore. Literally, that was an addiction. I'm not afraid to admit that. It took me over. My possessions possessed me.
+- I'm a Christopher Nolan fiend. I love 'Inception,' 'Interstellar,' 'The Prestige,' 'Memento' and of course the Batman trilogy. I love all his movies.
+- I think with defense especially, you have your core principles. If you do those consistently, then it's easy to make, sort of, game-to-game adjustments. But, when you're not doing your core principles consistently, you end up just guessing a lot. To be honest with you, that's what bad teams do.
+- When I was at Duke, I finally had an avocado - accidentally - on a turkey sandwich. I was hooked. Next thing I know, I couldn't get enough guacamole.
+- I played videogames growing up, but my parents really monitored how much I was playing.

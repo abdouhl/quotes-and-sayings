@@ -1,0 +1,54 @@
++++
+author = "James Wolk"
+title = "James Wolk Quotes"
+quotes_len = "48"
+description = "the best 48 James Wolk Quotes"
++++
+- I've always loved doing comedy.
+- I'm kind of a goofy guy at heart.
+- When I was young, my parents made me listen to old music and watch Jimmy Durante. I fell in love with the whole mystique of acting and entertainment.
+- Often in television, you read a script and you're amazed that you get the scene given to you.
+- Acting is definitely an incredible pursuit, but on the other side, it's a business, and learning where art meets business was a huge lesson for me. The more you can wrap your mind around that idea - that yes, this is my art, but it's tied into business - the more it helps you understand and move past the failures.
+- I'm a person who can't sit still for long.
+- No one ever judges their own self.
+- With 'The Crazy Ones,' we were really encouraged to improv and go off script.
+- I emceed in metro Detroit throughout college, and even when I moved to New York, I would actually fly back on a Friday, emcee on a Saturday, and fly back on Sunday so that I could audition during the week. It was a big part of my life.
+- I personally am not a shorts-wearing guy. That goes for any form of shorts, beside sports shorts, that I have to wear.
+- As an actor, it's exciting to play a role that's so far from what you are and to have people respond to it like a real human being!
+- I just grew up loving acting and loving entertainment.
+- I like 'Homeland' a lot.
+- During my third season of 'Zoo,' I was picked up by a car to go to work. We had this huge scene to shoot that day, but the traffic was just gridlock. My transportation guy got a call saying, 'Where are you? We need to start shooting.' So I got out of the car and just took off running by all of these cars that weren't moving an inch.
+- I had just finished working on a play, and we started to talk to the 'Happy Endings' folks. There was interest from both sides, which was exciting, because I thought it was very fresh. Adam Pally's just a really funny, talented dude. I thought I'd be great to jump on and do some comedy.
+- For the auditioning process, I love to move my body around, maybe dance a little bit, get myself in a really loose place where I'm free to play.
+- In my everyday life, I'm a jeans and button-up shirt kind of guy.
+- My dad used to put me in front of the TV screen and made me watch old Jimmy Durante and Dean Martin movies. I just always loved entertainment.
+- For people to keep saying, 'We want to see more of this guy, even though the shows have not always been out-of-the-box successes,' is a huge compliment to me.
+- There's a certain rhythm to comedy that is almost like you're dancing and you just go on autopilot, so to speak. There's something just beautifully enjoyable about comedy in that respect. It's a joy to be able to do that. Drama, you get to go to depths that you haven't gone to before.
+- I had such a broad array of classes, in improvising, in clowning, in Shakespeare. It was so great to just be inundated with all that.
+- In Michigan, if you want to act, it's local theater, it's high school theater and it's going to camp and putting on plays in the summer, and I always loved doing that. There was something that just drew me to it.
+- It's easy to think you can get discovered on the street, but I developed my chops on the stage - four years of theater in high school, and then another four in college.
+- My family and friends and career are very important to me, but running allows me to be a better friend, a better family member, and makes me better at my career.
+- I learned women never want to hear they have big feet. That's no fun.
+- Running is very therapeutic for me. I tend to have a louder brain, so when my mind is moving, I go for a run. It's very calming.
+- I probably don't watch as much television as I should, given what I do.
+- '30 for 30s' are amazing. They're little documentaries and can be anywhere from half an hour to an hour-and-a-half - great sports stories.
+- I just enjoyed bar mitzvahs as a kid, and there was this company in the Detroit area where I grew up, and I think they recruited me as a party dancer - you know, like, you dance around and pass out glow sticks. I quickly rose in the ranks and, within a year, became an emcee, which was kind of unheard of.
+- As an actor, you're tied to the writing. You live and die by what's written for you. And you can elevate that to a certain extent, but really, that's your blueprint.
+- The 'Lone Star' experience was tough at the time, but it really allowed me to look at things from a 3,000-foot high view. You can think something is the greatest thing in the world, but, as we know, anything can happen. It really taught me that I always want to make choices that I believe in artistically. No one can take that away from you.
+- I like to dance, but there's nothing professional about it.
+- You can find old Jewish newspapers from Detroit that have my promotional ad in them. It was a totally insane time in my life. Paul Rudd was also a bar mitzvah emcee, you know? It was like being a local rock star in Detroit.
+- For 'Mad Men,' we really had to stick to the script, and you want to. It's not like you feel your hand is being forced. The words you get are the words you say.
+- Anytime you get to join a group of people you admire and respect, you want to keep those doors open.
+- I think you always want to be open to things... it's just the matter of finding something I believe in, finding a character I believe in, and I think that's the way it should always be. I'm looking for things that excite me.
+- I always feel like hard work leads the way, and from there, I leave it up to the powers that be.
+- When you feel moved by the story, you want to tell that story.
+- I was an emcee for bar mitzvahs from age sixteen to twenty-one.
+- My character on 'The Crazy Ones' is entirely different than Bob Benson. If these guys ran into each other at a bar, I don't think they'd have much to talk about. They're really different guys.
+- By the time I got someone to take my head shot, I'd been acting for nine years!
+- I'm pretty addicted to it, so whether I'm home or on vacation, I need to run five days a week. It doesn't matter what the weather is, what the terrain is, where I am. I always need to get my miles in.
+- I try to stay away from the more schmaltzy side of things. That can backfire quickly.
+- The nature of television - it's quicker than both a play and a movie.
+- My mom is an art teacher and my dad owns a women's shoe store, so they're not actors by any means. Well, I guess to sell women's shoes, you have to be an actor.
+- There's a film I did called 'Front of the Class', about a teacher who had Tourette's. That was a beautiful blend of drama and comedy. There's some great moments of levity in the script.
+- I started in theater. I would liken sitcom work more to theater work than I would, perhaps, to dramatic television. It's so quick. It kind of feels like the pace of a play.
+- Even when we see somebody incredibly evil, there's a rationalization behind what they're doing. They're at their best when they're at the moment.

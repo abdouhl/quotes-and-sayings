@@ -1,0 +1,16 @@
++++
+author = "Michael Ende"
+title = "Michael Ende Quotes"
+quotes_len = "10"
+description = "the best 10 Michael Ende Quotes"
++++
+- When it comes to controlling human beings, there is no better instrument than lies. Because you see, humans live by beliefs. And beliefs can be manipulated. The power to manipulate beliefs is the only thing that counts.
+- She would sit by herself in the middle of the old stoe amphitheatre, with the sky's starry vault overhead, and simply listen to the great silence around her.
+- All the beasts in Howling Forest were safe in their caves, nests, and burrows.
+- Those who still think listening isn't an art should see if they can do it half as well.
+- She became so important to them that they wondered how they had ever managed without her in the past. And the longer she stayed with them the more indispensable she became, so indispensable in fact that their one fear was that she might some day move on.
+- Calendars and clocks exist to measure time, but that signifies little because we all know that an hour can seem as eternity or pass in a flash, according to how we spend it.
+- Time is life itself, and life resides in the human heart.
+- Momo listened to everyone and everything - even to the rain and the wind and the pine trees - and all of them spoke to her after their own fashion.
+- No architect troubled to design houses that suited people who were to live in them, because that would have meant building a whole range of different houses. It was far cheaper and, above all, timesaving to make them identical.
+- Life holds one great but quite commonplace mystery. Though shared by each of us and known to all, seldom rates a second thought. That mystery, which most of us take for granted and never think twice about, is time.

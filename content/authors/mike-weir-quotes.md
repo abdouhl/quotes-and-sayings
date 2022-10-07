@@ -1,0 +1,30 @@
++++
+author = "Mike Weir"
+title = "Mike Weir Quotes"
+quotes_len = "24"
+description = "the best 24 Mike Weir Quotes"
++++
+- I actually had a Bobby Orr action figure. You could put the pads on him and skates and all that. I was 7, and he was still playing.
+- I was not great behind the counter. I had a week off without asking for it. Another time, we had a cart go up in flames, and we went out on another cart, which we wrecked by running it into the cart that was on fire.
+- The Masters is one of golf's greatest traditions and Augusta is one of the best courses in the world. They are synonymous. It's an event that every golfer, and golf fan, looks forward to.
+- This golf course, you miss a shot a little bit off-line, it's going to bite you.
+- I punch left-handed.
+- As for my country, I don't live there, but obviously I'm very proud to be Canadian.
+- A lot of my buddies also played golf, but when it came to going to the beach or on the boat and chasing girls, they usually went that way and I went to the golf course.
+- Becoming the first Canadian male to win a Major Championship, especially being the Masters, was a dream come true.
+- Canada is hockey.
+- A lot of my buddies also played golf, but when it came to going to the beach or on the boat and chasing girls, they usually went that way and I went to the golf course to practice. Sometimes they'd come from the beach at dark to pick me up at the course.
+- You just don't have the time to worry about what others are doing. You just want to take care of your own business. You are focused on that tee shot on the 10th tee and making it to the finish line. It's one of the most stressful moments in professional golf, but you have worked so hard to get to that point, that it really is fun.
+- Playing hockey, there were a lot of guys bigger than me, so I knew I was going to get hit and have to deal with it. Gotta hit back.
+- You can be six behind on the back nine and still win the tournament.
+- Anything over-handed, I do left-handed. Like throwing a ball or serving in tennis. Otherwise, right-handed, like writing and shaving.
+- If I can raise more money for charities, or get more Canadian kids to play golf, the green jacket will mean even more.
+- The beauty of golf, you're in charge out here.
+- I have a lot of offers to play for appearance fees. It's nice gravy, but it's not a big motivating factor for me, to go here and there just for money.
+- The fame aspect of winning the Masters... besides being married and becoming a father, that's a strong third there.
+- The course is going to make you look silly sometimes. You have to be able to accept that and move on.
+- I had two older brothers, so I was always competing with them. The guys I grew up with on the golf course, when I was 13, they were 15 or 16, and I was always trying to beat them.
+- When I'm on with my putting, I'm as good a putter as there is, probably.
+- The only other time I can recall my dad getting upset at me was when I missed a hockey practice. My parents were away, so my buddy and I decided to skip it. I never told my dad about it, but he found out from the coach.
+- If I thought I had hurt my chances of winning another major just because I was chasing money around, I'd wind up kicking myself.
+- I spent hours as a kid on the putting green of the local golf course imagining I was sinking a putt to win the Masters.

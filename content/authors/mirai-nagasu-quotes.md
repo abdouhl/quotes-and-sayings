@@ -1,0 +1,105 @@
++++
+author = "Mirai Nagasu"
+title = "Mirai Nagasu Quotes"
+quotes_len = "99"
+description = "the best 99 Mirai Nagasu Quotes"
++++
+- Everyone has been injured, regardless of whether they're an athlete or not.
+- I have always believed that I've been an amazing skater regardless of what the results say.
+- Who cares if you get last place. This is the Olympics. Making it is the hard part.
+- I fall a lot during training.
+- To all the little girls out there, I would tell them to really appreciate what their parents do for them. And also to truly believe in their dream. If they truly believe that they're capable, things will happen for them - as long as they put in the work, of course.
+- Getting to the Olympics was the hard part.
+- Pre-competition rituals include nap time, because when competition rolls around, I'm a sloth. I also FaceTime my dogs.
+- I was always getting in trouble for whispering in class.
+- When someone really, truly believes in themselves, magic happens.
+- I like to be bold and different and to go and try things.
+- I think my own thinking is harsher than my mom's discipline.
+- I tell my boyfriend that... we should get a ranch so we can just adopt all the dogs that need homes, and they can just run around all day.
+- A lot of people know me for my speed and my flexibility. I like to jump, but I'm not really the best jumper. I'm more of a spinner.
+- Although there's a stigma that you learn only until a certain point, and then you just maintain, for me to learn the triple axel at 24 goes to show that anything's possible.
+- I think every brilliant mind is a little bit crazy.
+- Just really believe in yourself and stay true to yourself.
+- It's easy to look into the future and worry about the past.
+- I'm not a fadeaway type of person; I don't have that type of personality.
+- A long time ago, a sports reporter wrote that I wasn't strong in the free-skate, that I was more of a short-program skater. And that bothered me because I work so hard every day just for a person to judge me on a couple of bad skates and deem me a bad free skater. That's absurd!
+- I would like to be on 'Dancing With the Stars' because I want to be a star.
+- I always want to try for what's been offered to me.
+- In the history of sport in general, people stick around. Look at Shaun White and Lindsey Vonn just continue on, Olympic cycle after Olympic cycle; that is why they are famous.
+- I'm that person: I will literally do everything to not get out of bed, so I have alarms set for every 15 minutes.
+- My Olympic moment from the individual event was that I was really able to enjoy my skating, and so that meant a lot to me, and I didn't portray that accurately.
+- During finals week, I don't get a lot of sleep, and I tell myself, 'I can't do this anymore.'
+- I get about seven hours of sleep a night.
+- I believe in adventure and imagination, and I got that from my parents and the things I experienced as a child.
+- I wanted to make America proud.
+- I think I would be bored if I were winning all the time, even though it would be nice.
+- Being 16 is such a great age because I'm still really young, and I'll still have a lot of chances. But the Olympics only come every four years, so you don't want to waste an opportunity.
+- I made history here by landing the first triple axel for a U.S. lady, third at the Olympics, and that's a big deal.
+- When I was in middle school, I remember thinking, like, Tara Lipinski was 14: I only got a few more years to go before I'm really old.
+- Education is more important than skating. I want to keep up with my schoolwork and my skating.
+- I have always believed that I am an amazing skater regardless of what the results say, and I think that determination and confidence has kept me in the game so long.
+- Never lose your undying belief in yourself and your abilities.
+- I'm very Asian, and also my mom raised me to be polite and to eat whatever is put in front of me. I actually enjoy snails a lot. And I've eaten sea urchin and that shebang.
+- I guess I can be stereotypical and say that Asians are very cheap.
+- Sports is expensive, and you have to find a way to pay for it.
+- My dad is a very creative type of person, so he has rolls that make no sense to most people familiar with sushi. He has a High Five roll. What is that? Don't ask questions. Just try it. He's kind of mischievous, and that's how I am, too.
+- I started skating when I was five years old in Pasadena, California.
+- I skate six days a week, three sessions a day, and I go to the gym three times a week. I lift weights, do some ab work and whatever my trainer tells me to do. I take Saturdays off.
+- As athletes, we want to represent our country to the best of our ability.
+- On a normal day, I would wake up at 7:00 A.M. and spend about three to four hours training every day. But all of that depends on my school schedule. School and classes usually run from 8:00-10:40 A.M., but not before I've had a coffee for breakfast.
+- I don't even remember how many times I've sprained my ankle. I've had stress fractures galore and torn my PCL. You just take a little time off if you have the time, and if not, you keep training until you can take the time off.
+- If you really put your mind to it, anything is possible.
+- There are moments when I think I'm not very smart and not very pretty, and skating is the only thing that stands out about me. It's like the love of my life. When you love someone, sometimes you want to break up.
+- I feel like the worst has happened to me, so what better person to skate to 'Madame Butterfly' than me?
+- Something that I saw in Sochi that I didn't get the opportunity to have in Vancouver was the team holding hands with arms in the air and medals around their neck.
+- You can train to be ready for the nerves, and we simulate it all the time, but it's never the same when it actually matters.
+- There are always moments when I think about leaving skating, but when I think about that, I'm not very smart, and I'm not very pretty, and there's nothing else that stands out about me besides my skating.
+- It's been exciting to share my story for people to relate to me and reach out.
+- My parents are super excited that they've produced an Olympian. I don't think they ever would have imagined this would happen in a million years, so I hope I represent not only Team U.S.A., but the Japanese-American culture and my family as well.
+- I think it's because I'm so hard on myself that I can push myself this far.
+- Not only would my parents work full hours, my parents both woke up at 5 A.M. My dad left the house at 5 A.M. to go to the fish market to pick out his own fish, and my mom woke up at 5 A.M. to wake me up in order to get me ready for skating before school.
+- I loved being at the rink every day and training.
+- I sometimes think about adult skating and how, you know, people like Midori Ito, she competed at the adult world championships. I feel like I'll probably be someone like that.
+- I got to meet Rachel Platten, who sings 'Fight Song,' I love that song.
+- I've learned a lot from my parents.
+- Japanese people, they're not really one to complain.
+- Figure skaters are usually young and then just fade away. But I'm not a fade-away kind of person.
+- Being the heavy favorite is not always a good thing because of the amount of pressure on an athlete.
+- Being named to the Olympic team has special meaning to it because I feel like I've come full circle.
+- I pride myself on being Japanese American.
+- I have a great work ethic because I've watched my parents work super hard.
+- Sometimes, it's hard for me to communicate my discomfort because I want to be respectful. At the same time, I've learned that you have to ask people on your team to help you out.
+- Skating becomes more important to me every year. It's obviously harder as age takes a toll on the body and the brain, and I think because of that, competing becomes much more difficult. That's why those who stick around are always so appreciative of others' skating because we know how much work goes into it.
+- My parents always tell me that they never would have let me start if they had known how expensive and difficult figure skating is.
+- I've always been an A or B student. When I get a B, I freak out a little bit!
+- For my dad to say he's proud of me - in English - is a really big deal.
+- If I fall, I'll take the fall and get up and keep going.
+- The only thing I can expect from myself is to learn from each competition and improve.
+- Sports are evolving and always evolving, and people have that determination to keep going and coming back. I think I'm one of those athletes. I stand to show that people shouldn't give up. You've got to just keep going until you succeed.
+- I'm really good at window shopping, or I'll go into a store and just choose one thing.
+- I just want to redeem myself and show the world that... it wasn't a fluke that I won at nationals. I can compete on the international stage as well.
+- I think being in the public eye has made me more determined than other people to show that I do belong at the top, and I believe I am one of the hardest-working people at the rink. I feel like I have always been that way, but sometimes I just get in my own way.
+- I'm great at dishwashing.
+- It was really, really heartbreaking to not be named to the team in Sochi, but some things are just not meant to be. That experience changed me as a skater. I took a step back and decided that some things are not worth accepting. I wanted to be on another Olympic team. I took time to evolve myself as a person and as a skater.
+- I used to skate around the rink with my mom, and we used to race each other until I started getting way better. Then she hung up her skates and resorted to playing my music at the rink.
+- Narcissism is just self-confidence.
+- When I started not training as hard and doing what I needed to do, everyone else improved without me improving.
+- Whenever Michelle Kwan texts me or mentions my name, I'm like, 'Wow.' I still can't believe that this is someone who I grew up looking up to, and they know my name.
+- I always soak in a bath with Epsom salts for a minimum of 20 minutes to absorb the magnesium once I get home.
+- Michelle Kwan was an inspiration for everyone, including me.
+- People have drawn me, which is super cool. I'd love to print some out and put them on my wall.
+- It was my goal and dream to be selected to the Olympic team, so I knew going into it the amount of responsibility I was given.
+- When I'm at home, I'm a real big cuddler, so I sleep with my dog in my arms.
+- Daisuke Takahashi has really good footwork.
+- I can snap my toes. Everyone keeps asking me this, but I know it's kind of weird, but I think it's fun that I can snap my toes.
+- Maybe Asians are switching from studying to sports.
+- I don't necessarily always feel happy when I'm skating.
+- When I come home from training, my attention immediately has to focus on my school courses, which helps keep the stress level balanced. I mostly balance both by drinking a lot of coffee and making sure I time manage well, which doesn't happen all the time, especially during finals week.
+- My dad usually never has time for my skating, which is OK because they have to make a living somehow. For them to put their business on hold and come all the way to Korea to watch me skate - especially my dad - he feels responsible not just for my mom and for himself, but there are a lot of people who work there, too.
+- I really believe in myself.
+- For the American culture to evolve and include Asians is so amazing.
+- My mom is really dedicated to me. She drives me to school and skating, wakes up for me, and I'm just really appreciative.
+- I think, as a skater, I started out really strongly, and as I have grown in the public eye, I have had my rough seasons that most people don't get as much attention for.
+- It was hard for me to leave the nest, but my mom is super proud of me. She said, 'You became independent really quickly, and I'm so proud of you,' but she misses me all the same.
+- I'm a solo skater; the sport can be lonely.
+- I've dreamed about going to the Olympics ever since I was young.

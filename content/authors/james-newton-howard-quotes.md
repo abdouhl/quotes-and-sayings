@@ -1,0 +1,60 @@
++++
+author = "James Newton Howard"
+title = "James Newton Howard Quotes"
+quotes_len = "54"
+description = "the best 54 James Newton Howard Quotes"
++++
+- With any movie at all the challenge lies in the storytelling.
+- I think to do anything out of one's comfort zone, there has to be some aspect of it that feels inspiring and challenging in a positive way.
+- Any composer should be able to synthesize the primary feelings that the characters are going through in the movie.
+- I really don't think about the Oscars.
+- I'm a melody guy. To me, that's a musical souvenir people take from a movie. They remember a theme or a feeling, and if they've had a good or bad experience it evokes that sensation whenever they hear it again.
+- I started studying piano at the age of four.
+- Well, the first two movies of any size that I did were a movie called 'Everybody's All American' that Taylor Hackford directed - I was pretty diva on that - and then 'Pretty Woman,' which is probably my first real breakthrough.
+- Every movie you score you hope is unlike anything you have done before. You are always trying to not sound like yourself.
+- Tchaikovsky was one of the great melody writers of all time.
+- I like to pace myself at about two minutes of music a day. With 'Waterworld' it was closer to five minutes a day, which is uncomfortable and slightly terrifying.
+- I try and write a fair amount in the beginning without the movie. And then when I do get the movie I create these demos, just mock-ups, and I throw them up against the picture and some of it sticks and some of it doesn't. But I'm very careful before I play anything to picture, because that's such a profoundly important moment.
+- I am delighted just to work on a good movie, no matter what the medium is.
+- It's always a challenge to come up with a musical environment.
+- I have so much regard for the art of conducting. It's easy to look not so good up there.
+- Music has been of central importance to Disney movies for as long as I can remember. To contribute to that legacy, is a great honor.
+- I loved working with Chris Nolan. I love working with Lawrence Kasdan. Dan Gilroy. Francis Lawrence I love.
+- Music for cartoons is sillier, funnier.
+- In most multiple composer situations, you find it because someone got nervous about the music and insisted that somebody else come in and help.
+- That's what keeps me going: those moments of solving a problem, of what happens to a movie when the right music is added - and what happens to the music when the movie's working with it.
+- One day I was watching some pundits screaming at each other on a news show. It suddenly reminded me of this painting on my wall, of balloons with goofy faces rising - pundits screaming at each other and arguing off into the ether.
+- One of my biggest goals in writing the music for 'Fantastic Beasts' was to create memorable melodies. J.K. Rowling's world has always had a great musical legacy and I was hoping to continue that tradition.
+- Immersion in a movie over months and months will give you what you just can't get in the same way over a four- or six-week period.
+- I know that the classical world has resisted film composers throwing their hat into the classical concert music ring. And you know I don't think that's totally without justification. I think sometimes it seems to me there is a built in automatic prejudice against the whole idea of it. And it's very difficult to overcome that stigma.
+- What happens with a good score is, somehow the composer manages to cast himself or herself in the role of the protagonist. And then you write from their perspective.
+- Music can help uncover that tone that's in the fabric of the movie. Sometimes it's very plain to see, sometimes it's not.
+- Gamelan instruments are exotic and mysterious.
+- Like most people, I hate public speaking.
+- I believe very strongly in having melodic hooks, whether they're short or intricate, that you really remember in a movie.
+- I've been lucky to have been given opportunities in different genres. And most of the time I've felt that the exploration, the composing, the collaboration, was a move forward.
+- I absolutely loved 'The New World.'
+- The first 'Hunger Games' movie was one of those rare films to combine epic storyline, memorable characters and challenging musical opportunities.
+- My earliest memories are listening to my Grandmother playing the piano at our house as I jumped up and down on the couch. She was a violinist with the Pittsburgh Symphony in the 30s and 40s, and was a huge influence on me.
+- There's much more music now in movies than there used to be. Maybe sometimes there's too much music.
+- I tend to avoid interviews, I don't have a publicist and fear of failure is still very much alive in my personal life.
+- The thing about 'Fantastic Beasts' is that it's in the wizarding world, in J.K. Rowling's world, but it's not a Harry Potter movie. It takes place 70 years before Harry comes into being, so while we tip our hat and acknowledge in a respectful and witty wink and a nod kind of way to 'Hedwig's Theme,' the score is composed of all new material.
+- Becoming a father allowed me to become a much better composer, because it allowed me to have tremendous patience. I have much more tolerance for opposing opinions, short attention spans, changes of heart. And faith in the future.
+- Something different happened to me when I started to write music to images. It was a feeling of excitement and connection and a sense of being in the right place that I never had before.
+- I think every classically trained film composer feels to some extent, maybe on some level, that they took the low road, that they could have maybe pursued a career in the concert music world, and perhaps been involved in a higher quality of music.
+- I work independently of the director, and to some extent, that's actually a big relief to them. When I come to them in post-production, they're tired and over-budget. What can be better to them than presenting a full score totally gift-wrapped?
+- Disney movies have had a tradition of excellent music since the beginning. Some of my favorites are 'Fantasia,' 'Dumbo,' 'The Lion King' and 'Toy Story.'
+- I feel the first ten years of my career I really didn't care what the director said because I felt so arrogant. I was so certain about what should happen. But then I became a good listener.
+- I was a piano performance major at USC. I left before I graduated because I realized at some point I wasn't going to be a concert pianist and I was too attracted to popular music.
+- I joined Elton John's band in '75. He not only allowed me to play the electronic keyboard on his albums, he also let me do the orchestrations. Then I left the band and started producing records. I was not really a popular kind of hit music guy. I was attracted to more esoteric things.
+- There's a sadness about love, a melancholy and a sadness about beauty. It's just part of the human experience of living on this planet.
+- It's easy for me to write a quasi-virtuosic orchestral score. What is harder is to do that and say, all right, that works, but how else can you do it?
+- I would say, generally speaking, though it is not always the case, comedy is probably the least gratifying for most composers because it is more specific about what the music needs to do.
+- I hate bad reviews, so yeah, every now and then I think, 'Boy I hope everybody really likes this and thinks this theme is good.' You can't help but do that. I think we all are, or at least I am, reduced to a schoolboy seeking approval.
+- The colors of 'The Nutcracker' ballet score have become a part of the vocabulary of film music. It's where so much of the 19th-century romantic music that I call upon as a film composer is rooted.
+- For me, the biggest thing was writing memorable themes for the new characters so that ultimately people would have the same identification with 'Fantastic Beasts and Where to Find Them' as they do with the Harry Potter films.
+- I never like to conduct, quite honestly, because you have to be a bit of a dictator and it's exhausting.
+- The trick with 'Nutcracker' was figure out how much, and where, we could the Tchaikovsky - using as much as we possibly could and still support the storytelling.
+- I just go from one movie to the next and try not to get fired.
+- Jerry Goldsmith, I have to say, is my single favorite composer of all time. He was one of the most innovative guys ever to do it. You go back to 'Planet of the Apes' and it is just a monumental score - the sound design and approach to percussion was just so extraordinary. One of his great scores for me was 'Alien.'
+- As a film composer I deal with short bursts of musical ideas that are defined to a large extent by what's happening on the screen, by not only narrative and action, but staying out of the way of dialogue, sound effects.

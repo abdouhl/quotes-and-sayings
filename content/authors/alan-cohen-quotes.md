@@ -1,0 +1,24 @@
++++
+author = "Alan Cohen"
+title = "Alan Cohen Quotes"
+quotes_len = "18"
+description = "the best 18 Alan Cohen Quotes"
++++
+- The same Source that gave you the idea, will give you the means to see it through.
+- You are doing better than you think you are.
+- Appreciation is the highest form of prayer, for it acknowledges the presence of good wherever you shine the light of your thankful thoughts.
+- Everyone and everything that shows up in our life is a reflection of something that is happening inside of us.
+- You are in integrity when the life you are living on the outside matches who you are on the inside.
+- Joy is not the result of getting what you want; it is the way to get what you want. In the deepest sense, joy is what you want.
+- You can only see in someone else what you see in yourself.
+- Our history is not our destiny.
+- You can always tell what you believe by what you are getting.
+- It takes a lot of courage to release the familiar and seemingly secure, to embrace the new. But there is no real security in what is no longer meaningful. There is more security in the adventurous and exciting, for in movement there is life, and in change there is power.
+- God is a frequency. Stay tuned.
+- Great masters neither want nor need your worship. Your greatest gift to them and yourself is to emulate their divinity by claiming it as your own.
+- To love yourself right now, just as you are, is to give yourself heaven. Don't wait until you die. If you wait, you die now. If you love, you live now.
+- You will find truth more quickly through delight than gravity. Let out a little more string on your kite.
+- What are you accepting that would not be a part of your ideal day?
+- If you sense there must be more, there is more.
+- Everything will line up perfectly when knowing and living the truth becomes more important than looking good.
+- Guilt: punishing yourself before God doesn't.

@@ -1,0 +1,85 @@
++++
+author = "Mariah Carey"
+title = "Mariah Carey Quotes"
+quotes_len = "79"
+description = "the best 79 Mariah Carey Quotes"
++++
+- I was a reader as a child, believe it or not.
+- Especially since I started studying acting, I feel like I'm always super-aware of my emotions and my feelings and what's going on with me at every moment. I definitely think I wasn't very present prior to that.
+- I've seen other artists put out movies that went straight to DVD, and no one cared. Maybe their own fans bought the thing, and that was fine.
+- Stardom is a magical yet freakish situation at times. It's a cliche but very true that at times, you feel so alone, even when you're surrounded by so many people.
+- Prince was one of the best people I've met. He didn't care about the big system. I was always like, at any time, Prince could write a No. 1 song because he's that talented, but he chooses to do what he wants. I respect that. He actually helped me through a lot of situations with his knowledge.
+- Forget the image, forget the ensemble, forget the rumours, forget the short skirts, the big hair, whatever! I owe this to the fans and I will never forget you so I want to accept this award on behalf of all of you.
+- I'm not vain, I'm insecure.
+- I arrange flowers in my spare time. Well, when I have spare time, that is.
+- I've been blessed to live my dream more than half my life, so I want help give that back to someone else.
+- A lot of rappers don't have to go through what I had to go through as a singer. I was always in a bubble that they put me in, but I was always punching out. It was a tough line to walk.
+- Trust is not very easy for me at all. I want to be a trusting person, but I've been bruised so many times - not to sound woe-is-me about my life.
+- Honestly, everybody gets talked about. Some people control their press a little more than others. Some people feed the press and move it the way they want to. I don't do that.
+- I work myself into the ground. But I think I'm a nice friend and a good person, and I try to do my work as best I can.
+- I think that for me, personally, a lot of my choices have been to do with my own issues of not feeling safe as a child and feeling a sense of stability.
+- People are constantly asking me if I'm pregnant, but I don't like to talk about it too much. I just think about it as the next phase. We'll see.
+- If you're not wearing a lot of makeup, you don't have to take a lot of it off. So, my goal is to wear the least amount of makeup possible so I don't have to steam my face and take it all off.
+- My fans have made all my career moments special for me. They are the ones that have gotten me through every single thing - good times and bad, they are who I go to and lean on. I am very thankful for that.
+- I started singing when I started talking.
+- I could do my own nails... I went to beauty school in the 11th grade. But why would I do that now?
+- I'm actually a really good cook, and people don't believe this about me!
+- A lot of people are singing about how screwed up the world is, and I don't think that everybody wants to hear about that all the time.
+- I think I have to remain eternally oblivious to age. Honestly, when you put a number on it yourself, it's just like, Why? Why do that?
+- I don't think anyone knows as much about what's right for me as I do.
+- I really don't do karaoke because it becomes a vocal performance rather than fun, like, 'Let's just sing this song and be silly.' It's not fun for me.
+- I always felt like the rug could be pulled out from under me at anytime. And coming from a racially mixed background, I always felt like I didn't really fit in anywhere.
+- I think the greatest gift to me is that I can express myself in songs. It helps me get through some of the hardest times of my life. It also helps me celebrate some of the best times.
+- I used to be able to slim down just by exercising more, but that's changed.
+- I do not think I reinvent myself. Wearing my hair differently or changing my style of dress is playing dress-up. I don't take it too seriously.
+- I hope to be around past the 90's. I don't want to just be categorized as one of this era. My goal is to have a career that stands.
+- I love the grimiest rappers in the world. That's my favorite.
+- If you see me as just the princess then you misunderstand who I am and what I have been through.
+- Marilyn Monroe Productions was the first female-owned production company in Hollywood. She paved the way for women in Hollywood, and every single woman owes something to her for that, whether they agree with her image or not.
+- Since having the babies, I realize that 90 percent of losing weight is my diet.
+- I don't mind being compared to Whitney, there are people miles worse to be compared to.
+- There is a light at the end of the tunnel... hopefully its not a freight train!
+- I'd rather be onstage with a pig - a duet with Jennifer Lopez and me just ain't going to happen.
+- I've seen the real extreme diva behaviour and I don't think that's who I am.
+- The best part of making music, for me, is collaborating and working with new people and fresh sounds and all those things that gets people excited to continue in this business that we all love so much.
+- I am very insecure about my looks, and I always have been because of being mixed race.
+- I'm actually very loyal, to my detriment.
+- My heart has never been broken, I've never broken anyone else's.
+- I do all of my own stunts in videos. The Jet Ski scenes, the fight scenes, all of them!
+- My mother is Irish, my father is black and Venezuelan, and me - I'm tan, I guess.
+- People are like, 'What is your whole obsession with butterflies?' I'm like, 'I'm not obsessed. I like them. Can't anybody like something?'
+- Butterflies are always following me, everywhere I go.
+- You really just want to know that somebody loves you for you. Sometimes you feel like an ATM machine with a wig on it.
+- I'm not Gloria Steinem, but I mean, I'm definitely all for powerful women.
+- Christmas is always the most fun. I start looking forward to Christmas before it's even summertime.
+- I never thought that I would have love again, but it's amazing how the universe brings love to you.
+- One day I promised God that if he would give me my voice back I would never smoke again. I got three octaves back after quitting.
+- I wrote my own anthem: it's called 'Mariah's Theme.' It's on the 'Rainbow' album from '99. Back in the day.
+- I think certain people like to torture me because they think I've had it easier than I actually have and they think: 'Oh, she's got this, she's got that, she's always had everything perfect,' and it's sooo not true.
+- Pregnancy was probably the best and the hardest thing I'll ever go through. I know for a lot of women, it can be wonderful and relatively easy.
+- But I think I'm a nice friend and a good person, and I try to do my work as best I can.
+- Time is irrelevant to me. I never wear a watch.
+- My brother and sister had a much worse childhood, I think, because they were older, and they had to deal with a lot more racism because they grew up in the '70s and I grew up more in the '80s. So they had to deal with crosses being burned on their lawn and their dogs being poisoned.
+- I love giving gifts. It's almost like I don't open my gifts until, like, three days after Christmas 'cause I want to give everyone else their presents.
+- This is for all of you out there tonight, reaching for a dream - don't ever give up! Never ever listen to anyone, when they try to discourage you, because they do that, believe me!
+- I really rebel against authority.
+- I definitely feel more complete than before. There's a void you have when you don't feel you've found the other part of who you are, so I'm in a different place now and that's nice to experience.
+- I'm very hard on myself and I have too many issues.
+- I understand people want to hold on to their roots.
+- I'm a very good laundress when I have to be.
+- Some of us talk about other people and what they do and la la la. But I'm not that person.
+- The fans never send me crazy things. They send me things that they put so much time and effort into making, and they are so amazing.
+- I'm actually really good at Balderdash, and no one wants to play that game with me. Especially the movies category; I don't want to give away my secrets, but I am pretty good at that category.
+- Whatever you're going through in your life, don't ever give up.
+- In this world, I call the shots and I think I know best.
+- My father identified as a black man. No one asked him because he was clearly black. But people always ask me. If we were together, people would look at us in a really strange way. It sucked. As a little girl I had blond hair and they'd look at me, look at him, and be disgusted.
+- Sometimes I wake up laughing when I have a great dream. And sometimes I have nightmares - and I hate them.
+- I'm not one of those people that goes into details of my personal life on national TV to get attention. Some things are better left unsaid.
+- Being biracial is so much a part of who I am that it's almost, 'Let it go already.' It's intrinsic to me. I think a lot of my fans relate to me because they felt different.
+- Basically, I started singing when I started talking. Music has just been my saving grace my whole life.
+- I don't think there were great beauty trends in the '90s - I was just doing my own thing.
+- If critics have problems with my personal life, it's their problem. Anybody with half a brain would realize that it's the charts that count.
+- It's hard to be someone that people talk about and write about, you know? They don't know me.
+- You really have to look inside yourself and find your own inner strength, and say, 'I'm proud of what I am and who I am, and I'm just going to be myself.'
+- I try not to be a jerk. I really do. I try to be nice and cordial.
+- Never, never listen to anybody that try to discourage you.

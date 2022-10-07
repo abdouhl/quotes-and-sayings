@@ -1,0 +1,26 @@
++++
+author = "Tao Lin"
+title = "Tao Lin Quotes"
+quotes_len = "20"
+description = "the best 20 Tao Lin Quotes"
++++
+- A lot of people think I'm a vegan. I'm not.
+- I don't think music affects what words I choose to type in what order, within what punctuation, at this point, because I'm rereading and editing each sentence, at this point, in my published books, probably 100-150 times each, on average, and listening to probably 20-60 different songs in that time.
+- I don't view my memory as accurate or static - and, in autobiographical fiction, my focus is still on creating an effect, not on documenting reality - so 'autobiographical,' to me, is closer in meaning to 'fiction' than 'autobiography.'
+- I don't think I understand the concept of regret. Because if I regret anything, that would mean, like, I hate myself.
+- I think it would be funny for people to read in obituaries of me that my major contribution to the arts was the popularization of the phrases 'neutral facial expression' and 'screaming in agony.'
+- I think I've written about family and things in 'Taipei' which could be considered Asian culture.
+- I haven't written about an immigrant experience because I haven't experienced that before and am focused on existential themes.
+- I listen to music almost any time I'm not sleeping, 'hanging out' with specific people, or showering.
+- If I don't like someone and I start reading their stuff, it seems like my brain will just automatically start criticizing everything that's there. It's really hard to read a book without having all this outside information telling you what to think about it.
+- If I were really rich, I would be flying places, I think.
+- I like part-time jobs in restaurants.
+- I'm not being secretive about anything. I just actually don't have opinions about society.
+- My first book was poetry, but I didn't write it first. I wrote it third. So my first two books were prose.
+- I don't have specific music for when I'm writing. I'm usually listening to the same playlist or 'artist' before I arrive at the computer as when I'm walking somewhere after leaving the computer.
+- The idea of 'advice,' in terms of telling people advice or asking people for advice, has become not comprehensible to me, to a certain degree, due to feeling, like, for something to be accurately defined as 'good' or 'bad,' I would want to know the context, goal, perspective for it.
+- I like most any place if I have Internet access.
+- My face always looks bored or depressed. It's not an accurate impression.
+- I can discern that certain things have an effect on certain other things, but I don't view those effects as good or bad. If a context and a goal is defined, I could say if it's good or bad. But overall, I don't view things as good or bad.
+- I don't have a definition for depression. I'm productive, and that's not a sign of depression, right? And I don't have weeks where I don't leave my bed. It seems like depressed people have those.
+- I feel 'proud' whenever I feel that I've worked on something for a certain amount of time with a certain amount of attention. I'm not sure if I think in terms of 'pride' though.

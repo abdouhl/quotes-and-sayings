@@ -1,0 +1,32 @@
++++
+author = "Jim Sullivan"
+title = "Jim Sullivan Quotes"
+quotes_len = "26"
+description = "the best 26 Jim Sullivan Quotes"
++++
+- I remember a couple of instrumental albums, just don't ask the names.
+- I did loads of sessions with Andrew Oldham.
+- It was the early days of Rock 'n' Roll in this country. We were all struggling to learn music, it might be Country, Jazz, Classical, Blues or even Rock 'n' Roll.
+- I used to get nervous so I took up Yoga to help me calm down.
+- It's up to people like us, all of us, to address and talk about things like runaway global warming and how we can use things like remote viewing to save our planet.
+- Just recently I worked with Van Morrison and I came to realize that money can't make a decent human being out of you.
+- It wasn't all spent on practicing, I did do other things! but the classical guitar means a lot to me so I spend many hours building good chops and getting a good program together.
+- Lots of people think it was Jimmy Page who had the first fuzzbox. It wasn't, No! it wasn't me either.
+- I never had a Christmass at home for about 10 years.
+- I met a congressman who claimed that he could introduce me to two people who saw Amelia Earhart.
+- I didn't even recall being on the DB sessions until Herbie Flowers reminded me a couple of years ago.
+- It gives the listener a good workout, to listen to the music, the same as it does us to play it.
+- They are part of lots of sessions that makeup a hazy part of my session life.
+- Also I played on a lot of demos in the early days of the Stones.
+- The best 45 years of my life were the 5 years I spent with Ton Jones.
+- My whole life is geared to play guitar. I play what I want when I want and I hope the listener gets as much pleasure listening to the music as I get playing it.
+- I like to work with artists who are as wide in their musical taste as I am.
+- You sit there waiting for the RED LIGHT to go on. You could be sitting there for five minutes, waiting, while the producer talks to the engineer. Then the light goes on you know that you mustn't make a mistake for at least 4 minutes.
+- It is hard for 2 creative people to work together for that length of time and not fall out.
+- A musician can get lost to what he is in the session busines as it was.
+- I never liked making albums.
+- I hope to soon be in contact with the man who is searching for Noah's ark.
+- We can make science personal, like a love story or your best friend.
+- I am a very lucky man. I am living my life with my hobby as my profession.
+- Well I know I was contracted to Polydor so they couldn't use my name.
+- Talk radio doesn't need to be political.

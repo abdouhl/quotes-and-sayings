@@ -1,0 +1,58 @@
++++
+author = "Tony Abbott"
+title = "Tony Abbott Quotes"
+quotes_len = "52"
+description = "the best 52 Tony Abbott Quotes"
++++
+- All of the people who are using their BlackBerries or their iPhones, Facebook, all of the people who are sitting in cafes and hotels rooms doing their work, they're all using wireless technology, and we shouldn't assume that the only way of the future is high speed cable.
+- I feel a little uncomfortable at being asked the sorts of questions that other Catholics in public life tend not to be asked.
+- The problem with the Australian practice of abortion is that an objectively grave matter has been reduced to a question of the mother's convenience.
+- Well, I'm not saying that an emissions tax is ever going to be good policy.
+- I'm a politician. I'm not going to get into a whole range of scientific argument with scientists.
+- I am in favour of the notion of Australia as an immigrant society.
+- Once people come to Australia, they join the team.
+- I do enjoy exercise, not because I am an exercise junkie but because it's terrific stress release.
+- My commitment to the forgotten families of Australia is to ease your cost of living pressure.
+- It's very easy for Australians living in big cities to either romanticise or demonise the situation in Aboriginal places - to kind of look at things through the 'noble innocents' prism or through the 'chronically dysfunctional' prism, and I suspect that is so often the case.
+- I'm not saying that people on welfare don't contribute in their own way, but as many as possible should be encouraged to be economically active as well as socially and culturally active.
+- I try to treat people as people and not put them in pigeonholes.
+- I have close family members as well as lots of close friends who are gay. Many of them strongly support gay marriage.
+- I think that the best things that governments can do for productivity is not whack on new taxes and, if we can get institutions like schools and hospitals functioning better, well that's obviously good for the overall productiveness of our society.
+- I instinctively try to protect people from filth.
+- I want to see an end to sovereign risk questions over Australia.
+- I'm not running for canonisation.
+- Oppositions are not there to get legislation through. Oppositions are there to hold the government to account.
+- I think my wife and my kids are incredibly good to allow me to stay in public life given that they have to cop a whole lot of collateral attention that, being human, they'd rather not get.
+- Both Mum and Dad were converts to Catholicism, and normally if you convert to Catholicism you have thought about it more than someone who just grew up with it, taking it for granted.
+- There are no factions in the Liberal Party.
+- I think that marriage is, dare I say it, between a man and a woman, hopefully for life and there are all sorts of other relationships which should be acknowledged and recognised, but I don't know that they can be recognised as marriage.
+- If people are going to do things which have certain consequences that they would rather avoid, they should do whatever they need to avoid the consequences.
+- Now if you are condemned to life on welfare, I'm not so sure that being in a bigger welfare village is that much better than being in a smaller welfare village.
+- If we boost productivity, we can improve economic growth.
+- We just can't stop people from being homeless if that's their choice.
+- Most of the people who are coming to Australia by boat have passed through several countries on the way, and if they simply wanted asylum they could have claimed that in any of the countries through which they'd passed.
+- You try turning up in America without documents, without a visa, without a passport; you'll be treated as very, very much illegal.
+- My mum and mad were both very generous, encouraging parents.
+- I think anything which improves services is in principle a good thing.
+- If I was in a refugee camp somewhere on the Pakistani border, of course I'd want to come to Australia.
+- Political parties don't work when people just announce what they are doing and expect everyone else to follow.
+- I think that people should come to Australia through the front door, not through the back door. If people want a migration outcome, they should go through the migration channels.
+- I think leadership is knowing what you want to achieve and then purposefully and sensibly taking steps to achieve it, remembering always that you have got to bring people with you if you are seeking to be a successful political leader.
+- The problem with politicians getting to know the issues in indigenous townships is that we tend to suffer from what Aboriginal people call the 'seagull syndrome' - we fly in, scratch around and fly out.
+- I mean there are many, many people in all sorts of different countries who don't have a great life, who are subject to injustice. Are we obliged to take all of them who come here? I think the answer is 'Not necessarily.'
+- I see myself as a social conservative, but I think that there are lots of social institutions that produce beneficial reforms, like public hospitals, for instance, and schools.
+- To move past fear is a cliche.
+- Climate change is crap.
+- For small business people, less paperwork means higher profits, boosted sales and more time with the family.
+- You cannot win an election without a fight.
+- The Australian public are very fair and they are always prepared to give the leader of a major political party a fair go.
+- I don't think my religious convictions should be held against me.
+- Faith is important to me. It's important to millions of Australians. It helps to shape who I am. It helps to shape my values. But it must never, never dictate my politics.
+- A tax cut to compensate for a tax increase is not a cut - it's a con.
+- What I would like to see is sufficiently good education and health services being delivered to Aboriginal people so that they are prepared and ready to leave and join the economic mainstream if that's their choice.
+- I think that political marriages are subject to more strain than most precisely because of the nature of politics.
+- I would not want to see any relaxation of the law prohibiting human cloning.
+- I understand that government should live within its means, value the money it holds in trust from you the taxpayer, avoid waste and, above all else, observe the first maxim of good government: namely, do no avoidable harm.
+- Certainly, my uni days involved some statements that I wouldn't make today.
+- The smart way to improve broadband is not to junk the existing network but to make the most of it. It's to let a competitive market deliver the speeds that people need at an affordable price with government improving infrastructure in the areas where market competition won't deliver it.
+- The truth is I try to take people as I find them.

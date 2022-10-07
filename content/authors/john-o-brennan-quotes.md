@@ -1,0 +1,64 @@
++++
+author = "John O. Brennan"
+title = "John O. Brennan Quotes"
+quotes_len = "58"
+description = "the best 58 John O. Brennan Quotes"
++++
+- The United States is the first nation to regularly conduct strikes using remotely piloted aircraft in an armed conflict. Other nations also possess this technology. Many more nations are seeking it, and more will succeed in acquiring it.
+- The president's priority is to protect the safety and security of the American people. That's the physical security of the American people as well as the prosperity of the American people.
+- The United States does not view our authority to use military force against Al Qaeda as being restricted solely to 'hot' battlefields like Afghanistan.
+- I want to be very clear: whenever it is possible to capture a suspected terrorist, it is the unqualified preference of the administration to take custody of that individual so we can obtain information that is vital to the safety and security of the American people.
+- We are in this business, whether it be intelligence or the government, to protect freedom, democracy and liberty, not to violate that.
+- Our democratic values also include - and our national security demands - open and transparent government. Some information obviously needs to be protected. And since his first days in office, President Obama has worked to strike the proper balance between the security the American people deserve and the openness our democratic society expects.
+- Poverty does not cause violence and terrorism. Lack of education does not cause terrorism.
+- We are a nation of laws, and we will always act within the bounds of the law.
+- Simply stated, the need for accurate intelligence and prescient analysis from CIA has never been greater than it is in 2013 - or than it will be in the coming years.
+- Jihad is holy struggle, a legitimate tenet of Islam, meaning to purify oneself or one's community.
+- Since taking office, President Obama has worked to restore a positive vision of American leadership in the world - leadership defined, not by the threats and dangers that we will oppose, but by the security, opportunity and dignity that America advances in partnership with people around the world.
+- Where terrorists offer injustice, disorder and destruction, the United States and its allies stand for freedom, fairness, equality, hope, and opportunity.
+- The men and women of the CIA are a national treasure.
+- Why should a great and powerful nation like the United States allow its relationship with more than a billion Muslims around the world to be defined by the narrow hatred and nihilistic actions of an exceptionally small minority of Muslims?
+- Terrorism needs to be fought against and certainly delegitimized or attacked, but some of the underlying grievances that might in fact lead individuals astray to terrorism cannot be ignored.
+- A lot of things look good on an academic's blackboard in terms of the actions that need to be taken. It's almost like a football coach, when you draw the X's and O's: Every play that is chalked on that board goes for a touchdown. Well, there are a lot of yards to be made between the line of scrimmage and the touchdown.
+- We will never abdicate the security of the United States to a foreign country or refrain from taking action when appropriate. But we cannot ignore the reality that cooperative counterterrorism activities are a key to our national defense.
+- To me, terrorists should not be able to hide behind their passports and their citizenship, and that includes U.S. citizens, whether they are overseas or whether they are here in the United States. What we need to do is to apply the appropriate tool and the appropriate response.
+- The CIA has acknowledged that it has detained about 100 terrorists since 9/11, and about a third of them have been subjected to what the CIA refers to as 'enhanced interrogation tactics,' and only a small proportion of those have in fact been subjected to the most serious types of enhanced procedures.
+- Al-Qa'ida seeks to portray America as an enemy of the world's Muslims. But President Obama has made it clear that the United States is not, and never will be, at war with Islam.
+- As we've seen, deploying large armies abroad won't always be our best offense. Countries typically don't want foreign soldiers in their cities and towns.
+- Throughout my career, I had the great fortune to experience firsthand as well as to witness what it means to be a CIA officer.
+- President Obama has made it clear that the United States is determined to prevent Iran from acquiring nuclear weapons.
+- The risk of just one terrorist with just one nuclear weapon is a risk we simply cannot afford to take.
+- U.S. computer networks and databases are under daily cyber attack by nation states, international crime organizations, subnational groups, and individual hackers.
+- Al-Qa'ida does not follow a traditional command structure, wear uniforms, carry its arms openly, or mass its troops at the borders of the nations it attacks. Nonetheless, it possesses the demonstrated capability to strike with little notice and cause significant civilian or military casualties.
+- By the time President Obama took office, Guantanamo was viewed internationally as a symbol of a counterterrorism approach that flouted our laws and strayed from our values, undercutting the perceived legitimacy - and therefore the effectiveness - of our efforts.
+- We need to make sure that leaks of classified information, of national security secrets, needs to be rigorously pursued and prosecuted to the fullest extent of the law.
+- If a person is a U.S. citizen, and he is on the battlefield in Afghanistan or Iraq trying to attack our troops, he will face the full brunt of the U.S. military response.
+- You know, President Obama feels very strongly that the government has a responsibility to engage with the American people, as well as with the world community.
+- Any American who joins al Qaeda will know full well that they have joined an organization that is at war with the United States. Any American who did that should know well that they in fact are part of an enemy... and that the U.S. will do anything that is possible to destroy that enemy to save American lives.
+- We will use all lawful tools at our disposal, and that includes authorities under the renewed PATRIOT Act. We firmly believe that our intelligence gathering tools must enable us to collect the information we need to protect the American people.
+- It's not that the system is broken, but clearly there are ways to improve the system, strengthen it, to make sure that we can put together the various bits and pieces of information in a way that allows us to stop every single terrorist out there.
+- Al-Qa'ida is the antithesis of the peace, tolerance and humanity that is at the heart of Islam.
+- In full accordance with the law - and in order to prevent terrorist attacks on the United States and to save American lives - the United States government conducts targeted strikes against specific al-Qa'ida terrorists, sometimes using remotely piloted aircraft, often referred to publicly as drones.
+- The preservation of our national security and the laws that define us as the United States of America demand that we understand the intersection of the two - indeed, how they reinforce one another.
+- How you define a problem shapes how you address it.
+- As a matter of international law, the United States is in an armed conflict with al-Qa'ida, the Taliban, and associated forces, in response to the 9/11 attacks, and we may also use force consistent with our inherent right of national self-defense.
+- We know from the material that was recovered from the bin Laden compound that bin Laden was looking at the 10th anniversary of 9/11 as an opportunity to strike yet again at the U.S. homeland.
+- Sometimes there are actions that we are forced to take, but there need to be boundaries beyond which we are going to recognize that we're not going to go because we still are Americans, and we are supposed to be representing something to people in this country and overseas.
+- I'm neither Republican nor Democrat. I've worked for the past five administrations.
+- As a former career intelligence professional, I have a profound appreciation for the value of intelligence. Intelligence disrupts terrorist plots and thwarts attacks. Intelligence saves lives.
+- We're trying to be very careful and precise in our use of language, because I think the language we use and the images we project really do have resonance. It's the reason why I don't use the term jihadist to refer to terrorists. It gives them the religious legitimacy they so desperately seek, but I ain't gonna give it to them.
+- The actions that we take on the counterterrorism front, again, are to take actions against individuals where we believe that the intelligence base is so strong and the nature of the threat is so grave and serious, as well as imminent, that we have no recourse except to take this action that may involve a lethal strike.
+- Terrorists are not 100 feet tall. Nor do they deserve the abject fear they seek to instill.
+- I think the rule should be that if we're going to take actions overseas that result in the deaths of people, the United States should take responsibility for that.
+- When we uphold the rule of law, our counterterrorism tools are more likely to withstand the scrutiny of our courts, our allies, and the American people. And when we uphold the rule of law it provides a powerful alternative to the twisted worldview offered by al-Qa'ida.
+- Unfortunately, in war, there are casualties, including among the civilian population.
+- I will not, nor will I ever, publicly divulge sensitive intelligence sources and methods. For when that happens, our national security is endangered and lives can be lost.
+- While the intelligence profession oftentimes demands secrecy, it is critically important that there be a full and open discourse on intelligence matters with the appropriate elected representatives of the American people.
+- Our counterterrorism tools do not exist in a vacuum. They are stronger and more sustainable when the American people understand and support them. They are weaker and less sustainable when the American people do not.
+- Yes, war is hell. It is awful. It involves human beings killing other human beings, sometimes innocent civilians. That is why we despise war.
+- I do not - I never believed it's better to kill a terrorist than to detain him. We want to detain as many terrorists as possible so we can elicit the intelligence from them in the appropriate manner so that we can disrupt follow-on terrorist attacks.
+- I have a reputation for speaking my mind. I like to think my candor and bluntness will give you the answers.
+- When we uphold the rule of law, our counterterrorism tools are more likely to withstand the scrutiny of our courts, our allies, and the American people.
+- I think we do have to take off the gloves in some areas, but within balance, and at the right time and the right way, and for the right reason and with full understanding of what the consequences of that might be.
+- Obviously, the death of Usama Bin Laden marked a strategic milestone in our effort to defeat al-Qa'ida. Unfortunately, Bin Laden's death, and the death and capture of many other al-Qa'ida leaders and operatives, does not mark the end of that terrorist organization or its efforts to attack the United States and other countries.
+- I go to bed at night worrying that I didn't do enough that day to make sure I protect the American people.

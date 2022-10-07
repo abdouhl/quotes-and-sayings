@@ -1,0 +1,17 @@
++++
+author = "Joel Benenson"
+title = "Joel Benenson Quotes"
+quotes_len = "11"
+description = "the best 11 Joel Benenson Quotes"
++++
+- Young Joel Benenson supported - well, I - you know, look, I supported Bobby Kennedy, not Eugene McCarthy in '68. I mean, that's where I landed.
+- Most public polling continues to be reported on strictly from a topline, horserace-type perspective that does nothing, or at best very little, to illuminate the news of the day.
+- Hillary Clinton has made it clear over and over again that we are at our best when we lift people up; we should be leaving no one behind. That is not always her home base, but it's always part of what she says.
+- I understand that people in the media want this to be a sprint every day, but the truth is a presidential campaign is a marathon.
+- I think what is important, whether you are Barack Obama or Hillary Clinton or Bernie Sanders, is to embrace and own your identity. I think that's not political. That's good in life, and it certainly is the best way to be when you are running for office. If you don't do that, the voters will see through it.
+- I'm still a hard-edged reporter, but I'm an optimist. I'm a perpetual optimist.
+- I don't see any state that Democrats have won five out of six times, or six out of six times, that Trump, you know, at face value, poses a threat in. I just don't see it.
+- The challenge with a candidate like Donald Trump is he's not a conventional candidate, and he doesn't run a conventional campaign, and he doesn't answer questions in a conventional way.
+- When you hear 'experience,' that's all about resume. And Obama didn't have the resume. But we knew, long before that, 'steady in a crisis' was much more important than 'experience.' When you watched the presidential campaign, you saw that Obama was the one who happened to be steady... He demonstrated aspects of his character people were hungry for.
+- One thing in common between politics and marketing is that your greatest strength can often be your greatest weakness.
+- I was a reporter for Gannett and the 'N.Y. Daily News' covering Gov. Mario Cuomo's dance with presidential races in both 1988 and 1991.

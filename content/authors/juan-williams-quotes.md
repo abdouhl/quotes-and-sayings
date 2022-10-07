@@ -1,0 +1,67 @@
++++
+author = "Juan Williams"
+title = "Juan Williams Quotes"
+quotes_len = "61"
+description = "the best 61 Juan Williams Quotes"
++++
+- While Planned Parenthood provides abortions at some of their clinics, it also provides healthcare services for poor women, including checkups, mammograms, cervical cancer screenings and contraceptives.
+- I support gun control. But speaking honestly about the combustible mix of race and guns may be more important to stopping the slaughter in minority communities than any new gun-control laws.
+- Even after they fired me, called me a bigot and publicly advised me to only share my thoughts with a psychiatrist, I did not call for defunding NPR. I am a journalist, and NPR is an important platform for journalism.
+- Beyond budget fights, the Obama second-term agenda was supposed to be about passing comprehensive immigration reform.
+- The people we want in our news prime-time space now are strongly opinionated people who I think, for the most part, attract audiences of like-minded people, who want to know 'what's our side thinking right now?'
+- Yes, agriculture subsidies are far too generous. They need to be reined in because they cater to special interests while distorting free market competition. Yes, the farm laws are an anachronistic mess.
+- Americans have a lower opinion of Congress than they do of the NFL replacement refs, head lice, traffic jams, cockroaches and even the group to which yours truly belongs - Washington political pundits.
+- Frederick Douglass had to teach himself how to read before standing up to defeat slavery.
+- The 112th Congress passed only 220 laws, the lowest number enacted by any Congress. In 1948, when President Truman called the 80th Congress a 'Do-Nothing' Congress, it had passed more than 900 laws.
+- For me, the key is I always have to be the same person. If someone was to hear me say something on Fox and hear me say something different on NPR, they would say, 'The guy is a hypocrite.'
+- NPR fired me for telling the truth. The truth is that I worry when I am getting on an airplane and see people dressed in garb that identifies them first and foremost as Muslims. This is not a bigoted statement. It is a statement of my feelings, my fears after the terrorist attacks of 9/11 by radical Muslims.
+- Years ago, NPR tried to stop me from going on "The Factor." When I refused, they insisted that I not identify myself as an NPR journalist. I asked them if they thought people did not know where I appeared on the air as a daily talk show host, national correspondent and news analyst. They refused to budge.
+- In 2008, Obama won 56 percent of the women's vote to John McCain's 43 percent. It was the critical difference in the race.
+- When I get on a plane, I got to tell you, if I see people who are in Muslim garb and I think, you know, they are identifying themselves first and foremost as Muslims, I get worried. I get nervous.
+- The Republicans want to turn Medicare into a voucher plan that will end guaranteed coverage of medical bills for the elderly.
+- The factual reality is that the vast majority of immigrants - legal and illegal - contribute more to this country than they take out in social services.
+- Voting is a Constitutional right. Absent any evidence of fraud, all Americans have a protected right to vote, be they rich or poor, black, Hispanic or white, people who live in a big city or in remote rural areas.
+- When it comes to serious cuts to major programs like Medicaid, the American people are not calling for leadership but magic. They want cuts with no pain.
+- Sometimes you have to understand that you push ahead, there's going to be a lot of flak, there's going to be a lot of dogs barking, but the wagon train moves ahead.
+- When you stop and look at so much of the kind of activism that has been triggered, the Tea Party and the like, as a result of Obama's efforts - TARP, the stimulus package, and now the health care reform - there is a lot of sense this government is changing.
+- I think the idea of fact-checking, I think the idea that you come up through a system where you know how to cover night cops, and then you go on, and you go on to various beats, including writing obituaries, and you get names right, you know how to spell them, really has some advantages to it.
+- Democrats cannot win elections without capturing the votes of independent-minded swing voters. And that is where writing off the Tea Party as a bunch of racist kooks becomes self-destructive. The Tea Party outrage over health-care reform, deficit spending and entitlements run amok is no fringe concern.
+- Alaska and Montana are not in the south but they definitely form part of the crimson tide of red states where Republicans are dominant.
+- In the last 100 years only Presidents George H.W. Bush, Jimmy Carter and Gerald Ford lost their bids for reelection. President Lyndon Johnson did not run for a second term.
+- Cable would not translate into the public radio universe.
+- Murders with guns are the No. 1 cause of death for African-American men between the ages of 15 and 34. But talking about race in the context of guns would also mean taking on a subject that can't be addressed by passing a law: the family-breakdown issues that lead too many minority children to find social status and power in guns.
+- I pointed out that the Atlanta Olympic bomber - as well as Timothy McVeigh and the people who protest against gay rights at military funerals - are Christians but we journalists don't identify them by their religion.
+- Every American president must be held to the highest standard. No president of any color should be given a free pass for screw-ups, lies or failure to keep a promise.
+- If Mitt Romney defeats President Obama in his bid for reelection on Tuesday, it will mark the success of one of the most deeply cynical political campaigns in American history. It is hard to beat an incumbent no matter the economic climate.
+- And there is no getting away from the fact - and this is a key point of discontent among many who are upset with the health care reform bill is it didn't go far enough. They say why isn't it in place now? Why don't I see some benefits now? All I see is the potential for losing insurance coverage, for premiums going up. That's hurting Obama.
+- As President Obama is inaugurated for a second time, the biggest political surprise is that gun control is now key to his political legacy.
+- In 2008, when the real estate market blew up, it principally hurt older people who saw the value of their houses go down, along with their pension plans.
+- Apparently, the heart of opposition to new gun regulations is in the white community. Yet white people face far less daily violence with guns.
+- Republicans get a lot of money from big business, but they are not tied to the union dollar. As a result they have been aggressive advocates of school reform, charter schools and vouchers for private schools.
+- Ann Romney... looked to me like a corporate wife. The stories she told about struggles - eh! It's hard for me to believe. I mean, she's a very rich woman, and I know that, and America knows that.
+- There is absolutely zero chance that ObamaCare will be repealed while Democrats control the Senate and President Obama is in the White House.
+- President Obama and Secretary Duncan have made stronger teacher evaluation a key part of their education reform efforts. Under their signature plan, called 'Race to the Top,' states can win federal support for schools by improving teacher evaluations.
+- Though President Obama promised during the 2008 campaign to pass the DREAM Act, he never made it a priority and failed to bring Republicans and Democrats together to do it in his first term.
+- I'm not a predictable black liberal.
+- If his presidency is to represent the full power of the idea that black Americans are just like everyone else - fully human and fully capable of intellect, courage and patriotism - then Barack Obama has to be subject to the same rough and tumble of political criticism experienced by his predecessors.
+- The critical importance of honest journalism and a free flowing, respectful national conversation needs to be had in our country. But it is being buried as collateral damage in a war whose battles include political correctness and ideological orthodoxy.
+- NPR editors and journalists found themselves caught in a game of trying to please a leadership team who did not want to hear stories on the air about conservatives, the poor, or anyone who didn't fit their profitable design of NPR as the official voice of college-educated, white, liberal-leaning, upper-income America.
+- Gun-related violence and murders are concentrated among blacks and Latinos in big cities.
+- Yesterday NPR fired me for telling the truth. The truth is that I worry when I am getting on an airplane and see people dressed in garb that identifies them first and foremost as Muslims. This is not a bigoted statement. It is a statement of my feelings, my fears after the terrorist attacks of 9/11 by radical Muslims.
+- In 2007 the 'dagger' of an idea that killed President Bush's effort at reforming the immigration system was lax border security.
+- When I'm on TV, I'm often talking to a conservative host. I may have another conservative arguing with me. You've got very limited time, and you're using 'sound-bite' type language.
+- The power of the silent filibuster to distort Senate politics is now accepted on Capitol Hill and by the press as normal and not worth mentioning. Let me be the skunk at this political garden party and say this stinks. Representative government was not designed to work this way by the Founding Fathers.
+- The teachers' unions that block school reform have done serious damage to the union brand. The public no longer views unions as their friend, much less their champion. They view them as corrupt, intransigent and more interested in protecting their political clout within the Democratic Party than protecting their members or even school children.
+- There is no debating that, under President Obama, corporate profits are at their highest levels in decades.
+- The question now is does Obama have any hope of raising money? I don't think he'll raise it out of the New York people, I don't think he's going to raise it out the Hollywood people, so where's the money going to come from for Barack Obama?
+- Teddy Kennedy rose to become a liberal lion by collaborating with Republicans.
+- As the 2012 elections approach the finish line, the chatter among columnists and political reporters is about upcoming books that take readers inside the campaigns, cutting-edge efforts to micro-target voters on Internet social applications, the enormous money flowing through super-PACs, and extreme political polarization.
+- For the first time since 2007 there is political momentum behind fixing the immigration system. President Obama in his State of the Union speech reached out to the right-wing by saying illegal immigrants seeking citizenship will have to pay taxes, learn English and get in line behind people who are trying to enter the United States legally.
+- Hikes in the debt ceiling - without any political demands from the opposition party - had been routine until President Obama took office.
+- President Obama's proposal to raise the top rate to 39 percent is equal to the rate under President Clinton in the 1990s when Wall Street reached record high levels and the economy produced lots of jobs.
+- Where are the exhortations for children to reject the self-defeating stereotypes that reduce black people to violent, oversexed 'gangstas,' minstrel show comedians and mindless athletes?
+- Republicans believed that their job was not governing but blocking any idea coming from President Obama and the Democrats, and wiping out Democrats in the 2012 election.
+- The 2012 presidential campaign's turn away from the classic, straight-up, American election - where the candidate who gets the most votes nationwide wins - is another sad reminder of the extreme political polarization distorting today's politics. No one talks about a 50-state strategy for winning the presidency these days.
+- I've always thought the Right-wing were ones that were inflexible and intolerant,and now I'm coming to realize that the orthodoxy at NPR, it's representing the Left.
+- Where is the civil rights groundswell on behalf of stronger marriages that will allow more children to grow up in two-parent families and have a better chance of staying out of poverty?
+- In the 2000 presidential election, Al Gore got more votes than George W. Bush, but still lost the election. The Supreme Court's ruling in Florida gave Bush that pivotal state, and doomed Gore to lose the Electoral College. That odd scenario - where the candidate with the most votes loses - has happened three times in U.S. history.

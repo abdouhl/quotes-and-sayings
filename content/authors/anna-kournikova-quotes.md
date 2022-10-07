@@ -1,0 +1,38 @@
++++
+author = "Anna Kournikova"
+title = "Anna Kournikova Quotes"
+quotes_len = "32"
+description = "the best 32 Anna Kournikova Quotes"
++++
+- I've just done a commercial in the U.S. in which I talk about stocks, shares and bonds. Everyone is amazed. They ask me: 'You really know about that stuff or did you just learn it for the commercial?' I tell them I wouldn't do it unless I understood and had an interest.
+- I've been judged my whole life. People always expected amazing things from me.
+- Like any young person, I do what I want.
+- A court is like a scene, people want to see attractive people.
+- I just play for fun.
+- Do I consider myself sexy? It all depends on the way I'm feeling. When I'm happy inside, that's when I feel most sexy.
+- Why are people afraid of getting older? You feel wiser. You feel more mature. You feel like you know yourself better. You would trade that for softer skin? Not me!
+- I believe in commitment. I believe in being open and trusting each other and respecting each other completely.
+- I think it's really important for me not to forget where I came from.
+- I worked very hard and I earned all the attention I'm getting.
+- The courts are as a stage, people love to see attractive players.
+- I'm like a menu at an expensive restaurant; you can look at me, but you can't afford me.
+- It's true I always try to be as seductive as possible but I wouldn't be here if I couldn't play tennis.
+- Judgment is judgment, whether you're obese, or too skinny, or not athletic enough.
+- I have a lot of boyfriends, I want you to write that. Every country I visit, I have a different boyfriend. And I kiss them all.
+- When I play, I feel like I'm in a theatre, why should I look ugly then, because I'm a tennis-player?
+- I absolutely want to have children, whether I have my own or adopt.
+- I'm like an expensive menu... you can look but you can't afford!
+- When I was 12, every little girl in Russia was trying to wear her hair like mine and playing tennis.
+- I am beautiful, famous and gorgeous.
+- I think that tennis is a lady's sport, so we should look out there like ladies.
+- There are a lot of pretty girls. I am a tennis player first of all, that is why I am here, and if wasn't producing results no one would notice me.
+- Boyfriends have to understand me and my needs. They have to know what I want out of my life and about my strict regime. I go to bed at 10pm and not later. I separate my professional and private lives.
+- The world believes all blondes are stupid and brunettes are smarter. Well, I disagree.
+- It's that I have a good personality and am a good tennis player.
+- You don't think people would go on about my looks if I was No. 500 in the world instead of No.12, do you? Anyway, as I keep telling everyone, you can't blame me for looking like this on purpose.
+- At this year's Open, I'll have five boyfriends.
+- God gives all to those, who get up early.
+- I grew up a little girl in the Soviet Union playing at a small sports club. Tennis gave me my life.
+- At 16, 17, you have no fear. You don't think or analyze. You just play on automatic. You can get smarter as you get older, but in sports you can be too smart, you know?
+- I don't know what better teenage life you could get than going around the world doing what you love to do.
+- My manager wants me to dress like a nun and I want to dress like a teenager.

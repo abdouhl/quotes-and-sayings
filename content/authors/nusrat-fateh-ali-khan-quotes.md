@@ -1,0 +1,27 @@
++++
+author = "Nusrat Fateh Ali Khan"
+title = "Nusrat Fateh Ali Khan Quotes"
+quotes_len = "21"
+description = "the best 21 Nusrat Fateh Ali Khan Quotes"
++++
+- I do listen to other music though, and try to pick up what is good.
+- A performer learns with experience and with age. I did not know the future when I left home and started out to begin my career: I started qawaali; then I met Peter Gabriel and was exposed to a lot of new ideas.
+- From childhood, I had been instructed in the tablaa by my father, along with the astaais and antaraas specific to our Gharana.
+- There should be change - the West should understand our music and culture, and vice versa. With such collaboration, artists can come closer to each other and come to know each other.
+- I do disagree with the way videos of my songs have been made. 'Afreen Afreen' is a very powerful song; it did not require such a video. The emphasis should be on the song. Again, I have told my recording company, and in the future, they will screen the video only after my approval.
+- You've got to sing from the depths of the heart. Without heart, you cannot be a Qawwal.
+- People listened to Farsi texts, and to the great texts of our Baba Bulleh Shah, Khwaja Ghulam Farid, Mian Mohammad Bakhsh Jehlmi. People do listen to it these days, but much less than in those days.
+- In my opinion, being an all-rounder is good. It is not right that I should be content with qawwali and ignore other forms, since I am basically trained in classical singing. We should be masters of all forms of singing.
+- There are two languages that I love: Farsi and Panjabi. Because the depth of Sufi thought in these two languages cannot be found in any other language.
+- I also like Western classical music and jazz.
+- There is a famous musician, Peter Gabriel, who has used my voice in the movie, 'The Last Temptation of Christ.' He used my song in the background.
+- Yes, you've got to sing from the depths of the heart.
+- My father gave me formal education in raagdari. He died in Lahore in 1964 when I was 13. I was in the tenth year of school, and my father's brother took me into the qawwali ensemble and started giving me formal education in qawwali.
+- When people start dancing, they dance like they don't know they are doing it.
+- I like to experiment with my voice, besides music.
+- A man learns all his life and dies the day he thinks that he has learnt everything.
+- I was just studying with my father, a very difficult task for me since he was a great, great Qawwali singer.
+- As the times change, people change, and so do their tastes, so I try to understand what the public wants, what they require. I have tried to make the music a bit easier for them to understand.
+- It is not necessary that the scion of a singing family, even if he sings, can excel in it. In order to reach his peak he has to work very, very hard.
+- Yes, I tried to change the classical style in a way that people who don't understand it can enjoy.
+- I am not a Sufi, but I follow the Sufi.

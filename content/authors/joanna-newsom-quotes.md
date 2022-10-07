@@ -1,0 +1,36 @@
++++
+author = "Joanna Newsom"
+title = "Joanna Newsom Quotes"
+quotes_len = "30"
+description = "the best 30 Joanna Newsom Quotes"
++++
+- I give away CDs at shows if someone wants a CD but doesn't have any money. I wouldn't want to do that forever.
+- The way that words fit together is always interesting to me. I love words.
+- I wasn't interested in writing music that wasn't beautiful for me to listen to.
+- I wanted to write songs which I think is a different thing. I wanted to write music that is informed by folk music. The chord progressions are obvious references.
+- I am not doing something that it is experimental music in relation to classical music.
+- I can't play my songs on the smaller harp. I have a Celtic harp. I can't do the key changes.
+- I am consciously not trying to bring in World Music elements. The ways that I work and feel are completely different in how they sound than someone playing the Kora in Africa would play it.
+- I definitely don't subscribe to the theory that more instruments, or more vocal tracks, harmony, or double tracking the voice, is a good thing. People do their early albums very stripped down, then each album becomes bloated.
+- I am consciously trying not to make it sound Celtic or African.
+- I can understand someone not liking the voice or the songs.
+- I did spend a year in high school being obsessed with Fleetwood Mac.
+- I played piano for about two years when I was a kid. I didn't play long enough to be really great.
+- I have writing songs on my own for about six years.
+- In high school, we studied a lot of poetical forms. I was really interested in the math that was involved and the strange live break ups. That gave me a great amount of respect for a rhymed stanza.
+- I recorded harp first or singing first. I recorded it all together. Part of the reason is that I don't know how to play the songs without also singing. I forget how they progress. I don't think that any of them are verse, chorus, verse, and so on. They are not simple.
+- People in San Francisco and the East Bay have shown interest, done interviews, and have come to shows. I guess that the news travels fast out of this island that we are on.
+- The very first Walnut Whales recording was recorded just a few weeks after I had started singing, out of the blue, started singing. And the voice, you can hear how uncomfortable I am with it, and how terrified I am with it.
+- I am producing sounds that people are not used to hearing from the harp.
+- It's valid that the Strokes and the Pleased have been influenced by some of the same bands. But it's invalid in the sense that we listen to the Strokes and try to sounds like them. I think that they are a good band.
+- You should listen to a lot of different music.
+- I want to make music that somehow connects to the things that I love in America music.
+- People are often afraid for me. They think that I am going to break. I can make it through a set.
+- Well, yeah, I wanted to resist the urge to thicken everything up with instrumentation, because I just felt like I was interested in seeing how the songs did on their own.
+- I have a deep rooted folk sensibility that I can't get away from completely.
+- Lyrics are very different. There is a clear line between that and a poem. Something that has been a source of great excitement and delight for me is this idea that I get to rhyme.
+- I have a recording that I did of instrumental songs.
+- I am always trying to write.
+- I would happy for someone to download my music.
+- It's totally different. I usually don't tell people about the Pleased if they know me from the harp. And if they are there to see the Pleased, I usually don't tell them about the harp. I am nervous that these people will expect something similar.
+- I started playing harp about fourteen years ago.

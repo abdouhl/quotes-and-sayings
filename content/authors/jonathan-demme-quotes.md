@@ -1,0 +1,65 @@
++++
+author = "Jonathan Demme"
+title = "Jonathan Demme Quotes"
+quotes_len = "59"
+description = "the best 59 Jonathan Demme Quotes"
++++
+- I don't think of Storefront Hitchcock or Stop Making Sense as documentaries, I think of them more as performance films.
+- As a kid, a little kid, I loved going to the movies, and now I love making movies.
+- I had had no aspirations to be a filmmaker or a writer.
+- In early 1983, Gary Goetzman and I went to see my favorite band, the Talking Heads, at the Hollywood Bowl in Los Angeles. The show was like seeing a movie just waiting to be filmed.
+- When my generation, those early days of television - I know I've been thinking about this lately - my two flashes of me as a little boy. One, I'm standing in front of the radio freaking out that Nat King Cole's singing 'Lady of Spain', just this stuff coming out of the radio, and Guy Williams singing 'Wild Horses' coming out of the radio.
+- I adore film, and I adore music.
+- Every film deserves its own unique look.
+- I'm all for streaming, and I do think it's thrilling that a gazillion people can see our film the day it drops. On the other hand, I'm a fierce believer of the theatergoing experience. My hope would be that films can be enjoyed in both ways, that there's room for both.
+- If you're doing a music film, you've got to be singing about something.
+- In 'Heart of Gold' at one point, there were 23 players on the stage with him. And part of what's magic about Neil is the way he interacts with the other musicians.
+- When Silence of the Lambs did well commercially it was more than anything. My partner Ed Saxon and I were just so relieved that finally we had made a movie that had made some money!
+- A trilogy is a pretty abstract notion. You can apply it to almost any three things.
+- I've always followed my enthusiasm. Whether the pictures have turned out good or not is one thing - but I've always had a lot of enthusiasm for the project at hand.
+- There is so much going on in our country and in the world today... We're getting the headlines for a second, shaped by corporate delivery most of the time, but what's really the story there? Well, I'm turned on by that kind of stuff.
+- Everything I've made - it doesn't mean they've all been good - but everything I've made so far, big or little, fiction or documentary, has been something that I've been really enthusiastic about.
+- I still go out, but not a lot. If I go to see music, it's usually to the Blue Note, jazz clubs, things like that. When I travel, I find out where the jazz clubs are.
+- Extraordinary people are the Green Berets and the Navy Seals and the Olympic athletes - these are the ones who can face these extraordinary physical challenges and be triumphant.
+- That is - the use of the subjective camera is an idea that's been around in movies for a long, long time. And it's an idea that was seized on very notably by Sam Fuller and by Alfred Hitchcock in two different very kind of - otherwise very different styles of filmmaking.
+- At certain points, I was afraid there was something - a missing chink of skill - that was going to prevent me from having a movie that was financially successful. That frightened me.
+- Especially after the Twin Towers, we're so terrified of 'Arabic' people. And talk about stereotypical negative portrayals of people of certain groups, if you look at the portrayal of Arabic people in Hollywood films, it's just appalling. They've always been just the easiest of targets - along with native Africans and what have you.
+- I've been making films since the '70s and trying to develop that best possible fiction-film style that I feel is the most expressive. At a certain point, I felt I was winding up making the same film stylistically and I found that boring.
+- The occupied territories and the movement of settlements - moving people today off of their property and claiming it - is illegal.
+- I've never fallen into what I consider to be a trap of trying to figure out something analytically that could be a very popular film. I would hope my enthusiasm could match up with something with that potential.
+- I also feel that the only thing more gratifying than working with someone who you've worked well with is working with someone new and coming up with something great.
+- By the time I got to 'Silence of the Lambs,' I was madly in love with close-ups because I'm madly in love with actors, and a basic premise of 'Silence of the Lambs' is the story about two people fighting their way into each other's heads.
+- I don't think it's sacrilegious to remake any movie, including a good or even great movie.
+- When you're filming, if you can't capture the relationships and interplay, that magical thing that transpires between musicians during a performance, then you're not going to have a deeply interesting film. It's vital.
+- The whole Orion zeitgeist, of treating filmmakers as partners, to me it's inseparable from the success of 'Silence of the Lambs'.
+- The media has not done a great job in fulfilling their role - journalism's role in a democracy is to provide information on profoundly important subjects so we're an informed citizenry.
+- I often find myself feeling that filming music is somehow the purest form of filmmaking. This crazed collision of sound and images, the intense collaboration, these incredibly cinematic performances. And for the nights you're filming, a non-player like me gets to feel somehow part of the band.
+- All of us who lived outside of New Orleans were horrified and heartbroken by what we saw when Katrina hit, the floods that followed the hurricane that happened.
+- I felt from time to time that shooting live music is the most purely cinematic thing you can do. Ideally, the cinema is becoming one with the music. There is little artifice involved. There's no acting. I love it.
+- I'm of Neil Young's generation. Neil Young's songs have spoken to what it's like to be at least a white male of his generation over the years. Endlessly, he's sung about the stuff that I really care about. He's put into words the feelings that hit you at different transitional moments in life.
+- I get creeped out by Francis Bacon's paintings, and I can't say exactly why. They're all really disturbing, and there is an almost nimbus-like quality behind some of his frightening characters and stuff.
+- I'll tell you - what I can tell you is that I know when I saw 'Zodiac' and then again when I saw 'No Country For Old Men,' there was a moment in each of my viewing experiences where I went, 'Dammit, this is scarier than 'Silence Of The Lambs.''
+- I like seeing the cameras because it helps visualize how the music people and the movie people teamed up.
+- I love the idea of documentaries. I love seeing documentaries, and I love making them. Documentaries are incredibly easy to shoot. The ease with which you can hear something's going on, somebody's going to be somewhere: That sounds so interesting. Pick up your camera and go.
+- The excitement of wading into 'reality' and just finding out what happens - and then the challenge of selecting those things that happened and shaping them in the editing into a narrative that will have appeal and be engaging - is a great, great thrill.
+- I didn't go to film school so my learning was done out in public and showed up on the screen.
+- Documentaries - my God, there is so much going on in our country and in the world today that every time you open the newspaper or turn on the radio or watch the news on TV there is another documentary subject. We're getting the headlines for a second, shaped by corporate delivery most of the time, but what's really the story there?
+- It was so easy for me to see that Anthony would be a superb Dr. Lecter because he had been such an amazing good doctor in 'The Elephant Man'. He had been as believable a doctor as you can imagine, and he was good.
+- I love doing fiction. I love doing performance films and I love doing documentaries that don't have music. I love to shoot and I love to shoot things I'm enthusiastic about.
+- When we finished 'Stop Making Sense,' we went right to the San Francisco Film Festival for the world premiere, and people swarmed the stage and started dancing before the first song was even finished.
+- When I saw Justin in 'The Social Network', I became deeply obsessed with the desire to work with him and reached out to Justin. When we met, we talked about a couple of things I was working on that did not come to fruition, but it gave us a meeting.
+- I'm guided by my enthusiasm.
+- Tak Fujimoto and I, when we started getting enough of a budget where we could afford the right lenses - 'cause we started out doing low-budget pictures together - we started experimenting with this subjective camera thing. And we kind of fell in love with the idea of using that as our close-up.
+- I remember the Neil Young brand hitting me very hard immediately. He wasn't an acquired taste. I loved him immediately.
+- I like finding a great shot and then just staying with it for a long time, not trying to pump things up with some kind of artificial energy by cutting.
+- I only work with actors who take full responsibility for their characters.
+- It's such a rich experience when you enter into a subject from a documentary point of view. It's hard for fiction to compete with that.
+- There's that rule: Don't show any of the other cameras. Why? Do you think the viewer doesn't think we filmed this?
+- They're out there, this appalling idea that there are companies that profit - not just profit but profit enormously - through war.
+- I was a Talking Heads fan from the very beginning.
+- I was a sort of rock journalist - whatever that is - in London in the late '60s.
+- You want the audience to be in the character's shoes. The more deeply into the character's shoes the audience is, the more they're going to care about what's going on.
+- I had very strong feelings, so the chance to make a film that deals in an imaginative way with stuff you care tremendously about is a real high. It's a really amazing thing to be able to do.
+- 'Neil Young Heart of Gold', that was a valentine to Nashville and country music in the Grand Ole Opry tradition and Hank Williams.
+- As much as I love acoustic Neil Young - and I do deeply - I may be more passionate about the electric. Luckily it's not a contest, and we never have to make that choice. But Neil Young on an electric guitar - I feel like I've never seen or heard anything like it.
+- Nothing beats a live performance. Nothing.

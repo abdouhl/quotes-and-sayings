@@ -1,0 +1,92 @@
++++
+author = "Kawhi Leonard"
+title = "Kawhi Leonard Quotes"
+quotes_len = "86"
+description = "the best 86 Kawhi Leonard Quotes"
++++
+- When I was growing up, I didn't have a hometown hero.
+- I like the old-school muscle cars.
+- My motivation wasn't really to get a $95 million contract, you know?
+- Whoever I'm playing against, I go in and try to stop their best scorer and try to get myself going on the offensive end.
+- I always wanted to play both ends of the floor. I never wanted to be one-dimensional.
+- Tony Allen is a good defender, very smart.
+- That's how I grew up. Just play defense - and make a basket.
+- I work all summer and throughout the whole season to be prepared for the challenges that I have to face.
+- I'm not one of the guys in the league for the fame. I'm here so I can take of my family, my mom, my friends and take care of myself.
+- It's an honor to have been considered for the team, and I hope that in the future I will have the chance to represent my country by playing for U.S.A. Basketball.
+- It's all mental. I just have to worry about my game.
+- I'm just trying to pass Tim Duncan in championships if I can one day. That's my motivation; that's what I strive for. Tim is one of the greatest players who has ever played, so if I could get close or reach that plateau and have my name on that list.
+- I was good. I probably could have gone to the NFL. I just hated practice.
+- Coming to a team like the Spurs, you're automatically going to learn how to play the game the right way.
+- You just go out there and try to compete and try to make a play for your teammates.
+- I look at film, but more than watching individual players, I'm trying to watch a team's whole offensive scheme. I'm trying to know their tendencies so I can... guess. That's what it comes down to, really, making the best guess.
+- I'm just going out there to do my role, the same role - defense first - and then see how the ball turns out on the offensive end.
+- I'm not out here just for the money. I want to be a great player.
+- I'm just a low-key guy.
+- Obviously, I like guys that can defend other positions. Draymond Green is doing a great job with Golden State. Jimmy Butler brings it every night when I'm out there.
+- I rarely eat breakfast because of our schedule, actually. If I do, though, I'll try to do an egg-white omelet with some bell peppers and mushrooms. Maybe a side of a bunch of different fruits.
+- I'll never try to win an award. I'm out there just playing for my team.
+- I'm just the same guy... I don't need to be a celebrity or a superstar.
+- I try to come in with a focus to stop my man and win the game. I'm always trying to be ready to catch them off their strides by being physical enough without getting fouls.
+- There's nothing to be scared of. We're playing basketball. The only thing that could happen is you failing. But as long as you're going hard, there's nothing to be scared of for me. I don't know what there is to be scared of.
+- If I get noticed for my individual performance, that's what happens. Other than that, I'm just trying to win the game.
+- If I can get back and win a championship, that's what I'm trying to do.
+- My dad leaving my life. That's the biggest thing that happened to me. I just remember what he tells me, the memories, and try to move on forward each day, knowing that he's still here, looking down on me.
+- I didn't work out with Kobe. I don't know where that came from. I wish I could have.
+- I don't watch ESPN, don't listen to the radio. I just go home and deal with my family.
+- I'm always trying to come down with a win. That's what matters to me and my squad.
+- It's how I've been playing my whole life, guarding the best player on the other team.
+- I've got to learn how to create shots for others.
+- The bigs are there on the help-side if the guy goes by me, and I'm able to switch to other offensive players.
+- I definitely don't like to eat a lot before I play. I don't like to play on a full stomach. Sometimes, if I'm feeling hungry before a game, I'll eat one of those protein bars, but that's it.
+- I could be on the court for two hours, and it felt like 10 minutes. It made time go by.
+- You definitely see a difference in some guys' games when they do get paid. I'm trying to make sure I'm not that player.
+- When I'm on the court, I feel all problems go away.
+- Oh man, I like Chevys.
+- I'm trying to see what way I could lead so when the opportunity comes, it won't just hit me in the face.
+- I just try to play every game like it's Game 7 of the NBA Finals.
+- I remember being a teenager and watching 40-year-old Michael Jordan compete in his final All-Star game.
+- I'm just playing basketball. I just want to be a great player. That's it. That's all I'm thinking about. If the other stuff comes, it comes, but I'm just fortunate to play in the NBA Finals and just to play basketball, period.
+- Coming in, I wanted to be a great player, and right now at the beginning of my career, I'm showing some slight sunshine that I can be the player I want.
+- Everybody plays back-to-backs.
+- Playing football helped me a lot. Just reading the quarterback's eyes and reading receivers, figuring out what they want to do.
+- Everybody in the NBA works on their game. I just tried to follow that lead when I was in high school, college - and now.
+- As long as you give your best effort, I feel like that's all you can do.
+- I don't care about winning an MVP - the MVP doesn't mean you're the best player in the league.
+- At the end of the day, we all know what the Jordan logo means, and you can't take anything away from that. But it's pretty cool to have my own logo on a Jordan shoe.
+- The Spurs are a great organization.
+- I believed I could play in the NBA.
+- Not all water is great for you. I drink a lot of water during the day, but I stay away from certain waters because their pH levels are low. Stick to alkaline waters with a higher pH. Trust me.
+- I'm just happy that I get the opportunity to do the things on the court that I do in practice.
+- I like being the underdog so they don't expect what's going to happen. It pushes me to work harder and do the things I'm not doing better.
+- I'm trying to be one of the greatest players, so whatever level that consists of is where I want to take my game.
+- I've been working hard to be one of the focal points in the NBA, one of the top guys.
+- I'm never trying to break a career high out there.
+- My hands make me a little longer, and that's always a good thing.
+- People would ask what college are you going to, and I'd say, 'San Diego State.' And they'd say, 'Why?'
+- It's just a great feeling, once you have a child.
+- I'm just living in the moment, trying to win every game. That's all I'm focused on.
+- People in the NBA are just as athletic as you. That's the game. You have to have the change of pace. You have to change speeds to get around people.
+- I've always liked home-cooked meals.
+- It was a great feeling to be named an All-Star starter, to know that my hard work is paying off and fans around the world are recognizing that.
+- I know people are going to put the main focus on stopping me, so I need to learn how to make my teammates better by passing and creating opportunities for them.
+- It's just the game itself that drives me. I just want to be able to compete at a high level.
+- I want to play against the best, and that's what I'm doing, just going out there and being focused, just competing every possession.
+- People always want to compare their hands to mine. Pretty much everywhere I go.
+- I can't be impatient. It would show on the floor, and I won't compete if I'm thinking about getting the ball.
+- I just think repetition and getting the game reps shooting the ball in games really helps, rather than just practicing. You can get game timing.
+- I just want to keep improving, to keep getting better.
+- I'm just here to play basketball and have fun and try to win another championship.
+- Everything outside doesn't matter when I'm on the court; it's just me and nothing else. Family problems, school, what happened to my father, all the stress goes away.
+- I love the game of basketball, and as long as I can do that, keep playing and try to get some more championships with the organization, I'll be happy.
+- I played basketball when I was little because it was fun for me. It still is now. I just love it. I have a passion for it.
+- Winning is motivation.
+- I don't eat the same meal or at the same time every single day. You get tired of that real quick. I just try to make sure whatever I'm eating is fresh and clean and good for my body. That's about it.
+- I'm just happy that people like the way I play.
+- I could have gone to a bigger school. I use it as motivation going to a school that loved me. I wanted to put them on the map and show everyone that you don't need to go to a top school to make it in the NBA.
+- It's definitely fun when you're able to translate your practice into the game. It's fun, and you know that your hard work paid off.
+- When I'm away from basketball, I hang out with my friends, chill, and that's about it.
+- My mindset is the same every game.
+- I just have to move forward and keep working on my game and getting better.
+- I don't like to bring attention to myself. I don't like to make a scene.
+- I want the kids to know that it's not a myth that somebody from their city plays and wins in the NBA. I just want to influence them to work hard and do whatever they want to do in life, whether it's to be a basketball player or scientist... if they believe in themselves, they can do anything.

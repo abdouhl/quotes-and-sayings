@@ -1,0 +1,52 @@
++++
+author = "Tove Lo"
+title = "Tove Lo Quotes"
+quotes_len = "46"
+description = "the best 46 Tove Lo Quotes"
++++
+- I am an open book, and I'm fine being me: I'm not a perfect person.
+- Everything that has to do with sex is somehow... it's the best thing in the world, and it's still the one thing people don't want you to talk about.
+- I thought 'Twinkies' was just a word for 'cookies,' not a specific thing. They kind of scare me a little bit because they last forever.
+- The fact is, when you date an artist, you have to know that they're going to sing about you.
+- I fight the same way as my dad! I've picked that up from him. We both get angry really fast and very intensely, and then get over it very quickly. You need to be good at apologising if you fight like that.
+- When I'm angry, like, if someone gets me really upset, whatever comes into my head, I scream it.
+- I would never agree to sing something I didn't feel was 100% me.
+- It's OK to joke about yourself and have self-perspective, but, like, when you constantly put yourself down to get other people to tell you you're good, that annoys me. Have confidence!
+- I can't live just being content. I can't have a routine. I can't be settled because then I just get really frustrated.
+- It means a lot to everyone around me that I look good, and I don't think it should have to. I just think I should look the way I do.
+- That's kind of how I am - a roller coaster of emotions.
+- My dream was never to become this unattainable star.
+- I've always liked music that has a darker vein to it. I come from such a safe upbringing - very stable, classic family, everything's nice and good - I was always looking for something different.
+- A rock star is expected to act like a mess, sound like a mess and look like a mess. People don't expect you to show up on time and be a professional. But when you're a pop star, you have to do all that, look perfect and be a role model.
+- A lot of times, I get asked, 'Do you feel you have a responsibility to young girls to be a role model?' I don't see that happening as much to guys. I feel like, just because I'm a girl, I'm supposed to take more responsibility? Is that how it works?
+- The first album that I bought was the Nirvana 'MTV Unplugged in New York' album.
+- I've had to learn how to say no to things, and have people around me that don't push me too hard, because I'll go until I just crash. I don't have a stop button.
+- I'm not from a music family at all.
+- I was big into grunge, like Nirvana and Hole, when I was younger, which has been a really huge inspiration because of its rawness and honesty.
+- I find it really cool when people have this artist persona they can put on. They can go out and act like this other person; I can't pull that off... I can't censor myself.
+- We lived by the water, and I was a pretty normal kid until my teenage years; then I dyed my hair pink and spiraled out of control.
+- Both my best and my worst habit is that I'm very impulsive.
+- I think there's always a bit of pain in everything that's ecstatic - relationships and love, they always come with pain.
+- For me, everything that you're passionate about always comes with a little pain. That's how life is, and that's how I want to live it. I don't want it to be balanced and ordinary.
+- I was always drawn to the self-destructive kind of way. I thought there was something beautiful about it; I don't know why.
+- I definitely feel I'm outside of the polished pop girl group, which feels right. I don't think I could keep up that polished surface on purpose.
+- I think that pop music in general sometimes like to keep things a bit more hidden, and, you know, you censor and you polish to make it fit more people or to not be too vulgar or make sure of, 'Can this really play on the radio?' And I like not doing that.
+- I don't think I would live very long if I was a rock star.
+- If you say, 'I listen to pop,' you picture this kind of perfect, colorful, polished song. I want to have that, but when you open it, you see this gritty dark - kind of like dancing your tears away. Disguise the sadness in a pop beat.
+- At first, my bedroom had flowers and yellow walls and huge furniture in plastic that was orange and green - and furry green bed cover and everything. Then, I think the day I turned 13, I painted the walls black and put Kurt Cobain on the wall and just changed everything into a dark theme.
+- The thing that I love about pop music is the simplicity and the directness of it.
+- I've always wanted my music to have that desperation, where you just want to strip your clothes off and run down the highway. I want the feeling where you don't really know what to do with yourself - in the vocals, in the production. Everything.
+- I knew when I went to a very hippie high school that focused on music that I wanted to do something in the industry.
+- There are some nights where I don't get enough sleep, or we're traveling a lot. And then I'll go do a radio show, and the DJs are usually so energetic. And they're like, 'Why aren't you excited?' I say, 'I am excited. I'm just Swedish. This is my excited. I can't get to an American excitement level.'
+- When I play a song for someone the first time, if I make 'em laugh, I think, 'Yes, I've succeeded.'
+- In the same way that I'm open when I speak, I'm that open on stage. I feed off the energy of the audience, too, so they're feeling what I'm feeling.
+- I wanted to write about relationships in a more honest, raw sort of way. Get away from all those cliches about how 'time heals' and how you can be the better person. Less sugar-coating and more 'feel the pain.'
+- I started to use music almost like a therapist, where it's like, everything that I don't really dare to say or speak about, I can sing about.
+- I'm always exhausted after a show, even if it's just half an hour.
+- I always loved performing and being on stage.
+- The very first song I ever wrote was a song called 'Crazy' when I was 11 or 12 with my best girlfriends - we had a girl band. It was about loving a guy who everyone else thought you were crazy for being into.
+- I've never grown into loving someone. It's, like, either right away or slowly sinks in.
+- I'm from a fancy, well-raised background. We were very well-behaved and not allowed to swear. It's the kind of place where people hide their problems under the rug and pretend it's all perfect. Eventually, you get sick of that.
+- There was this lynx at a zoo that was called Tove, and that I totally fell in love with. It was my dear godmother who decided to call me Tove Lo, after that lynx. It stuck.
+- When people like your music because it has vulnerable honesty, and you're able to comfortably admit to flaws and imperfections, then that's the most liberating thing about being an artist.
+- Singing gives me a lot of energy.

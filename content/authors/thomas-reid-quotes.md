@@ -1,0 +1,13 @@
++++
+author = "Thomas Reid"
+title = "Thomas Reid Quotes"
+quotes_len = "7"
+description = "the best 7 Thomas Reid Quotes"
++++
+- The rules of navigation never navigated a ship. The rules of architecture never built a house.
+- And, if we have any evidence that the wisdom which formed the plan is in the man, we have the very same evidence, that the power which executed it is in him also.
+- There is no greater impediment to the advancement of knowledge than the ambiguity of words.
+- It is a question of fact, whether the influence of motives be fixed by laws of nature, so that they shall always have the same effect in the same circumstances.
+- A philosopher is, no doubt, entitled to examine even those distinctions that are to be found in the structure of all languages... in that case, such a distinction may be imputed to a vulgar error, which ought to be corrected in philosophy.
+- Every indication of wisdom, taken from the effect, is equally an indication of power to execute what wisdom planned.
+- But when, in the first setting out, he takes it for granted without proof, that distinctions found in the structure of all languages, have no foundation in nature; this surely is too fastidious a way of treating the common sense of mankind.

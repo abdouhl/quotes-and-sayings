@@ -1,0 +1,17 @@
++++
+author = "Julien Green"
+title = "Julien Green Quotes"
+quotes_len = "11"
+description = "the best 11 Julien Green Quotes"
++++
+- I enter the world called real as one enters a mist.
+- A scrupulous man will never produce a great novel.
+- Our life is a book that writes itself and whose principal themes sometimes escape us. We are like characters in a novel who do not always understand what the author wants of them.
+- The man I am will always raise a protest against the man I wanted to be and the two will live together to the end, but the man I wanted to be will be the one on whom judgement will be passed.
+- I am probably exaggerating a little, but I owe my equilibrium to ink and paper.
+- A child's fear is a world whose dark corners are quite unknown to grownup people; it has its sky and its abysses, a sky without stars, abysses into which no light can ever penetrate.
+- What is real is beyond all reach.
+- The greatest explorer on this earth never takes voyages as long as those of the man who descends to the depth of his heart.
+- Within ourselves is not very far and yet it is so far that one's whole life is not always long enough to get there.
+- Let us hope that good authors who are bad Christians will find salvation through the books they write.
+- The secret is to write just anything, to dare to write just anything, because when you write just anything, you begin to say what is important.

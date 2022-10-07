@@ -1,0 +1,55 @@
++++
+author = "Kyle Hill"
+title = "Kyle Hill Quotes"
+quotes_len = "49"
+description = "the best 49 Kyle Hill Quotes"
++++
+- Picking apart a story for its scientific underpinnings doesn't diminish it, it enhances it, makes us dream of the possibilities it proposes. I think appreciating the magic of reality, going from 'can't happen' to 'could happen,' is the fundamental appeal of science fiction.
+- The disturbing truth about science communication is that we have theories and ways of delivering messages that really are like putting a candle to the dark, as Carl Sagan would say. We aren't sure what will work, when, or how much. But for all that uncertainty, that doesn't mean we shouldn't try.
+- Bullets are fast - even a 9-millimeter handgun launches lead at Mach 1. And the bigger the bullet gets, the more grains of gunpowder it carries, the faster it goes. Modern rifles can fling the small pieces of metal at half the velocity needed to escape the gravitational pull of the Moon.
+- Galileos still exist in science. Sometimes a lone proponent of a new idea turns out to be right.
+- Jesus walking on water is an allegory, not fluid mechanics. God destroying the cities of Sodom and Gomorrah is a warning, not a historical battle. Doubting Thomas is an example, not a person. The story of Noah, with all of its scientific and historical impossibilities, can be read the same way.
+- Human atoms are the notes, their life the symphony.
+- A rainbow is the product of physics working for your appreciation of beauty.
+- Why would you envy a man who doesn't know the names of all the planets, is a 'high functioning' sociopath, and has no friends? Because Sherlock Holmes thinks in all the ways we wish we could.
+- Science is a highly technical and intellectual endeavor. Any theory or fact or discovery has an ocean of depth to it. You can always go deeper with science, and you can always ask a new and interesting question. That's what makes a topic nerdy: depth.
+- Given the weight of an Oscar statuette, one made out of solid gold would be worth $219,000. That twinkle in a winner's eye would be more than just a realization that he or she is a decent actor; it would be the joy of holding a chunk of metal worth a new Lamborghini.
+- We tend to accept information that confirms our prior beliefs and ignore or discredit information that does not. This confirmation bias settles over our eyes like distorting spectacles for everything we look at.
+- Bigfoot does not exist because there would be evidence left behind - hair, feces, bones, kills, offspring, a carcass - if it did.
+- Raised on Bill Nye videos, LEGOs, and CD-ROMs of dinosaurs, I was a lump of nerdy clay waiting to be molded. 'Mythbusters' came to me at a critical time, and it transformed me into who I am today.
+- As any successful mad scientist will tell you, energy ain't free. Popular culture tends to forget this, instead focusing on the destructive capabilities of our finely crafted death rays without noting the massive energy expenditures required to use them.
+- The story of Noah is self-contradictory, uncorroborated by independent historical evidence, and is generally at odds with everything we know about our planet's geology, biology, and species diversity.
+- No matter how many times you've seen the movies and the TV shows that have a protagonist leaping in the path of a bullet, physics forbids such sacrifice. Because of a bullet's radical speed, you can't jump in front of it, but you could get in its way. It's not as dramatic, but it does save lives.
+- When the first episode of 'Mythbusters' aired in 2003, I couldn't drive a car. I couldn't see a R-rated movie. I was 14 years old, and I couldn't do much of anything. But 'Mythbusters' taught me that I could do science.
+- How the original 'Cosmos' affected me personally was long-term. I wasn't born early enough to see the original series, but after getting a hold of it in my teen years, it was one of the driving forces behind my passion for science.
+- If you wanted to travel backwards in time, you're out of luck. We have theories on how it might be possible to do so, but they all involve wormholes and black holes and other stuff that would probably kill you. If you want to travel forward in time, you just have to go really fast.
+- I was in China when Pokemon fever hit, and I got it bad. But as I got older, I didn't stay with it. My binder full of rares has since disappeared. I have refused to play the other games like the newest 'Pokemon X/Y' out of some misplaced hipster angst.
+- It is as though nature is a wonderful symphony that science sits in awe of. It looks closely at each player, how the tubas are tuned and how the strings are strung. Creationism lets out a loud 'shush' at such excitement. Just enjoy the show and stop asking questions.
+- When we overestimate the benefits of exercise, underestimate how many calories we eat, and overcompensate for a job well done, exercise is really a false protection from fattening food.
+- Researchers may like to think that, given all the facts, we make rational choices. Ask economists how that assumption works out for them. No, we are emotional creatures who use value-based reasoning in conjunction with our rationality.
+- It's okay to take that reservoir of passion that you have and let it flow into whatever you love. Experiment, question, replicate, be critical, be nerdy, be yourself.
+- It could be the case that all the studies supporting a warming planet are wrong; science always leaves that door open, but anthropogenic climate change remains the best explanation for a mountain of data that scientists have been poring over for a century.
+- We are all cognitive misers. Our brains do not expend mental resources thoroughly examining problems when snap judgments will do.
+- Climate change denial, anti-vaccination proponents, creationist teachers, faith healers, fake bomb detector peddlers, psychic frauds, alternative medicine pushers... we need scientific thinking. We need a generation of kids who think an experiment is more important than a preconceived notion or an argument from authority.
+- In science, the kind of evidence matters; all unlikelihoods are not created equal.
+- Thor is magical, yes, but it is the magic of reality. His hammer was crafted 'in the heart of a dying star,' but so were you! Most of the atoms that make you up are in fact the innards of a ball of gas in space that got so heavy that it exploded. Stars died so that you could live, as physicist Lawrence Krauss would say.
+- Cancer is real-time evolution, and your body is the selective pressure.
+- By calling GMOs 'poison' and 'evil,' Bill Maher poisons the well of reasoned scientific discussion with ideologically driven fear mongering.
+- Evolution is ultimately why cancer is so deadly. Take two biopsies from different sides of a tumor, and they can be genetically very different, making it that much harder to fight. Variation is the toolbox of evolution, and this variation gives cancer strength.
+- It's fashionable to think that the conservative parties in America are the science deniers. You certainly wouldn't have trouble supporting that claim. But liberals are not exempt.
+- Whether we know it or not, each of our decisions is influenced by what we want to see or think.
+- We brick-and-mortar ourselves away from nature. The outside world is behind glass, underneath a slab of concrete, running through PVC. Our steel and concrete are suitable enough until nature comes knocking. And when she wants to get in, nothing can stop her.
+- Making the leap from Monsanto's business practices - whatever you may think of them - to the 'dangers' of GM foods is a mistake in logical reasoning. It is akin to saying landscape paintings are potentially evil because the painter was a serial killer.
+- I have a save file in 'Final Fantasy XII' that is 125 hours long. I have gotten into legitimate arguments over the rules governing the tapping of mana in 'Magic: The Gathering.' I don't like hugs or parties, high school sucked for me, and Nathan Fillion deemed something I wrote his 'Favorite 'Firefly' fanboy rant to date.'
+- Reality is on a delay. For you, nothing is now. Realizing this fact is unsettling. If we can only react to the past, how do we manage to navigate the present? It's easy to spiral into a treatise on free will while in the fetal position, overthinking our forever past.
+- People are misers of mental effort. If we don't have the interest or the capacity to look into the arguments, if the message isn't personally relevant, if we judge that we already know all we need to know about a topic, there is no reason to spend precious mental resources.
+- If a process or adaptation seems too smart for nature, that's a failure of your imagination, not the hand of God. I can make that claim because we have a working model of life's morphing and molding without it.
+- The recipe for a human doesn't fill up a shopping list as you may suspect. Just twenty-two elements can describe almost all of the molecules that are, at this moment, you.
+- Imagine how many women could excel in science if not for the pernicious myth that science and math are a man's game. Likewise, fitness isn't defined by the Arnold Schwarzeneggers of the world.
+- For peer review, replication, and objectivity to make any headway on the continuum, for science to find the right answers to anything, there have to be wrong - or at least unlikely - answers.
+- You can do yoga all day, you can run or bike or swim, but a pull-up will still be hard. It's not that you have to be a juiced-up 'lunk' to do one; it's a matter of physics.
+- Sherlock is a portrait of humanity - he takes nature's gift of thought and runs with it, bringing along all the human struggles, fears, and insecurities. He's the hero we could see ourselves being.
+- You can do crunches all day long, and you abs will indeed get bigger and stronger, but you will never see them. The only way to see the muscles you work so hard for is to lose weight globally - across your entire body.
+- Most people would put me firmly in the nerd/geek category. It wouldn't be a change from where I've been put my whole life, but my place now has standing. Nerds are inexorably cool again.
+- Dragons are basically our pipe-dreams of what birds would be if they still looked liked ancient dinosaurs but followed evolution's flight plan.
+- What is basically just an IQ score has roots in education, socioeconomic status, genetics, and environmental factors. Looking at any one of these roots doesn't give you a full picture of the tree, but it does tell you that a tree is there.

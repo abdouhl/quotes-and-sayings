@@ -1,0 +1,61 @@
++++
+author = "John Banville"
+title = "John Banville Quotes"
+quotes_len = "55"
+description = "the best 55 John Banville Quotes"
++++
+- I'd given up Catholicism in my teens but something of it stays with me. I try to create the perfect sentence - that's as close to godliness as I can get.
+- All a work of art can do is present the surface. I can't know the insides of people. I know very little about the inside of myself.
+- We think we're living in the present, but we're really living in the past.
+- I don't see how English as we use it in Europe can be revivified. It's like Latin must have been in about A.D. 300, tired and used up. All one can do is press very hard stylistically to make it glow.
+- We're constantly losing - we're losing time, we're losing ourselves. I don't feel for the things I lost.
+- The effect of prizes on one's career - if that is what to call it - is considerable, since they give one more clout with publishers and more notoriety among journalists. The effect on one's writing, however, is nil - otherwise, one would be in deep trouble.
+- I live in Dublin, God knows why. There are greatly more congenial places I could have settled in - Italy, France, Manhattan - but I like the climate here, and Irish light seems to be essential for me and for my writing.
+- I suppose it's possible that a writer would have feeling for his characters, but I can't see how, because writing is such a meticulous, intricate, technical business. I wish I could say that I love my characters and that frequently they take over the book and run away with the plot and so on. But they don't exist.
+- For memory, we use our imagination. We take a few strands of real time and carry them with us, then like an oyster we create a pearl around them.
+- The Booker Prize is a big, popular prize for big, popular books, and that's the way it should be.
+- Most crime fiction, no matter how 'hard-boiled' or bloodily forensic, is essentially sentimental, for most crime writers are disappointed romantics.
+- All art at a certain level is entertainment. We go to a tragedy by Sophocles to be entertained.
+- I like ideas. I find them more exciting than human behavior for the most part.
+- I've been wrestling with Kafka since I was an adolescent. I think he's a great aphorist, a great letter writer, a great diarist, a great short story writer, and a great novelist - I'd put novelist last.
+- I think I'm less the writer than I'm the written.
+- When I say I don't like my own work, that doesn't mean it isn't better than everyone else's.
+- How I envy writers who can work on aeroplanes or in hotel rooms. On the run I can produce an article or a book review, or even a film script, but for fiction I must have my own desk, my own wall with my own postcards pinned to it, and my own window not to look out of.
+- With the crime novels, it's delightful to have protagonists I can revisit in book after book. It's like having a fictitious family.
+- I always think that if you know somebody's name then there's something slightly fraudulent about that person. Otherwise we wouldn't have heard of him or her.
+- Doing what you do well is death. Your duty is to keep trying to do things that you don't do well, in the hope of learning.
+- I don't own a Kindle, no. I love books, they are beautiful objects.
+- Life is tragic but it's equally comic.
+- In my books you have to concentrate, but I work hard to make it that, when you do, the rewards are quite high.
+- When fans of mine meet me, I can see the disappointment in their eyes. Every artist knows of this phenomenon.
+- I know some of my memories are made up and they are far more powerful than the things that actually happened. For example, I always remember my brother posting me a copy of 'Dubliners' from Africa, but he says he never did.
+- I read Nietzsche when I was a teenager and then I went back to reading him when I was in my thirties, and his voice spoke directly to me. Nietzsche is such a superb literary artist.
+- All novels must be autobiographical because I am the only material that I know. All of the characters are me. But at the same time, a novel is never autobiographical even if it describes the life of the author. Literary writing is a completely different medium.
+- When young writers approach me for advice, I remind them, as gently as I can, that they are on their own, with no help available anywhere. Which is how it should be.
+- I want my art to make people look at the world in a new way. I mean, what's the point of the art of writing if it doesn't take you into the mysterious?
+- We artists love to talk tough, but we're just as sentimental as everyone else when it comes down to it.
+- You can't write about fantasy without being ridiculous.
+- I'm full of self-doubt. I doubt everything I do. Everything I do is a failure.
+- My work is frequently described as cold, which is baffling, since it seems to me embarrassingly, shame-makingly, scandalously warm. I find my work filled with sentiment, and I can't imagine why people find it cold.
+- I would be far more critical than any reviewer could be of my own work. So I simply don't read them.
+- I am the worst judge of my books.
+- I have this fantasy. I'm walking past a bookshop and I click my fingers and all my books go blank. So I can start again and get it right.
+- When I started writing, I was a great rationalist and believed I was absolutely in control. But the older one gets, the more confused, and for an artist I think that is quite a good thing: you allow in more of your instinctual self; your dreams, fantasies and memories. It's richer, in a way.
+- Death is such a strange thing. One minute you're here and then just gone. You'd think there would be an anteroom, a place where you could be visited before you go.
+- Writers are just like other people, except slightly more obsessed.
+- Dostoevsky is such a bad writer it is hard to take him seriously as a novelist, though he is a wonderful philosopher.
+- With crime fiction, you have to write a half-dozen before they catch on.
+- It's great people still care about books, and it's great you can still fashion a life from literature.
+- I never went to university. I'm self-educated. I didn't go because I was too impatient, too arrogant.
+- When you're writing there's a deep, deep level of concentration way below your normal self. This strange voice, these strange sentences come out of you.
+- Why does the past seem so magical, so fraught, so luminous? At the time it was just, ugh, another boring bloody day. But, to look back on, it's a day full of miracles and light and extraordinary events. Why is this? What process do we apply to the past, to give it this vividness? I don't know.
+- The novel is resilient, and so are novelists.
+- We writers are shy, nocturnal creatures. Push us into the light and the light blinds us.
+- If I was asked to say what was the greatest invention of human beings, I would say the sentence.
+- I've always been fascinated by physics and cosmology. It gets more and more scary the older you get.
+- Office life is very, very strange. It's like no other way of living. You have an intimacy with people who you work with in the office, yet if you meet them on the streets, you both look the other way because you're embarrassed.
+- I sometimes think that I might be slightly autistic. There might be a syndrome that hasn't been named. I don't seem to see the world in the same way that most people I know see it. They don't seem to be baffled by it.
+- You know, artists don't really have all that much experience of life. We make a huge amount out of the small experience that we do have.
+- I'm a hopeless 19th-century romantic.
+- I don't make a distinction between men and women. To me they are just people.
+- I don't know if there is a personal identity. We all imagine that we are absolute individuals. But when we begin to look for where this individuality resides, it's very difficult to find.

@@ -1,0 +1,21 @@
++++
+author = "Michael O'Brien"
+title = "Michael O'Brien Quotes"
+quotes_len = "15"
+description = "the best 15 Michael O'Brien Quotes"
++++
+- Healthy fiction, no matter how wildly it may depart from the material order, teaches us to love ourselves in a wholesome manner by loving our neighbor. Indeed, even by loving our enemies - at least by trying to learn to love them, and by believing that it is right to do so. With grace this is possible.
+- Love cannot long survive without truth. Nor is truth really truth unless it is integrated with love.
+- I knew there would be some controversy over the 'Potter' series between religious people and secular-minded people - that was inevitable - what astonished me and continues to astonish me is the intense controversy that erupted very early on among Christians themselves, in all the churches. It cuts across every denominational line.
+- Genuine freedom is possible only where there is genuine love. And genuine love is not possible without truth.
+- The Natural Law which God has written into our beings cannot be entirely eradicated, but it can be gravely deformed, leading to distortion of consciousness and conscience, and hence our actions.
+- We must become a people who are in submission, that is, submitted completely to the mission of the Church, 'in statu missionis.' Thus, living fully within the mainstream of grace, under the mantle of God's divine authority, and by uniting ourselves to the obedience of Christ on the cross, we participate in the reversal of Adam's sin.
+- J.K. Rowling is a talented storyteller, but she has also used the style and technique of modern television and cinema media, which seizes the imagination by pummelling it, bombarding it with powerful stimuli, in a rapid pace, with plenty of emotional rewards.
+- Corrupt fantasy points us, or forms us, in a consciousness that can lead to thinking that evil is good and good is evil. In the worst case, this may have long range effects, prompting the reader intuitively, subconsciously, to do evil while thinking they're doing good.
+- Harry Potter represents a much larger wave of cultural revolution that we're all immersed in, and I believe it's a spiritual revolution as well - a negative spiritual revolution.
+- If creators of Christian culture hope to produce work that will bear good fruit, we must draw our life from the true source - our living Savior. He is real. He is present. But all too often we reduce him to an abstraction, giving him intellectual assent, but not our hearts.
+- There are indeed 'values' in the Harry Potter series, but they're confused with anti-values. Potterworld is a scrambled moral universe. There are Christian symbols in the series, but the author misappropriates them, mutates them, and integrates them into a supposedly larger and broader system where evil symbols are dominant.
+- Whether one is Marian or Charismatic or both, or prays in one or more of the many other ways open to us, it is all a flow of love, if the heart is truly speaking to and listening to the Holy Trinity. Personally, I pray the Divine Mercy chaplet every day. We pray the Rosary every day in our family.
+- Imagination is a screen onto which the evil spirits can 'project' images, temptations presented as stimulating entertainments, offering us pleasurable rewards if we give in to the temptation.
+- My Catholic faith is my life. Any artist, if he is to be faithful to how he perceives the world and to the nature of his creative gifts, cannot divorce the two. To create is to love. To love is to create.
+- It goes without saying that a good Catholic novel should be good craftsmanship, good writing skills. The creative person must always be engaged in the long labor of perfecting the tools of his art. Yet the work itself need not be explicitly evangelical in its themes and plots.

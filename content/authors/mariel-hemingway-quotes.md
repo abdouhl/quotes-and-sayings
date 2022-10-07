@@ -1,0 +1,42 @@
++++
+author = "Mariel Hemingway"
+title = "Mariel Hemingway Quotes"
+quotes_len = "36"
+description = "the best 36 Mariel Hemingway Quotes"
++++
+- We're taught to take care of people we love, but sometimes you can't.
+- What they were giving me seemed incredibly real to me, so I'd react to it in a very real way. That was frightening for me, especially because of the subject.
+- It's not that I don't believe in miracles, but I never quite trust that they're real.
+- The other thing is surrounding yourself with people that care for you. These are simple things, but they're powerful, and they've completely transformed who I am and how I perceive myself.
+- Manhattan, though, was an entirely different ballgame in a whole different kind of world, with a man who was brilliant and at the same time terribly charismatic.
+- Well, I was passionately curious about what my body was doing, and when I got the lessons on how to meditate, it seemed really solid to me. It seemed real.
+- Yoga teaches you how to listen to your body.
+- But the experience that I had, which was basically just feeling loved and taken care of in a room full of thousands of people I didn't know, seemed to be a pretty strong sign that what I was doing was a good thing.
+- I got back into the position of taking care of my husband, which is what I'd learned that I couldn't really do: you can love and make things okay to a certain extent, but you can't fix. I didn't quite learn that until the kayaking incident. It became so clear then.
+- I think that growth and spiritual awareness come in slow increments. Sometimes you don't know it's happening.
+- When child actors act well they're just reacting to situations, and they're acting very real because their life experience is so short; there's no history to fall back on.
+- Self-Realization Fellowship seemed like training. It was the training ground for finding a sense of peace in myself. Because that's my job. It's no one else's.
+- I was taken by the romanticism of being thought of as an adult and living in a world that was completely new to me. I fell in love with acting then.
+- I enjoyed doing Lipstick, but it scared me. I was very nervous. I couldn't wait for it to be over. It was very real, and I was just a kid.
+- Everybody needs a way out of that pain. Many people choose drugs and alcohol. Some people obsessively exercise or develop strange dietary habits, which is what I did. At least it got me toward a path of healthier living.
+- I don't have to go to church. The church is within me and the experience is my own. It's my life experience.
+- The experience of getting my Kriya, which is the meditation process that I do, was very powerful for me - though, as I explain in the book, I was really suspect of that kind of thing.
+- I thought my book was done, then we went to Hawaii and the whole last chapter happened.
+- Finding some quiet time in your life, I think, is hugely important.
+- What I wasn't prepared for were the feelings of anxiety that it stirred in me. I wasn't prepared for the initial feeling of I don't want to have to do that again. I was scared.
+- I think we should be passionately curious about what we do.
+- I did Star 80, which was a magnificent experience as well, but still, I was at the height of my career at the beginning. Then I had to jump down the ladder and climb back up again, which I didn't understand. That was very hard.
+- I believe that everybody comes from pain and a certain amount of dysfunction.
+- I loved acting when I was doing it, but getting the jobs I didn't understand because I'd never had to do it. That was a difficult lesson for me. It was very humbling and very bizarre.
+- I've known for years that you're supposed to be present. I know that thinking about what's happened or thinking about what I want is not going to get me anywhere, but until I quit doing it I'm not present.
+- I'm not that old, and I haven't lived a life so far from the ordinary, really.
+- My problems aren't so different from anybody else.
+- I felt I had to share Idaho with my friend from New York because he'd shared New York with me, so I was going to share the beauty of nature with a man who went to museums and clubs late at night. But there was nothing to do where I lived at night.
+- I don't take myself terribly seriously. It's why I can be incredibly honest about my life.
+- For me, first, it's finding quiet in my life - and I do that through yoga and meditation. It's also been a matter of changing the way I eat, because I think what we eat can inform who we are; food is a chemical and a drug to a certain extent.
+- I wanted out of my pain and that silliness, but I wanted an easy out. That's before realizing that there is no easy out. Before accepting that you just have to do the work.
+- Starting out in a beginner class and really understanding the fundamentals of yoga is really important.
+- I began by doing physical yoga, initially just for the workout, as exercise. I would get peaceful and calm at the end of it, and I was curious about that.
+- I wanted to share the experience of how yoga and meditation have transformed my life, how they have enabled me to observe who I am, first in my body, and then emotionally, and on to a kind of spiritual path.
+- Cancer came back into my life twice in order for me to understand something, and I guess I still wasn't getting it. And my husband wasn't getting it, either.
+- A lot of exercise is mindless; you can have music or the radio on and not be aware. But if you're aware in anything you do - and it doesn't have to be yoga - it changes you. Being present changes you.

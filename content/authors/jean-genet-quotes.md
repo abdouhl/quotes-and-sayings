@@ -1,0 +1,24 @@
++++
+author = "Jean Genet"
+title = "Jean Genet Quotes"
+quotes_len = "18"
+description = "the best 18 Jean Genet Quotes"
++++
+- Anyone who hasn't experienced the ecstasy of betrayal knows nothing about ecstasy at all.
+- Worse than not realizing the dreams of your youth, would be to have been young and never dreamed at all.
+- I'm homosexual... How and why are idle questions. It's a little like wanting to know why my eyes are green.
+- Power may be at the end of a gun, but sometimes it's also at the end of the shadow or the image of a gun.
+- To achieve harmony in bad taste is the height of elegance.
+- What I did not yet know so intensely was the hatred of the white American for the black, a hatred so deep that I wonder if every white man in this country, when he plants a tree, doesn't see Negroes hanging from its branches.
+- The main object of a revolution is the liberation of man... not the interpretation and application of some transcendental ideology.
+- A man must dream a long time in order to act with grandeur, and dreaming is nursed in darkness.
+- Crimes of which a people is ashamed constitute its real history. The same is true of man.
+- Anyone who knows a strange fact shares in its singularity.
+- Repudiating the virtues of your world, criminals hopelessly agree to organize a forbidden universe. They agree to live in it. The air there is nauseating: they can breathe it.
+- A great wind swept over the ghetto, carrying away shame, invisibility and four centuries of humiliation. But when the wind dropped people saw it had been only a little breeze, friendly, almost gentle.
+- Would Hamlet have felt the delicious fascination of suicide if he hadn't had an audience, and lines to speak?
+- I give the name violence to a boldness lying idle and enamored of danger.
+- The fame of heroes owes little to the extent of their conquests and all to the success of the tributes paid to them.
+- I recognize in thieves, traitors and murderers, in the ruthless and the cunning, a deep beauty - a sunken beauty.
+- What we need is hatred. From it our ideas are born.
+- Violence is a calm that disturbs you.

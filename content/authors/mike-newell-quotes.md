@@ -1,0 +1,15 @@
++++
+author = "Mike Newell"
+title = "Mike Newell Quotes"
+quotes_len = "9"
+description = "the best 9 Mike Newell Quotes"
++++
+- I'm not particularly a football fan, but I live in north London, and I can hear when Arsenal score, and it's fantastically exciting. Down the road you can hear the roar.
+- I have a particular love of an actor that I did work with, oddly, in 'Donnie Brasco,' who has since become a wonderful talent: Paul Giamatti. I would love to do a whole movie with Paul Giamatti.
+- It's my view that children are violent, dirty, corrupt anarchists. Just adults-in-waiting, basically.
+- Romantic comedies are backbreaking to write because they have to be fresh.
+- What most people do is they make terrific films, one in three if you're very lucky, maybe one in five. So you just have to keep on, you have to get through the bad bits.
+- I am not Jewish, but I think that America invented nothing so fine as deli food.
+- I always wanted to work on films, and when I was starting in television in this country, in Great Britain, there really wasn't any film to be made.
+- I don't like the term 'chick flick.' I think it denigrates a movie. It has overtones of talking down to women, like they are second best.
+- If you are going to do a film about the South Pole, the chances are that you will film it in Hawaii! Whatever is most difficult, you will get to do it.

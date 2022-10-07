@@ -1,0 +1,106 @@
++++
+author = "Jagmeet Singh"
+title = "Jagmeet Singh Quotes"
+quotes_len = "100"
+description = "the best 100 Jagmeet Singh Quotes"
++++
+- I have been asked about terrorism many times, and each time I speak as clearly as I can.
+- It's one thing to say you're feminist, but then what does that mean? Not selling arms to a regime that is the most repressive and probably one of the worst human rights violators, particularly towards women, like Saudi Arabia?
+- Questions regarding the future of India are not for me to decide. I am not a citizen of India or an Indian politician.
+- My belief in human rights includes a fundamental principle that is written into Article 1 of the UN Charter: respect for equal rights and self-determination.
+- I was a little bit of a precocious kid, in the sense I loved reading, and I loved health and - my dad being a doctor - I really wanted to learn more about how the body worked.
+- I denounce anyone, anyone held responsible for any act of violence perpetrated against any innocent lives. It is just unacceptable. It is, fundamentally, something that we all denounce.
+- I am hoping that by breaking barriers myself, I can inspire a whole new generation of people to think 'you know what, maybe I can, not just run a country, maybe I could start a company, maybe I could do something in my own local community to make a positive change.'
+- In difficult economic times, I'm firmly opposed to austerity.
+- I have experienced things that I think many Canadians have gone through - the feeling of not belonging, the feeling of being a victim, of being hurt, being marginalized.
+- My style has allowed me to tear down barriers in day-to-day life with people who would otherwise have a negative stereotype of someone who wears a turban, but also to speak to people on Bay Street, professionals who don't really think of New Democrats as an option.
+- Like many others who stand out, I was picked on.
+- While I was in university, my father became very ill and my father was unable to work. We needed to pay the bills, so in my 20s I became the sole income earner in my family.
+- There is an ancient tradition of how to tie the topknot that gets passed down from parent to child. In my case, my mom taught me it. So this is a tradition, and not all Sikhs know it actually.
+- The ability to become more accessible, to spread a message further, and to share stories at a faster rate are great things to come from social media. As politicians, we have another platform with which we can reach people but also listen to them.
+- It's no secret that there are people who would like to narrow our discussions on climate change to a debate about pipelines alone in an attempt to divide Canadians - to pit workers against environmentalists.
+- If you need medication in our country, we want to make sure you use your health card, not your credit card. That means a national publicly delivered single payer pharmacare for all.
+- Let me assure you that New Democrats will support a bold agenda to tackle inequality, even though it is certain to encounter strong opposition from vested interests.
+- The higher the stakes, the more responsible we have to be. It was with this in mind that I began to build my Green Economy and Climate Agenda.
+- Beyond advocating for greater access to consumer markets abroad, we need to go one step further and advocate for a higher quality of life for the people who are the driving force behind them.
+- My parents were loving, caring, generous and thoughtful.
+- We don't want to be intimidated by hate, we don't want hatred to ruin a positive event.
+- Communities and workers should be partners at the table, not waiting on the sidelines while government and the fossil fuel industry dictate climate policy.
+- I have long been an advocate for peace and human rights in Canada and around the globe.
+- We're gonna work hard to make sure young people have a future that's filled with hope. That's right. We want young people to be filled with hope.
+- I think that as a public figure, I put myself out there so people can ask me anything they want to ask me.
+- If the concern is security, there needs to be evidence-backed policies to increase security and safety, while maintaining our liberties and freedoms. Policies that clamp down on freedoms and don't increase security empirically need to be outright rejected.
+- We need to start looking at some of the root causes of division. And one of the reasons why people are exploited to hate, to fear others is that people are afraid in their own lives.
+- I want people to dream big.
+- I don't have a firm line on balanced budgets.
+- Sikhs were considered the champions of fairness, uplifting people, protecting and defending human rights. Defending equality. So when someone sees a Sikh, the turban identifies a person who's going to stand up for rights, even if you disagree with them. The turban is supposed to be a beacon. That someone who is going to help you out.
+- All Canadians stand together united against any forms of violence, terror against Canadians, and, in fact, against anyone around the world.
+- While people might talk about the divisions in this country, what I've seen is that across this country, we share so much in common, we share so many values, we want to take care of one another - that's what it means to be Canadian.
+- We're a trading nation. We need to have trade, we rely on it, a vast proportion of our jobs in our country rely on trade agreements.
+- Prime Minister Justin Trudeau says nice words but he's really all about looking out for his rich and powerful friends, just like the Conservatives.
+- There is no excuse for inaction in the face of economic injustice.
+- I know how important it is to have affordable and reliable access to cell and Internet services.
+- As Canadians who proudly demand the equal treatment of minorities, religious freedom, gender equality and basic human rights for its citizens - allowing our political leaders to shamefully ignore these values in the name of business abroad, falls short of the high standard we rightfully set for ourselves.
+- We have to fight climate change like we actually want to win.
+- I want to become prime minister.
+- To me poverty, mental health, and addictions don't sound like criminal justice problems. They sound to me like a social justice problem.
+- People shouldn't be forced to chose between paying for rent or paying for medication. They deserve a government ready to take on Big Pharma by implementing health coverage, starting by extending pharmacare coverage to every Canadian.
+- Terrorism is perpetrated by individuals and cannot be blamed on any one religion, be it Sikhism, Islam, Hinduism, Buddhism, or Christianity.
+- What do we believe in? Love and courage.
+- Well, the federal government has a responsibility to provide leadership in bringing together provinces.
+- Make it so people can actually find good housing, can find good quality jobs and can afford to live - then we can weaken the climate of insecurity and fear that allow people to be exploited to increase division.
+- We want to help Canadians be able to get a home that they can afford.
+- My dad struggled younger in his life and eventually had become very well settled and bought a nice car for himself. And every now and then I'd take it for a spin and, almost without fail, if I took his car I'd get pulled over.
+- I am proud of the work that I have done in the Sikh community and across Canada.
+- We are the party that hears the stories of people, the struggles.
+- I hope that I can find the common thread that connects us all and say: We can build a better Canada together.
+- It's hard to love yourself when you've been told your whole life that there is something wrong with you - when you are called dirty because of your skin color.
+- Protests have a value in society that I don't think you can quantify.
+- I believe that the federal government has significant constitutional powers, but I don't think it's effective to impose pipelines on communities.
+- We need to truly understand what economic injustice and inequality looks like for hard-working Canadians grappling with it every day on the ground, at home and at work.
+- If someone doesn't like Saudi Arabia's human rights record, that doesn't mean that you are in any way attacking Muslims. You're attacking a government's policies and track record.
+- When projects like a pipeline are imposed on a province without a buy-in, without a collaborate approach, they just don't go ahead. What happens is they get caught up in court, there's court challenges, the project doesn't proceed.
+- Our public spaces should be places that are inclusive, that bring people together.
+- People come up to me, they want to fight me. I've faced a lot of people come up to me and saying racist things, hateful things, aggressive things.
+- It takes courage to love yourself when you've been told your whole life that you're ugly, or dirty, or a terrorist.
+- British Columbia's got one of the most ambitious climate change plans in North America.
+- I don't work for the rich and powerful. I work for people!
+- There's no excuse in 2019, with the wealth we have as a nation, with the technology we have as a country, that we cannot clean this water, ensure that all communities have clean drinking water.
+- We must again be the party that inspires Canadians, that makes their hearts beat faster.
+- There are a lot of people who can't find housing, who worry about the future, and that insecurity and precarity in their own lives is being exploited by some politicians who are using it to divide us by saying, 'hey it's the fault of new Canadians, it's the fault of refugees, it's the fault of Muslims.'
+- That's the thing about abuse - it can make the victim feel an overwhelming sense of shame, a shame so disabling that one suffers in silence.
+- Fighting for human rights, a commitment to social justice and treating people with dignity are all things that are important to us as Canadians.
+- Air India happened when I was about five years old but... I've attended memorials with respect to the victims and the families, the survivors of this horrible and heinous act. I've talked about how everyone denounces it.
+- It's heartbreaking to think that the joy of building a family is being dimmed by the economic squeeze young people are feeling.
+- Indigenous communities have suffered horribly as a result of residential schools.
+- One of the things that I wanted to do in all aspects of my life is to tear down barriers. And, I feel those barriers exist for any racialized person. They particularly exist for people who are very visible, so a visible minority or someone who expresses their faith visibly.
+- We're going to fight a Conservative government, we're going to fight it all the way. We're ready to do whatever it takes.
+- Oh, I think Canadians look like all sorts of people. That's the beauty of Canada.
+- A beard and a turban sometimes conjure up negative associations, but if you see someone with a lime-colored, bright orange or pink turban, it disarms people's stereotyped notion of this image.
+- We've shown people that you don't have to be taken for granted. You don't have to settle for less!
+- If we have an agreement with a country like Mexico, that doesn't support or protect the rights of workers, that doesn't have the same environmental regulations, how can Canadians ever compete with that jurisdiction?
+- Instead of just talking about the fact that women should be equal, let's put legislation that enforces pay equity.
+- The same way I'm not afraid of calling out systemic discrimination, I'm also not afraid of calling out inequality and the fact that inequality is growing in society and that affects everybody, regardless of race.
+- I came from a tradition of demonstrations and protests, and I really believe in them. I think they are powerful ways of bring people together, to organize, to raise awareness, and most importantly to empower people.
+- I can tell you as a leader of a party that I'm fundamentally opposed to violence, fundamentally opposed to any innocent lives being taken, fundamentally opposed to any violence being perpetrated against people.
+- In the Sikh tradition there is no prohibition of showing your hair. It's not that hair cannot be seen. It's an identity, as opposed to having to cover your hair.
+- Increasingly, we're seeing two worlds in Canada. The world for most Canadians is increasingly unaffordable, involves more precarious work, and is a harder place in which to get by. The second world is an exclusive club for the wealthy and well-connected who get special access and are exempt from rules the rest of us play by.
+- Social media enables us to talk about issues, shine a light on problems, and raise awareness of struggles that might have gone unnoticed. On the flipside, it also allows for a lot of noise and distractions. Sometimes it doesn't create the best environment for a healthy discussion and can lead to trolling.
+- If I want back in time and said 'Hey, 10-year-old Jagmeet, you're gonna grow up and in 30 years you're gonna be the leader of a national party.' I'd be like 'What are you talking about?'
+- I hope I represent a type of politics where we bring people together, where we inspire people - and we do it with this motivation of building a world that's better for everybody.
+- I am focused on building a stronger Canada, a country where we tackle growing inequality, where we unlock the full potential of our citizens and where no one is left behind.
+- Canadians are known for having a social conscience, and so our political leaders need to do more to uphold that reputation on the international stage.
+- No climate plan can leave workers and communities behind nor trample the rights of Indigenous communities. Canadians must have opportunity and income security during economic transformation.
+- I feel like this idea of strategic voting has not allowed people to dream big.
+- Why is it that we ask the question about whether or not Indigenous people should have clean drinking water? We've got to take a minute and think why is that even a question. Yes, they deserve clean drinking water.
+- For any kid who feels like a newcomer, who feels like they don't belong, my candidacy says, 'Not only do you belong, you can also aspire to run this country.'
+- For me, style wasn't something that was a luxury or an option, really: It was a necessity. I knew that there were certain negative stereotypes that I faced because of the way I looked. For me, suits and style became social armour.
+- Tax avoidance and evasion by the rich undermine democracy by starving social programs and public services. They also send a message to ordinary citizens that the rules of the economic game are rigged against them.
+- To publicly shame and attack someone who's been found to be harassed, to intimidate someone who's found to already have been harassed is unacceptable.
+- I've never been afraid of taking on issues.
+- If someone is being misogynistic, you have to name it. It's not convenient to talk about discrimination, but if you don't do it, you allow it to exist. So you have to name it.
+- Inequality is on the rise in Canada and those at the top have no idea what life is like for most Canadian families.
+- We need to recognize that it is growing economic inequality that creates the conditions for hate to fester.
+- I believe that if we are able to, obviously we need to ensure that we have a robust budget that's balanced, but there's no way I would ever accept austerity.
+- We need to, as a society, collectively, unequivocally denounce any time innocent lives are lost.
+- Every single day of my life is about challenging people who think you can't do something because of the way you look.

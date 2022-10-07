@@ -1,0 +1,30 @@
++++
+author = "Ken Xie"
+title = "Ken Xie Quotes"
+quotes_len = "24"
+description = "the best 24 Ken Xie Quotes"
++++
+- We recognize that our employees are instrumental to our success, which is why we look for the best and the brightest in the industry. We consider ourselves not only a technology company, but also a learning company.
+- Cisco presents our biggest challenge in the firewall market for the fact that they have such a large percentage of market share. Displacement of an entrenched incumbent is always a challenge.
+- My parents, who were both professors at Tsinghua University, hoped that I would follow in their footsteps and become a professor.
+- The reality is that there are simply not enough skilled humans available to properly plan, manage, integrate, and optimize security devices, strategies, and protocols.
+- We talk a lot in Silicon Valley about product pipelines and sales pipelines, but what about talent pipelines? It is, after all, talent - people - who give us products to sell.
+- Becoming an effective security professional requires more than knowing how to deploy and configure technology. It requires combining security theory with practical, hands-on experience.
+- The cloud presents a variety of new opportunities for Fortinet, ranging from how we leverage our own cloud-based technologies to make networks more secure, to actually developing the solutions that help secure the cloud infrastructure.
+- Cyber security is a dynamic space. The user faces different challenges every year because there are always new applications and data.
+- More organizations than ever are conducting business online. An expanding digital footprint and increasingly sophisticated cyber attacks have created a growing urgency to secure that data and the resources organizations are deploying.
+- Although a number of network security programs are already emerging in colleges and universities, security is a field that benefits from hands-on experience in real-world situations.
+- Our view is that if the network is involved, then we are there to protect it. Based on that, future developments will revolve around ensuring data, networks and applications are protected.
+- Even beginning to teach cybersecurity awareness at an early age can pique the interest of future researchers, engineers, and administrators.
+- Fortinet was founded in 2000 with the goal of making an impactful change in the network security space.
+- When you start off with your first company, you are learning as part of the process and you make mistakes. The important thing is to recover quickly and learn from the experience.
+- With security, in the early days, we would just have firewalls and you'd check who could come into the network and who could not.
+- If you knew the user, you'd let them in. But, the content could contain a lot of dangerous stuff, even if you know the person using that content, you have to check what's inside there. That's where Fortinet started, trying to go deep inside of content, or inside an application to make sure those were secure.
+- All the new data, applications, and e-commerce that are created have to be managed and protected. Additionally, when there is a new application, the old application is still there, and has to be protected.
+- Actually, we got paid because the name Fortinet is so close to Fortnite, so I'm fine with their name being close to ours.
+- Ninety percent of cyber security companies begin in the detection stage. The issue is there are so many applications and alarming messages it is difficult for the user or the administrator to manage.
+- You no longer can say that inside a company everything is trusted because you could bring in a contaminated device. And it's the same thing with data, because so much is no longer stored inside a company.
+- As for the endpoint market, vendors such as McAfee and Symantec hold tremendous brand equity due to their consumer products. This of course translates to brand awareness in the enterprise, too.
+- Working with higher education institutions can also help to aid cybersecurity professionals who are already in the workforce. Programs like these can help to move the industry forward by building rigorous and universally accepted certifications and changing expectations of what a security expert can and should be.
+- The threat landscape continues to expand, while cyber threats are continually becoming more sophisticated. This has convinced organizations to expand their security policies and deploy more security solutions.
+- From the beginning, we have fostered a culture that embraces our entrepreneurial spirit and values innovation that puts our customers first.

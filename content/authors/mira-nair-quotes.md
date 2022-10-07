@@ -1,0 +1,100 @@
++++
+author = "Mira Nair"
+title = "Mira Nair Quotes"
+quotes_len = "94"
+description = "the best 94 Mira Nair Quotes"
++++
+- I'm not interested in passion and love for their own sake - without the struggle of life, they're just fluff.
+- I listen to music deeply and seriously for at least an hour or two a day.
+- It is shocking that the screen does not reflect the way the world is and the diversity in the world... What the world really looks like should be on screen, and it isn't.
+- I grew up in a very small town which is remote even by Indian standards. I always dreamed of the world.
+- We all know the power of film; we all know there's almost nothing more powerful than to see people on film that look and talk like you, like we do.
+- I think there's a level of ignorance, when, in the callowness of youth, you imagine that you are inventing the world for the first time. You imagine that your parents don't know what it feels like to fall in love.
+- I am at home in many cultures. I live actively in three continents and I've done that for most of my life, so I just make films as I see the world, and that happens to speak to people. I do things that I want to do.
+- Truth is more peculiar than fiction. Life is really a startling place.
+- I am still attracted to stories about people who are considered to be on the outside of society. I still seek inspiration from those stories.
+- My family is almost exactly like the one in 'Monsoon Wedding'. We are very open, fairly liberal, loud people.
+- There's nothing universal about Indian families except that the family itself is deeply important across the country. It's sort of the fabric and anchor of our country.
+- The dignity of everyday life - the beauty of it, the attitude of it - is what I live around. And it is never on screen, and it is certainly never associated with Africa. If we see Africa at all, it is always used as a backdrop: a big blob of a continent rather than a specific street or a country or a place.
+- Never treat anything you do as a stepping stone. Do it fully, and follow it completely.
+- I immediately was captured by 'The Reluctant Fundamentalist.' It gave me a springboard into contemporary Pakistan and a dialogue between Pakistan and the rest of the world.
+- What's nice about what we have is when you enter the set, the world of film, it becomes this real cocoon, very different from all the publicity. That's the fun part.
+- I came from the school of cinema verite documentaries, which was: Do not manipulate reality as it was happening but create a narrative in the editing room.
+- Every film is a political act; it's how you see the world.
+- I am Indian, and my home is Kampala. My world is already diverse. But films are financed by those who want to see themselves on screen, and it is a white male world. Still, it does feel like America is waking up. Let's hope it's the start of an avalanche.
+- I started to make my own films, however small and however independent they were, from the beginning. And so, even though I was nobody, I was always the master of my own work.
+- Truth is much stranger than fiction and, often, much more powerful.
+- My close friends call me the bulldozer who never says no. I have never not made a film.
+- The film itself should interact with the audience. In the case of 'Queen of Katwe', people are laughing, sobbing and dancing. I am taking them on a ride... It is not like I am asking them for handouts.
+- From Vietnam's 'Deer Hunter' to Iraq, films are never about the person who has had his house destroyed.
+- Creative freedom is an imperative for me, but it doesn't really exist in a Hollywood game.
+- You have to want to be in the company of those you're making films about.
+- I'm inspired by people that are marginal. I'm excited by their resilience.
+- I think in the last thirty years, the rich have gotten richer and the poor have gotten poorer. It is not something that you can see with rose-colored glasses.
+- My films, no one else will do.
+- I often begin movies with music in my head; it's a very important dimension to me. Not just the music itself, but how to use music in film: when and how and subtlety. I don't like to be too sweet in my stories, and I like the abrasive clang, the contrasting of sounds and cultures.
+- We have to realize only in communication, in real knowledge, in real reaching out, can there be an understanding that there's humanity everywhere, and that's what I'm trying to do.
+- I dream of living off the land completely - in vain, because the monkeys eat everything.
+- It's only at this age that I can say the word 'art' without flinching.
+- I am actually a resident of three worlds - of America, of India, and of Africa. I live in Uganda most of the year. It's extraordinary to have that worldview that is an expansive one rather than just looking at the world from where you sit.
+- Once 9/11 happened, people who looked like me and whose children looked like us and whose husbands looked of a community, really were made to feel quite the other, and I thought that was impossible in a city like New York but I myself was witness to that.
+- I always like to reveal the fact that the emperor has no clothes. And children are best at that. They teach us how to see the world in that sense. They are without artifice; they see it for what it is. I am drawn to that ruthless honesty.
+- Humility is not a trait I often associate with America.
+- I think films have to reach people and really grab them. That's what I hope to do when I make a film - to get under your skin and really make you think about something, and have a transporting time that takes you somewhere.
+- Americans are not used to being bombed in their beds, but if you come from anywhere outside America, it's not highly unusual.
+- Middle-class Pakistani cultural life is what I've seen, what I know - they're not all screaming faceless mullahs. It's disturbing that in American films, the character on the other side is not even named.
+- I'm the bullheaded type, and I really don't give up if I fall in love.
+- I listen to Ustad Vilayat Khan's 'Raga Khamaj' and 'Raga Jaijaiwanti' virtually every morning, a lot of Abdullah Ibrahim, Michael Kiwanuka, Savages, and contemporary Ugandan pop.
+- 'No words - action' was the lesson my mother taught me: as artists, we have the privilege of holding a mirror to the world, to engage, to question, to bring beauty to a complex universe.
+- I know what it's like to be in one place and dream of another. I also know what it's like to feel that nostalgia is a fairly useless thing because it is stasis.
+- Marriage of attraction is a gamble anyway, so you might as well marry into a family that is similar to your own, and make that much less of an adjustment. But the 'love marriage', as it is called, is equally common in India now. But it would be interesting to do a comparison of what would work better. Marriage is hard work, and it is a gamble.
+- Making films is about having absolute and foolish confidence; the challenge for all of us is to have the heart of a poet and the skin of an elephant.
+- I've loved 'Vanity Fair' since I was 16 years old. You know, we're all colonial hangovers in India, steeped in English literature. It is one of these novels that I read under the covers at my convent boarding school in Simla.
+- I love the idea that it doesn't take one person only to achieve your potential. It takes a village, it takes a community, a street, a teacher, a mother.
+- The film-school mantra is that if you don't tell your own stories, nobody will.
+- Post 9/11, so much has changed in New York that it does not give you that homely feeling which it did before.
+- Never take no for answer, and try to make films that turn you on.
+- India somehow constantly rivets and inspires me, and I feel very relieved to have come from this country which has a very 'lifeist' approach to living fully, no matter what one has or doesn't have.
+- To make films, you have to have something to say. To have something to say, you have to be a student of life. And to be a student of life, you have to be feeding yourself with what life, politics, society, and your family fuels you with.
+- You know, the sad thing of post-9/11, which was of course horrific, was that the city in which I felt completely at home for two decades, suddenly people like us - brown people - were looked at as the 'Others.'
+- With Vietnam, the Iraq War, so many American films about war are almost always from the American point of view. You almost never have a Middle Eastern character by name with a story.
+- We want the diversity of the world that is around us represented both in front of and behind the camera, and on our screens as a result.
+- Katwe is fifteen minutes from my home. It's entirely about knowing it from the inside. For instance, the incredible vibrancy of style. Kampala is the center of used clothing in the world. Everyone dresses in secondhand clothes, but they look astonishing for it.
+- No one goes to Pakistan to make movies. You stick out.
+- My family is vital to me - just the sense of being surrounded by no pretension.
+- I grew up thinking anything was possible simply because of seeing women in power - like, you know, running the country. Which is a thought that continues to give Americans indigestion... Direction is about having a vision, but the practice of being a director is a con game - a confidence game.
+- Bollywood actors are so set in what they want, and the way they want it. And why shouldn't they be? But it is not the same in Hollywood, because the love of the audience is not the same.
+- Sitting in America, we never get to know the other side in any kind of believable way. We have so many movies about Iraq, Afghanistan, and this and that, but there is never a character from that side.
+- As the director of a film, as the story teller, you have to keep your voice alive.
+- In America, we have so many movies and so much media about the Islamic world, the sub-continental world, but it's not a conversation, it's a monologue. It's always from one point of view. 'If we don't tell our own stories, no one will tell them' is my mantra.
+- I've been able to look at the world differently from three continents practically. I've always lived between India and the U.S. When I married Mahmood I became a daughter-in-law of Africa. That really changed my worldview. I can see it from so many perspectives.
+- A lot of us feel that we are against the war; we are against profiling and are against what is happening. We are tired of war in every manifestation. American people do not all believe in what the government has been doing.
+- For seven years, I made films in the cinema verite tradition - photographing what was happening without manipulating it. Then I realised I wanted to make things happen for myself, through feature films.
+- When people break up, after sharing their entire souls with each other, I don't want to believe that you just switch off. There are remnants of melancholia, and there is so much that stays with you because you loved this person. Of course, it's that much more complicated when it's an interracial love or love from a person from another culture.
+- I think I am kind of put on this Earth to speak of being between worlds in my films.
+- I am an independent film-maker first and foremost. I have always cut my own cloth.
+- We have not learned the lessons of 9/11. This wrongful suspicion, racial hatred, and profiling is what I keep seeing.
+- 'Queen of Katwe' is an absolutely true story. And it's wonderful. But it's not about saviors. Your only savior is yourself - but yourself with your community. It's never alone. You have to have someone who believes in you.
+- I want to question what the outside is and who defines it. I often find those that are considered to be on the outside extremely inspiring.
+- I think, in terms of activism associated with my films, be it 'Salaam Baalak Trust' or 'Maisha,' taking the idea of cinema as a way to change people, I feel heartened. I am glad that we have impacted thousands of lives.
+- I grew up in a small town in India, but through books I knew the world.
+- In Uganda, I am surrounded, unfortunately, by evangelicals; I can't bear it. Every night I hear the chants of Baptists urging people to be born again.
+- Christmas lights may be the loneliest thing for me, especially if you mix them up with reindeers and sleighs. I feel alone. I feel isolated. I feel I do not belong.
+- They say now in America that final cut doesn't mean anything. As Harvey Weinstein said to some film-maker, 'You can have final cut. I'll open your film in Arkansas.'
+- I think optimism springs from nature. I'm a gardener. Nature has taught me about rhythm, the essence of every art. With so much that is terrible, nature gives me pleasure.
+- It took me three years to learn to dress in the American way, especially in winter. That was just like me. I barely wear socks even now.
+- Life is short, so I'm knowing exactly where I'm putting my time. I don't want to do things that I don't have to do.
+- I'm a self-taught landscape gardener; it's a real passion of mine. It's what I do in my spare time because trees don't ask questions!
+- I look for the humanity in people, however big the politics or oppressive the situation may be, whether it's subsumed within a human being or between two human beings. I want to help us hold a mirror to ourselves.
+- I don't want to say that we are the world in that we are not distinct from each other. I want to say that the humanity that is our foundation is common, but my culture, my beliefs, my values, what makes me sing and what makes me happy and the language I speak in and the relationships I have in the world are distinctive.
+- If we don't tell our own stories, no one else will.
+- You've got to understand that in Bollywood, every actor is an instrument, and yet a human being. They come to the set with a set agenda, believing, 'This is who I am, this is what I want, and no, I am not going to become that character you want me to.'
+- We never see the fancy schools with the blazers and ties in films about Africa! But, in fact, we too have class and elitism.
+- I don't think boldness should be associated with showing off skin. It's not the basis of boldness.
+- In our house we say 'adolescence' is a western word. We don't believe in it.
+- Either you're this, or you're that: either you're - if you're a Pakistani, you're a terrorist; if you're an American, you might be a militarist. Those kind of prisms that we see each other through are really stultifying, and they don't often show the complexity and the incredible warmth and encompassing of the world.
+- New York City is home to so many people from so many places and the uniqueness of it is that you never feel a foreigner. English is almost hardly ever heard in the subway. In fact, it's weird.
+- It gave me a lot of pleasure and pride that 90 percent of the crew for 'Monsoon Wedding,' and most of my film, are women. We get the work done, you know, much lesser play of ego... And I really believe in harmony, I believe in working in a spirit of egolessness and that the film is bigger than all of us.
+- We have three generations at home, including my father-in-law. I keep a very low profile, and a lot of things I do are very much with the family in mind. I have actually made films with the family around me.
+- Every frame and every scene has to have an intention.
+- 'Salaam Bombay' didn't put a halo on the poor. Instead, it said that they will teach us how to live.

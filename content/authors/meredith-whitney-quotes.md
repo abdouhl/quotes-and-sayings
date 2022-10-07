@@ -1,0 +1,16 @@
++++
+author = "Meredith Whitney"
+title = "Meredith Whitney Quotes"
+quotes_len = "10"
+description = "the best 10 Meredith Whitney Quotes"
++++
+- At a certain point, you can't tax people beyond a certain level.
+- Every day things get better because politicians are addressing the fiscal challenges more aggressively.
+- There are great municipal investments out there, but on a blanket basis you have to be really careful about knowing what cash flows are supporting your investments.
+- You're either making money or you're not. If you're not making money get out of the business.
+- You can make great money in a utility type of business by borrowing cheaply and lending sensibly but that's not what's being done.
+- Municipal debt outstanding doubled in the past 10 years. And in the past 30 years, the U.S. has been in real economic nirvana.
+- The more we can do to address fiscal austerity, the better our markets will do, and there is a real political shift to doing that.
+- There's not a doubt in my mind that you will see a spate of municipal-bond defaults.
+- People knew that Murdoch's media estate in the UK was too powerful and it was doing very unpleasant things.
+- You have to know what you own. You have to really do your homework in terms of knowing what supports your bonds.

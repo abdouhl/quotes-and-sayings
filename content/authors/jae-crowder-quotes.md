@@ -1,0 +1,74 @@
++++
+author = "Jae Crowder"
+title = "Jae Crowder Quotes"
+quotes_len = "68"
+description = "the best 68 Jae Crowder Quotes"
++++
+- I don't like losing, man.
+- As long as I've got the respect from my teammates, I'm able to come to work each day and I'm able to have fun with the guys that I'm on the court with.
+- I think the league is going to be changing because there's so much money that teams have. And they can spend so much.
+- Me personally, I took out bread and I took out grease foods.
+- I play everything but point guard.
+- I can't answer what coaches value me more. I don't really look for that answer. I look to see if my teammates accept who I am as a basketball player and as a person.
+- I had to buy into being a better player and being able to be coached.
+- I feel like I can be one of the top defenders in the league and that's what I'm going to try to be.
+- It's always good to feel the love from the fans and see familiar faces.
+- Stanley Johnson's going to be a great player in this league.
+- The most important part for me is mentally. Physically, I know I'm going to put the work in. That's not even a question. But mentally you may have some days where it's tougher.
+- And I've always been able to play basketball at the highest level, and been able to play a significant role on the team I've been traded to.
+- You realize there are things you can't control. You can't control a lot of the stuff that happens in your life.
+- My dad does a good job of reminding me where I came from.
+- That's all it's about with me: winning.
+- I just want to continue to build mentally to push forward even on the good days and bad days.
+- Boston fans are pretty tough.
+- You kick it up a notch when you work out.
+- It's always good to have my dad there to support me. I know he's watching every game when he's at home. But when he's in the stands it's a great feeling.
+- Obviously, I don't want to leave Boston. Obviously, I love it here. Obviously, the fans have treated me great. No doubt about that.
+- I enjoy being held accountable, I enjoy holding my teammates accountable and being someone that my teammates can depend on.
+- I'll dive on loose balls. I'll get the winning rebound, hit the winning shot. I'll do whatever it takes to win a game.
+- Yeah, I'm going to start talking to myself a little bit. Not talking to the opponent as much.
+- No matter how big of a man I am and how big of a stage I play on, I'm always my mom's baby.
+- I drink water. I don't drink any caffeine drinks. I stay away from all the sweet drinks and drink water as much as possible.
+- I'm naturally fired up. I'm naturally excited to play each and every time I lace the shoes up.
+- I just like to win. No hard feelings, I'll still go eat lunch with you after, but I'll kick your butt and then have lunch with you. That's the kind of competitor I am.
+- There were good and bad times, but through all of the times I just kept working, and kept being in the gym, and kept believing in myself. And it all paid off.
+- I play this game to win. I never in my life played to lose. I don't know what that feels like. I don't play like that.
+- It's a scary thing when a team don't know who to match up to, whose night it's going to be on the offensive end.
+- I just think I've got to be more aggressive at both ends of the floor. When I'm aggressive on the defensive end it really helps me on offense.
+- I'm an emotional player.
+- I'm way more comfortable off the dribble, shooting the ball of the dribble, making a play off the dribble.
+- What I can control is me playing basketball and how I treat my family and how I raise my child in the time that I have to spend on this earth. You know what I mean? I can't control what happens with trades.
+- Take care of your muscles and they'll hold up.
+- Once I get on the court - I've been on the court with my own brother before and tried to rip his head off, so that shows the kind of competitor I am.
+- People back home - my dad is from where I'm from, so to separate us two - you don't want to call both of us Corey, so everybody started calling me Jae.
+- LeBron always tells me to shoot the ball. Don't worry about stats, don't worry about percentages. 'We know what you can do, just shoot the ball and be comfortable.'
+- I never put a ceiling on myself, I never put a ceiling on my teammates or my team.
+- I just wanted to give myself a chance to be an athlete because I really loved the game of basketball.
+- I make $7 million per year. I'm not going to be mad at a guy making $10 million. We're still millionaires.
+- I think with the whole revenue deal, everybody from top to bottom probably gets impacted by it. It's just a different era of basketball now with contracts and money. Teams being able to max out players as much as they can, that helps a team stack their team like Golden State.
+- Just to get out, put it out on the line each and every night is a great feeling for a basketball player.
+- I just want to continue to put my best foot forward and give it all I got.
+- Year 6 was the toughest one yet for me. That was the first time in my life I couldn't put my whole heart into basketball.
+- It's all a desire to win - to win the next game, to win the next practice, to win the next day.
+- I've never been on the road and got cheered for, or even one of my teammates get cheered for by the opposing team.
+- I watch basketball. I got League Pass, so I watch a lot of basketball. Each and every night I watch basketball, so I keep up with the whole league.
+- I was the National Juco Player of the Year, so I thought I was a big shot.
+- Dallas was top-notch professional and they wanted to win every game.
+- A lot of people say Michael Jordan and all of that. But Magic Johnson and my dad were my role models.
+- I'm going to stay in the gym, stay watching film, stay focused, stay being an all around professional.
+- I think it makes the game much easier to play once you have a good cohesion off the court. I think that's big because you come into a locker room at the NBA level, there's so much emotion, so much pride in the locker room.
+- When you want to win, man, when you're in a winning organization, you take pride in it. And when you lose, you let everybody know you lost. You're not walking around happy.
+- It's a business with the coaches. It's a business with the front office. So I don't get too tied up if I'm appreciated by them. Because at the end of the day, my teammates are who I play for.
+- When you've got so many guys that can score the ball, you really don't want to get down and defend. You really don't want to get down and dive for balls. You really don't want to fight through screens every play.
+- My ultimate goal, really, is to win a championship. That's my ultimate goal no matter the statistics or how I do it or what numbers I put up in the box score.
+- I don't throw it away because people don't think it's real. But it's really my hair. I keep it every time I cut it.
+- At times, you get going and you think you need to work, work, work, and your body is going to get fatigued at some point.
+- The best fitness and training advice has to be: Listen to your body.
+- I've never had any problem with race in Boston, so I don't even want to talk about that. I never said anything about race.
+- I never would have thought this would happen, me playing for Utah. It's like coming around full circle for me and my family. We love it, we embrace it.
+- I didn't want to be part of a tanking team. I just wanted to win and just work to be a good team.
+- I've always been a momma's boy. I'm very proud to say it.
+- I look at it like this, this is what keeps me going: You see a lot of guys who are being traded and they get waived once they get to the team. That's never happened in my career. So once I've gotten traded, I've been able to sustain a role. I've been wanted.
+- When your dad is your father, best friend and mentor, all in one, it's hard to explain what he brings. He brings confidence and self-awareness through my game, on and off the court. I'm blessed to have him.
+- When you're tired, it doesn't mean go harder. It means take care of your body.
+- Whenever I'm on the court, I just want to do whatever I can to help my teammates win the game.

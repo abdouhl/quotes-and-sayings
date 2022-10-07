@@ -1,0 +1,106 @@
++++
+author = "Mardy Fish"
+title = "Mardy Fish Quotes"
+quotes_len = "100"
+description = "the best 100 Mardy Fish Quotes"
++++
+- I put my head on my pillow now, knowing that in the later stages in my career, from 2010 on, I did everything I possibly could do to be as good as I could possibly be, I know it sounds really cheesy but it was actually true.
+- It's been well chronicled that I've had a lot of losses in finals.
+- I've worked very hard to put myself where I am: in the top 10, the top American in an American event - two American events - and I haven't played on stadium court.
+- If I never had any mental health issues, there's no doubt in my mind I'd still be playing.
+- All of a sudden, it wasn't quite good enough to make the fourth round of a Grand Slam, when my whole life before that it was an incredible achievement and something that I had only done a couple of times.
+- With my anxiety, I essentially need to be around someone at all times.
+- Sports end in a result. And life keeps going. Mine, I hope, is just getting started.
+- I just feel like a completely different person confidence-wise, just being able to walk around feeling like an actual athlete that's in pretty good shape.
+- I had my job, which I loved to do, which I was really good at. I was at the top of my career, and I had it all taken away because of a mental illness.
+- You see a lot of guys going downhill as they get older, but I'm going the other way, and that's because of diet.
+- I'm open to talking about what I've been through with my anxiety disorder and my mental health struggles to try and help other people.
+- I do want to play again. I'm just not sure if I'll be able to.
+- It took me months and months to get back to normalcy - to have a glass of wine at dinner, to go out to a movie with my wife. Just those normal things that you take for granted I wasn't able to do for a long time.
+- Physically, I definitely needed to change some things, get fit and get in position where I could be consistent without injury, and I've put in a lot of work to stay fit.
+- It was just crazy anxiety, crazy, crazy, just how am I going to walk out on this court?
+- I don't want to play on the grandstand. I want to play on the stadium.
+- I've got a big serve, a hard serve, and quicker points as opposed to longer points.
+- I worked extremely hard to put myself in the best position to not have to worry about things when I was out there. Because if I was out of shape, or if I didn't feel well, or if it was going to be a long match or a hot match, or something like that, a lot more things creep into your head.
+- It's just really humbling to know that your story can help people.
+- As tennis players, we're ingrained from a young age to not show anything - tiredness, fear - or your opponent is going to know and you don't want that to happen.
+- I'm pretty good at golf and I enjoy trying to get better and learning without the stress on your body, without having to be in incredible physical shape.
+- To show weakness, we're told in sports, is to deserve shame. But showing weakness, addressing your mental health, is strength.
+- There are certain circumstances where I feel a little unlucky or why did this happen to me but I'm sort of transitioning from that and finding ways that I can learn from it and help with it.
+- I really wanted people to understand beating the stigma of, Hey suck it up,' is really important, because it's not as easy as that.
+- We're trained from a very young age not to show weakness. And I was very good at that throughout my career.
+- I learned that I had the willpower and ability to reshape my body and my lifestyle.
+- We tracked every single thing that I ate and calculated everything on a computer program called NutriTiming. It wasn't always easy and certainly wasn't always fun.
+- My diet wasn't terrible but it wasn't great either.
+- I'm pretty lucky. I know I'm really good at what I do, and it's fun for me.
+- If anyone reads about my story, and says, 'Look, there's a guy that struggled with a lot of stuff that I am dealing with now, and he got through it,' then, yeah, I'd love that. If it helps one person, then that's great.
+- You sort of look yourself in the mirror and ask yourself if want to do things if you want to do some cool things and achieve things you've never achieved before.
+- Davis Cup means almost everything to me.
+- The sport, my job, was taken from me so abruptly that it took me a long time to get my life back.
+- It's just been kind of hard trying to figure out what I can and can't play. Everyone is so competitive and you watch your friends doing well and you feel helpless at times.
+- I always wanted to be a professional athlete and really did not necessarily care which sport.
+- In those years between 2010 and 2012, I was so consistent, not only on all surfaces, but just in terms of entering a tournament and winning matches.
+- I had a really great career. I have won over 300 matches, won a bunch of tournaments, almost won a bunch of big tournaments, beaten a lot of good players and done more things than I ever could have imagined.
+- If I had three pancakes in the morning I'd be like, Oh, I feel a little full, did I eat too much? Maybe I ate too much, I don't feel perfect, what's going on?' It just snowballs.
+- I always felt gratified as a player when Jim Courier was captain, and I knew he had been in any possible scenario I might face on the court. It's amazing to sit with someone like him, and to draw confidence from what he says, or even just nothing.
+- I love playing competitive golf because it's really the only thing left that I'm still pretty good at.
+- I'm very comfortable knowing how hard I have worked in the later stages of my career.
+- There were times I felt I'd never get my life back. Am I ever going to be normal and go out with my friends and have a beer and not think I am going to wake up at 3 A. M. and have anxious thoughts about what normal people are doing?
+- It shouldn't matter, but I want to play the big matches on the big courts.
+- I'd love to go back to the U.S. Open, where it sort of all came crashing down for me in 2012, and sort of conquer that place. And by conquer, I mean just get back out on the court there. I have a lot of demons from that place.
+- It's hard to play somebody who is wounded.
+- I don't want people to think I missed the French Open because I didn't want to go because I was just tired.
+- As a captain, you don't have to worry about playing well, or recovering, or injury. As captain, you know the match is in the hands of the player, not you.
+- There is no tournament to win for mental health. There are no quarterfinals, or semifinals, or finals.
+- I regret not being able to mature quicker.
+- For the first three months after the U.S. Open, I had retired and nonretired in my head almost every week. And there was a while where I was done. I had gotten it through my head that I was done, when I was just trying to get my normal life back.
+- There are a lot of things I'd like to do when I come to D.C. - go to a Nationals game and have fun - but it might not be the best thing for me.
+- I practice kickboxing and Muay Thai right now, like, come on, I'll take anyone on in the ring. You can punch me in the face all you want, and I'll hit you back.
+- I have some great memories from the Olympics I also have some tough memories from it as well, where I was so close to winning a gold medal.
+- I used to be very hard on myself at times - a lot of times, really.
+- I was in the spot where you work your butt off to get to: the fourth round of the U.S. Open against Roger Federer on Labor Day. That's why you work so hard in this game and sacrifice so much - to get to that position.
+- The most trauma I had was on the tennis court.
+- I was a guy who loved to be on my own at times and to travel and some of the most comfortable times were in the middle of my career flying overseas, where you have to turn your phone off and no one can get to you for 10 hours. It was just a really comfortable place for me.
+- What don't I miss about tennis? Oh man, the road, the airports, the rain delays, the scheduling, the knots in your stomach, not being able to eat. Things like that.
+- To educate is really the most important thing. To try to reach people that have never understood mental health or had issues with it or people around them who have had issues with it. To just educate them and just understand that Naomi Osaka is not going to pull out of the French Open just because she doesn't want to talk to the press.
+- It's great to be with family all the time.
+- I'm obviously struggling to go out on my own terms.
+- You dream big and you figure out where you fall.
+- I was 21 when I made the the finals of Cincinnati and finished 20 in the world, and thought it was going to come pretty easy.
+- I realized that if I could shed some extra weight, it would make a huge difference for my knee.
+- That's one of the things that I need to do on the court, is to be pretty even-keeled, and positive.
+- I don't get tired anymore because I'm no longer carrying 30 pounds on me. It was about a lifestyle change. It was about what I ate and when I ate, and now I'm able to train harder.
+- I feel very blessed to play a sport for a living.
+- I've retired 15 times in my head, I mean literally.
+- The more and more I spoke about it, the more I found out how many people deal with it, the more I read about it and researched it, the more you start to realize how many Americans deal with some sort of mental illness on a daily basis. That gave me comfort.
+- We're so trained to be 'mentally tough,' in sports.
+- Showing weakness and showing fear and letting people in was a huge part of my comeback.
+- I would not complain very much if I didn't feel well. I'd fake it on the court, not show that side of it.
+- Anytime you can beat a player that's going to go down as one of the best of all time, that's a good win.
+- I'm very proud of the work I put in, especially in the second part of my career.
+- I'm superstitious as far as stuff around the courts. I'll eat the same things and drink the same things, and have the same breakfast in the morning.
+- Yes, it was fun playing the quarterfinals of Wimbledon. But I just wasn't satisfied. To have that one big win in a big tournament on that big stage - I don't have that.
+- It's just health. They call it mental health, but your brain is part of your body. It's an injury. You just can't see it.
+- Mental health doesn't care what your name is or what you do for a living.
+- I don't feel like in my head I have anything to prove.
+- Everyone is in their own bubble with stresses, pressures, and expectations on themselves - no matter what job title they have. Mine just happened to involve playing in front of a lot of people, but my issues would be no different from any other person's.
+- You can't play this game without being fit, and without being mentally fit and ready.
+- I had trained myself to show no weakness.
+- The truth is you want stress in your life. You don't want an actual anxiety-free life. What would the fun be there?
+- I've got an incredible family, I've been blessed to play a game for a living, and even more than that, I've been blessed to have the ability to play it and the ability to play two sports at the same time. There's not many people that are able to do that, so yeah, I feel very lucky.
+- I've been to all these places all over the world: Portugal, Vietnam, you name it.
+- I was at the bottom, man. I was in a deep, deep place. It wasn't like I needed a little bit of medication and a couple of therapy sessions, and then we're back.
+- I do enjoy the experience of a 10 or 12-day competition.
+- You can't replace Davis Cup with something else. Its love and lore won't be surpassed any time soon.
+- I played as many golf tournaments as I could. I killed time by playing and practicing. It's something I love to do; it's fun and I was good at it.
+- I realize there are a lot of people putting in a lot of time and effort for me, and I want to do well for them, too.
+- A lot of it is maturity and getting older. You know, sort of getting married and realizing you're not out there for yourself anymore.
+- I'd certainly like to feel I'm a better player than three titles, but it is what it is.
+- Everyone has got demons and stuff they're dealing with.
+- I was just too heavy, flat out too heavy.
+- You gain more and more confidence every time you go through tougher situations like traveling alone and sleeping alone.
+- Mental health is not a very easy thing to talk about in sports. It's not perceived as very masculine.
+- Try to do some cool things while you can because it's not going to last too long.
+- I want very badly to have a success story at the end of it, at the end of my career and say, regardless of how many matches I can win this summer, I want to go to the U.S. Open - for that be my final event - and say I went out on my own terms, instead of it being taken away from me in Winston-Salem in 2013.
+- You can be pretty selfish as tennis players, being an individual sport.
+- Some days are better than others, some weeks are better than others.

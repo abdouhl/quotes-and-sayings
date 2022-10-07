@@ -1,0 +1,82 @@
++++
+author = "Nina Dobrev"
+title = "Nina Dobrev Quotes"
+quotes_len = "76"
+description = "the best 76 Nina Dobrev Quotes"
++++
+- To be honest, I don't watch a lot of TV. It's kind of ironic because I'm on TV.
+- I don't like any kind of negativity. I try to be good to everyone, whether it's a love, a friend, an ex. I'll always try to treat people the way I want to be treated.
+- To be honest with you, I literally don't even know how to style my hair unless I'm doing an event because I rely on hair stylists.
+- I've realized skinny isn't necessarily attractive. Guys like girls with curves.
+- Comedy is probably a lot harder for me. Maybe it's because I've been doing drama for so long or maybe it's because... you don't want to search for a laugh; you can't try to be funny, you just have to naturally be funny or be in a situation that's funny.
+- Cole Haan is like high fashion Nike, so you feel like you're wearing Nike shoes, but you're wearing heels. Every time I'm on a red carpet, I always either wear Cole Haan or Stuart Weitzman. You end up having to walk around all night in these heels and you want to be comfortable and not look like you're in pain. It definitely shows in pictures.
+- When I work out, I feel happy, confident, and accomplished.
+- Looking back on high school, I just remember specific scenarios and thinking, wow, that was such a big deal at the time, but right now it feels like it never even happened. So I guess if I can give any advice, I would just say that everything will pass, and it'll feel like it was a big deal over nothing.
+- I read the 'Twilight' books before the movie and the whole craze happened. And then I loved it. I was in love with Edward before every other girl that says she's in love with him was. Because I read them a long time ago shooting a movie in Salt Lake City, and one of Stephenie Meyer's friends said, 'Make sure you read my friend's book.'
+- I haven't personally in my real life had many people close to me die, but my characters have, and I've had to live that as though it's real. And it can take a really big emotional toll on someone.
+- In my day-to-day life, I'm kind of a tomboy. I like being comfortable.
+- Girls' weekend with the 'Vampire Diaries' girls has become a big deal! It's our quality time. It's so much fun to unload and not feel guilty complaining or talking about your insecurities or bonding over things that you thought you were on your own about.
+- I try to eat healthy.
+- Running is my solo time; working my muscles outside in fresh air is therapeutic.
+- I'd like to try different genres: comedy, period drama, rom-com, action.
+- I have a giant baking book, so I close my eyes and pick a random page. Whatever it is, I try to bake it!
+- I was kind of a jock in school. Beauty wasn't something I spent a lot of time on.
+- I try not to read best-dressed lists or anything like that.
+- People aren't defined by their relationship. The whole point is being true to yourself and not losing yourself in relationships, whether romances or friendships.
+- A man in a suit looking put together and dapper is very attractive, but I also kind of like the I-just-rolled-out-of-bed, a-little-bit-of-scruff, effortless, not-trying-hard-but-still-sexy guy. If a guy spends more time looking in the mirror than I do, that's problem!
+- When I fly, I never check my bags. I bring a carry-on, an eye pillow, noise-canceling headphones, a big pillow and a blanket.
+- I've always dreamed of being a 'Burberry Girl', but know it'll never happen, because I'm not British. Still, you can't stop a girl from dreaming. And owning way too many Burberry coats!
+- My whole mentality is that I eat what I want within moderation, and I have a little bit of everything. If you deprive yourself, you get moody and unhappy, and you have to enjoy life.
+- When we do get a little time off, I tend to watch movies, go to dinners, and keep it low-key.
+- I mean everybody's got ex-boyfriends and girlfriends. Everybody's got baggage.
+- I know a lot of people dread going to work every morning, but my work is playing pretend and doing stunts and screaming. It's a lot of fun and I get to play dress up. Every day is exciting and different and new and cool. I couldn't be more grateful.
+- Whether it's a bright shoe or a clutch or a lipstick, I've had a lot of fun using color contacts as an accessory.
+- I love fashion, and I love clothes, and so collaborating and putting pieces together is a passion that I have.
+- Even though you're growing up, you should never stop having fun.
+- I'd love to hear what confident, intelligent women in the industry have to say: Rachel McAdams, Carey Mulligan, Angelina Jolie, Kristen Wiig and Tina Fey. I would stand in line all day for that panel.
+- I mean, I love to try and cook. I'm pretty good, but I'm not saying I'm great.
+- I went on a date once with a police officer, unbeknownst to me. I thought he was a regular guy. And when I found out that he was a police officer... I wasn't so into it. I got paranoid that I would illegally cross the street and get a ticket for jay walking.
+- Yoga changed my life. Hopefully, it will do that for others.
+- I love cheeseburgers and chocolate - milk, not dark, and hot chocolate with marshmallows in the winter!
+- I love yoga because it's very calming for your body and your spirit. It gives you that meditative state, and its 90 minutes where you can get away from the world and just be, and exist in the moment. I need yoga. It's part of my life, and I can't imagine not doing it.
+- Every woman wants and needs different things. It's always best when you're honest and you speak up. It's hard to read minds.
+- Starving to be skinny isn't my thing. When I don't eat, it affects my mood! On-set, I fuel up with small meals and I'm always grabbing high-protein snacks, like almonds. Chai lattes with espresso also keep me going.
+- Yoga changed my body 100 percent. It tones everything and leans you out. Dancer's pose is amazing. It works every muscle!
+- After going to Australia, it's hard to go anywhere after that. I want to move there. I'm obsessed with it.
+- If I feel confident wearing something, I think it translates in photographs. It changes my demeanor and posture.
+- I'm like the female version of George Clooney in 'Up in the Air.' I have to have an eye mask, and Amore Pacific has this cream face mask that's moisturizing. Moisture is so important in the stuffy, dry air on a plane.
+- I'm constantly trying to make myself better, to learn more. I didn't finish college, so I feel like I'm always having to prove myself. I don't want to feel like the smallest person in the room.
+- You either have chemistry or you don't, but a lot of what attracts me is a guy's mind and humor and talent. I need to get to know all those things before I fall for someone.
+- I was a rhythmic and athletic gymnast for a little while. Then, when I quit gymnastics, I fell in love with yoga. So sometimes I think I'd like to open up a yoga studio.
+- I am a fan of the vampire shows, especially 'True Blood.' I'm obsessed with it. I got to meet the entire cast at Comic-Con and hang out with them. And that was awesome. I basically died and went to heaven.
+- The 'Degrassi' producers were very supportive. They sent me flowers when I got 'The Vampire Diaries,' and then as soon as it premiered and got the great numbers that it did, I got another large bouquet of flowers from them. Every time I go back to Toronto, I see them and hang out with them.
+- I do a lot of yoga. I practice yoga three or four times a week. It's an escape for me.
+- There's nothing worse than sleeping in makeup. You wake up looking like a painting that's been left out in a rainstorm.
+- For like everyday, just kind of hanging out, I love flannels. Part of my closet, there's a whole section of flannels because I love them so much. Slouchy, oversized hats and fedoras. I just got these 2 amazing hats that I really love, blue and gold trim with woven material by D&Y. I love D&Y hats.
+- Savasana is the easiest and most important yoga move because it's so simple. Lying there is meditative.
+- My way of discovering of what I like was to create a restaurant list and eat my way through it, and I call it my 'inner fat girl bucket list.'
+- The 'Degrassi' producers were very supportive. They sent me flowers when I got 'The Vampire Diaries,' and then as soon as it premiered and got the great numbers that it did, I got another large bouquet of flowers from them.
+- I think you have to draw from any character and bring it to yourself as much as possible.
+- I want to go to Harry Potter Land! I actually should text Emma Watson to see if she can hook us up with a backstage pass or something. That's the perk of doing a movie with Emma called 'The Perks Of Being A Wallflower.'
+- Wash your face at the end of the night! There's nothing worse than sleeping in makeup. You wake up looking like a painting that's been left out in a rainstorm.
+- My love can't be purchased... Best gifts have been well-thought-out surprises.
+- Actually... I'm starting a new thing and rebelling against ridiculously high heels. It's inhumane.
+- I try not to read best-dressed lists or anything like that. For every good thing, there will often be a not-so-nice thing people would say.
+- Part of life and part of the enjoyment of life is a croissant and a chocolate cake and eggs and milkshakes and oatmeal. There's so many things, you have to learn to appreciate it all. When I don't eat as much as I should, I'm not fun to be around; I'm fussy.
+- Even though I'm big on recipes, I love to make up my own dishes and when you take a risk in the kitchen, you learn a lot about food!
+- I want to open my own yoga studio. Planning construction and looking at properties is fun.
+- I could be a yoga instructor. I'm not certified, but I could do it. Once I did a class where the instructor didn't show up, and I just went to the front and did it, and everyone followed. So I've done it before, and I love it.
+- Even though my grandparents live overseas and are so far away and we talk as much as we can, we don't see each other that often.
+- Over the holidays is when I have the most occasions to cook and bake.
+- I'm kind of a globetrotter. I've been traveling since I was born and living in different locations.
+- There's just something about vampires that's sexy. It's the same reason why women go for the bad boy - you want them but you shouldn't have them.
+- Exercising gives me endorphins and energy. I do it four days a week.
+- I have a flat tummy, but I'm not rock hard. If I'm going to be in a bikini, I'll train more and skip desserts for a couple of weeks. But usually, I work out to feel good.
+- I have one mascara that I use religiously, and I refuse to try anything else, and if they discontinued it I would probably cry. Cover Girl lash blast, in the orange tube.
+- I literally pass out when I see blood.
+- It's just a great brand with great clothes. I'm just excited they asked me to be part of Penshoppe.
+- I really want to be associated with great projects and character driven projects and films. I have to feed my soul, and keep feeling like an artist and keep being challenged.
+- I love to try and cook. I'm pretty good, but I'm not saying I'm great.
+- I'm progressive in some ways, old-fashioned in others. I like it when guys hold the door open and are sweet and thoughtful.
+- I've reached a point where I'm comfortable in my own skin, and I do what I need to do, to feel good, but I'm built the way I am. The dancer's feet, the bruises on my legs, they're not going to go away. I think real girls have bruises. Tough chicks get bruised. They get dirty. And they have fun.
+- I like to keep some things to myself, because its called a private life, not public.

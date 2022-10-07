@@ -1,0 +1,46 @@
++++
+author = "Marques Brownlee"
+title = "Marques Brownlee Quotes"
+quotes_len = "40"
+description = "the best 40 Marques Brownlee Quotes"
++++
+- I don't get a lot of sleep.
+- It's hard to pinpoint a 'moment' that validated years of work.
+- Creators are what bring the eyeballs to platforms, and vice versa. Sort of a chicken-and-egg thing, because you can't have creators and no platform.
+- Just make videos about things you love, and people who love the things you love making videos about will find you.
+- In my 100th video, I gave a shout-out to the 78 subscribers I had at that point. And I was stoked at that point just to have that many who cared about what I had to say.
+- I have a SIM card ejector tool everywhere I go. It's probably not a normal thing to have, but as a guy who's moving between phones often, I kind of have to have one.
+- If I'm going to give someone advice on what to buy, you want a personality to back it up rather than some robot telling you X is better than Y.
+- I'm not changing any of my opinions or what I'm saying about a product in a video based on my relationship with the company... When they release a product, my job is to be honest and deliver what people want to see and what people need to hear.
+- The closest thing I have to a manager is my parents, for all their words of wisdom and business experience.
+- I typically have one backpack, my everyday carry.
+- I think the problem with 'YouTube Rewind,' at least how I see it, is pretty simple actually. YouTubers and creators and audiences see it as one thing and, YouTube, who's in charge of making it, sees it as something completely different.
+- Using a massive panel of pure sapphire for the front of a phone would be a little bit stupid.
+- As far as tech videos go, we try to present things as realistically as possible.
+- When I sit down and make videos, my No. 1 thought is that I want to make a video that I want to watch.
+- I guess for me, I keep saying the words 'consumer electronics,' 'consumer tech' - the biggest purchase decisions people make a lot of times are the phones they buy and the tech they buy. To be able to influence other people's decisions on that front is pretty game changing.
+- But, I think I first got into cars because of an electric car - it was the Tesla. And then, just the fact that they are such high-tech products. There's automated driving. There's battery technology, all the other stuff that goes into it.
+- I went so far with school, so I might as well just finish. Getting my degree is something I'll be really happy about.
+- I'm just picky about certain things in the videos, so I'm always switching out things that look or sound better.
+- I'm really happy that YouTube is as complete and successful as it is, to the point where, when things do go wrong, they'll hear about it from every direction.
+- Every camera shoots horizontal, right? So we're all super used to framing things with lots of horizontal room. We've seen this new wave of Snapchat stories and Instagram stories where people are actually framing for and recording in vertical. Whether it's better or not is debatable.
+- I know everyone has a different taste as far as personal technology - like, smartphones are maybe the most personal decision you can make - so I don't know if I can recommend one thing for everyone. But, I do like the idea of everyone moving, eventually, to an electric car.
+- Believe it or not, you actually need your phone to be able to flex a little bit.
+- Being a game changer to me means changing the way other people see things.
+- I had an Ultimate jersey on in my first video. I get a lot of comments about it, because a lot of tech people don't know anything about Ultimate.
+- YouTube, for me, is the primary platform.
+- The truth is a lot of people doing professional video editing and things like that are using these displays that are mounted in place and they have stands already. When they upgrade displays, they take them out and put them in the same place and they don't need to buy new mounts and new stands for them.
+- A lot of journalists don't want to conflate their own opinions with those of their employers... With a YouTube video, you can be as personal or as journalistic as you want.
+- What people don't consider is that tech is a really personal purchase. You spend so much time using it.
+- Having Kobe doing an entire video with me was awesome. I'd love to do that again, that was legit.
+- I don't edit on laptops anymore.
+- The main gripe I have with Snapchat is as a content creator, which I understand is not the normal perspective... How is anyone ever going to find my Snapchat Story if they don't have my username or my number?
+- Folding in is better than folding out. Folding out is cool, and it looks potentially better... but I don't think that's the way to use a folding phone.
+- There's different reasons to be proud of different projects, so I'm more proud of certain videos because of what we were able to accomplish within them.
+- So, one of the biggest things about YouTube versus any other platform is the built-in audience and discovery tools.
+- YouTubers are not taken as seriously as the written press, which is strange.
+- A lot of the companies I work with, they're not returning my calls or emails on weekends. So weekends are weekends for Ultimate.
+- When I first started making the videos, I didn't tell anyone about it.
+- Without contacts, I'm almost blind.
+- I guess I lean toward being an optimist, as far as improving tech being good for people, but that's not to say there are not potential downsides, and you have to stay aware of those downsides.
+- I'm excited to launch 'Waveform,' which will explore everything from tech news and new products to the videos that surround them.

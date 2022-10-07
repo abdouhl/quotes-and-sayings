@@ -1,0 +1,70 @@
++++
+author = "Jen Lancaster"
+title = "Jen Lancaster Quotes"
+quotes_len = "64"
+description = "the best 64 Jen Lancaster Quotes"
++++
+- I believe that I have such a vanilla life. But maybe I come with a different perspective. I'm always trying to improve myself.
+- No matter how happy anyone is with their choices, I believe it's human nature to wonder about the path not taken.
+- I think people tend to be very myopic and they don't understand how their actions impact others.
+- Remember when Japan was cool? We used to run around with 'Mr. Roboto' on our Walkmans, 'The Karate Kid' in our Betamaxes and wore T-shirts embossed with the characters for 'storm sewer' and 'dishwasher.'
+- When I got laid off, I would write my friends these 15-page-long emails. This was before people had personal emails, and my friends would tell me that I was going to get them fired if I kept sending them stuff, so I started a website.
+- I married a man who isn't afraid to wash a dish, scrub a toilet, or have his unibrow waxed into submission by a licensed professional.
+- I had been terrified of Halloween my entire adult life. Loved it as a kid, but the minute I got out of college, there were little kids at my door demanding candy, which, No. 1, I couldn't afford, and, No. 2, if I had candy, it would be mine.
+- We all know exactly what we love, and woe is you if you're on the other side.
+- Humor's an excellent way to make a point more palatable and/or relatable.
+- Plaid is always cute and always will be. But only on the bottom. At the top, it makes you look like a farmer.
+- The first 'Wii Fit' games I tried were the slalom and ski jumping. I believe my spectacular failures here had more to do with the board resting on thick carpet than my shoddy balance.
+- I began writing fiction when I started running out of material in my own life.
+- If I were to run for president, then people would debate the pros and cons of what's wrong with me in increasingly aggressive 140 character tweets and Facebook status updates, and, inevitably, everyone would end up fighting.
+- I can clean my own house. Now, maybe a couple of times a year we have a cleaning crew come in before we have a party, but otherwise, I'm able to maintain it myself.
+- I've always been able to cook Italian food. That's in my blood because I'm half Sicilian.
+- In real life, I tend to yell at people a lot. Not because I'm bossy or mean, but because I'm frustrated.
+- If forced to choose between a book and a Kindle, I'd opt for the comfort and ease of bound pages. I mean, I can't break a book if I drop it on a cement floor.
+- I didn't understand the Kindle's true value until I finished an e-book on the beach. In sixty seconds - and without benefit of pants - I had brand-new reading material at my fingertips.
+- I didn't want to turn into Martha Stewart. I wanted to turn into a more organized, more gracious me. And that truly has happened.
+- I'm very detail oriented. I think that's why people enjoy my memoirs - because I tend to remember everything.
+- Everyone who reads me is someone I'd like to hang out with.
+- Back in early 1983, my dad was tasked with keeping unions from organizing in his company's distribution centers. His work pulled him away from home for months on end.
+- I just thank God my husband and I found each other before the advent of social media. I can't imagine dating someone and seeing what they're doing on their Facebook page. And people breaking up with each other over texts now? We had to break up with each other face to face back then.
+- I'm doing a lot more handmade gifts. When I go to a party, I cook whatever it is I need to bring instead of just grabbing a bottle of wine.
+- If I had kids, I'd probably be way over-protective, researching everything they begged to see to make sure the content was appropriate.
+- No one wants to friend or follow covert info about Pakistan's nuclear policy.
+- The iPad's all about proprietary apps that are supposed to be amazing on the bigger screen.
+- I like Oprah. I could sit around and make vision boards all day, but I wouldn't actually get anything done if I were to concentrate on my feelings rather than doing.
+- I learned to glitter the pumpkins for Halloween not because I went into it thinking, 'I'm going to glitter some pumpkins!' No. I bought all of these big, cold, slimy, disgusting pumpkins and tried to carve them, and it was gross, so I had to find something else to do with them. Glitter was life-changing.
+- To be clear, I'm not opposed to apps; I just want them to be geared to my lifestyle. I don't need a virtual NASCAR racing app, but I'd certainly appreciate one that stopped my husband from plowing into the lawnmower every time he pulls into the garage.
+- Now with social media, people essentially come into my living room, my virtual living room, and tell me everything that is wrong with me.
+- I guess my most prized pop culture possession is a signed first edition of the book 'Fight Club' by Chuck Palahniuk.
+- I never ever, ever say anything against my husband to anyone except my husband. Everyone gets in fights, and I think the natural propensity for women is, 'Oh I want to talk to someone.' But the minute you take what bothers you outside the bond between you and your husband, you let someone else into the relationship and that causes a wedge.
+- Here's a bit of Discovery Channel for you - apples don't last forever. They can stay fresh for a long time, especially when refrigerated, but definitely not from December into the month of March.
+- When you think about a drill sergeant, a drill sergeant expects you to perform your best, and if you don't, they're going to stay on you until you do.
+- I realized I couldn't have one foot in the fiction world and one foot in the nonfiction world, which is why 'Here I Go Again' is so not me. I didn't graduate from high school in the '90s, I never listened to metal music, and I don't time travel.
+- Our citizens never hesitate to take sides against one another, whether it's Democrats versus Republicans, Coke drinkers opposed to Pepsi enthusiasts or Yankee loyalists against Red Sox aficionados.
+- I'm not thin, but I'm strong - plus my balance is such that I can navigate a flight of stairs with a basket of laundry and a stack of Pottery Barn catalogs, vaulting over cat-and-dog hurdles, never once spilling my coffee.
+- I don't want to limit myself as a writer. Tastes change, and I want to keep my eye on the future.
+- There's nothing fun about stuff like estate planning, getting mammograms, or talking to a guy about long term disability insurance, but do it anyway. Trust me, the stress of not having done the above is prematurely aging.
+- Writing was something I always liked, but it wasn't a career until I was laid off from my executive position in my 30s. I started a website because I was bored, unemployed and angry.
+- Just as I got older, I think I've become more and more conservative.
+- You can't all of a sudden go to sleep one night and wake up Martha Stewart. It's bit by bit by bit.
+- I'm such a fangirl when it comes to other writers. I read 250 books a year, and I'm always talking up books by other authors.
+- After we were married, we were broke. Flat broke. Not only did we not have health insurance, we could barely keep a roof over our heads, let alone have the kind of coin to throw around on onesies and Pampers.
+- I believe that I have such a vanilla life.
+- Expressing political opinion can be a powerful way to establish a character's voice when writing fiction.
+- I'm noticing a lot of the big bloggers who've posted about politics are experiencing an ugly backlash. Readers are angry because they went to the bloggers' sites for a laugh, not a lecture. Again, it's a question of being appropriate for the audience.
+- I'm a humor writer, so I don't always present myself in the best light.
+- Once I was unemployed and didn't have money, you can't just go to dinner. The onus is on you to learn to cook... I learned how important the right equipment is.
+- Beauty pageants, you're only judged once. Sorority rush, you have to go through 20 parties.
+- Unless 'Wii Fit' stops acting like a mean girl, it's over between us forever.
+- Asking me to choose between a traditional book and a Kindle is like asking me which of my dogs I love most.
+- My friend created an iPhone app that locates Vienna Beef products across the country. Personally, I came hardwired with an internal GPS that instinctively points me toward coffee shops, cupcake stores and the perfect Chicago-style dog, so I find this technology redundant.
+- I hesitated before buying a Kindle. I wasn't worried that the digital reader would ruin literature as we know it. Rather, my concern centered on using an electronic device in the bathtub.
+- You know how it's almost impossible for kids to not say what they think? That's me. I have to make the conscious effort to be situationally appropriate.
+- I am going to embarrass myself. I have accepted that fact, and that's just how it's going to be.
+- When it comes to matters of pro sports, politics or palate, disparate sides claim their party, team and cola to be superior.
+- For me, my party views don't advance my narrative. Until I can find a way to write political satire like my idols Christopher Buckley or P.J. O'Rourke, I'll simply say what team I play for and leave it at that.
+- As a reader, I notice political views regardless of whether or not the book is fiction. What annoys me is when said views do nothing to advance the narrative.
+- I could manage my life so much better if an app could tell me exactly when my parcels will be delivered so I don't spend the day under virtual house arrest.
+- I learned to speak Italian, somewhat. Definitely enough to get around in Italy. My grandfather always used to swear at my grandmother in Italian.
+- The Tao of Jen was very much the Tao of hiding everything that didn't look good. The Tao of Jen is wearing a cocktail dress with underwear with holes in it. The Tao of Jen is all style and no substance.
+- Writing is something that I've always loved. That stems from my love of being a reader.

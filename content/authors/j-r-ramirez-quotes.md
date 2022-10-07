@@ -1,0 +1,22 @@
++++
+author = "J. R. Ramirez"
+title = "J. R. Ramirez Quotes"
+quotes_len = "16"
+description = "the best 16 J. R. Ramirez Quotes"
++++
+- Overall, working with 50 Cent was one of my favourite moments. I grew up, like most of us did, listening to his music and loving him as an artist, so to be able to work with him as an actor was definitely something that was so exciting.
+- I'm the kind of person who doesn't let anyone in easily.
+- I'm a big comic book guy.
+- To be honest with you, I didn't really read a lot of DC comics as a kid, but I was obsessed with Batman and still am.
+- I'm keeping my fingers crossed and hoping everyone loves what I do and loves what's on screen.
+- The physicality of boxing is like nothing else.
+- 'Power' has definitely been an immense stepping stone for me. It's opened up doors that I could only have dreamed of.
+- I boxed a lot as a kid, so it's something that comes second nature to me.
+- I'm Cuban, so I know for a fact that we are the largest minority group in this country.
+- I took boxing classes and karate when I was young.
+- I always felt something different when I saw Gary Oldman on screen. It just felt like he knew how to reach a deeper level of himself, which is something I keep striving to reach.
+- I actually have a movie that I was a supporting role in that I'm really proud of called 'Sun Dogs.'
+- I am a Florida guy. I don't do cold.
+- If you really want to act, I say get in class. Every kind of class. Put as many tools in that tool belt, because once you get out there, the real world doesn't sugarcoat much!
+- I consider myself to be a very loyal person.
+- A lot of my friends who are white are like, 'Dude, I can't get an audition; it's all Hispanic and black.' It's about time.

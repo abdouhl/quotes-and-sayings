@@ -1,0 +1,52 @@
++++
+author = "Tamlyn Tomita"
+title = "Tamlyn Tomita Quotes"
+quotes_len = "46"
+description = "the best 46 Tamlyn Tomita Quotes"
++++
+- There is an attitude that Okinawans have about Japan itself. There is a resentment.
+- So if they happen to be over the age of 35 and they're male? They're probably going to recognize me from 'The Karate Kid Part II.'
+- The scope of the history of women is so underplayed and not told as often as it should be.
+- The only reason I even learned Japanese was to figure out what my parents were getting me for Christmas.
+- It's funny you can pretty much substitute the same actors in that top tier, whether it's a Chris Evans or a Chris Pratt or a Chris Pine, for different movies and it becomes almost a joke. But it doesn't happen that way for people of color.
+- The thing I found in correlation with my studies as a history major was that experience taught me you have to figure out your background, where you come from, who you are, and what you want. All of that propelled me into following acting because I had to develop characters as well as develop characters' history which is most important.
+- We have to support everyone so their stories don't get 'invisibilized.' We don't necessarily have to repopulate the next Marvel movie with people of color, but it's just about saying 'We have hearts, we have souls, we have minds, we have faults, we have flaws, and we're super-freaking interesting.'
+- We are all woven of different colored threads and strengths and colors. We are all a part of something bigger, a very special part of something that continues to evolve. A more perfect union.
+- When I went in for 'The Good Doctor,' I had just been released from 'Berlin Station.' And when I got the initial role for the 'Good Doctor' pilot, her name was Allegra Abe. That was the script.
+- If I am more fortunate than others I need to build a longer table not a taller fence.
+- As a community, as a group of people as a society, Asian Americans have not always been visible, but we've always been present.
+- I don't think as a society, as a nation we would ever wear swastikas openly again, but aligning ourselves with the kind of rhetoric or the the the kind of language that's being used and ascribed to certain groups of people or certain religions can be repeated.
+- I think that is what all ethnic actors aspire to - to just play a woman who falls in love, or works as a clerk, or whatever - and then, if you want to, to have that luxury to bring in the cultural heritage.
+- I absolutely adore Vancouver, it's really been my second home.
+- We are a part of this unique, complex, and complicated fabric of what it means to be an American. Americans come in all colors, creeds, and colors of the rainbow, and we can celebrate this together.
+- I just tell young people to find their way. Keep your eyes open. Keep your ears open and keep your heart open.
+- I'm looking for projects where race is not an issue.
+- Of course, if you're going to enter the 'Star Trek' Universe, you want to work with Spock, you want to work with Kirk, you want to work with McCoy, and Scotty, and Sulu, and Uhura. The next one for me would have been Picard.
+- JACL has always been at the very forefront of making sure citizens' civil rights remain intact. They fight wholeheartedly against discrimination, prejudice and racial bias and they always provide a calm voice during turbulent times.
+- The Asian woman in Hollywood movies has usually been one of two extremes - totally submissive or totally ruthless. In either case her primary function has been decorative.
+- I knew I looked kind of ridiculous, in my personal opinion - Tamlyn Tomita's opinion - a Vulcan in sunglasses and ears is a little too much, but I knew I just had to play it seriously.
+- I did not want to become an actor.
+- Most Japanese-Americans have that legacy. The camp experience is something of a calling card between them. They say, 'So, where were you interned?'
+- For me, for every single job, I don't care if it is a reading, I don't care if it is a guest spot on a TV show, or a film. I always get the heebie jeebies.
+- In period pieces or genre pieces, those have to be set in historical truths. But, science fiction has different game pieces. And with those game pieces come other stories we're not familiar with. So, science fiction teaches us how to relate to outsiders, to foreigners, and to not approach any of that with fear, but a genuine curiosity.
+- We can serve as bridges, we who identify as hyphenated Americans, because we are all global citizens, and that's why being cognizant of our histories is important.
+- Barbara Feldon on 'Get Smart,' I wanted to be her.
+- The wonderful John Avildsen was a hero and father figure who was really present in my life even though we didn't have day-to-day or year-to-year.
+- I remember reading one of those big history texts in elementary school, and in that whole book there was one paragraph that mentioned that Japanese-Americans were interned. I went home and asked my father, 'You weren't, were you?' He said, 'Yes, I was.' I was shocked.
+- We have to look beyond what we see as the typical, the 'normal package,' and just see people as who they are. We all have to learn and get along a little better in society.
+- Our old stories happen to be your new stories. The stories that you're seeing as immigrant stories are your grandparents' stories, are your great-grandparents' stories. You just happen to be separated from them a little bit.
+- But I'm proud to come from a family of Republicans and, yes, we have some spirited discussions in our family.
+- Film and television are major vehicles for American storytelling, and America is the biggest exporter and influencer in the world in terms of telling stories.
+- My father's grandfather was in Heart Mountain.
+- I think you can assume because our pool of Asian-Americans actresses or actors - men and women - is pretty small, that whatever project is out there I probably have been asked to audition or I probably chose to not go in it for various aspects.
+- It's always the great thing about being involved in such a legacy series such as 'Star Trek' is you'll always want to know more about the characters that you love.
+- I think that the story of mothers and daughters is so universal.
+- You can't escape 'Star Trek' influence, especially characters you literally grew up with.
+- Growing up with my mother who grew up during World War II being half Filipina, half Okinawan, and literally running around the jungles in the Philippines escaping Japanese military chasing after them - I grew up with what they deem now as trauma, generational trauma.
+- I'm much too egotistical to move outside the acting realm.
+- I've been really lucky and been able to live a gypsy life for a long time.
+- Asian males have not been appreciated for what they are. They have always been dissed for what they are not.
+- I didn't want to be trapped in an idea of replicating other 'Star Trek' characters; especially Vulcans. But my love and I have Spock paraphernalia all over our house. He's an omnipresence in our lives, we adore him.
+- Not everybody's journey is easy, and it wouldn't be worthwhile if you can't see what you gained without realizing what kind of battles you've been through, what kind of scars you have.
+- Aren't we all 'Star Trek' fans? That's the show that captured our imaginations after cartoons and everything!
+- I'm interested in Native American and African American stories, and LGBTQ stories and stories of persons of mixed heritage. These are the stories I want to see onscreen and on the pages.

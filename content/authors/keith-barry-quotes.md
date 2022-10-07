@@ -1,0 +1,66 @@
++++
+author = "Keith Barry"
+title = "Keith Barry Quotes"
+quotes_len = "60"
+description = "the best 60 Keith Barry Quotes"
++++
+- I stock up on nuts, protein shakes, protein bars, seeds, and have them everywhere - the car, wherever - for when I'm on the move.
+- I remember meeting my manager Eamonn for the very first time, and one of the first things he said to me was, 'You're fat. The first thing you need to go is get to a gym.' It was quite a wake-up call. I got a bit angry initially, like, 'The cheek of him', but I'm quite a pragmatic and thick-skinned person, so I just went ahead and joined the gym.
+- When you have a traumatic experience, you look at your mindset.
+- I have been working with people on an individual basis for years to help them break habits and deal with anxiety. I've helped people with everything from fears, phobias, and stress right the way through to eczema - anything that is governed by our psyche and inner psychology.
+- I'm not saying I do evil things. I'm just saying if a cop stops me when I'm speeding, sometimes - not all the time - I might get out of that ticket. Let's just say I don't have any points on my licence in Ireland, and I drive relatively quickly.
+- Let's just say I don't have any points on my licence, and I drive quickly sometimes.
+- Besides what I do, I love fishing; I love bringing my children to the forest, getting outdoors in nature. Get outside, people! Stop looking at screens.
+- The cosmetics world and mentalism are both arenas of deception, but I suppose the difference is that mentalists and magicians are more honest about it. People tell me I have good skin, and I tell them the magic secret is E45 cream: cheap, cheerful, and very effective.
+- For me, I live for performing live because people look at magicians on television, and they always wonder, 'Is it a camera trick?' 'Is it a stooge?' whereas, live, they know there's no set-ups; there's no stooges.
+- I remember hearing Will Smith, back when he was just a rapper, saying, 'When all the other rap stars are in bed, I'm practicing my rapping.' I try to be like that. There is always something to improve.
+- I pray in my own way, not regularly, and I wouldn't say structured prayers. What I'm praying to I'm not sure. I'd be a firm agnostic.
+- If you feel depressed, go and buy twenty books about depression. Learn about it; find out how it works.
+- If you look at the first TV stuff I did years ago, I've a pretty chubby look about me. I went at it quite hard in the gym at the time. If any footage of me ever came out from those days, I would genuinely die. I did step aerobics to lose the weight, and then I literally ran and ran the weight off on a treadmill.
+- Dave Franco, I could put him up there with the best card throwers in the world. Not the best sleight of hand, but he could take a card and fire it over there and stick it into an apple. If he kept training at it, he could definitely break a Guinness World Record - he's that good.
+- I am constantly asked can anyone be hypnotized, and does it really work? Yes, and it does.
+- I can do lightning mathematics quicker than somebody can do them on a calculator.
+- Once you've hypnotised someone once, you can pretty much put them under instantly any time you meet them afterwards.
+- By combining elements such as hypnosis, magic, neurolinguistic programming and psychology, I can make it appear that I can hack into people's brains.
+- Magic is all about directing attention. If I didn't want you to look at my right hand then I don't look at it.
+- I don't believe I'm psychic, but if I can get people to focus on a specific thought, I can hack into brains and figure out what they're thinking.
+- Strive for extraordinary, don't moan, and sleep when you're dead.
+- I haven't done anything I regret; I don't live for regrets. I'm not a mean person, so I don't go around doing evil things to people.
+- Psychics prey on the vulnerable of society. They look like they're contacting the other side, but they're not, and they're interfering with the natural grieving process that everyone has to go through.
+- If you write your own material and perform your own material, then nobody can really expose it because if you keep your secrets close to yourself, then nobody can really expose you.
+- In 2006, when doing a live stage show in Ireland, I tried for the first time to instantly induct a subject on stage, something I had never done before, nor did I know if it would ever work. The result almost cost me my career; the man I grabbed and instantly inducted went out cold and fell to the floor.
+- There's a lot of different styles of hypnosis. There's conversational hypnosis, which, even though we joke about it, politicians use conversational hypnosis. I've been hired back at home in Ireland by certain politicians to assist them in specific language patterns that will just tip people over into their, you know, into their zone.
+- I wanted to develop a hypnosis show that no-one had ever seen before, so I made it very topical and interesting. I've created a UFC fight night every night on stage, where I hypnotise twenty people into thinking they're mad, crazed UFC fans, and the energy is unbelievable.
+- I buy so much when I go through airports: I buy psychology magazines; I buy 'Mind,' another magazine, 'New Scientist,' 'Scientific America.'
+- Studying neuro-linguistic programming is what teaches you how to implant and extract thoughts. Mixing psychology, hypnotism and magic somewhat goes into this area called mentalism, which is what I mostly do. It's magic of the mind.
+- I think to get Simon Cowell out of his comfort zone would be rather interesting. I don't know what I would make him do.
+- How does the subconscious mind work? Is it independent of the conscious mind? Is it programmed by experiences or instructions? Many questions come up, but the one answer is common: if you can access the subconscious, then you can reprogram it, period!
+- If someone is lying to you, they'll generally look up to the top right. That means that they're trying to construct an image that doesn't exist.
+- I'm pretty much self-taught - I never went to any courses. If I want to learn about, say, the frontal lobe, I'll buy 40 books and absorb them in a couple of weeks. I'm a nerd like that.
+- My first TV show was 2003. You wouldn't be in the game this long if you were using stooges and actors and all that kind of stuff; quite honestly, the answer is we don't need them.
+- I don't like people being negative, whining, or moaning. If you're in a situation you're not in control of, just change.
+- I've trained with trainers in L.A., and they get complacent. They're used to dealing with celebrity egos, so they cotton-wool you a bit.
+- I love reading about new advances in my industry. I love feeding my brain.
+- I want to bring magic back to where it started, which is not about the props, and it's not about me as a magician: it's about the audience and playing with their minds and playing with their perception of magic and having fun with it.
+- Once people enjoy what I do, I don't mind if they call me a magician or an illusionist or a hypnotist, entertainer, comedian, whatever people want to call me. I'm comfortable with all of the above, so I don't really mind at all what people want to call me.
+- I mixed hypnosis and magic together to try and create a new area. I'm not trying to reinvent the wheel.
+- If you've got creativity, imagination, and intelligence, and you want to be hypnotised, then there's no reason you shouldn't be able to.
+- I don't pretend that I can read minds. I don't believe anybody can read minds. In other words, I don't believe in psychics.
+- You see guys going up to girls in bars and saying, 'Oh, can I show you a trick?' It's a tool. I find it kind of sad; it breaks my heart a little bit. They should try to use their own personalities. It sort of smacks of using magic as a crutch, which is not what it should be.
+- Some brains are easy to hack into, and other brains are nearly impossible to hack into because they are so complex.
+- I haven't hypnotised a whole lot of celebrities, because they're fearful of it.
+- Our ethos for 'Now You See Me 2' was that everything in the movie at least had the potential to be done in real life, and I'd say over 90% of it was actually done in-camera with no CGI. Of course, movies like this are always going to be bound by the rules of Hollywood, being there's going to be enhancements of CGI.
+- Anyone can learn a trick, but to make it entertaining, to put a presentation twist on it, and then to take it out there and really amaze people is a whole different ball game. You have to have some kind of a natural ability to do that, I suppose.
+- Hypnosis is about shutting down the conscious mind and re-igniting the unconscious and the imagination, so while I give instructions to them under hypnosis, the contestants might interpret those instructions in all kinds of ways.
+- You need to talk like your boss and copy their actions. Like, if they cross their legs, you do the same. If people think you're like them, you're more inclined to get what you want out of them.
+- Some computers have security software that make it impossible to hack into, and it's the same with brains - some malfunction, and some, you can't hack into them at all.
+- I have to stay in shape for the physical endeavour stunts I do. I work out a lot. I have a personal trainer. I go two or three times a week. I'm on a diet where I photograph everything I eat and send it to her.
+- We're able to use certain techniques to get people to behave in certain ways. We're able to use certain techniques to make it look like we're reading minds, even though we're not.
+- We all go to the gym, and we're thinking about how we look and what we're eating, but our brain is a muscle, and you have to train it!
+- I like pushing the envelope. I like pushing myself and the audience, whether it's a TV show or live. I like to throw people over the edge of the cliff and scare the wits out of them, but then pull them back and make them safe.
+- Needless to say, my stunts take years to perfect and are closely monitored by a team of trained professionals at all times, so no one should ever think about trying to re-create them.
+- With brain hacking experiments, I've hacked into Morgan Freeman's brain. He was the most famous and the most nerve wracking because I got really awestruck when I met him, and the moment I was introduced to him, he challenged me there and then to hack his brain.
+- I'm a terrible sleeper because I work all the time. I stay up late almost every night working, whether it's on a TV or live show. I come up with new ideas, do research, watch loads of TED talks, or find psychology articles.
+- There has to be a level of intuition involved in what I do, and the more you use that intuition, the more honed it is.
+- I believe everyone has the ability to be hypnotised, and I think, on different days, different people will have varying levels of susceptibility.
+- Sometimes I implant thoughts, sometimes I extract thoughts, but I don't like to explain it too much. It's based on science, deduction, and reasoning - it's a bit like what 'Sherlock' does, except that's a dramatised version. I look at every clue around me.

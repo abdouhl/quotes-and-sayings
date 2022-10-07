@@ -1,0 +1,64 @@
++++
+author = "Manny Machado"
+title = "Manny Machado Quotes"
+quotes_len = "58"
+description = "the best 58 Manny Machado Quotes"
++++
+- At the end of the day, I play baseball, and I don't let anything else get in my head.
+- I've always been the guy who does whatever he can to win for his team.
+- I have done some pretty dumb things. I am not going to lie. I see the things I have done. And I have done some dumb things.
+- Like I tell everybody, we have to win games, forget about the future, and live in the moment.
+- Hitting is hard, and even when you work to improve, you can still struggle.
+- At the end of the day, the most important goal is to get to the World Series and to win the World Series.
+- Defense, for me, is where I really love to put work in most. Defense is, in my mind, what wins games.
+- Everybody - come on - everybody is going to get traded at some point.
+- It is always an honor to put on a uniform.
+- I know I can be a way better player as a shortstop than I can at third.
+- Try to be on every pitch, try to be in the moment, and try to think every ball's going to come at you, no matter if it's not, but trying to get that mindset going.
+- Would be a dream to play with family.
+- Yonder showed me the ropes about life, showed me the ropes about baseball life; he showed me a lot that I couldn't have learned by myself.
+- Obviously, we need to stand in front of a camera and answer questions, but ultimately, I just play baseball. That's what I'm good at; that's what I know.
+- Do I want to play for a contending team? Yeah. Do I want to go to the playoffs? Yeah. Do I want to win a ring? Of course I do.
+- There's a difference between fake hustle for show and being someone who tries hard to win.
+- I can't control what people think of me. I can't control any of that. I can only control what I do on the field.
+- I'm not the type of guy who is going to be out in front of a microphone for attention.
+- I've been doing this since I was a kid. I'm always going to play the game with a smile on my face, blowing bubbles, sunflower seeds, whatever it is. That's just who I am.
+- Huge Kobe fan growing up. My dog's name is Kobe.
+- I loved LeBron when he was in Cleveland. Loved him in Miami. And loved him when he went back to Cleveland.
+- I always will be the villain, no matter what. I don't know why.
+- I hustle, I run down the line, I do whatever I can to win ball games. Those are the only things we can control as baseball players.
+- I go from my room to the ballpark and play baseball. I try to keep it simple.
+- I play hard for my ballclub. Whatever uniform I put on, I'm going to bleed and die.
+- Baltimore will always have a piece of my heart.
+- What happens on the field stays on the field.
+- I love baseball.
+- Tempers flare at times. That's what good teams do: they react to things and go out there and leave it all on the field.
+- I've played third base for a couple years. I did well, and I thought I was an elite player at that position, but at the end of the day, I've been a shortstop my entire life.
+- The biggest thing is, I can never forget where I come from. That's why I wear Miami on my sleeve. I never forget where I grew up.
+- I'm here to win a World Series. I'm excited to be here with my team. I'm excited to be here with the Dodgers. We've got one goal, which is to win, and we're not going to stop until we get it.
+- Playing at home is always better. You get to sleep in your own bed, drive your own car, and see your own fans.
+- It's always worth it when you come out here and put on a uniform and step on that field. It's the best feeling you'll ever have.
+- I know the feeling of being in the postseason and losing. It's not fun.
+- Going over to L.A., L.A. giving up a lot of prospects for me, that kind of shows you what I meant to them, which is amazing.
+- The Orioles drafted me. I did a lot for that community, I did a lot for the state, and they didn't show me a little bit of love.
+- You've gotta stay true to yourself, stay who you are.
+- I talk to everyone, but most of the people I hang out with are Latin.
+- I have to switch my own mentality into a winning mode, not playing for myself or trying to be selfish.
+- Just go out there and play every day. Every day is a new day. Every day is the same day. You've got to just be ready to play.
+- Obviously, I'm a shortstop at heart. I want to continue to play shortstop.
+- I'm going to the All-Star Game as an Oriole and as a shortstop. It's just always a blessing. I thank God.
+- I'm the type of player, once I get in there, I'm locked in. I'm trying to win.
+- I'm not going to lie: it's tough. There were a couple of games where you're down, and you're in a really dark place, and you don't know if you're ever going to come out of it. You realize, 'Hey, I'm having a bad day,' but you realize there are people out there having worse days.
+- A rumor is just a rumor.
+- I'm not the type of player that's going to be Johnny Hustle and run down the line and slide to first base. That's just not my personality. That's not my cup of tea. That's not who I am.
+- I'm proud to be a Padre. At the end of the day, this is where I wanted to be, and I'm very happy to be here.
+- It's been humbling to have multiple teams interested in me and have people talking about my free agency and what I should do.
+- I'm excited to be a Padre.
+- I can't tell you how much it means for the Dodgers' front office, who were already winning without me, to bring me over to help win a championship. Hopefully, I can help deliver that.
+- Don't let the ball hit you. Catch it or get out of the way. And if you get out of the way, that's when you have to stop playing.
+- Everywhere, I see it's just 'Manny, Manny, Manny.' It kind of gets a little distracting at times.
+- Every time you put on an Oriole uniform, it's always a great blessing, and you always want that opportunity to put that on.
+- I'm playing in the World Series. Can't get any better than this.
+- Obviously, getting traded halfway through the year is always tough. New faces, new teammates, guys you played against but don't know on a personal level.
+- I definitely want to be in a place where I can win long-term and be a part of World Series teams for many years to come.
+- I just try to enjoy the game, play with a smile on my face, and be the best I can be.

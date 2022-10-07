@@ -1,0 +1,84 @@
++++
+author = "Nobu Matsuhisa"
+title = "Nobu Matsuhisa Quotes"
+quotes_len = "78"
+description = "the best 78 Nobu Matsuhisa Quotes"
++++
+- Every morning when I woke up, my mother was already in the kitchen making breakfast. It was always the same: steamed rice, pickled vegetables, grilled fish and miso soup. Each day there was something different in the soup such as tofu or potatoes.
+- I travel all over the world, usually 10 months out of the year. I stay at a lot of hotels, and the ones I like best are clean and not complicated. You go to bed and say, 'Wow, I feel comfortable.'
+- What I relish most is when a member of my staff, who has worked with passion and patience towards achieving their dream of owning a restaurant, walks up to me and says, 'Nobu! I have done it!'
+- Businesses that run well are almost like marriages. Everything has to be up for discussion, or there will be real problems.
+- I used to watch my mother cooking when I was a child; she influenced me a lot.
+- Sushi is something very exclusive. It is not like a McDonald's, not like a hot dog, not like a French fry. It's very high-class cooking in Japan.
+- Chefs are artists, and I couldn't be happy with my art if I was forced to use cheap ingredients.
+- Have you ever been to Mexico City and haggled with the locals over souvenirs? Well, in Peru, you had to negotiate like that to get the freshest fish at the market.
+- I enjoy people who have passion, whether it is as a musician or whatever they do. All people who have success keep it very basic. Try your best. But without passion, you will not have success.
+- One of my favorite ways to use cilantro is in a beautiful clear soup with monkfish and lime. It's a great dish for cooler weather, especially because monkfish is very good in fall and winter. Also, I like the meatiness and rich texture of monkfish.
+- If I am at home in L.A. on a Saturday or Sunday, I like to start the day with a hot bath and then do an hour of stretching.
+- One day, the people who work in my kitchen stir-fried chopped Napa cabbage to serve with some meat or fish for their own dinner. I got to thinking: 'What if the cabbage was the most important thing on the plate?'
+- In my generation, there was no sushi school, no cooking school, so people have to learn from working.
+- Cooking is like fashion. Always, I like to try to change. If I'm traveling in a different country - to Australia, the Bahamas, Budapest, Moscow - and I see a new ingredient, I like to try it in a new dish.
+- I was a bit of a wild boy - always swimming and exploring the mountains.
+- Many chefs are either technically or artistically better than me, but I know my food has soul.
+- I'm a lucky person because the company keeps growing, and that means my team keeps growing.
+- The first jolt I received in my life was when I lost my father in a motorcycle accident when I was eight. I would have been with him if he hadn't turned down my request to go out with him that afternoon.
+- Dashi remains unfamiliar to most French and American cooks, who tend to reach for a bouillon cube to do many of the same things. But dashi is worth preparing and using the way the Japanese do: for poaching fish, as a soup base, and in simmered dishes.
+- I can't imagine Japanese food without dashi, a broth made with kelp and dried bonito flakes. It has the aroma of the sea, tinged with a subtle smokiness, and adds a very important, distinct flavor.
+- A sushi chef has to spot the best-quality fresh fish instantly.
+- In Tokyo, we have more three-star Michelin restaurants than Paris.
+- With sushi, it is all about balance. Sometimes they cut the fish too thick, sometimes too thin. Often the rice is overcooked or undercooked. Not enough rice vinegar or too much.
+- Los Angeles is my home - I have my wife and two daughters growing up there.
+- Large fish such as tuna are shown already cut into fillets and bought by the block. Fillets should be almost transparent. Avoid tuna that looks rainbow-colored or black.
+- My favorite knife is from Miyakoya in Japan - I have one in each of my restaurants.
+- One of my great loves is golf. When I am in L.A., I like to play with a few close friends: no phones, no distractions, the great outdoors and the chance to bet some money to keep it interesting.
+- Making sushi is an art, and experience is everything.
+- I cannot bring myself to wear the Nobu hats, or the Nobu T-shirts. But the chef's jacket, that is mine. And when I wear it, I am very proud of myself.
+- People who make mistakes but try their best, other people will support. But people who make mistakes because they're lazy, nobody supports.
+- My cooking is very simple, so I don't really use machines at all. A knife, cutting board, frying pan and strainer are my essentials.
+- I like to keep healthy physically and mentally, too.
+- In Japan, I have my own line of dinnerware, but I'm not aggressive about pursuing those projects.
+- Whenever possible, buy a fish whole. With tuna, this isn't practical; with smaller fish, it is.
+- I learned from my first restaurant: Make customers happy, make sure the customer comes back again. And automatically, success has followed me.
+- When I'm dining out privately, I tend to avoid fine-dining venues; I like things to feel casual.
+- I started cooking when I was 18 years old, and now I have restaurants all over the world.
+- Eating a lot on the plane is not good for jet lag.
+- You know how kids dream of being soccer players or actors? Well, my dream was to be a sushi chef.
+- It's true that cilantro has a strange, strong flavor. People seem to love it or not like it at all. Even I didn't like it at first when I had it in Peru. But I got used to it - it's hard not to in South America - and now I can't live without it.
+- It's still my happiest time when I'm eating.
+- I grew up in the countryside in Saitama prefecture, north of Tokyo.
+- Shellfish is better to buy live. In the U.S., because we eat oysters and clams raw, it is very important that they are alive before we prepare them. It's important to look for a closed shell. If a clam is alive, the shell will be closed. Never buy clams if the shell is open.
+- When I set up my first restaurant, I was so inspired by Wolfgang Puck, who is also based in L.A. and is now a good friend of mine, and the way he would engage with his customers and greet them personally.
+- When I'm home in L.A., I go to La Brea, a bakery which does artisan breads, excellent sourdoughs primarily, but also patisserie and cakes.
+- I eat soup noodles for comfort. In fact, noodles of any kind. It's a food that is very easy to eat; it's very soothing and comfortable, too. If I could choose any, I'd say buckwheat was my favourite: it has a very good flavour and is healthy, too.
+- I like Mercedes because my wife has been in two big accidents and emerged without a scratch, thanks to the safety of these cars.
+- I want to always keep going. I don't want to ever stop.
+- In the morning and the end of every day, I thank that I'm alive.
+- Peru was the Incas; it has 3,000 to 4,000 years of history.
+- I don't go out much.
+- One evening, Mike Myers and Steven Spielberg were discussing 'Goldmember,' and I just happened to joke, 'If you need a Japanese character, let me know!' The next day, they called me for audition! I find it's always helpful to maintain a sense of humour.
+- The fine art of preparing sushi is something that you watch and learn.
+- Napa cabbage is very beautiful, all those long, pale leaves with ruffled edges.
+- Every year, I do a New Year's day party at my home. I invite my staff and my friends and their kids. Around 40-50 people come by, and I do a barbecue and salads, steak and sushi, and also lots of cheese.
+- A different spice is the most interesting thing to me.
+- I am very lucky to consider many of my business associates friends. Some are closer than others, but I respect and value all of them.
+- It's not unusual for me to wake up in the middle of the night and not know where I am. I take sleep medication to deal with all the flights. But I find it helps to eat at the same time every day.
+- I feel like I owe something to America, as it is where I found success.
+- Of course the Japanese and Peruvian fish are different, but it's the same Pacific Ocean. They are different, but I know fish.
+- I can live without a computer. My assistant checks my e-mails.
+- I love big shrimp, like Japanese botan shrimp and the meaty ones from Santa Barbara, Calif. In classic Japanese cooking, shrimp like these would be dropped into a broth or boiled as served with sushi. But I think boiling dilutes their great flavor, and they are better when stir-fried.
+- I have a restaurant in Milan, and Paper Moon is five minutes away from my hotel, so I always go there for lunch. It's a casual place that serves good salad, pizza and pasta; the space is tight with tables close together, and it feels buzzy. Food comes out fast, too.
+- I exercise every morning, no matter what. Sometimes it's tough to do right when you get off the plane, but after ten minutes you start sweating, and you always feel better.
+- Swimming keeps me fit and flexible, and it helps that I have a large pool at my house in Beverly Hills.
+- I'm not perfect. I am not Iron Man.
+- When I'm in L.A., I go to Spago because the chef is a friend of mine.
+- I remember watching steak being cooked on TV and wanting to try it. As a special treat, my mother cooked it for me, and I thought this would be the time I would eat with a knife and fork. Alas, I ate it with chopsticks!
+- When I was 11 or 12 - a young boy in Japan - one of my older brothers took me to a sushi restaurant. I had never been to one, and it was very memorable. Back then, sushi was expensive and hard to come by, not like today, when there's a sushi restaurant on every street corner and you can buy it in supermarkets.
+- People eat the chicken, people eat the beef, they still say, 'Don't kill the fish.'
+- My flight time is important to me; I actually prefer a longer flight to a short one. That way I have time to read a book, watch movies, and think about new dishes.
+- My business partner Robert De Niro knows a lot about hotels; he opened the Greenwich Hotel in New York City.
+- I like both potatoes and rice. You can do a lot with both of them. But if I could eat only one carbohydrate for the rest of my life, I wouldn't choose bread, potatoes or even noodles. I'd go for rice instead; I eat more of that than anything else.
+- My cooking is simply ingredients plus umami.
+- Cooking and film are completely different - but I'd rather stay in the kitchen than be in movies.
+- I always eat a meal at home before I leave for the airport, so I only eat the soup and salad on the plane.
+- Some hotels have a lot of mirrors, chairs, you can't find the plugs, the music is complicated. But the Nobu concept is beautiful, simple.
+- Once I fell out of a tree and was hit by a motorbike. I still have the scar on my head now.

@@ -1,0 +1,106 @@
++++
+author = "Tulsi Kumar"
+title = "Tulsi Kumar Quotes"
+quotes_len = "100"
+description = "the best 100 Tulsi Kumar Quotes"
++++
+- I feel what works for one new mom may not necessarily work for another, so it's better to find one's own path.
+- My relationship with my dad was exceptional, being the youngest in my family. I was his favorite.
+- I'm experiencing all the changes in my body and my mood. But the best feeling is that there is a life making its presence felt within you and this feeling sinks in slowly during the later months of pregnancy.
+- It's very important for singers to feature in their videos because when we do playback for Bollywood, we tend to become the voice of the character - whether it's the actor or a situation that we are singing for.
+- I was not performing or recording in the last trimester of my pregnancy but I was working from home, planning my futures projects.
+- I like the cute, girl-next-door look but I can play around with being classy.
+- I prefer being minimalistic with my look.
+- Akshay is very hard working and disciplined. My dad's journey was also all about hard work and his love for music. I think all these things will come together. Akshay is perfect for Mogul.'
+- My love for music was first seen by my father when as a child, I used to hum a lot of songs watching television and used to take part in singing competitions even at school.
+- I don't follow any trends but I try and wear what suits me and my body type.
+- It's always good to show a different side of you as a singer.
+- Being a host is a completely new role for me and I am surely enjoying it.
+- The bond that a father and daughter share can't be expressed in words.
+- India is full of varied cultures that have introduced different kinds of folk tunes to us.
+- The Punjab industry has been very instrumental in bringing the pop music and pop scene back where we see a lot of artists from Punjab cutting singles and doing so tremendously well.
+- As a child, I used to love black currant ice-cream because of its soothing lavender color.
+- Music is something that always calms you down.
+- 'Is Qadar' is a beautiful melody that will resonate with people.
+- I think content-driven cinema is appealing in terms of even money-making.
+- I started my journey in music at the age of six.
+- I believe versatility is key for any artist.
+- Folk music takes us back to the roots of our culture.
+- There are a lot of talented Punjabi singers in Bollywood and we are also using a lot of Punjabi songs and reprise versions of these songs in our films and I have also sung quite a few of them.
+- My fans have showered me with so much love that it encourages me more to give them better music every time.
+- My father's vision was to give the right platform to upcoming talent. T-series has always given chance to budding talent.
+- I'm a foodie, and since I am a vegetarian, I am going to try Lucknow ki chaat. I have heard a lot about it.
+- I think every moment spent with my dad is extremely special and close to my heart.
+- 2020 is getting worse every day. We have lost so many people altogether throughout the world.
+- I am a big foodie so I enjoy everything including dim sums aand sushi, but pani puri is one thing that really makes my mouth water.
+- I'm a singer today because of my dad. He was the one who pushed me to my full potential.
+- It was amazing chatting with the very talented Palak Mucchal. We had so much in common, we instantly connected.
+- I have been really fortunate to have had some amazing audiences who have just loved my music while I have performed.
+- I was really happy to collaborate with Darshan yet again after 'Tere Naal' since our fans have requested this for a long time.
+- There are a lot of similarities between Akshay and my father. Akshay is a Punjabi and so are we. He is Delhi-based and my dad was also from Delhi. I think he would be able to pull off the character.
+- A recreation is not the same as a remix. A recreation has a new element added to it. There are new lyrics added to it. A new composition is introduced within the existing one and I feel that's tougher to do.
+- If somebody feels that a certain recreation fits into their film or a particular song fits into the film, I think that is the reason those songs are picked.
+- I collect a lot of shoes - I have at least 70 pairs.
+- I think it is very important to constantly rework yourself and discover new things.
+- Music is definitely my first love and the person who made me realize that I am made for music is my father Shri Gulshan Kumarji.
+- Whenever I sing in a different language, I make sure I have a language expert sitting there with me to correct my diction and to understand what I am singing.
+- I was lucky to work with some of the big names such as Anu Malik, Himesh Reshammiya, Sajid Wajid, Salim Sulaiman, Mithoon, Jeet Ganguli and Pritam. I have learnt a lot from all of them and have practically grown as an artist with every song that I have rendered.
+- With music videos becoming a popular form of content these days, I am thankful that Is Qadar has also found a place in the hearts of the viewers as well as on the top chartbusters.
+- I always push myself to work harder and achieve more in life.
+- Is Qadar' will be an entirely different experience for audiences.
+- Married life is amazing! I am happier, more content now.
+- A film is being made on his life, so as a daughter and as a singer I will definitely be a part of it - not only in terms of the music but also in other aspects. It's an emotional project for us, every member of Kumar family will be associated with it. I am very happy to lend my voice in my father's biopic.
+- I think taking a hookline of a hit song and making a new song is fun.
+- I have been a part of Ae Mere Hamsafar' which was a recreated track from one of the cult movies, but I think that was the requirement of the film and the makers wanted to recreate that song.
+- Lahore' has been one of the chartbusters of recent times and the version 'Lagdi Lahore Di' from 'Street Dancer 3D' has a new groovy vibe to it, keeping the original essence intact by Sachin-Jigar. It's created beautifully and as I heard it, I loved the whole new essence and vibe added to it.
+- I think music is a very subjective topic, maybe I can like something that the other person cannot.
+- I am a religious person and after discussions with my interior decorator, she gave me digital art wallpaper cut-outs of Radha Krishna and Bal Gopal in my living room.
+- Meghdhanush has brought the newer generation close to folk music with their personal touch of rock and they definitely rock at it.
+- Honestly, I am too critical about my work.
+- Every time my song plays on radio or television, Hitesh records it and sends it to me. It feels very good; he appreciates my work.
+- When two songs are fused together, it feels as if it's a new song.
+- I am happy the way my career shaped up.
+- My mom bakes amazing cakes.
+- Mogul' will be a real inspiration to a lot of individuals. My mom had a series of meetings with the director to share certain things.
+- There is a lot of negativity, turmoil throughout the world.
+- I have got an opportunity to meet various new talents through the country just like the Nandy Sisters. They are so talented, so full of energy.
+- Soft romantic numbers are my comfort zone but I would surely like to step out of it and try something peppy like a dance number.
+- I think I am very proud that my father has inspired so many people through his work.
+- I was excited to sing for Raveena Tandon ma'am. I grew up watching her films.
+- I think motherhood is a wonderful feeling.
+- Good music acts a healer, it makes you positive.
+- Folk music is the heart of the Indian music scene for several years.
+- My fingers are crossed for 'Dekh Lena.' I believe it has shaped very beautifully and also visually the song looks fabulous.
+- I am a Punjabi, but I have been in Mumbai.
+- I am a pure vegetarian and my favourite dish is jacket potatoes.
+- Music was always around me as a child.
+- Salman liked my song 'Humko Pyaar Hua' from 'Ready' and asked me to try a romantic number for 'Dabangg 2.' After the recording, both Salman and Arbaaz Khan liked the way I sang the number and finalized my rendition for the film.
+- If certain project has content, you don't need flamboyant marketing.
+- I think I was only five years old when 'Aashiqui' happened. And I remember very faintly that my father used to bring home all the music that was being done at that point of time, and make everyone in the house listen to the songs and get an opinion on them.
+- There has been a huge growth in the audience attending live concerts. It's delightful to see the increase in audience members and I hope to see more demand for live concerts in the years to come.
+- With independent music sometimes you are able to bring yourself out and your persona out, 'Tanhaai' was that song for me.
+- Releasing albums is a thing of the past.
+- Aashiqui 2' has been a blessed project.
+- It's always great to work with someone who shares the same ideologies as you do.
+- I wouldn't say it was difficult or challenging, but it was my personal favourite and getting a chance to be part of music of 'Tum Bin 2' was a very happy moment for me.
+- I was extremely close to my dad. I think all daughters are very, very close. But I'm the youngest in the family and I think I was my father's pet. So I was the closest to my dad.
+- What I have inherited from my father is my passion for my work which is my music.
+- I have been part of a lot of recreations. So, I don't think there's any harm in doing recreations if they are done in the correct manner.
+- The original 'Tum Bin' was one of my favourite films whether you talk about the film or the music.
+- People have realized that it's a waste of time and money to create eight songs and shooting videos of them all.
+- I have done recreated tracks myself.
+- Since I have a petite frame, I have to tailor-make all my clothes so they are of the right fit and length.
+- Working on good music is what brings happiness to my heart and I cannot think of a better way to spend my birthday.
+- I come from a family where my father did things single-handedly and he built a music empire himself.
+- My dad used to hear me humming songs while watching television and discovered I have a nice sweet tone which should be further trained and toned.
+- It's such a pleasure hosting 'Indie Hain Hum' season 2. My love for Indie artists and music has grown and shown me a whole new dimension after I stepped in as a host and RJ for this show.
+- With 'Ta chuma,' which is a Garhwali folk song, I feel that there will be a strong connect which people will feel and they will get closer to folk music.
+- Men mostly ignore taking care of their skin. I think a weekly scrub and a face pack for every man is a must to get rid of all the pollution, dirt and grime.
+- Papa had some amazing qualities. He was a very spiritual person. He was very passionate about his work. He was a completely self-made man. At the same time, his generosity and kindness were two aspects of him that really defined his personality.
+- My husband and his family are supportive, and love what I do.
+- To be on screen, you need to do a lot of other things. You need to look good. You need to perform well. You need to act well.
+- Whenever I sing on a different scale, I sound very different. However, I have learned that I can experiment with my tone.
+- When I'm lounging at home it has to be my trackpants and T-shirt. If I am going out, I prefer wearing a nice dress.
+- Looking at my career graph, I have gone at a very slow and a steady pace. I have sustained myself for all these years and got the love of my listeners.
+- A lot of people wear sunglasses that are extremely big and bulky, whether or not it suits their face. That's something I hate.
+- Passing away of a legendary singer like SP Subrahmanyam is a huge loss. I have personally loved all his renditions. He is such a legendary figure.

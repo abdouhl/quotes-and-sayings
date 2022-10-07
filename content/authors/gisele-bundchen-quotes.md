@@ -1,0 +1,116 @@
++++
+author = "Gisele Bundchen"
+title = "Gisele Bundchen Quotes"
+quotes_len = "110"
+description = "the best 110 Gisele Bundchen Quotes"
++++
+- Some people start modeling because they want to be models and they want the parties and the recognition, and then there are people like me. I come from a simple family, and for me getting into modeling was a chance to make money and create a business.
+- I'm not an actress, you know. I don't know what's going on. And I'm supposed to be the villain.
+- No one ever said learning was to be easy, but it's part of the process of evolving as a human being, and we all have to go through it. When I look back, I see that each difficult time brought an important lesson. And I prefer to look at it with gratitude because I wouldn't be who I am today if I haven't gone through it all.
+- I don't like to focus on things that don't make me happy and that I can't change. I'd rather try my best to learn from it and move on.
+- I'm a model as a job. I'm Gisele, the daughter of Valdir and Vania. I'm a woman; I am a model. When I go home and shut the door, that's it.
+- I think it's better when you're natural, when you just do whatever you want, instead of doing classes where I see all these other people holding back because they've been trained with certain skills or techniques. I'm like, whatever.
+- I love that feeling of, you know, we are women, we are so different, our imperfections are what make us unique and beautiful.
+- If I could choose, I'd be bare feet with animals all around me and living in a tree house. Like Tarzan and Jane, that's my dream. I'm at my happiest around nature.
+- I don't think anyone likes to see a picture of themselves in a tabloid, besides a couple people who I'm not going to mention. I'm definitely not one of those people.
+- People have a perception of me because of Victoria's Secret that I'm sexy, but I'm not a sexy girl. I'm very tomboyish.
+- I've been doing my job for a long time and I never really thought about being an actress or being anything like that. I was always a bit scared as well because of the thing about models becoming an actress and all that. I just never really took it seriously.
+- When I came to New York and I opened the window of the thirty-fifth-floor apartment, there's light pollution and fog, and I couldn't see my star. So I drew it on my wrist with a pen, but it kept washing away. Then I went to a tattoo parlor on Second Avenue and had it done.
+- Yes, Brazil, like the whole world, stands to lose a lot in a climate-altered world. But it's also one of the major forces determining our future: It's the home of most of the Amazon rain forest.
+- I think as mothers we are all just trying our best.
+- There is good in everything; it's just how you choose to look at it. Everything that's worth it has a price. For me to be a model - I had to leave my family. Do you think I liked that? No! There are sacrifices. Life is meant to be a challenge, because challenges are what make you grow.
+- It was my first scene. My first day. We could have started with me drinking a beer, something a little less than having Barbies touching each other. But they started with that.
+- I love kids. It's amazing that I have the opportunity to hang out with my stepson all the time.
+- You know, everyone says, 'Modeling and acting are so similar'... they say, 'It's so natural for models to become actresses because they use the camera.' I don't think of it in that way.
+- I did kung fu up until two weeks before Benjamin was born, and yoga three days a week. I think a lot of people get pregnant and decide they can turn into garbage disposals. I was mindful about what I ate, and I gained only 30 pounds.
+- There's a button that goes On and I'm On. And when I go On, there is almost no me; there is just a character who is doing all this.
+- I always knew that, even if I was not the most beautiful girl, I'd be the most energetic and hard-working. If you want to know the truth, that's the reason for my success.
+- If you're wearing smoky eye makeup, a little beige or gold pencil on the inner eye corners will open up the area, but you only want to do it if the shadow is really dark. Otherwise, light pencil makes your eyes look too far apart, like a fish.
+- Sometimes doors open and other close and you have to figure out which one you're going to take. I'm always for the one that's challenging. That's where I think you live your life to the fullest.
+- Because I had my family, I felt like I could be a bird and fly and experience and do. Because I had roots somewhere, I knew that they would love me no matter what, and I could always go back home and they were going to love me.
+- If I honour my needs first, I will be the best wife, the best mum, the best sister, the best friend. I have to come first, because then everyone benefits.
+- Brazil has its own fashion identity. Many very talented Brazilian designers show every season at Sao Paulo and Rio fashion weeks.
+- I'm a woman trying to balance family, work and friends like so many others out there.
+- I feel like when people judge me they're not judging me, because they don't know who I am.
+- I'm a very hyper person.
+- When I walk down the runway, my main goal is to not think about the people watching. The idea of all eyes on me would make me too uncomfortable. As I step on the runway, I take a deep breath, focus on a point in the distance, and go!
+- My earliest memory was going to my grandma's house, milking the cows, and collecting the eggs from the chickens.
+- I've always been in serious relationships. I meet someone and date him for a long period. I don't sit there thinking, like, 'I wonder if I can seduce that guy.' I have other things in my mind.
+- I don't like Paris so much, and it's only eight shows. I mean, don't tell them that, of course. But everyone always thinks they're so important. And I'm sure they are. But to me, my happiness is more important.
+- It's all about the light. Always face it, because that's how you give your face good angles. If you're outside when the sun is overhead, you're going to have dark circles from the sun creating shadows on your face. So no outdoor pictures between 12 and two!
+- Sometimes siblings can get in each other's space.
+- I have a lot of fruit trees and my own little vegetable garden and chickens. And every time I eat, I bless my food; I say I'm grateful for for it and let it nourish every part of my body.
+- I am not the first person to give birth naturally. Billions of other women have come before me and have done this - so why can't I do it?
+- I'm a workaholic. I've been doing my job for a long time.
+- People think if you look after yourself you're being selfish, you know.
+- It's unfortunate that in an interview sometimes things can seem so black and white.
+- It was like two different photographers, and shot in three different locations and it was really fun to do. There were 12 beautiful girls in it. It was great.
+- Sometimes when you are a great mom, you're not so great at your job. And then when you're good at your job, you're not so great of a mom or a good wife. It's a dance that never stops. But it's beautiful.
+- Love is something that grows, that comes from nourishment; it builds.
+- If you have your wife, and you are proud of something she's done, wouldn't you go and support her in something? That is what I was trying to do.
+- I'm very nurturing. I come from a large family, and my parents were loving. But the most important thing for me as a mum is to keep my word. When I say no, I mean no.
+- I was eating lots of vegetables and fruit every day during my pregnancy - my baby needed the best of the best, so it was the opposite of overeating. I had this being inside of me, and I was responsible for everything he got.
+- In the beginning, you know, everyone told me, 'Your eyes are too small, the nose is too big, you can never be on a magazine cover.' But, you know what? The big nose is coming with a big personality.
+- When I'm weak, you can be strong; when I'm strong, you can be weak. That's what I believe marriage is.
+- I think it's great for my boys to have a girl in the house, just to understand at least a little bit about what makes a woman tick - not that I can certainly figure that out, because I can't.
+- I cannot put this poison on my skin. I do not use anything synthetic.
+- Everybody learns from traveling. I think we all do.
+- I believe in feeling connected. Love is something that grows, that comes from nourishment; it builds. But there is a great feeling that happens, that is telling you, I don't want to leave this room!
+- For too long, the world has been focused on short-term growth and development at the expense of our long-term survival as we have depleted our natural resources at historically reckless rates.
+- Gossip is poison.
+- When you get to experience something that is outside of your reality, it changes you.
+- The most beautiful thing about Brazil that I always find that is so unlike any other place I've been in the world is the diversity of its people.
+- This is exactly how I would describe my work: 'I get there, I put on the clothes, I leave it on the hanger, and I go home.' And that's what I do.
+- It saddens me that in the 21st century, with all our knowledge and power, we are hearing more and more stories of possible extinctions due to people's choice. We are responsible for our choices and the only ones capable of changing our future.
+- I never really thought about being an actress or being anything like that. I was always a bit scared as well because of the thing about models becoming an actress and all that.
+- I feel grateful because I have a lot of love in my life. I found the person I'm sharing my life with. I have a good man.
+- The quality of time I get to spend with my family is very important. That way, I feel I am experiencing all the different aspects of my life without guilt.
+- I'm a twin, I'm a Cancer; I'm always taking care of other people. I've always been the fixer in the family, the responsible one.
+- I'll never forget the day when a woman came up to me and said, 'No, you could never be on a magazine cover. Your face features don't work; your eyes are small, you have a small face but a big nose.' I was only 14 and I had never noticed any of that stuff, you know?
+- I felt like my pregnancy was a sacred moment for me. I stayed in Boston and I didn't work apart from the contracts I have, and then I only let them use my face.
+- My two grandmothers both died of cancer, so I understand how painful and difficult this disease is on the entire family. My first grandmother passed away from bone cancer when I was about 10. It was really horrible. I remember the whole process like it was yesterday.
+- To be a mother is a magical experience. The whole body is transformed by this.
+- I've always played sport, ever since I was little. I played volleyball and I believe sport teaches you a lot, such as teamwork, respect and discipline.
+- I had to make some adjustments from what my life was like before I was a mom. My kids are so fun and loving, but they are also demanding!
+- I love outdoor sports, like volleyball, and I play them whenever I can.
+- I wouldn't call myself an actress, but I at the same time, if there is an opportunity... I believe in taking chances and living your life.
+- I think people have a different image of me because, you know, they portray me with the idea that models are stupid and dumb; like, 'She can just be a model because she can just be a model - she's dumb and she can't do anything else.'
+- I want to get a farm where I am going to live for the rest of my life. I like the idea of a secluded place.
+- For me the end of the year is always a time to reflect and recharge my energies.
+- I noticed every time I felt overwhelmed, I would hold my breath. I had to learn to stop, relax, and take long deep breaths, and within seconds I would feel more clear and ready to deal with the situation in a more loving way.
+- I'd be lying if I said, 'No,' to wanting a lot of kids.
+- No matter how many shows I've done, as soon as they say it's time to start, I get that nervous sensation and feel like I have to pee. So that's where my mind is. That and making it to the end of the runway and back as fast as I can.
+- I think a lot of people get pregnant and decide they can turn into garbage disposals.
+- I was in the fashion shows in Milan; I was seventeen, I was doing like 100 shows. People were asking, 'How does it feel to be the model of the moment?' It was hard for me to answer as myself. I barely spoke English.
+- My son is so fortunate, you know. He's always going to have food. Yes, my children are going to be privileged, but that's why it's so important for them to see different realities and to travel, and they do already.
+- As consumers, we need to demand that companies sell us sustainable products that do not disregard and destroy our natural world.
+- Everyone has an hour in their day to go and do something for somebody else; I don't care how busy they are.
+- I believe that bringing a life into this world is the single most important thing a person can undertake, and it can also be the most challenging. I think as mothers we are all just trying our best.
+- This is our world and we need the same things to survive. If I'm making my life better and the circumstances of your life worse, that's terrible because in the end it will affect me, too.
+- As long as I'm a good person and I do things from the heart, that's all that matters.
+- I feel privileged to be a U.N. ambassador. It gives me an opportunity to use my voice to help raise awareness about important social and environmental issues.
+- I am a huge fan of big cotton underpants; they're comfortable. I wear them every day.
+- There should be a worldwide law, in my opinion, that mothers should breastfeed their babies for six months.
+- For me, making schedules are critical to make sure we attend to all the needs of the kids and our family. After adding everyone's schedule on the calendar, I make sure that every day I have some sacred time for myself so I can recharge.
+- When I was a teenager, I had pimples - oh, God, every time someone looked at my face I thought they were looking at my pimples. I put mud on my face to dry them out, and it worked.
+- A woman can look powerful in a party, but when she arrives at home, all she wants is to feel comfortable.
+- I think sometimes you have high expectations for people because you have high expectations for yourself.
+- When you come from a big family, you see that, growing up, you're learning how to share. Your sisters have got your back; you're not alone in this - 'We all support you!' Your family provides that; it gives you a sense of safety, and it's a very grounding feeling.
+- My intention in making a comment about the importance of breastfeeding has nothing to do with the law. It comes from my passion and beliefs about children.
+- Christmas and the holidays are the season of giving. It's a time when people are more kind and open-hearted.
+- Always, always powder your T-zone and the lines going from your nose down around your mouth so you don't look like a bulldog. When those areas are shiny, it's awful. And gloss will keep your lips from appearing dehydrated.
+- I'm not a potato sack; I've never sat on my couch. If I'm home, I'm cleaning, feeding my dogs, doing stuff. Life is too precious to waste time.
+- I'm one of these people that likes adrenaline and new things, like extreme sports. It makes me feel alive.
+- Having the strength to tune out negativity and remain focused on what I want gives me the will and confidence to achieve my goals.
+- I don't wear fur and I understand their cause. I am the biggest animal lover in the world. I have four dogs and two horses, and I have rescued animals all my life.
+- The more you trust your intuition, the more empowered you become, the stronger you become, and the happier you become.
+- When I was a kid, I never even thought about fashion. I had one pair of jeans.
+- You know that 40 percent of the food in the United States gets thrown away because it doesn't look a certain way. It's crazy: just because the apple is not the right size or the carrot is not straight enough, it just doesn't get accepted.
+- I'm a very private person. I like staying home and doing my stuff. I hate people invading on my privacy. I hate talking about my private life.
+- If you are happy, you can give happiness. If you don't love yourself and if you are unhappy with yourself, you can't give anything else but that.
+- I believe in taking chances and living your life. Sometimes doors open and others close and you have to figure out which one you're going to take. I'm always for the one that's challenging.
+- I'm very interested in charities. I help a lot of different charities.
+- The mind is more powerful than anything. So, during the birth I wasn't thinking about the pain. I was in a meditation state. I was concentrating the whole time, thinking, 'Oh my God, it's time. I am going to meet my baby. What is he going to look like?'
+- I don't like parties. I prefer something more intimate, just for the closest people.
+- I'm not afraid of working hard at anything, whatever it is. I just always want to be the best that I can.
+- Children are like little angels - there's no way you can't love them.

@@ -1,0 +1,28 @@
++++
+author = "Nandan Nilekani"
+title = "Nandan Nilekani Quotes"
+quotes_len = "22"
+description = "the best 22 Nandan Nilekani Quotes"
++++
+- Congress is my ideological home; I come from a Nehruvian family.
+- My transactions are above board: I do not have money deposited in other accounts and have transparently declared all assets. My real wealth is, however, my experience as cofounder of Infosys and as Aadhar Chairman, which gave away 60,000 crore identity cards to people of India as promised.
+- Infosys was going to be a different type of company. It was going to be very ethically run, meritocratic, quality-conscious, transparent. People didn't confuse the personal with the corporate.
+- I think the ideology of the Congress is closest to mine. Congress is a party where I should be. I have joined politics to bring change in society. The Congress gave me a chance with the Aadhaar project. It's a party that will allow me to bring change.
+- I am proud of the fact that my wealth is completely transparent.
+- We took Infosys public. That was a nonstop three-week global roadshow.
+- I am not in politics to make more money.
+- I think politics is the biggest lever of change in India.
+- My parents were concerned that I would not get good schooling, so they put me up in my uncle's house in Dharwad, and I spent about six years there. So at a very young age, I was away from my parents. I developed an amount of independence and learned to stand on my own feet.
+- You don't choose a party because it's the flavour of the month. I feel I will be able to work under a political system. I feel if people like me don't enter politics to bring change, who will?
+- The biggest thing the money Infosys brought me is the freedom to do what I want. And what I want is to give millions more the opportunities I had.
+- It's because Gandhi believed in villages and because the British ruled from the cities; therefore, Nehru thought of New Delhi as an un-Indian city.
+- I made my money in an honest way. And I have declared it all. By co-founding Infosys along with Mr. Murthy and others, I earned financially.
+- Privacy is a vast subject. Also, remember that privacy and convenience is always a trade-off. When you open a bank account and want to borrow some money, and you want to get a very cheap loan, you'll share all details of your assets because you want them to give you a low interest rate.
+- Slowly, ideas lead to ideology, lead to policies that lead to actions.
+- Bangalore now wants a person who doesn't only play politics. Bangalore needs a problem solver, and I am a problem solver. I will be the bridge between Bangalore and the Centre.
+- I don't decide my politics based on the flavour of the month.
+- Bangalore needs a honest, passionate and hard-working MP, and I will be that MP.
+- Indian higher education is completely regulated. It's very difficult to start a private university. It's very difficult for a foreign university to come to India. As a result of that, our higher education is simply not keeping pace with India's demands. That is leading to a lot of problems which we need to address.
+- My background is putting in large systems that change lives... The right kind of systems can bring honesty and efficiency.
+- When India got independence, entrepreneurs were seen as a bad lot, as people who would exploit.
+- I'm in politics to make the lives of millions of Indians better.

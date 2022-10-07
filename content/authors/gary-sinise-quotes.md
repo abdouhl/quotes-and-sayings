@@ -1,0 +1,45 @@
++++
+author = "Gary Sinise"
+title = "Gary Sinise Quotes"
+quotes_len = "39"
+description = "the best 39 Gary Sinise Quotes"
++++
+- I study to learn, to be an educated person.
+- I can honestly say that I've done everything I've wanted to do, always. Not without difficulty. But every time I wanted to do something, I just did it, from the age of 18 when I started my own theater with my friends. When I decided I wanted to act. I just bit the bullet.
+- If you're missing three or four limbs, you have special challenges going forward. And the last thing you want is to not be independent in your home.
+- Before discovering theater, I was sloughing off and didn't have any passion for school. Then I couldn't get enough. All of a sudden, I was getting good parts in all of these plays. I just loved it. I started getting A's in acting, directing and technical theater. I found something that clicked.
+- I started as an actor. I started directing because Steppenwolf needed another strong director.
+- Have I done more business-related things to help my career grow? Yeah. I took the business end more seriously, hooked up with a manager, got some help, because at a certain point, you get frustrated when you go do auditions, and people say you did a great job, and then you don't get he part.
+- I have veterans in my family. But I didn't know anything about DAV, Disabled American Veterans.
+- Being able to act for a living is a blessing. I have a great theater company that's almost 40 years old.
+- It's always been my dream to do a dance scene with Anthony Hopkins.
+- The wonderful drama teacher at my high school, Barbara Patterson, saw me standing in the hall and told me I should audition for 'West Side Story.' I guess she thought I looked like a gang member.
+- Wherever I go for the military, they always call me Lt. Dan. They just can't help it.
+- I started a theater called Steppenwolf. We've been very supportive of the veterans there.
+- Yeah, I volunteered to support the troops, and get out there and show them that we care about them.
+- I have a band that I started with a buddy of mine, a Vietnam veteran pal named Kimo Williams from Chicago.
+- I was always fascinated with rock 'n' roll, or girls, or something like that when I was a kid.
+- I've never had to compromise myself for a job, ever.
+- I think you're lucky if you discover what you really love at a young age. College wasn't something I was going to do. I wanted to keep acting, and I didn't want to go to New York or California and pound the pavement.
+- But I've got more to learn, too. I don't feel like I'm done or I know it all.
+- I'm not registered to any party. I don't really play in the political world. I'm really more interested in getting things done.
+- There's always the ongoing actor frustration of finding the great role to do next. I don't go to work a lot. I wait as long as I can until the money runs out or a great part comes along.
+- I'm thrilled I can make a living doing something I enjoy.
+- 'The Stand' came out in May of '94 and was seen by 60 million people a night for four nights, and then two months later, 'Forrest Gump' opened. So within a very short time, I went from being depressed about not getting any work to being in two of the most popular shows of the year.
+- Careers, like rockets, don't always take off on time. The trick is to always keep the engine running.
+- Well, I've been to Iraq twice now. I was in Baghdad in June and then north of Baghdad in November.
+- The University of Southern California has a wonderful social work department, and I was thrilled to find out that they have a whole veterans' initiative program there. They approached me, and I set up a scholarship that would go to a military-oriented person to learn techniques and skills to better help veterans.
+- You learn from things that don't go well, and you try to capitalize when they do. You build on those strengths and try to make your weaknesses stronger.
+- I've worked with a lot of really fine actors, both on stage and on screen. The level of their game lifts me up and brings the level of my game up to theirs. Always. It's like a constant upgrade.
+- I've directed enough in the theatre and a couple of films to know that - to feel fairly secure that if I find a story that I really like I can probably get it done somewhat.
+- I'm not like one of those actors who's a frustrated director.
+- The chance to play a romantic character who kisses somebody onscreen was one of the elements that made me want to do 'The Stand.' The more you can do, the better, and I've been known as a character actor.
+- Unless you have a long-running series, most actors just go job to job if you're lucky to keep working. You just do a movie or a play or a TV thing, and it's over at some point.
+- I go into military communities and do fundraisers and that kind of thing with the band, because I know that the music can help do a lot of things. It can bring communities together, it can raise awareness... and it entertains.
+- I save money when I'm working so that I never have to take a role simply to pay the bills.
+- Sometimes you're in great demand. Then suddenly your career hits the breaks.
+- I played a character in 'Ransom' who was as evil as they come.
+- I do spend a lot of weekends on the road. I have to pace myself. It can be pretty busy, but I'm not out in the Afghan desert with 70 pounds on my back, away from my family for a year at a time. I keep a good perspective on it.
+- You've got to keep taking certain risks, because my priority is in acting, it's not in movie stardom.
+- My mission is to support our service members. They're volunteers, and if they're going to go to a hostile place like Afghanistan, I think we owe it to them to back them up and try to help them get through it.
+- My wife's a loving, funny, Irish-spirited person, and I'm still surprised at some of the things she says. She makes me laugh every day.

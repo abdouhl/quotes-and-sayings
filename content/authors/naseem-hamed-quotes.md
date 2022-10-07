@@ -1,0 +1,104 @@
++++
+author = "Naseem Hamed"
+title = "Naseem Hamed Quotes"
+quotes_len = "98"
+description = "the best 98 Naseem Hamed Quotes"
++++
+- I remember when Muhammad Ali got beaten the first time. I remember when Lennox Lewis got beaten the first time, Sugar Ray Leonard, Mike Tyson. All of those were legendary fighters, and they came back, and that's what made them different - what they did after they got beat.
+- I'm taught to adapt and exploit every situation in the ring.
+- My idol, Muhammad Ali, got beat when nobody thought he would, and he came back and back to beat Joe Frazier.
+- Yes, definitely, I've got so much belief in God, and I think that God's got so much belief in me.
+- I agree that some of my performances in America, apart from having drama and excitement, have been a little under my estimation for performance.
+- I honestly can't see myself losing.
+- I'm not selfish before a fight or afterwards, but for the time of the fight itself, I have to think totally of myself.
+- I'm one of those very confident people who just forgets about fear and gives it to somebody else. I get into that ring, and I walk round, I hear my music, and then I start buzzing.
+- I'm Yemeni, proud to be Yemeni. I'm public Yemeni number one!
+- I like Carl Frampton; he gets down to business.
+- I lit up the Middle East when I lit up the world in the 1990s and gave people here something to be proud of.
+- I may be born in the U.K., but nobody takes away from the fact that I'm an Arab, and I'm proud to be Arab.
+- I don't know what other fighters do, but when I get hit and go down, I smile and I say, 'I'm going to hit you harder than you hit me, and I'm going to knock you out.' The times I go down and get back up - that's when I'm the most dangerous.
+- It doesn't mean much to me if I'm behind or not in a fight; the fact is that I hold these guns in my right and left hands.
+- I came out out at the age of 28 and knew I'd had one loss on points, and the only reason I had that loss was that the fight was taken too soon. I lost two and a half stone in eight weeks, which was virtually impossible, but I made it, and I still got that big cheque!
+- I am excited by and impressed with Anthony Joshua, but Anthony has a long way to go. At first, I thought Anthony was similar to a Frank Bruno figure, but after a few fights, I realised he's nothing like Frank Bruno. He's very athletic.
+- I might spar with him, or I might teach him a few tricks, but even if there was $1 billion or £1m offered, I'd never get in the ring with another Muslim. It's against my principles.
+- I just felt I had done enough in the sport to put my stamp on boxing.
+- Thing is - I'm easily imitated, never duplicated.
+- My heart was bursting with pride the night I fought Steve Robinson in Wales, and I made the champion look like the challenger.
+- I made a prediction when I was 11 that I would be world champion by the time I was 21, and I did it.
+- It sounds so early - retiring at 28. But I don't feel it's that early for me. If you're blessed enough and you're gifted and you're lucky enough, and you've got a fortunate career, then you can take that step back. I'm just happy that I did it.
+- As a father, you become more responsible.
+- I fall back on my faith; whatever happens, whatever goes wrong in your life, Muslims thank God because it could have gone worse.
+- The Scottish public are a great public.
+- During my career, there were times we were inseparable, and I can honestly say that if it were not for Brendan Ingle, I would not have achieved all I did in the sport of boxing.
+- I just feel proud when they say in 'Forbes' magazine that the highest-paid athlete is a fighter.
+- One thing that has irritated me in the sport of boxing since I stopped is I'm really surprised that no one has come along to excite me like me.
+- No one can stand up to the extraordinary power of my fists.
+- If it is written for me to lose, I'll lose with dignity and give credit.
+- I'm going to take Barrera out in devastating style with unbelievably hard shots. He's tailor-made for me, and I will fit him with a suit to wear on the canvas.
+- In Arabic, 'Naseem' means a gentle breeze. But inside the guy's a monster.
+- I know there is not a featherweight out there who I couldn't beat.
+- I still look back at the days in the early '90s and think, 'Boy, that confidence just came out in me strong,' and it was fantastic, the drama and the entertainment I brought.
+- Amir Khan is Amir Khan. He's a great fighter; he's got great attributes. But Prince Naseem brought something completely different to any other fighter in the whole world.
+- Great fighters get beat, and great fighters come back.
+- I thought after that fight between Floyd Mayweather Jr. and Manny Pacquiao, if this was supposed to be fight of the decade, then people must be missing me a lot more.
+- That's what a true professional is - a true world champion, so to everybody out there listening, especially the fighters that want to fight me... they'll get knocked out, sparko.
+- My parents brought me up to speak the way I speak, to hold my head up high, to know wrong from right and to have manners.
+- I do think I retired too soon. I just felt at that particular time in 2002, after winning a fifth world title belt, why not be one of the smart ones in boxing and get out.
+- Boxing has lost its glamour and excitement. I'm going to bring it back.
+- Who do you know, who could come out on a flying carpet? P. Diddy standing at the bottom, come out like a concert, dancing, oozing confidence, and then get in and take somebody out? Come on, do you know anybody in the history of the sport that did what Prince Naseem did? I ain't trying to brag, but I was bloody good at it.
+- I don't see anything remotely like me in boxing, past or future.
+- I'm sure there are talented Arab fighters out there waiting to be discovered.
+- Being a fighter is no joke. Year in and year out. Especially as a world champion. All eyes are on you, and you can't go where you want, eat what you want.
+- I'm blessed with a gift from God. When you're blessed, you have an advantage. You know you're not going to get beat when you're fighting with a gift. You're fighting with something that God has given you.
+- In my life, my religion comes first, and obviously, my family comes second.
+- My mother asks me what round I'd like to win in, and she prays for that.
+- There were a lot of fighters who were better than me that got knocked out and stopped because they stayed in the game too long. That never happened to me. I don't know that feeling. I thank God so much that that didn't happen to me.
+- The fact is I have lost a fight, and I accept the loss from Allah. That's the way a real fighter and a real man goes out.
+- I've knocked guys out in the 11th round before, late.
+- As a fighter, I recognise that the one thing we fight for is prizes. The one thing that motivates us is money. A lot of fighters do come back because of money. The biggest spur they have is financial, and thank God my finances were secure, and I didn't need to come back for that reason.
+- Losing will make me a better fighter.
+- I've won every title, and I've done everything in my division.
+- I've put myself on this pedestal from the start.
+- With age, you become more humble, more wise.
+- There's no bigger fight on the planet than Prince Naseem and Marco Antonio Barrera. What's bigger than that? This will be the greatest fight in the history of the featherweight division.
+- In my eyes, I just can't be beaten.
+- You're either good at boxing, or you're not.
+- I believe in my ability.
+- No, I've never been frightened before a fight.
+- I don't need to concentrate or meditate before a fight. I'm the kind of guy who'll be having a laugh in the dressing room 10 minutes before the fight - that's me.
+- When I win, I send shock waves through the boxing world.
+- When I used to leave behind my wife and kids and go into training camp for nine weeks at a time, I felt it, especially if you're having young children and leaving them literally within weeks of them being born.
+- I could never say that fear really gets to me. I'm not one of those fighters like Nigel Benn who says, 'I thrive on fear.' I walk through fear.
+- I want to produce champions from Saudi Arabia and throughout the region.
+- At 19, I was European champion, and at 21, I was world champion. Let's just hope Amir Khan can follow in the same footsteps. I believe he can do it 100%; he's a fantastic talent.
+- Ali could only fight a couple of ways. I can fight five or six different ways.
+- When I was fighting, there was no boxing in Saudi Arabia because it was forbidden.
+- There isn't a featherweight who can beat me.
+- When you are challenging for the world title, you've got to go into the lion's den to try and rip that belt away from the champion.
+- I want the chance to show Barrera and the world that I am a true champion.
+- I want to be remembered as a guy who transcended boxing.
+- The Kelley fight meant that much because it's always when a fighter from this country goes over to America and proves himself, it's always make or break in a British fighter's career.
+- GGG is a great fighter, but he hasn't got the ability that Kell has - Brook is the far superior boxer.
+- When you become a world champion and you defend your title for five or six years, and you have fifteen defences of your title, and you round up most of the other belts - and you feel you're the best of your generation at the time - nobody can take that away from you.
+- I carried the WBO belt for five years and defended it 15 times against 10 world champions.
+- I want to be remembered as the man who changed the pay scale for featherweights, who put the sparkle back in boxing after Muhammad Ali left, the man who took risks with his ring entrance, the man who, before the fight, would do a front flip into the ring without even thinking about turning an ankle, and then knocking his man out. I mean out.
+- I'm not saying I'm Mr Goody Two Shoes. I'm not. But if you try to rough me up, I'm going to body-slam you. I'm going to do everything I have to do psychologically to tell you that you are not stronger than me.
+- When I get knocked down, I'm going to get up and knock you down - and I'm going to hurt you.
+- I found boxing so, so easy with incredible power, speed, and accuracy.
+- I am not into guys who powder-puff punch and run round the ring for 12 rounds. I'm into guys that want to shock the world with devastating power.
+- I'm going to smash Wayne McCullough to bits. And when you see him smashed to bits, you're going to see the same thing I'd have done to Barry McGuigan, his friend and idol.
+- Nobody's going to help me when I get in that ring. That's how I like it: the responsibility's on me, and whatever happens is down to me, nobody else.
+- I could have brought Kevin Kelley to my own backyard and beat him up there. But I didn't want to do that. I wanted to come to his own backyard and bring him down in front of his own crowd, a place he loves.
+- A revelation came to me at 16. All true princes must someday become kings.
+- My career was a gift that I'm very happy about. I loved every step of it. I was blessed. I won all the titles and put my stamp on the sport.
+- I know I look arrogant, but I'm altogether a different person outside the ring.
+- I'm not immortal. I'm not unbeatable.
+- I love it when fighters are textbook.
+- From the age of seven, I was destined to be a legend, to be the world's most popular fighter.
+- Getting beaten is sometimes a good thing. If you're a positive person, you can turn it around and make it into a good thing.
+- Tyson Fury and Anthony Joshua? Styles make fights, and that would be a great clash of styles and a great clash of personalities.
+- I've got music in my head when I fight. I've got a certain rhythm, a certain way of fighting, a certain relaxation where I can let myself go.
+- I just refuse to lose.
+- You can't duplicate me. A lot of fighters come out with a certain amount of style, and I like to see that, but they get smashed up a little bit.
+- The core of my life is Islam, my religion. Without that, I have no strength, no belief in God or in myself.
+- I'm unbeatable and untouchable.

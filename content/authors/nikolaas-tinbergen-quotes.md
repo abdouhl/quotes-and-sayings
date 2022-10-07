@@ -1,0 +1,12 @@
++++
+author = "Nikolaas Tinbergen"
+title = "Nikolaas Tinbergen Quotes"
+quotes_len = "6"
+description = "the best 6 Nikolaas Tinbergen Quotes"
++++
+- I was not much interested in school, and both at secondary school and at university, I only just scraped through, with as little effort as I judged possible without failing.
+- As a boy, I had two small aquaria in our backyard in which I watched, each spring, the nest building and other fascinating behaviours of sticklebacks.
+- The majority of autists - as well as their parents - seem to be genuine victims of environmental stress.
+- Relatively many autists are first-born children. There is also a pretty widespread conviction that the parents of autists are somehow different - for instance, many of them are very serious people or people who are themselves under some sort of strain.
+- Proper stance and movement are obviously genetically old, environment-resistant behaviours. Misuse, with all its psychosomatic or, rather, somato-psychic consequences, must therefore be considered a result of modern living conditions - of a culturally determined stress.
+- Whenever a gentle pressure is used to make a slight change in leg posture, the neck muscles react immediately. Conversely, when the therapist helps one to 'release' the neck muscles, it is amazing to see quite pronounced movements for instance of the toes, even when one is lying on a couch.

@@ -1,0 +1,18 @@
++++
+author = "Michael Eklund"
+title = "Michael Eklund Quotes"
+quotes_len = "12"
+description = "the best 12 Michael Eklund Quotes"
++++
+- I think every actor has their list of roles that were near misses. I've had my share. I was very close and almost cast in Philip Seymour Hoffman's 'Capote.'
+- Making a movie takes a toll on your life because it's a commitment, so you put a lot on the back burner.
+- It's what I've always wanted to do and each part you play gets you closer and closer to the roles that you dreamed of playing.
+- The thing is, I never see my characters as psychopaths. I see them as really crippled victims who just happen to do bad things. And I never see them as bad guys; I see them as darker characters. I never see anything as good or bad; it's more light or dark, and the in-between is the grey.
+- Actors sure have stories. We always have stories. At the end of our careers, all we have to take with us is our stories, and we have many of them.
+- I've had a couple of people come up to me after screenings and say they kind of sympathized with the character. I always get a kick out of it when people say that. It means I did something maybe a little bit to the credit of the character.
+- I do like playing the darker side of life but as much as the lighter side as well. They all resonate out of the same place, which is that everyone has a story to tell. Depending on their upbringing and their history, it determines who they are as an adult. My job is to take the role from there.
+- Every thriller needs a good bad guy; without a bad guy, there's no thriller.
+- I don't follow anything that's said about him much, but the Uwe Boll that I know is just a really cool guy. He's just a really quiet, kind and passionate filmmaker who really believes in what he's doing. Like any director that an actor wants to work with, you want a director who's passionate and believes in the work that he's doing.
+- I like playing characters with internal problems.
+- I think every actor has their list of roles that were near misses. I've had my share.
+- Xavier Gens is probably the busiest filmmaker that I know.

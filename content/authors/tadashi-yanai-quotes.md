@@ -1,0 +1,40 @@
++++
+author = "Tadashi Yanai"
+title = "Tadashi Yanai Quotes"
+quotes_len = "34"
+description = "the best 34 Tadashi Yanai Quotes"
++++
+- Our underwear used to just be cotton, but we wanted to see if we could create something out of synthetics.
+- Japan has only 100m people. Asia has 4bn. At least one-third, maybe nearly half, will become middle class, and this is a big opportunity for Japanese businessmen.
+- I learned that people don't buy anything from unknown stores.
+- The biggest part of my job now is to quickly develop successors, and around the world I am working to develop new business leaders in the company.
+- We are a country of artisans and a country of manufacturing. I think Japanese textile technology is the best in the world.
+- I think I may not be able to retire.
+- Konosuke Matsushita was a visionary entrepreneur. He started working very young as a teenager, and he eventually created Panasonic to become a truly global company.
+- The air of the English is down-to-earth. They care about details; there's a tradition, but there's also a counter-culture: the younger generation versus the older generation and so on. But then that's well blended into a happy balance and crystallised into common sense.
+- I tell people that we must have the courage to share what we feel, but no one follows me.
+- Americans believe cotton is best, but we've invented new fabrics that will change your lifestyle.
+- I'm afraid Japanese people tend to collective hysteria.
+- Forty-five years ago, when I was 18, I came to San Francisco by boat and took two weeks to get here. I had a great impression. I think San Francisco is the welcoming gate for people from Asia.
+- Politicians make decisions in favor of their interest groups or their supporters back in their hometowns.
+- Our international success started out first because we became the No. 1 casual wear brand in our home market of Japan. Then, we set up stores in the world's major fashion centers of New York, Paris and London.
+- At Uniqlo, we're thinking ahead. We're thinking about how to create new, innovative products... and sell that to everyone.
+- The world's major metropolitan cities are more or less the same.
+- Japanese businesspeople and companies are lacking in individuality.
+- At first, Uniqlo was a casual chain on the back streets of Hiroshima. Then... we became a national brand in Japan. So, the next step is to become a global brand.
+- You have to be a crazy guy and a little eccentric to be very successful.
+- As a businessperson, I don't have the power to change the government. That is in the hands of the political leaders. However, as a taxpayer, we have the right to be critical of the government and demand change.
+- I think like a Silicon Valley entrepreneur. Failure is a great teacher. At the same time, you must remember, success will never last... Whether it's tech or fashion, it must be for the customer.
+- People say that globalisation has negative aspects, but I don't believe globalisation is bad. It's criticised from a western perspective, but if you put yourself in the shoes of people in the developing world, it provides an unprecedented opportunity.
+- Japan's biggest problems are conservatism and cowardice.
+- More than trends, consumers need functionality. Everything needs an element of fashion, but that's more like a spice.
+- People shouldn't have to spend a lot of money to get high-quality clothing.
+- The Asian brand, which I admire for having become a global success, is Samsung. In comparison, we're just starting, but I believe that we at Uniqlo will be the next Asian brand to do well globally.
+- Wal-Mart is an amazing success story. What I particularly admire very much about the late Sam Walton was his policy of valuing his employees. Giving value to employees is very rare in the retail industry. I also admire the strategies Walton used to build up his discount store concept.
+- I hate politics. What they say and what they do is completely different.
+- In general, the apparel industry isn't about continual process improvement or making the perfect piece of denim; it's about chasing trends.
+- It is clothes. It is parts. Therefore, you combine the parts differently to create your own unique expression.
+- America, for me, is the country where, if you have something great to offer, you'll be valued highly.
+- If you always think about your dreams or goals, work steadfastly towards them and continue to challenge yourself, you will definitely be able to realise those dreams or goals.
+- Too often, we have tended to fall into a trap of creating plain hamburgers.
+- Opening new stores outside of Japan is important, but training our employees is even more important.

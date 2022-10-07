@@ -1,0 +1,17 @@
++++
+author = "Norman Geisler"
+title = "Norman Geisler Quotes"
+quotes_len = "11"
+description = "the best 11 Norman Geisler Quotes"
++++
+- Evangelicals have largely misinterpreted Aquinas, and they have placed on him views that he did not hold.
+- Pluralism is denied logically; inclusivism is denied scripturally, and that leaves us with exclusivism... you have to know that Jesus died and believe in it in order to be saved.
+- Aquinas is worth reading. He has stood the test of time. And even where he errs, you can learn more from the errors of a great mind than you can learn from the truths of a small mind. You can see a whole lot farther standing on the shoulders of giants.
+- For some, the belief in a Young Earth seems to be based on a kind of intuition or faith in what they believe an omnipotent God should do. It reasons that if God is all powerful, then certainly He would not have taken millions of years to make the earth.
+- One should never tie his faith to how old the earth is.
+- The age of the Earth is a hotly debated issue among evangelicals. Old Earthers believe, like most scientists, that the universe is billions of years old. Young Earthers measure the age of the universe in terms of thousands of years.
+- Even Martin Luther and John Calvin believed that the Roman Catholic church, up to the Council of Trent, was basically orthodox - a true church with sound fundamental doctrines as well as significant error.
+- I can't tell you how Aquinas has enriched and changed my life, my thought. He has helped me to be a better evangelical, a better servant of Christ, and to better defend the faith that was delivered, once for all, to the saints.
+- All views can't be true because all views are opposite; this is the logical aspect. For example, Islam says we are good in nature; Christianity says we are born in sin. Islam says God is a man; Christianity says He is more than a man, He is God. All truths can't be the same.
+- Only Jesus has prophecies made hundreds of years in advance made literally true. Only He did miracles; only His immediate followers claimed He died and rose from the dead, so in comparison, He comes out superior to other great religious leaders.
+- Jesus is the only way because the Bible says it to be true. Why? Because only He can bridge the gap between God and man; there's no other way.

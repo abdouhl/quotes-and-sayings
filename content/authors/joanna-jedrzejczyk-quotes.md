@@ -1,0 +1,106 @@
++++
+author = "Joanna Jedrzejczyk"
+title = "Joanna Jedrzejczyk Quotes"
+quotes_len = "100"
+description = "the best 100 Joanna Jedrzejczyk Quotes"
++++
+- No, I am not impressed with Karolina Kowalkiewicz.
+- I am really nice. But not in the cage.
+- I'm one hundred percent into my life, and into my fighting career. This is who I want to be in the future - as a mother - and if I'm going to leave the sport, I leave the sport. When I finish with fighting, I'm done.
+- Every fighter is dreaming about the UFC and then once they can get into the UFC, they are dreaming about a title and I've made all of my dreams come true.
+- If I would become a champion at 125, I will jump between 115 and 125.
+- I like the good part of the sport, the sport side of the fighting.
+- I always have good feelings in America and I like it so much.
+- Everyone knows I'm very close to my family, my hometown, my homeland.
+- There are so many talented fighters. And then there are fighters who must work like butchers. They are champions because they work hard every day. I believe I have a little bit of talent, because I learn very quickly, but I'm like the butcher.
+- This sport is all about winning the fight, setting records, and defending titles.
+- It's my business. Fighting, it's my business. It's my job.
+- I like to fight on the ground. I'm learning every day. I think I'm good.
+- I follow Ronda. I am big fan of her. She is simply the best for me.
+- If the UFC wants me to fight in Glasgow, I will do this in Glasgow. If they want me to fight in Africa, I will fight in Africa, you know what I mean?
+- I can easily cut 10 to 15 pounds without feeling like I'm killing myself.
+- I have so much respect for Rose Namajunas, same as I had before the first fight.
+- Lots of luck to Paige VanZant. I met her a few times. She's very nice girl.
+- Anything can happen in the Octagon, so of course, we all want to win, but I know it's a sport, so one punch can make you lose.
+- I have almost 100 Muay Thai fights, so I used to train and fight with really tough kickers.
+- For me the more important thing is fighting. You know, training, fighting. The sports side. I didn't choose my media life.
+- Even though I moved to Florida, I'm still Polish.
+- Maybe I'm the baddest chick on the planet, maybe I'm the baddest woman in the Octagon, but I'm definitely emotional.
+- I'm happy to be part of the UFC and I'm happy to be the first Polish champion and the first European women's champion.
+- I like to keep busy.
+- I used to starve myself to death.
+- I talk with my body in the Octagon the day of the fight.
+- I train with the best team and the best gym in the world at American Top Team, and we know how to fight.
+- I couldn't care what people are saying or not saying because I have my own life. I know who I am, I know who is Joanna Jedrzecjzyk. And I know who I want to be.
+- In U.S., there are lot of good fighters, female fighters. Lots of different sparring partners. So it's good.
+- I believe in people so badly and I love when people treat me the same way.
+- I don't do fights on Twitter.
+- I'm a professional athlete, I'm a businesswoman and I know who I am.
+- I don't feel pressure.
+- I want to have my own kids, I want to raise them and just be a happy grandma.
+- I believe a training plan that involves MMA techniques is a sure way to being fit.
+- When you're nice to me, I'm nice to you; but when you are not nice, I'm even worse.
+- For myself, I'm still little Joanna from the hood - from a small town in Poland, and I'm still having my goals, my dreams.
+- I train with the best coaches in the world.
+- I'm Joanna Champion.
+- You can build your legacy and your legacy can be big, but even after you slip or fall, you learn, and your legacy is getting even bigger.
+- People used to call me violent, savage.
+- Every fighting career is different.
+- The strawweight division may be the lightest division in the UFC, but we are very tough fighters.
+- When I was competing in Muay Thai I used to fight every month.
+- We all are different. Our lives are different.
+- You can have the perfect plan through the first punch but then you have to take the fight second by second.
+- I'm a warrior.
+- I never take fights personal and I'm not emotional when I'm fighting.
+- I always wanted to talk to Ronda about how she felt the night before that night that she lost to Holly Holm.
+- I have lots of power in my hands.
+- I know the UFC's a big organization, the best athletes and fighters are here, so... every third or fourth month, I'm ready to fight.
+- I want to be the first champion of the 125-pound division.
+- Who's the real queen? Hell yeah, hell yeah. Bow down, I'm the real queen!
+- People can doubt me, and they'll do that forever, but show me a better, cleaner fighter in the UFC or in general.
+- Since I moved to American Top Team, I feel like I'm the bird that got to escape from its cage, if you know that meaning.
+- Alexander Gustafsson, he's the biggest fighter in Europe. I like him so much and I hope I'm gonna be the biggest in Europe next to him.
+- You know why I'm so confident? Because I am working so hard every day. That's why I am different than the other fighters and my opponents and the challengers. That's why.
+- People know me only from the Octagon, from the gym. I'm a different person outside and I am who I want to be.
+- I must cut lots of weight. Isn't nice, but it's part of my job and I can make it very easy.
+- I like to fight in America.
+- I'm enjoying my life as a fighter, but more as a human and this is what matters.
+- Slowly, step-by-step, I will reach my goals and my dreams.
+- I like to break the records, break the limits.
+- When I must be mean, I'm mean. When I can be nice, I am nice.
+- When I put on a performance I always work so hard, so I have conditioning for 10, 15 rounds.
+- I'm not a natural strawweight.
+- What I love about the UFC, it doesn't matter if you're a girl or guy. It doesn't matter what color skin, what religion you are, where you're from, they give you the same money and they give you the same star. It's up to you where you're gonna be.
+- I want to show to everyone that I am simply the best.
+- You can be an underdog, but you can beat the champion.
+- My parents, they gave me everything. They taught me how to work hard. They taught me how to be a good Catholic. They taught me how to love people, how to respect people, but how to stand my ground, as well.
+- Maybe some people think that it's all about the hype, about the fame, but it's not. It's all about being the best. It's all about challenging myself everyday.
+- I want to be the best. I have my goals, my dreams.
+- The UFC is the best organization in the world, they sign the best fighters.
+- I don't like to predict the fights. People can do that. They can predict my fights, but I never do that.
+- Before I step in the Octagon, I pray one last time and take a huge deep breath, and then I'm home.
+- Don't trust everything you see on TV.
+- I want people to talk about me in five, 10 years, 20 years, that I was one of the best female MMA fighters, that I was one of the best UFC champions in the world back in the day. This is what I want.
+- Weight cuts are not easy, are not nice, but it's part of our job so we shouldn't complain and just be on weight when you have to be.
+- I like to make history.
+- Reebok has consistently shown that fitness is truly demanding.
+- I always set my ambitions very high. You want to be the greatest athlete, but I realized that life is not about that. I was a little bit blind.
+- I'm not cocky. I'm not arrogant. I know my value.
+- I cannot let my opponents get into my head.
+- I've got talent from my gut and I did my job to show to everyone that I'm simply the best.
+- It's MMA. I'm a complete MMA fighter. I expect everything. I'm ready for all of it.
+- I'm going to be a Ronda Rousey in the strawweight division. They'll call me 'JJ' instead of 'RR.'
+- I'm a big fan of Conor, and I'm a big fan of Khabib.
+- I always want to work hard and show to everyone that I am the best.
+- We need real and dedicated fighters and champions in the UFC. It's simply the best organization in the world.
+- You never talk bad about your teammates, doesn't matter if you like them or not.
+- I know that Ronda Rousey is one of the greatest athletes in this sport.
+- Winning is like an addiction, but I'm also afraid of losing.
+- 100 Muay Thai, boxing, and kickboxing fights. Six times world Muay Thai champion, five times European Muay Thai champion, very dominant UFC champion for three years. I know my legacy. They can say whatever they want to, but I'm huge.
+- I'm very open to fight Valentina Shevchenko. I always want to fight the best fighters and I think that she is one of the top female fighters in the world.
+- I'm very hard on myself everyday, you can ask my coaches, and after a good training session, I'm not happy because I know I can do better or change something to do better, you know?
+- I want to be a legend.
+- I don't watch 'TUF.' I don't watch it because I don't like how they show me.
+- I was 16, I just wanted to do something in my life. I wanted to be healthy, I wanted to lose some weight and I went for my first training. In the beginning I didn't know what Muay Thai meant. You know? But I liked it so much, and after six months of training I had my first competition in Poland. I won, and after that I knew that I wanted to do it.
+- I cannot help that I'm simply the best.
+- I'm not those kind of persons that's afraid to be on radio or TV, you know? I'm always the same.

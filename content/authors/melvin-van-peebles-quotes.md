@@ -1,0 +1,71 @@
++++
+author = "Melvin Van Peebles"
+title = "Melvin Van Peebles Quotes"
+quotes_len = "65"
+description = "the best 65 Melvin Van Peebles Quotes"
++++
+- I'm pretty much a loner. That's not good, bad, or indifferent.
+- What some folks find funny, other folks find tragic.
+- Big publishers want you to change this and change that. I'd rather go to a little publisher - who needs the tsuris.
+- I work from a subjective palette.
+- What happened when 'Sweetback' made all that money, the studios were in a very difficult position. They wanted the money, but they didn't the message. This marked the advent of the caricatures which became known as blaxploitation.
+- I intend to stay dangerous.
+- You've got to really check on what you're doing: check and recheck it seven other times to be prepared. Sometimes, people get carried away with the artistic-ness of the endeavor and don't quite have their game face on when the time comes. It's always a pretty costly mistake.
+- One day, I was sitting in a movie theater, and I said, 'What the hell? I can do better than that.'
+- The studios didn't really take independent films seriously, till 'Sweetback' was such a financial success.
+- With 'Sweetback,' I just put it together a little bit at a time. I didn't do it on anybody's grant. I did it like any other young executive - by cheating and stealing!
+- I'm from the Southside of Chicago.
+- I'm too short to play basketball and too nervous to steal.
+- I graduated from college when I was 20. To get enough money to finish college, I went into the ROTC, and I was an officer in the Air Force before I could buy a drink.
+- Scars are the price you pay for success.
+- Many times, I get young people asking, 'What do you think about black movies?' And I say, 'What are you talking about? You mean Hollywood movies that have black people in them?' It's gone back to that, and that's not the same thing as a black movie.
+- I used to be the third person in the secret jets we had - they were secret at the time - a jet bomber that flew at immense heights carrying atomic bombs.
+- Personally, I do movies the way I cook: I put in what I like in case nobody else likes it and I have to eat it for the rest of the week.
+- When I was in the Air Force, if I walked into a restaurant, in about eight or nine minutes the M.P.'s would show up and drag me out because someone had called saying that someone was impersonating an officer.
+- Music - some people just don't know that part of me.
+- Me and modesty don't mix.
+- Blacks are tired of seeing whites saying, 'I understand you.' You need a black to direct a black film.
+- I went to a number of schools when I was a kid on the south side of Chicago.
+- Why not have fun, man? If I feel like doing something, I just go ahead and do it.
+- Our minds are not our friends when they realize we have work to do - they're our enemies.
+- I said to my kids, 'Learn the business of America if you want to be an artist in America. The rest of that stuff, the art part, you could pick up in an hour and a half.'
+- It wasn't really me who invented rap. I stole the idea from Aristide Bruant.
+- If you look down a barrel of a gun... you don't forget it.
+- I didn't even know I had a legacy.
+- Don't ask me something if you don't want to know. Because I will tell you.
+- I've never been to film school. I had to leave this country to make a film. All they would let me do in Hollywood was be a messenger.
+- When I was a kid, from 10 years old, I worked every day for my dad, huh? Never played basketball. I never played tennis - never did. We worked so that we could eat.
+- When I got to Paris, they welcomed me and showed my films. It was August of 1960, and I didn't have a penny in my pocket. But they had done something very dangerous: They had given me encouragement.
+- There is a downside to affordable technology, and that's mediocrity. I mean, just 'cause you can afford it don't mean you can do it.
+- If I had to find one characteristic that is most symbolic of me, I think I am tenacious.
+- If you give people something they want, they'll come and see it.
+- My life and career is defined by the constant pursuit of new forms of culture and self-expression.
+- My first feature, I made in France. There's a great respect for the author there - they don't change your stuff.
+- Blacks had a huge role in settling the West, but you'd never know it from Western movies.
+- 'Sweetback' represented an economic tour de force because I had no partners; I own it.
+- The artistic world is one of high nuance.
+- Over time, you accumulate a lot of life material.
+- It must be horrible to do things that you don't like hoping to please other people, and they don't like it either, and you've got to eat it.
+- I walk down the street; the garbagemen will shout at me, and we'll talk. That's a pleasure when people feel, 'If he can do it, I can, too.'
+- If I was just a creator, I would still be back in the Lincoln annex in the Post Office.
+- I'm not a normal director. You can't look at me that way. What's kept me alive is my technical skill at doing other things.
+- Before me, music soundtracks were sort of afterthoughts.
+- When we talk about 'Sweetback,' yes, it stars the whole black movement, but it's also the first time an independent film made that kind of money and was that successful and taken seriously.
+- You have to not let yourself believe you can't. Do what you can do within the framework of what you have, and don't look outside - look inside.
+- Whitey is uptight about offending blacks without really knowing what offends blacks.
+- The graphic novel is a great form that can be used to marry the book format with the movie.
+- There's something on Wall Street called PIG - panic, ignorance, and greed. Those are the big sins. I'm not greedy, I knew I was ignorant, and I didn't panic.
+- Making 'Sweetback' took an exorbitant amount of energy and time.
+- I do what I want to do.
+- I have no illusions about running. I hate running. If I could feel as good as I felt at 30 without running, I wouldn't do it, but that's not the way it works! So - no pain, no gain.
+- No one - black, white, or any different - walks away from a three-picture deal with a studio. That's every filmmaker's dream. But it wasn't mine.
+- The key to empowerment is no more complicated than what Jesse Jackson said, 'We are somebody.' But the 'We are somebody' I would like to be in the larger sense: not just the urban African-American but homo sapiens in general - We are somebody.
+- A bumblebee can't fly. He's aerodynamically unsound. But he doesn't know that.
+- Before I made 'Sweetback,' I had a three-picture deal with Columbia and enough juice, if I was real clever with it, to proclaim that I wanted to do an independent film.
+- Truth of the matter is, I can't even read or write music.
+- In the morning, I get the paper. I look in the obituary column. If I don't see myself in there, I get up.
+- Somebody once asked me, 'Melvin, how'd you get to the top?' It was simple. Nobody would let me in at the bottom.
+- After 'Don't Play Us Cheap,' I got very busy with theater and Wall Street.
+- I was getting my Ph.D. in Holland - I speak Dutch - for a number of years before I moved to France because I had one of those offers you couldn't turn down. They offered me to come and do my films.
+- In trying to cross over to the mainstream, some people stopped writing what they witnessed.
+- As a navigator, I started studying astronomy because sometimes you're not able to use the equipment, so you'd have to do it the old-fashioned way, figuring out what you were seeing in the sky.

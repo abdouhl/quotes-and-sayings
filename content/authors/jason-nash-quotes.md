@@ -1,0 +1,39 @@
++++
+author = "Jason Nash"
+title = "Jason Nash Quotes"
+quotes_len = "33"
+description = "the best 33 Jason Nash Quotes"
++++
+- In 2013, I was broke after making my first movie, 'Jason Nash is Married,' and I got on Vine hoping to sell a few copies.
+- Single people make me crazy with their whining about being alone.
+- Vine messed up - they let their top creators leave the app.
+- Vine is great because none of us have time to really see all the talent that's out there. If you can make someone laugh in six seconds, you can see there's more to this person. Vine lends itself to that. It allows you to be exposed to new people and you get it right away.
+- You can tell in six seconds if someone is funny.
+- Vine was like no other creative rush I ever had. In minutes, you could conceive an idea, shoot it and send it off to millions.
+- Vine was an art form.
+- I've never had a Plan B. I've just always wanted to make people laugh, that's it.
+- Brands don't just care about views. Brands care about their brand first.
+- I've been working with Collab for years and honestly I couldn't ask for a better partner.
+- I never wanted to write on a staff. I wanted to perform my work.
+- L.A. gets a bad rap, but that's not the case. Everybody's like a real family out here. I think a lot of that comes from UCB Theatre, Amy Poehler, Matt Walsh, Matt Besser, and Ian Roberts. They're really funny, but they're also upstanding people.
+- We want to make movies with people who already have followings.
+- I loved being able to support my family by making Vines.
+- People do Vine so many different ways. If you're original, then you'll get followers. There are people who do selfie Vines, people who do special effects, people who do artistic Vines. You have to find your niche and people will find it. Of course, it helps if you're 16 and if you're a handsome guy who is taking your shirt off.
+- T.J. Miller and Rob Corddry and Casey Wilson, they're just great people.
+- I was such an idiot until the age of 28.
+- I post wherever I have an audience.
+- Weird how fast technology changes.
+- Would I rather be on 'Saturday Night Live' or Snapchat? I'd rather be on 'Saturday Night Live.'
+- There are a hundred thousand people on my Snapchat that I can talk to. And I think that's awesome.
+- I went to UMass-Amherst and was like, 'I want to work in news, I want to be a journalist.' Then I got there and was like, 'what kind of crap is this?' They inflate everything. It will be like snowing outside, like just a little bit, and they are like 'Giant storm coming, batten down the hatches!' and I just didn't like that aspect of it.
+- There's a lot of people on Vine who don't really talk, but who are very big.
+- I really want to make something that makes people think. I love that movie 'Tiny Furniture' that Lena Dunham made. I just love that movie, and I laugh at that movie a lot, but I also felt a lot too. I'm just inspired by people like that.
+- Telling someone you have a web series is the same thing as telling someone, 'On Monday, I start work at Chipotle.'
+- Those things on the Internet that tell your net worth are wrong for pretty much everyone. When I started YouTube, I was pretty broke and it said $1 million then.
+- I always wanted to make something that was real and had heart and was funny.
+- If there's one thing I learned about being with someone, it's you have to be willing to give every drop of yourself. Both people need to sacrifice so much to make it work and most of my single friends they don't want to do that.
+- I could sell my own TV show, but I couldn't get it made.
+- I get so much backlash in Hollywood.
+- I don't know how long 'The Vlog Squad' will last, but I think for YouTube, as long as you adapt it can last a while.
+- I really want to put people at ease and tell them things are going to be all right.
+- When I started, all I wanted to do was make $3,000 per month. And because it wasn't about the money for me, I know that's why things worked out.

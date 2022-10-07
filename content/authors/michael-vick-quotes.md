@@ -1,0 +1,20 @@
++++
+author = "Michael Vick"
+title = "Michael Vick Quotes"
+quotes_len = "14"
+description = "the best 14 Michael Vick Quotes"
++++
+- I mean, I was just one of the ones who got exposed, and because of the position I was in, where I was in my life, it went mainstream. A lot of people got out of it after my situation, not because I went to prison but because it was sad for them to see me go through something that was so pointless, that could have been avoided.
+- The reason I became a better player was because I came to Philly.
+- I don't think teams play this game to hurt other guys. I don't think that's the story. We don't play this game to hurt one another.
+- I have always been an outstanding football player, I have always had uncanny abilities, great arm strength, an immense ability to play the game from a quarterback standpoint. The problem was that I wasn't given the liberty to do certain things when I was young.
+- I just think more precaution should be taken when I'm inside the pocket. Look at all the replays - I'm on the ground every time. It's unfortunate for myself, it's unfortunate for my team and I'd be lying if I sat here and said I wasn't frustrated right now.
+- It's an unfortunate situation. After such a great play I felt like I got hit late, no flag, broke my hand. That's it. That's pretty much been the story for the past three weeks, and obviously at some point something catastrophic was going to happen, and I broke my hand.
+- There's no reason for me to go into a big dissertation about why I'm not getting the calls. The refs have to do their jobs as well. I even mentioned it in training camp to the refs when we had our little meeting.
+- The good thing is I don't put the ball in my right hand and I'm predominantly left-handed when I'm running the ball. I just have to take care of the football and even if I have two hands that are 100 percent, I still can't turn the ball over. It's just something I have to mentally prepare for, and I think I'm strong enough to do that.
+- I stand before you a changed man. Use me as an example of an instrument of change.
+- What I did, you know, being away from my family, letting so many people down. I let myself down, not being out on the football field, being in a prison bed, in a prison bunk, writing letters home, you know. That wasn't my life.
+- The first day I walked into prison, and he slammed that door, I knew the magnitude of the decision that I made, and the poor judgment, and what I allowed to happen to the animals. And, you know, it's no way of explaining the hurt and the guilt that I felt. And that was the reason I cried so many nights.
+- That wasn't the way that things was supposed to be. And all because the so-called culture that I thought was right, that I thought it was cool, and I thought it was fun, and it was exciting at the time. It all led to me laying in a prison bunk by myself with no one to talk to but myself.
+- Yeah, you got the family dog and the white picket fence, and you just think that's all there is. Some of us had to grow up in poverty-stricken urban neighborhoods, and we just had to adapt to our environment. I know that it's wrong. But people act like it's some crazy thing they never heard of. They don't know.
+- During my time in prison, I told myself that I wanted to be a part of the solution and not the problem.

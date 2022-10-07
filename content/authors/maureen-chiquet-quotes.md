@@ -1,0 +1,14 @@
++++
+author = "Maureen Chiquet"
+title = "Maureen Chiquet Quotes"
+quotes_len = "8"
+description = "the best 8 Maureen Chiquet Quotes"
++++
+- I just dreamed about living in Paris and being French. I always loved the visual arts, film and theatre, and I hoped to be involved in creating beautiful products and images.
+- I've been inspired by Coco Chanel. She broke all the rules of her time when she was designing. She pretty much revolutionized the way that women dressed at the time, and in doing that, she modernized the way they looked because they could move more freely in their clothes.
+- The risk of any great luxury brand that has its history in the past is that it can get dusty.
+- A lot of companies talk about letting creative lead, but Chanel actually does let it lead.
+- Men display less self-doubt and lead with what seems always like a sense of force and direction. We are not as familiar with women leaders, and so we question their skills. As women, we always need to work harder to prove our competence.
+- I'm like a sponge: I like to listen.
+- From the time I was 16, I wanted to live in Paris. When I graduated college and didn't have a job, I went to take the LSAT because I didn't know what else to do. I walked out in the middle of the test and eventually found an internship in Paris at L'Oreal.
+- Often, the pressure of the business and fear of having an open position encourages us to hire people who are either not right for the job or not ready to take on the responsibility.

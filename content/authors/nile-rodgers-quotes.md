@@ -1,0 +1,55 @@
++++
+author = "Nile Rodgers"
+title = "Nile Rodgers Quotes"
+quotes_len = "49"
+description = "the best 49 Nile Rodgers Quotes"
++++
+- When I was very young, there was a lot of music at home, mostly jazz. I was walking around singing and pretending I was in bands from a very young age. But the first song that was really personal to me was 'Blue Suede Shoes'.
+- My career has been wacky and not at all normal. I've never had a manager, nobody gets jobs for me. I wind up working with artists that I meet.
+- I grew as close to Madonna as I've ever been to a woman without being romantically involved.
+- My childhood was bittersweet in many ways. We moved around a lot. By the time I was 10, I had travelled thousands of miles, often on my own. My parents were like my friends, so it felt like I didn't really have parents at all. But in a crazy way that was very liberating. It forced me to be independent, maybe a leader, and certainly a survivor.
+- Nobody under the sun was like Madonna. She was positive and clear and wholly dedicated to achieving everything that she's achieved.
+- I'm completely obsessed with the film versions of 'Superman'.
+- With Sumthin Else Music Works, I wanted to spread the love and give newcomers a chance to make it because something that really helped me were all the people who had given me an opportunity when I was putting my career together.
+- Music has to keep moving. But I was lucky. For me there was always something around the corner.
+- It feels like my job is to support people. I support great artists. When I worked with a symphony, I sat in the third chair, not the first chair.
+- I don't believe in the philosophy of stumbling across hit records.
+- I used to play flute and clarinet at school, and although I wasn't thinking about making a living or getting a pay cheque, I already knew I was going to play music all my life.
+- If something is worth doing, it's worth overdoing.
+- There's been this strange irony to my whole life. All my original bandmates have died, when I was the most wild and most reckless of us all. But I'm still here.
+- Art is something that opens up and enhances your emotions and that's what I like to think I'm doing.
+- Art, well good art at least, takes you to a place you go during the experience of it, and then after you experience it you are different.
+- I'm always swimming forward like a shark. You just keep going and you don't rest. I love waking up knowing that I have a problem to solve.
+- I've found great solace in finally taking care of myself and others.
+- I am very rich because of 'Chic' - artistically as well as spiritually. It's been an amazing life.
+- I've been working since I was a child. I worked cutting lawns, delivering newspapers; I was a telephone salesperson; I was a guitar repairman.
+- Bands always call me when they are in need of a boost and I come in and put them back on top.
+- I've had insomnia since I was five years old. I just don't require much sleep. I'm never tired.
+- Any real record person knows that the number one most powerful marketing tool when it comes to music is repetition.
+- You can fool a person into going to see a movie with a good trailer.
+- I'd probably be a super wealthy guy if I had sat around writing songs and getting them placed like everyone else I know. But I write songs about people or after I meet them and they're somewhat biographical - they're fiction but also non-fiction.
+- Every record I have done was because I was a person's friend. The only time we did not continue to be friends was if the record did not become a hit. If it did, we became great friends.
+- My responsibility is to the artist first. There's something that artists intrinsically know about their music and their fanbase that neither the record company nor the producer really knows.
+- Everything about my life was culturally rich, and all the people I met sort of reinforced the wackiness that was normally inside of me. No one said, 'You can't do that,' until I got to real record companies, that is.
+- Music is the one part of the entertainment business where you can't fool anybody into buying a record.
+- It was actually my partner, Bernard Edwards, who helped me develop my sort of funky jazz style.
+- There's never been a song that I just wrote and tried to send to an artist.
+- I was a fan of the Marx Brothers. One of them had this character where he pretended not to be able to talk, but then he wrote this autobiography called 'Harpo Speaks!' He wrote about how he quit school at nine years old to become a professional.
+- I grew up in the era of the concept album. What I do now is pick up on singles, and they are their own complete stories; you don't necessarily have to hear the rest of the album because I don't think albums are created like that anymore. They get songs from all over the place.
+- I'm always the last person in the world who would ever try to predict a trend.
+- I love Madonna! If you want to see the Madonna I know, just go on YouTube and you'll see those early interviews before the record came out. She was giddy and wonderful and giggly and happy and so excited looking towards the future.
+- I've never cancelled any public appearance, simply because that's what my life is; it's doing my work, and I never want to stop doing my work unless it becomes impossible for me to do it.
+- If I could live in one city and do every single thing I do there, I would choose Venice. You can't turn your head without seeing something amazing.
+- When people tell you you're on the brink of death, you've got to dig pretty deep to get it together.
+- I only work with people I like.
+- I never wished my parents were normal, because they were unique, special and fabulous.
+- I think the hardest thing to overcome is judging yourself and being your own worst critic so to speak.
+- My life was really interesting before 'Chic.'
+- I would play hooky from school and spend all day in the movie theaters. Consequently, I learned satire in all its subtle forms.
+- The only person I have regrets about is Miles Davis. He and I had become good friends after we did a photo shoot, and coincidentally, we kept running into each other at parties and stuff. I regret not having written a hit for Miles Davis.
+- When I go on vacation, I take very few clothes and a whole lot of books. It's the most soothing thing in the world. Reading 'Moby-Dick' is like being in a time machine. I almost feel as excited as the first time I read it and I always find something new.
+- Trust me, the only real way to understand 'Chic' is in highfalutin terms. Our chord progressions were based on European modal melodies. I made those early 'Chic' records to impress my jazz friends.
+- Almost all the producers I know and dig, like Quincy Jones or Brian Eno, are really musicians first. I'm a composer, an orchestrator, an arranger and a musician first. I know how to write and rewrite songs, and the genius is really in the rewriting.
+- I called all adults by their first names, and my mum was just another adult. I was the firstborn of my generation in the family, but because I was so close to my parents in age, they treated me with a kind of adult respect. They talked to me as an equal.
+- I'm a record producer and songwriter; I'm a problem-solver.
+- I wouldn't know how to retire.

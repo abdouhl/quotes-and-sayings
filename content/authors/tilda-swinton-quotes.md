@@ -1,0 +1,42 @@
++++
+author = "Tilda Swinton"
+title = "Tilda Swinton Quotes"
+quotes_len = "36"
+description = "the best 36 Tilda Swinton Quotes"
++++
+- I find myself apologising for not being a proper actor. I never intended to be involved in the film industry and still do feel that, with the exception of a couple of brief skirmishes with the film industry.
+- I wasn't around when Nic was playing Donald. I was around with Charlie.
+- My understanding is that it's quite difficult for actors in the theater to know anybody but actors in the theater. It's the whole concept of the amniotic fluid surrounding one industry, holding people in place. I've never had a season ticket. I'm always a tourist.
+- Oh, man, you won't hear me talking about the drudgery of making movies. I don't buy any of that. All those guys who made 'The Revenant,' they loved it. They wanted to make a film, and they were the happiest people around to be doing so.
+- I always think of the word 'abandonment' when I think of the character.
+- I'm very often referred to as 'Sir' in elevators and such. I think it has to do with being this tall and not wearing much lipstick. I think people just can't imagine I'd be a woman if I look like this.
+- Everybody thinks for one moment when they're pregnant that they're actually carrying the spawn of the devil.
+- Nobody is working for Marvel who isn't a super-fan. And it's run by the biggest super-fan of them all.
+- I sometimes think I was always left-wing. I know that sounds completely crazy, but I do know that I asked questions when I was about four, and I remember noticing that I wasn't getting an answer, and I remember it annoying me.
+- Nic's Charlie is something very particular. You can't really put them together. It's a phantasm.
+- The stories I most love are about the benefits of being blown off course.
+- I don't have a career, I have a life. I don't have an exterior judgment on what would be good or bad for me.
+- This is the launch of the 'Doctor Strange' film interpretation of - in my view - a classic, which has been interpreted many times by other graphic artists, and this is just our graphic interpretation of The Ancient One. I would say the whole approach is about a kind of fluidity.
+- I'm a huge Marvel fan, and the fact that they take the liberties that they do in filmmaking - I think, if anything, that it dignifies the comics, and it says, 'Yeah. This is a strong enough, robust enough source. We can bend it; it's elastic. It's bouncy.'
+- I remember noticing, when I had my babies, how much I liked them, and not just loved them, but I was really into them. I knew I was going to be curious about them and up for the mayhem ahead. But at the same time, I remember noticing I was relieved this thing was present in me. And I hadn't realised there might be a doubt.
+- More and more, there are things in my life that I find hard to say. Like, 'David Bowie and Lorde were at my birthday party.' She's a phenomenal spirit.
+- I do like not knowing where I'm going, wandering in strange woods, whistling and following bread crumbs.
+- There is something insane about a lack of doubt. Doubt - to me, anyway - is what makes you human, and without doubt, even the righteous lose their grip, not only on reality but also on their humanity.
+- We never know about anybody else's relationship and how they work - particularly the ones that work for a really, really long time. I was going to say only the people in it, but often, not even they understand how it works.
+- I spent a lot of time thinking that I was some kind of foundling, that I had been a changeling, that I had been found under a bush somewhere, and that I couldn't possibly be kin - but the more I live, the more I feel absolutely like I come out of my family. I'm a sort of strange natural progression.
+- One of the wonderful things that I've always loved as an art student, what I always loved about comics, was that they are interpreted differently by different graphic artists all the time, so now film is doing that thanks to Marvel Studios.
+- Faith is in the eye of the beholder.
+- I don't really look like people in films; I look like people in paintings.
+- I was a professional gambler. When I lived in London, there were a couple of years when I didn't really earn money doing anything else. I mean, I did other things: like, I made work, and I was working with Derek Jarman at the time, but the way I made money was putting money on horses.
+- My whole relationship with Bowie started when I was 13, and I bought a copy of 'Aladdin Sane' when I didn't have a record player. I had this record for a year before I could play it, and it was the image - not the sound - that I was attracted to. I just saw this image and thought he was my cousin.
+- I knew Spike Jonze would do something really interesting with it.
+- I'm amazed now whenever I go back to London. I'm like, 'Wow. I used to kind of swing up these streets when I knew how this machine worked.' And then when you don't, you lose that. You need to get your license back. I do know how to plant a garden and keep chickens, but I don't know how to do much else.
+- I don't love the theatre. I'm just not one of them.
+- I was talking recently with a friend of mine who's determined to never meet her heroes, and I have another friend who's been horribly disillusioned a couple of times. But I've had a wonderful ride with meeting people who have been my North Stars, and Bowie's definitely one of them. He feels like my cousin; like the cousin I never had.
+- For a lot of actors, there's a sort of code of honor around playing something other than yourself, which I just don't have. I love feeling like I'm - I won't even say acting out, but performing in some deep seam of my consciousness or my family's consciousness or my past. That's really amusing to me.
+- I'm a Marvel fan, and I think this particular world that 'Doctor Strange' goes into is really, really, really exciting. I'm really interested as both an actor and a fan to see what's done in this particular world. It's all about creativity. It's not about everything exploding at the end. It's about something very different.
+- What he's done is recognise the cinematic nature of the book. It's beautifully realised - it's a beat film.
+- I've been on the other side of the table many times, trying to get people to be sympathetic to projects, and I've been the victim of that kind of intense kindness masking extreme stupidity.
+- The thing that keeps me being a performer is my interest in society's obsession with identity, because I'm not sure that I really believe identity exists.
+- It may be unfair of me but I do feel I know it.
+- Usually, with me, the project is always the second thing. The film-maker comes first. Films grow out of the relationship.

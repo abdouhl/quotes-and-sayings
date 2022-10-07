@@ -1,0 +1,23 @@
++++
+author = "Mark Thomas"
+title = "Mark Thomas Quotes"
+quotes_len = "17"
+description = "the best 17 Mark Thomas Quotes"
++++
+- We tend to think of politicians as time-servers and slackers. But on those committees they usually have an interest in the subject. And they're quite clever. I've seen them pick people apart.
+- Free speech is the cornerstone to every right we have.
+- The law is immoral.
+- We're quite lucky that we've got political freedoms. We should be using them.
+- People are even more wary of politicians and they are realizing that democracy isn't just about putting a cross on a ballot every four years, it's about deciding what you want and fighting for it.
+- One can only guess the amount of magic mushrooms a sane person would have to consume to believe that a frisbee constituted a genuine threat to roughly 3,000 police officers.
+- The only deadline is the one I give myself.
+- The whole world is out of step, apart from me.
+- Maybe... there is a perfectly reasonable explanation for unlawfully detaining 120 people. Maybe they just got carried away with last year's idea of pre-emptive strikes and thought, 'Let's not wait for an actual crime to occur. Let's get the innocent.
+- I just want to get through each day without the need to shut my eyes for 10 minutes.
+- I have a small Thai boy who dresses me and every year I let him pick what campaign I am going to work on. It saves me having to worry about it and, bless him, it makes him feel involved in the struggle for global liberation.
+- People ask whether I put the politics first, journalism first or the comedy first; it doesn't really matter. I'm just playing with the cards that I have been dealt because I really love doing what I do.
+- I get called all kinds of things - an investigative comedian, a comedian activist - I've lost track of what my job title is.
+- Were British protesters, armed with little more than a frisbee and a bag of plastic toy soldiers, really in danger of being shot by the US military in Gloucestershire?
+- I do love the idea of being able to take an MP to court for lying. There are ways and means of taking an MP to court just now, but it is very difficult.
+- People innately have lots of solutions. It sounds like an obvious thing, but everyone thinks that they can be prime minister; everyone thinks that they can do a better job.
+- People either leave or they stay.

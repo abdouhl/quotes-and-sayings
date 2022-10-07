@@ -1,0 +1,23 @@
++++
+author = "John Jay Chapman"
+title = "John Jay Chapman Quotes"
+quotes_len = "17"
+description = "the best 17 John Jay Chapman Quotes"
++++
+- Benevolence alone will not make a teacher, nor will learning alone do it. The gift of teaching is a peculiar talent, and implies a need and a craving in the teacher himself.
+- It is three and a half hours long, four characters wide and a cesspool deep.
+- Wherever you see a man who gives someone else's corruption, someone else's prejudice as a reason for not taking action himself, you see a cog in The Machine that governs us.
+- Politics is organized hatred, that is unity.
+- Good government is the outcome of private virtue.
+- All progress is experimental.
+- Everybody in America is soft, and hates conflict. The cure for this, both in politics and social life, is the same - hardihood. Give them raw truth.
+- The reason for the slow progress of the world seems to lie in a single fact. Every man is born under the yoke, and grows up beneath the oppressions of his age.
+- Our goodness comes solely from thinking on goodness; our wickedness from thinking on wickedness. We too are the victims of our own contemplation.
+- A vision of truth which does not call upon us to get out of our armchair - why, this is the desideratum of mankind.
+- People get so in the habit of worry that if you save them from drowning and put them on a bank to dry in the sun with hot chocolate and muffins they wonder whether they are catching cold.
+- People who love soft methods and hate iniquity forget this; that reform consists in taking a bone from a dog. Philosophy will not do it.
+- The world of politics is always twenty years behind the world of thought.
+- Too much agreement kills the chat.
+- The present in New York is so powerful that the past is lost.
+- I want to find someone on the earth so intelligent that he welcomes opinions which he condemns.
+- A magazine or a newspaper is a shop. Each is an experiment and represents a new focus, a new ratio between commerce and intellect.

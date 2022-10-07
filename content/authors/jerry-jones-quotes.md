@@ -1,0 +1,52 @@
++++
+author = "Jerry Jones"
+title = "Jerry Jones Quotes"
+quotes_len = "46"
+description = "the best 46 Jerry Jones Quotes"
++++
+- If he can basically prepare, be the starting quarterback, come in and execute and keep his head right, then I feel good about Weeden.
+- You wouldn't want to see the size of the check that I would write if it would for sure get the Dallas Cowboys a Super Bowl.
+- But if you look at teams that want to share more revenues, they're teams that don't have a lot on the table. They've long since not had any serious investment in their team.
+- I never had naming rights at Texas Stadium.
+- It's free of hip dialing. You can have some pretty confidential conversations and not get overheard by the camera man by talking into this flip phone.
+- I enjoy being with my family and hunting with my children.
+- The only way to break out is to gamble - take a chance with that first pick if you wanna dramatically improve your team.
+- Sports gives us the grandest opportunity of all to talk about reaching down and helping up or getting on somebody else's shoulders.
+- I lost my tolerance for a lot of things I probably should have tolerated.
+- For me, I think that, certainly, the fact that Las Vegas has a gambling aspect to it is far overshadowed by the entertainment value, if you will, family appeal, that you have, the convention appeal. So it does not have disfavor with me, in my opinion, relative to being an NFL city.
+- When it's the caliber of fight that Canelo Alvarez and Liam Smith is, that's a big deal, and what I've tried to do since we built this stadium is have the great sport events.
+- Romo was a miracle.
+- When I look back on my life, I overpaid for my big successes every time. And when I tried to get a bargain, get it a little cheaper or get a better deal on it, I ended up usually either getting it and not happy I got it. Or missing it.
+- You come to our stadium and look at the aura of 100,000 people. You look up there and see an Army tank coming at you. You see it on a TV screen, it's one thing. You see it at a movie theater, that's something else. When that thing's coming at you 70 feet high and 180 feet long, now that looks like a tank.
+- We in the NFL unquestionably are in sports and competition, but we're also in entertainment, and that's the entertainment capital of the world. It just bowls you over when you see the opportunity in L.A.
+- I know when I make a decision, I'm increasing my own personal work day.
+- Only 7 percent of NFL fans have ever been inside an NFL stadium.
+- I personally think that the visibility that the Cowboys have, the kind of interest we have, is best served and best used by showing people that are contrite, know the mistakes they've made, and want to try to go in a different direction.
+- Nobody is thinking they're going to come out here and put a team here and become a multimillionaire. I don't know anybody that comes into the NFL like that.
+- I can tell you, I grew up with great coaching, and it had nothing to do with sports. I had great parents. I really got some great input from there. They were entrepreneurial, middle-class business people.
+- If we had picked Manziel, he'd guarantee our relevance for 10 years.
+- You look at anything I've been a part of, it's when the laboring, the fatigue, when some of those things happen, that's what shows what you're going to be.
+- Any pick you make, or any player you sign, something can go wrong.
+- Have we gotten too full of ourselves? Possibly.
+- Tebow would never hit the field.
+- We feel good about our running backs as we have them right now, and we will continue to see how they progress.
+- One thing that we've invested a lot of in, that we all live by, is the power of the commissioner.
+- We are in a situation where we can have a developing backup quarterback because of the excellence of Tony Romo. We can have that behind him. To me, that's what you're ideally striving for.
+- I think my greatest moments in life are family moments, births and marriages.
+- Television has always been our No. 1 competition. But I know firsthand that you can create an experience you can't get on television. I also know that the social experience has an appeal.
+- I am a monkey fan.
+- Stats are for losers. They relish in them.
+- This quarterback Weeden can drive the ball down field. He's a thing of beauty on throwing a football. His passing motion and his arm, frankly, you won't see a more gifted passer, power, accuracy, the entire aspect of it.
+- I tried to get us what I thought was the equivalent of a Romo with Quincy Carter in the third round.
+- I promise you that during my life, I was more concerned about not letting people down, about doing my part, than I was ever into what it did for me.
+- We, as a league, we have not in any way changed our desire to do everything we can to make it safe, make it safe as to head injury. We hope and will support any data that would give us more insight into any short- and long-term consequences. We would support that.
+- I drive a Lincoln Town Car.
+- The stat is the score. And when you don't win that score, nothing good happens.
+- Risk takes on a lot of different forms, be it financial, the draft slot, something physical.
+- I probably should have had a little more tolerance with Jimmy Johnson. Seriously.
+- I paid more for the Dallas Cowboys than anyone prior than that had ever paid to get involved in sports. But I wanted to be a part of the future of the Dallas Cowboys.
+- It wouldn't be the worst thing in the world if we didn't have a salary cap.
+- Personally, it was hard to see Emmitt in red.
+- I've tried to get cute - and I don't mind saying tried to be cute - at the quarterback spot.
+- The question of many college quarterbacks is can they operate in the pro game, in the pro system. Can they not only function under the early, especially with our game, but can they do it efficiently?
+- I've never wanted anything as much as I want to win the next Super Bowl.

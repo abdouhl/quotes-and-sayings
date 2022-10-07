@@ -1,0 +1,106 @@
++++
+author = "Akira Toriyama"
+title = "Akira Toriyama Quotes"
+quotes_len = "100"
+description = "the best 100 Akira Toriyama Quotes"
++++
+- Rather than deliberately trying to draw something, use something you yourself like and want to draw, and I think the characters that come out of that will really have their own individuality.
+- I've always liked to draw.
+- I'm personally not terribly interested in designing wholesome characters, so I don't have many variations to offer.
+- If you want to depict something exactly the way it is, it takes a tremendous amount of time. If you don't get the details right, the inaccuracies will accumulate somewhere.
+- Inside me, 'Dragon Ball' became a thing of the past, but later, I got upset at the live-action film, revised the script for the anime film, and complained about the quality of the TV anime. I guess, at some point, it became a work that I like so much that I can't leave it alone.
+- Most Saiyans are born with a talent for battle, but they still need to be taught the trick behind flying and stuff like that.
+- I'm always going to the toy store; I even have a room full of plastic models.
+- There's how, basically, Son Goku from 'Dragon Ball' doesn't fight for the sake of others but because he wants to fight against strong guys. So once 'Dragon Ball' got animated, at any rate, I've always been dissatisfied with the 'righteous hero'-type portrayal they gave him.
+- When I draw, I always recall my mindset when I was a child.
+- I'm a lazy person, but if I'm not absent-mindedly doing something, I can't really relax. I can't just veg out.
+- The method of producing comics in Japan is very hectic, but it's also rewarding because it's possible to do both the story and art all by yourself.
+- I love girls, whether they wear glasses or not!
+- For a long time, I've loved the kind of characters who are boastful yet petty. I was originally a gag manga artist, after all.
+- It's too bad that 'Dragon Ball,' which I drew for a very long time, has ended. Just kidding. I'm incredibly glad. Now I can just leisurely sit around!
+- With enemies, it's easier to just have them be straight-up bad guys so they can just get beaten up.
+- I use Pilot's document ink, but their drawing ink is OK, too. It's just that I don't like the impression that clings to the pen tip.
+- Saiyans don't have much of a concept of 'family.'
+- When I look at it, I don't really like people, and socializing is really awful. Outside of my family, friends, and those connected to my job, I don't think I actively want to meet anyone. I've always lived in the country, after all.
+- In the beginning, I was planning to end 'Dragon Ball' when all seven Dragon Balls had been collected.
+- Since I'm a contrarian, I don't want to go along with what everyone else thinks.
+- Designing characters for 'Dragon Quest' is fun but difficult work.
+- I usually live an extremely normal life, since I live in the countryside. Even when people call me 'famous' and such, I can't really fathom it, even now.
+- Basically, I'm always coming up with ideas for mixing the things I want to draw with things targeted at children.
+- I use a G-Pen from Zebra. Different people have different preferred pen nibs. I don't put much force on it when I draw, so I'll generally use a single nib for about three chapters.
+- I'm always impressed with the work of animators. You have to be able to draw the scenes in between movements. I'm impressed with the way they can do that - I don't think I could.
+- After graduating from high school, I worked at an advertising agency as a designer. After I left, I spent a year doing nothing in particular. At age 23, I drew my first comic.
+- Lumped in as a hobby, I don't really like drawing pictures all that much, but thinking of it as work, it's the greatest.
+- I have absolutely no preferences when it comes to food.
+- I say that I've never been late with a manuscript, but I don't mean to be arrogant; it's that I simply want to get it done as soon as possible so I can be set free.
+- A teleporter would be nice. There are lots of places I want to go, but getting there is a pain.
+- In spite of being so absorbed in comics when I was in primary school, for whatever reason, I stopped reading them that much once I started junior high. I think it's probably because I got caught up in movies and TV.
+- Do you remember 'Super Saiyan 3?' I forgot about it, and I thought that was 'Super Saiyan 2,' even though I created those characters.
+- I believe that comics are entirely for entertainment.
+- With manga, in my art style, I don't do much in the way of techniques to create depth. But even though I don't do depth techniques through my art, I am conscious of depth itself.
+- I don't remember the very first animation I saw, but the one that stays deepest in my memory is definitely 'Astro Boy.'
+- 'Dragon Ball''s villains were easy to draw: Piccolo, Freeza, Majin Boo.
+- Maybe I'm just like a child. I'm full of curiosity about things, and it's fine as long as it's fun at that time, yet at the same time, I hate things that are tough.
+- I guess that if I was a normal cartoonist who did things properly, I'd think up the background information first and then come up with the story. Saying that, you'd think that I don't really think through anything.
+- I like Piccolo about the same as I like Goku.
+- I wanted to change up the tempo and setting of my comics in the sense of giving them some variety, for one thing. So where, for 'Slump,' the art was very America-esque, in the case of 'Dragon Ball,' I made it as Chinese as could be.
+- I felt that working at an office from the early morning was impossible for me. Anyway, I wanted to be free from that lifestyle as soon as possible. I wanted to take it easy.
+- Back when I watched 'Future Boy Conan,' I thought I might like to try my hand at animation, but now, not at all.
+- The nice thing about gag manga is how it has this aspect where, at the very least, you're permitted to come out with anything. In my case, anything can talk. Like the mountains.
+- If you make friends with dogs, they can be really cute!
+- It's a secret, but when I decided to apply to 'Shonen Magazine,' it was already past the deadline, so I had no choice but to go with 'Shonen Jump.' My motivation for becoming a cartoonist was... to put it bluntly, the ¥100,000 prize money.
+- With things like 'Dragon Ball,' in the case of fight scenes, I'd take the panel layout across two pages when the book is opened and alter it by angling them, and making them bigger or smaller, to give movement to the panels themselves.
+- I liked how 'Star Wars' felt both old and new. I even built a model of R2-D2, taking about two months mixing two kits to make one that looked just like the real thing. I'm the kind of person who gets really into it when I do something like that.
+- I would often draw in my sleep. That alone made for twice the work... I couldn't use the weird stuff I drew while dozing off, so I'd end up having to draw it all over again.
+- So many, many people have helped me out with 'Dragon Ball' through the years. Obviously, there are the fans from all over the world who've cheered me on.
+- I generally leave the television on while I'm working.
+- There was a manga boom, so I read 'Astro Boy,' 'Osomatsu-kun,' and such. But what influenced me the most were things like 'Popeye' and Disney animation.
+- I'm entirely of the mindset that when it comes to books, they've got to be paper.
+- Awww, I was so shy about watching my own work broadcast on TV.
+- Weekly, monthly, or whatever, I'm just not good with being told I have to finish up according to a set schedule.
+- When I'm out and about, it's rare for me to be recognized. But for some reason, every now and then, someone will know who I am. It might be because my picture occasionally appeared in 'Weekly Jump.'
+- I'm an economic human without any likes or dislikes!
+- In manga, nothing actually moves, and you just have to draw the poses in each panel, but in anime, you have to draw the movements between those poses.
+- I was one of the more talented ones at the design firm I joined, so I conducted my work pretty shrewdly. Except I wasn't a morning person, so I was quite frequently late for work. On top of that, it was a fairly big company, they were fussy about the dress code, and I got chewed out quite often.
+- For characters where, in a comic, I'd avoid using screen tone because it's such a bother, I'd deliberately use it in animation in order to highlight their individual characteristics.
+- I'd want to be born once more as myself, but more talented.
+- At one point, I had close to 100 birds.
+- Since I liked to draw, I entered a design-oriented high school.
+- If I had moved to Tokyo, I might even have become a completely different person... although, ever since the start, I've never wanted to move to Tokyo. I just can't handle there being so many people.
+- I've been really frugal with money since way back, so I can't buy something if it's too expensive. I'm not that brave.
+- I was a mischievous child. I was also on the tall side.
+- It's been a habit of mine since childhood to always be looking around. When I go shopping, I have more fun observing the town than shopping.
+- I really like the story of Bardock, Goku's father. It's quite dramatic and the kind of story I absolutely wouldn't draw if it were me. It was like watching a different kind of 'Dragon Ball' in a good way, so I thought it was nice.
+- I prefer things nice and simple.
+- It's a pain to draw different-looking humans.
+- It was very easy to convince me to take on the job of character designer for 'Dragon Quest.'
+- I used to play role-playing games a lot when I was younger, but once you start an RPG, it takes a lot of time. So I like things like action games you can just pick up and play.
+- If you're doing gags, I think it's important to have characters who are as strong-willed and impactful as possible.
+- A number of years ago, when I had an exhibition of my work, the people in charge who came to pick up my manuscripts saw them piled up haphazardly in the garage and were shocked. 'What? They'll grow mold like this!' they said. People who do things properly apparently make a dedicated manuscript room, where they can control humidity.
+- Ever since I was little, I've shied away from romance. It's not that I dislike women, but I'm not good with them.
+- I am not at all particular about things like hair styles and colors. Especially with women, changing their hairstyle or color is a bit too commonplace, don't you think?
+- I guess I like Piccolo the most after all. Out of all the enemies, Piccolo Daimao is the one I like most, and even after that, I like Piccolo the most.
+- I'm not good at doing the same thing over and over again.
+- When I draw something, the incredibly annoying thing is that it doesn't come out like I pictured.
+- Come to think of it, even though I've received tons of fan letters and presents from everyone, I've never written anyone back. How rude of me!
+- There have been times when I didn't quite make my deadline.
+- I have memories of reading comics when I was in primary school, but that's about it.
+- I'm flying by the seat of my pants, never creating with a thought to what's up ahead!
+- I don't like music that much... I put on the TV. But I often play things like fast-tempo disco or Queen. I've liked those since way back when.
+- I'm not the kind of person who enjoys big crowds very much.
+- I'm just a manga artist, so I can't stand being scrutinized.
+- I probably have the most fun thinking up original vehicles. I usually consider details such as how to get into them and where their engines are. When you draw a real-world car, you have to obtain some references. I'd hate to have someone point out that I'm wrong. But if it's something I invented, I can have it my way.
+- In the second half of primary school, I liked live-action shows and giant-monster movies, and then in junior high, I got into regular movies.
+- I'm not very good at depicting the characters' psychology on the page.
+- Back before I entered primary school, I liked to draw, even though I was a brat. I especially liked animals and vehicles, and I drew that sort of thing constantly.
+- Both my assistant and my wife tell me that during battle scenes, when a character is making a 'guwaa' sort of face, my face also ends up going 'guwaa.' So afterwards, my whole face is tired. I guess it's because I'm the kind of guy who gets caught up in his own work.
+- What I regret most after becoming a cartoonist is having used my real name. At first, I figured there was no way I'd sell anyhow, so I didn't even consider using a pen name.
+- Basically with everything, I choose my criteria based on what can be easy. If I made the real world the setting, I'd have to draw looking at reference materials for stuff like buildings and vehicles. When you do that, people complain even if it's just a little bit off.
+- I think comics are faster to draw with a pen and then fill and tone by computer. But my illustrations are all done via computer. I even draw the lines on a tablet.
+- When I got into the second half of 'Dragon Ball,' I had already become more interested in thinking up the story then in drawing the pictures. Then I started to not place much emphasis on the pictures.
+- A good aspect of me is that I'm not too particular about things. A bad aspect is that I'm indecisive.
+- The setting of 'Dragon Ball' has a sort of Chinese feel to it, but it's not necessarily limited to China. For the time period as well, exactly when it takes place is indeterminate.
+- The women I draw all have the same sort of personality. I can't draw gentle girls; I only know how to draw ones who are strong-willed.
+- I think it's best to know about lots of different things besides comics. I don't think you can become a cartoonist if you look at nothing but cartoons.
+- I'm good at - or, rather, I like - giving names to characters.
+- I like efficient people. I'm pretty impatient, so I can't stand people who putter around.

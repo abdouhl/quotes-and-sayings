@@ -1,0 +1,26 @@
++++
+author = "Julia Ward Howe"
+title = "Julia Ward Howe Quotes"
+quotes_len = "20"
+description = "the best 20 Julia Ward Howe Quotes"
++++
+- I take refuge in my books.
+- I know not why there is such a melancholy feeling attached to the remembrance of past happiness, except that we fear that the future can have nothing so bright as the past.
+- The blind must not only be fed and housed and cared for; they must learn to make thir lives useful to the community.
+- God forgive me if I do wrong in following with ardor the strongest instincts of my nature.
+- Massachusetts women as a rule adhere too strongly to old-time conventions.
+- I was born 'neath a clouded star.
+- I shall stick to my resolution of writing always what I think no matter whom it offends.
+- Beneath all differences of doctrine or discipline there exists a fundamental agreement as to the simple, absolute essentials in religion.
+- When the unwelcome little unborn shall have seen the light my brain will be lightened, and I shall have a clearer mind. Thank God that even this weary nine months shall come to an end and leave me in possession of my own body and my own soul.
+- While your life is the true expression of your faith, whom can you fear?
+- Theology in general seems to me a substitution of human ingenuity for divine wisdom.
+- Boston is an oasis in the desert, a place where the larger proportion of people are loving, rational and happy.
+- Disarm, disarm. The sword of murder is not the balance of justice. Blood does not wipe out dishonor, nor violence indicate possession.
+- I am confirmed in my division of human energies. Ambitious people climb, but faithful people build.
+- I never could be good when I was not happy.
+- The frozen ocean... of Boston life.
+- I sometimes think God allows Great Britain to be unprincipled for the good of mankind.
+- How utterly are one's best thoughts invaded by this going out in society.
+- The strokes of the pen need deliberation as much as the sword needs swiftness.
+- Marriage, like death, is a debt we owe to nature.

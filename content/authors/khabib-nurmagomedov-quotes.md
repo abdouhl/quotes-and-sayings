@@ -1,0 +1,31 @@
++++
+author = "Khabib Nurmagomedov"
+title = "Khabib Nurmagomedov Quotes"
+quotes_len = "25"
+description = "the best 25 Khabib Nurmagomedov Quotes"
++++
+- My style is not like anyone's. I'm not a typical wrestler.
+- I want to stay humble, but I have to talk because the other guys talk too much, and... I understand the crazy power the UFC PR machine has.
+- When I fought with Michael Johnson, when I took his arm for the kimura, I can break it, but I go very slowly, be careful, because I don't want to give him injury.
+- I care about my legacy.
+- You have to punch hard for knockouts, and to beat me, you have to knock me out.
+- I never fight for the money, but every person is different.
+- These guys talk when I'm injured, but when I'm healthy, where are these guys? Tony or Conor, it doesn't matter. Or maybe they're going to fight it each other? It doesn't matter.
+- I'm from Dagestan, I'm born in Dagestan, and Dagestan is a different level for people living a tough life, people living in the mountains.
+- My best background is, like, smash opponents. I all the time go forward. I all the time try to take down somebody. Make him give up. This is my style, you know. This is what I do all my life.
+- They're all fake belts. To be honest, I think real belt is Tony Ferguson's.
+- I feel I represent my country: not only my country but all former U.S.S.R. countries because I have very big fan base here, and I have more than a billion Muslim fans. I feel I represent these guys all around the world. My fans. This gives me very good energy. When I go to the cage, I think about these people.
+- I know America is very nice and very good people. I'm a professional athlete. I come here. I never have a problem with somebody about my religion, about my name. I am happy. I'm always comfortable because I never do anything wrong. All the time I do something right. I follow all the rules.
+- Give me 30 minutes rest, little drink of water. Give me 30 minutes, and I can fight with anybody.
+- I never have a problem with the weight cut. My number one enemy is injuries because I train so hard.
+- I don't think about, 'Oh, I'm finally getting my respect,' because I don't care about this.
+- Next fight? If the UFC tell me, 'What do you want?' I'm going to say Tony Ferguson.
+- I need eight weeks, train hard, last one week make weight, and go to the war. Because when I go to the war, I have to know I am ready or no.
+- I think about only me.
+- I don't think I'm a bad guy from Dagestan. I think I'm a good guy from Dagestan. But for my opponents, for sure, I'm a bad guy because when I go to the cage every time, I smash my opponents.
+- I train, eat, sleep, and repeat.
+- I don't know about politics so much. I'm a professional athlete.
+- Where is Conor? He wanna fight with a bus. I want to fight with a real gangster. Iaquinta, thank you so much.
+- I came to the UFC to fight with top-level fighters and become the undisputed, undefeated champion. This is my goal.
+- Of course I am tough, but I am smart, too. I'm more smart than tough. People watching my record and say that this guy is tough. This is not about tough; this is about mind. You think when you fight. This is about everything.
+- I don't fight for the money. I fight for my legacy. I fight for history. I fight for my people.

@@ -1,0 +1,139 @@
++++
+author = "Nicholas Kristof"
+title = "Nicholas Kristof Quotes"
+quotes_len = "133"
+description = "the best 133 Nicholas Kristof Quotes"
++++
+- My take is that the optimal approach to food, for health and ethical reasons, may be vegetarianism.
+- The ice bucket challenge went viral in 2014, partly because it was so much fun to watch videos of celebrities or friends dumping ice water on their heads. Videos of people in the challenge have been watched more than 10 billion times on Facebook - more than once per person on the planet.
+- Anybody looking at the history even of the 20th century would not single out Islam as the bloodthirsty religion; it was Christian/Nazi/Communist Europe and Buddhist/Taoist/Hindu/atheist Asia that set records for mass slaughter.
+- Every high school and college graduate in America should, I think, have some familiarity with statistics, economics and a foreign language such as Spanish. Religion may not be as indispensable, but the humanities should be a part of our repertory. They may not enrich our wallets, but they do enrich our lives. They civilize us. They provide context.
+- You will be judged in years to come by how you responded to genocide on your watch.
+- There seems to be this sense among even well-meaning Americans that Africa is this black hole of murder and mutilation that can never be fixed, no matter what aid is brought in.
+- She may hide it, but Clinton is a policy nerd. Ask about microfinance, and she'll talk your ear off. Mention early childhood interventions, and she will gush about obscure details of a home visitation experiment in Elmira, N.Y., that dramatically improved child outcomes.
+- When I was born in 1959, the hospital in which I arrived had separate floors for black babies and white babies, and it was then illegal for blacks and whites to marry in many states.
+- At some point, extra incomes don't go to sate desires but to attempt to buy status through 'positional goods' - like the hottest car on the block. The problem is that there can only be one hottest car on the block.
+- Literature seems to offer lessons in human nature that help us decode the world around us and be better friends.
+- Worrying about bills, food, or other problems leaves less capacity to think ahead or to exert self-discipline. So, poverty imposes a mental tax.
+- Humans pull together in an odd way when they're in the wilderness. It's astonishing how few people litter and how much they help one another. Indeed, the smartphone app to navigate the Pacific Crest Trail, Halfmile, is a labor of love by hikers who make it available as a free download.
+- One of the things that evangelicals do really, really well is to make giving a joyous, social enterprise. Too often, the world sees giving as a burden, a sacrifice, when in fact it's more like an opportunity to help others and oneself at the same time.
+- The photos were taken by African Union soldiers. People in Congress saw them. I thought if people could see them, there would be public outcry. No one would be able to say, We just didn't know what was going on there.
+- It's maddening in my travels to watch children dying simply because they were born in the wrong place at the wrong time.
+- I took a gap year myself after high school and worked on a farm near Lyon, France. I stayed with the Vallet family, picked and packed fruit, and discovered that red wine can be a breakfast drink. That led to further travel as a university student.
+- Traditionally, what we in the news business do is cover what happened yesterday.
+- In Angola, I visited 'HeroRats' that have been trained to sniff out land mines (and, in some countries, diagnose tuberculosis). In a day, they can clear 20 times as much of a minefield as a human, and they work for bananas!
+- A few countries like Sri Lanka and Honduras have led the way in slashing maternal mortality.
+- It is so much easier to try to help a six-month-old child or a six-year-old child than it is a 16-year-old troubled kid.
+- Conservatives are, I think, correct to highlight family stability as a fundamental issue that goes to the welfare of children as much as food stamps or anything else.
+- I have a one-question language test that people who have lived abroad do better on than those who studied in a classroom. Try my test yourself: In a foreign language you've studied, how do you say 'doorknob'?
+- In America, we have subsidized private jets, big banks and hedge fund managers. Wouldn't it make more sense to subsidize kids?
+- Inequality causes problems by creating fissures in societies, leaving those at the bottom feeling marginalized or disenfranchised.
+- The fact that people will pay you to talk to people and travel to interesting places and write about what intrigues you, I am just amazed by that.
+- One of the things you learn as a journalist is that when there's no accountability, we humans are capable of tremendous avarice and venality. That's true of union bosses - and of corporate tycoons. Unions, even flawed ones, can provide checks and balances for flawed corporations.
+- All of a sudden their husband's dead and maybe a child is dead and they have absolutely nothing - and they're heading through the desert at night.
+- Sure, food stamps are occasionally misused, but anyone familiar with business knows that the abuse of food subsidies is far greater in the corporate suite. Every time an executive wines and dines a hot date on the corporate dime, the average taxpayer helps foot the bill.
+- Our public figures are often narcissists, utterly self-absorbed in their quest for power.
+- I can't help thinking that if the American West were discovered today, the most glorious bits would be sold off to the highest bidder. Yosemite might be nothing but weekend homes for Internet tycoons.
+- Girls' education is no silver bullet. Iran and Saudi Arabia have both educated girls but refused to empower them, so both remain mired in the past. But when a country educates and unleashes women, those educated women often become force multipliers for good.
+- During the Arab Spring, I learned all sorts of things from Twitter. I wouldn't necessarily trust that information, but it gave me ideas about questions to ask. You can really learn things from the wisdom of crowds.
+- If President Bush is serious about genocide, an immediate priority is to stop the cancer of Darfur from spreading further, which means working with France to shore up Chad and the Central African Republic.
+- Half a million women die each year around the world in pregnancy. It's not biology that kills them so much as neglect.
+- The bulk of the emails tend to come after a column. I can get about 2,000 after a column.
+- We journalists are a bit like vultures, feasting on war, scandal and disaster. Turn on the news, and you see Syrian refugees, Volkswagen corruption, dysfunctional government. Yet that reflects a selection bias in how we report the news: We cover planes that crash, not planes that take off.
+- Every year 3.1 million Indian children die before the age of 5, mostly from diseases of poverty like diarrhea.
+- The world spends $40 billion a year on pet food.
+- The greatest problem is not with flat-out white racists, but rather with the far larger number of Americans who believe intellectually in racial equality but are quietly oblivious to injustice around them.
+- Conservatives highlight the primacy of family and argue that family breakdown exacerbates poverty, and they're right. Children raised by single parents are three times as likely to live in poverty as kids in two-parent homes.
+- Saudi Arabia isn't the enemy, but it is a problem. It could make so much positive difference in the Islamic world if it used its status to soothe Sunni-Shiite tensions and encourage tolerance. For a time, under King Abdullah, it seemed that the country was trying to reform, but now under King Salman, it has stalled.
+- Wilderness trails constitute a rare space in America marked by economic diversity. Lawyers and construction workers get bitten by the same mosquitoes and sip from the same streams; there are none of the usual signals about socioeconomic status, for most hikers are in shorts and a T-shirt and enveloped by an aroma that would make a skunk queasy.
+- There's something to be said for CEOs' entering politics: In theory, they have management expertise and financial savvy. Then again, it didn't work so well with Dick Cheney.
+- Things that happen every day are, frankly, what we in the news business aren't good at covering because there is no one day in which they are news.
+- My father, a refugee from Eastern Europe, was preparing a fraudulent marriage to an American citizen as a route to this country when he was sponsored, making fraud unnecessary. My wife's grandfather bought papers from another Chinese villager to be able to come to the United States.
+- Too often, wealthy people born on third base blithely criticize the poor for failing to hit home runs. The advantaged sometimes perceive empathy as a sign of muddle-headed weakness rather than as a marker of civilization.
+- There are very few things I've done just twice in my life, 40 years apart, and one is to backpack on the Pacific Crest Trail across the California/Oregon border.
+- A little bit of attention can go a long way.
+- Zimbabwe has far fewer tourists than South Africa or Kenya, and there's less crime as well.
+- I'm sometimes embarrassed by how clinical I can become when I'm out reporting.
+- Neither Western donor countries like the U.S. nor poor recipients like Cameroon care much about Africans who are poor, rural and female.
+- Doesn't it seem odd that your cellphone can be set up to require a PIN or a fingerprint, but there's no such option for a gun?
+- One of our worst traits in journalism is that when we have a narrative in our minds, we often plug in anecdotes that confirm it. Thus we managed to portray President Gerald Ford, a first-rate athlete, as a klutz.
+- Most of the time in America, we're surrounded by oppressive inequality such that the wealthiest 1 percent collectively own substantially more than the bottom 90 percent. One escape from that is America's wild places.
+- It really is quite remarkable that Darfur has become a household name. I am gratified that's the case.
+- Too often, I believe, liberals deny that poverty is linked to bad choices.
+- Seniors vote, and that is why we have, you know, Medicare since the 1960s for seniors, and we didn't have a national healthcare program for children, even though it's a lot more cost-effective to deal with children than with seniors.
+- Above all, we want Millennials to realize that they can have an impact on the world and that, in the course of empowering others, they can also empower themselves.
+- The Golden Temple, Sikhism's holiest shrine, is in northwestern India near the Pakistani border, and it is a delightful place to contemplate the draw of faith.
+- Technology companies must constantly weigh ethical decisions: Where should Facebook set its privacy defaults, and should it tolerate glimpses of nudity? Should Twitter close accounts that seem sympathetic to terrorists? How should Google handle sex and violence, or defamatory articles?
+- Why are fanatics so terrified of girls' education? Because there's no force more powerful to transform a society. The greatest threat to extremism isn't drones firing missiles, but girls reading books.
+- Purely altruistic behavior is pretty much impossible because of the selfish pleasures we derive from it.
+- The best escalator to opportunity in America is education.
+- I suspect unconscious bias has been far more of a factor for President Obama than overt racism and will also be a challenge for Hillary Rodham Clinton if she runs for president again.
+- Neither left nor right has focused adequately on maternal health.
+- Most of the time in the 21st century, we dominate our surroundings: We tweak the thermostat, and the temperature falls one degree. We push a button, and Taylor Swift sings for us. It's the opposite in the wilderness, which teaches us constantly that we are not lords of the universe but rather building blocks of it.
+- Most moms and dads, they want to be good moms and dads. But it's an incredibly hard job when you are stressed out, when you are poor, when your life is in chaos. And giving them some of the tools to be better parents, to whittle away at that parenting gap, gives those kids a much better starting point in life.
+- Random violence is incredibly infectious.
+- When I was growing up, yearning with my pals to be a track star, one of our heroes was Bruce Jenner. He won a gold medal at the 1976 Olympics in the decathlon, and he adorned our Wheaties boxes. We all wanted to be Bruce Jenner.
+- Since the end of the 1970s, something has gone profoundly wrong in America. Inequality has soared. Educational progress slowed. Incarceration rates quintupled. Family breakdown accelerated. Median household income stagnated.
+- Utah may well be the most cosmopolitan state in America. Vast numbers of young Mormons - increasingly women as well as men - spend a couple of years abroad as missionaries and return jabbering in Thai or Portuguese and bearing a wealth of international experience.
+- I think we need to rethink a lot of business skills. In finance, for example, social impact bonds are potentially a way of providing capital for investments that save the public money in a context in which government often doesn't invest in things that would save it money.
+- The U.N. Population Fund has a maternal health program in some Cameroon hospitals, but it doesn't operate in this region. It's difficult to expand, because President Bush has cut funding.
+- I do think that humanitarians and journalists alike have focused on all the things that go wrong, and that they sometimes leave the perception in the public that the war on poverty has been lost. That Africa is just a bottomless pit of despair. When, in fact, really the opposite is true on both fronts.
+- Individual storytelling is incredibly powerful. We as journalists know intuitively what scientists of the brain are discovering through brain scans, which is that emotional stories tend to open the portals, and that once there's a connection made, people are more open to rational arguments.
+- We all might ask ourselves why we tune in to these more trivial matters and tune out when it comes to Darfur.
+- A basic element of the American dream is equal access to education as the lubricant of social and economic mobility.
+- Just a little help, a small security force, a bit of food, can save lives.
+- In effect, Saudi Arabia legitimizes fundamentalism, religious discrimination, intolerance and the oppression of women. Saudi women not only can't drive, but are also told by some clerics that they mustn't wear seatbelts for fear of showing the outlines of their bodies.
+- As soon as I was old enough to drive, I got a job at a local newspaper. There was someone who influenced me. He wrote a column for The Guardian from this tiny village in India.
+- You educate a boy, and he'll have fewer children, but it's a small effect. You educate a girl, and, on average, she will have a significantly smaller family.
+- I have often tried to tell the story of a place through people there.
+- The one public system in which America goes out of its way to provide services to African-Americans is prison.
+- I think humanitarian organizations should acknowledge the progress more than they do. I think that one reason people are reluctant to provide more help to Africa, for example, is this sense that it's just hopeless, in a way that I think is untrue.
+- Dr. Ben Carson has the most moving personal narrative in modern presidential politics. His mother, one of 24 children, had only a third-grade education. She was married at age 13, bore Ben and his brother, and then raised the boys as an impoverished single mother in Detroit. As a young boy, Carson was a terrible student.
+- Saudi Arabia inflames the Sunni-Shiite divide and sets a pernicious example of intolerance by banning churches.
+- While Americans have heard of Darfur and think we should be doing more there, they aren't actually angry at the president about inaction.
+- I've always been interested in public health approaches because it seems to me we have this yearning for silver bullets, and that is not in fact how change comes about. Change comes through silver buckshot - a lot of little things that achieve results. That's a classic public health approach.
+- The news media's silence, particularly television news, is reprehensible. If we knew as much about Darfur as we do about Michael Jackson, we might be able to stop these things from continuing.
+- There are other issues I have felt more emotionally connected to, like China, where I lived and worked for some time. I was living there when Tiananmen Square erupted.
+- If I wanted a circus ringmaster, I'd hire Trump. If I wanted advice on brain surgery or hospital management, I'd turn to Carson. Fiorina would make an articulate television pundit. But for president?
+- Numeracy isn't a sign of geekiness, but a basic requirement for intelligent discussions of public policy.
+- The conflict in Darfur could escalate to where we're seeing 100,000 victims per month.
+- Our world is enriched when coders and marketers dazzle us with smartphones and tablets, but, by themselves, they are just slabs. It is the music, essays, entertainment and provocations that they access, spawned by the humanities, that animate them - and us.
+- One of the things that really got to me was talking to parents who had been burned out of their villages, had family members killed, and then when men showed up at the wells to get water, they were shot.
+- Young people often aren't in a position to write checks to charities. But there are two things they can do that are invaluable. One is volunteering, especially mentoring other young people with reading, math or help thinking about college. Through iMentor, one can even mentor people online.
+- Gays and lesbians began to gain civil rights when Americans realized that their brothers, cousins, daughters were gay.
+- Beware of generalizations about any faith because they sometimes amount to the religious equivalent of racial profiling. Hinduism contained both Gandhi and the fanatic who assassinated him.
+- I was the first blogger on the Times's website. That happened during the Iraq war, when I wanted an outlet for the things I was seeing every day that couldn't fit into just two columns a week. Then I became interested in using multimedia, specifically as a way to engage young people.
+- If only meat weren't so delicious! Sure, meat may pave the way to a heart attack. Yes, factory farms torture animals. Indeed, producing a single hamburger patty requires more water than two weeks of showers. But for those of us who are weak-willed, there's nothing like a juicy burger.
+- However imperfectly, subsidies for the poor do actually reduce hunger, ease suffering and create opportunity, while subsidies for the rich result in more private jets and yachts. Would we rather subsidize opportunity or yachts? Which kind of subsidies deserve more scrutiny?
+- Remember that disadvantage is less about income than environment. The best metrics of child poverty aren't monetary, but rather how often a child is read to or hugged.
+- The wilderness is healing, a therapy for the soul.
+- Perhaps no country in Latin America is more picturesque than Bolivia, and the most memorable Bolivian city may be Potosi.
+- One of the aims of higher education is to broaden perspectives, and what better way than by a home stay in a really different country, like Bangladesh or Senegal? Time abroad also leaves one more aware of the complex prism of suspicion through which the United States is often viewed.
+- Maybe our best family trip started at Victoria Falls, which drenches you with spray and is so vast that it makes Niagara Falls seem like a backyard creek. Then we rented a car and made our way to Hwange National Park, which was empty of people but crowded with zebras, giraffes, elephants and more.
+- I wouldn't want everybody to be an art or literature major, but the world would be poorer - figuratively, anyway - if we were all coding software or running companies. We also want musicians to awaken our souls, writers to lead us into fictional lands, and philosophers to help us exercise our minds and engage the world.
+- You don't need to invade a place or install a new government to help bring about a positive change.
+- The great divide is not between faiths, but one between intolerant zealots of any tradition and the large numbers of decent, peaceful believers likewise found in each tradition.
+- In 2013, 71 percent of black children in America were born to an unwed mother, as were 53 percent of Hispanic children and 36 percent of white children. Indeed, a single parent is the new norm.
+- One death is a tragedy, and a million deaths are a statistic.
+- One of my frustrations is that we in society generally have this bifurcation in how we see the world. That's probably a little less true with business audiences, but in general, there tends to be this view that for-profit companies are greedy, and nonprofits are noble. It's absolutely more complicated than that.
+- You no more have the right to risk others by failing to vaccinate than you do by sending your child to school with a hunting knife. Vaccination isn't a private choice but a civic obligation.
+- The caricature of Islam as a violent and intolerant religion is horrendously incomplete. Remember that those standing up to Muslim fanatics are mostly Muslims.
+- For all Trump's criticisms of government, his family wealth came from feeding at the government trough. His father, Fred Trump, leveraged government housing programs into a construction business; the empire was founded on public money.
+- When the poor know that their children will survive, when they educate their daughters, when they access family planning, they have fewer children.
+- Climate change is hugely exacerbated by changing patterns of how we choose to live, often in danger zones such as extremely vulnerable coastal zones - from New Jersey to the Philippines. This enormously increases the economic and human costs of hurricanes, rising seas and changing weather patterns.
+- One of the biggest complaints readers have about my work is that I don't tell them often enough what they can do. I do think this is an area where journalism sometimes falls short. We describe a really grim situation but don't really explain to people what they can do about it.
+- The north of the Central African Republic is now a war zone, with rival armed bands burning villages, kidnapping children, robbing travelers and killing people with impunity.
+- I think it's dangerous to be optimistic. Things could go terribly wrong virtually overnight.
+- I try to be careful about wording. One of the things I've tried to combat in my blog is the notion that journalists are arrogant and unconcerned with the readership.
+- We all stand on the shoulders of our ancestors. We're in a relay race, relying on the financial and human capital of our parents and grandparents. Blacks were shackled for the early part of that relay race, and although many of the fetters have come off, whites have developed a huge lead.
+- I think we in journalism were really late to social networks. We had a built-in network already in terms of our readers, and we didn't capitalize on that.
+- There isn't a political price to be paid yet for doing nothing. People need to get upset with President Bush. People need to get upset with their Congressmen.
+- Sex and gender are such befuddling mysteries even for those of us who are in the mainstream that you'd think we'd be wary of being judgmental. Yet much of society clings to a view that gender is completely binary, when, in fact, there's overwhelming evidence of a continuum.
+- It's easy to keep issuing blame to Republicans or the president.
+- Ben Affleck exec-produced a documentary for HBO called 'Reporter' about my 2007 win-a-trip journey. I take the trip each year partly to encourage young people to think about global humanitarian issues: I think blogs by a student may be more compelling for that audience than my own work.
+- Abortion politics have distracted all sides from what is really essential: a major aid campaign to improve midwifery, prenatal care and emergency obstetric services in poor countries.
+- Most of the villagers were hiding in the bush, where they were dying from bad water, malaria and malnutrition.
+- What use could the humanities be in a digital age? University students focusing on the humanities may end up, at least in their parents' nightmares, as dog-walkers for those majoring in computer science. But, for me, the humanities are not only relevant but also give us a toolbox to think seriously about ourselves and the world.
+- One of the most crucial kinds of intervention is in advocacy. We can think about charities in the context of delivering services, and indeed that is part of their job, but advocacy is also getting governments to step up to the plate. They can also give more voice to those who don't have one.
+- Saudi Arabia has supported Wahhabi madrasas in poor countries in Africa and Asia, exporting extremism and intolerance. Saudi Arabia also exports instability with its brutal war in Yemen, intended to check what it sees as Iranian influence.
+- I think humanitarians really feel very awkward and embarrassed about marketing, but it really doesn't matter whether a shampoo gets better marketing. It does matter when a famine or a huge crisis is - oh - well, I hate to use the word 'marketed' better but, you know, is publicized in a way that will be more effective.

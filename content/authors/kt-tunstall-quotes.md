@@ -1,0 +1,105 @@
++++
+author = "Kt Tunstall"
+title = "Kt Tunstall Quotes"
+quotes_len = "99"
+description = "the best 99 Kt Tunstall Quotes"
++++
+- On tour with me, it's like fluffy-bunny land. Everyone loves every-one else.
+- What was incredible about the Maldives was that the entire island we were on consisted of sand. There didn't seem to be any dirt. You could walk around for hours barefoot with your white trousers skimming the ground, and they'd still be pristine white.
+- I've always had a tendency to keep an emergency exit in a song. I can't remember ever writing a song that is completely and thoroughly depressing; there's always been a way out somehow. A sense of hope in song, regardless of the subject matter.
+- In Scotland, Dad grew courgettes which were the size of my leg. I'd step into the garden and it was like 'The Day of the Triffids.'
+- I'm not really that comfortable, to be honest, singing about my darkest moments.
+- Politics for me is when I feel a personal engagement between people: I don't trust politicians.
+- Basically, my mum and dad bought me a CD player for my 14th birthday. They didn't really listen to music at all, but my dad had a couple of tapes that he'd listen to, like Tom Lehrer. My dad was a physicist and Tom Lehrer was like this really weird Harvard class professor, who was really cool because he was also a satirist and pianist.
+- Don't let your parents telling you that you shouldn't do something stop you from doing it.
+- Let's face it - the electric guitar is way sexier than the acoustic.
+- You know there's this really strange mystique about Simon and Garfunkel, when they use the amazing mandolin and all the percussive stuff. It sometimes sounds very global.
+- I would never pigeon hole myself stylistically because I just don't know what I am going to want to do next.
+- My experience of being a singer and performer is there is something meditative and very positive about singing, just resonating the inside of your body.
+- Venice Beach is incredibly quiet at night: no streetlights, no traffic, hummingbirds in the garden, palm trees everywhere.
+- I follow the Bulletproof diet - it is based on grass-fed steak, vegetables, no carbs and a lot of butter.
+- I've always been a huge fan of Beck.
+- I've never been one to indulge in out and out depression when it comes to songwriting.
+- Life is about embracing the things that make you different, which is often an uncomfortable thing to do.
+- I believe that the Universe is like a single organism, and we are all little nerve endings feeding our experiences back into a whole.
+- I was adopted. I was born in Edinburgh, and adopted when I was about two weeks old. And it's a good thing, I think, really, that back then, in '75 when I was born, you were really given a lot more information than you're given now when you're adopted. And you know, you can access that information when you're older.
+- I think it was Dad who gave me my nickname 'Katy Custard,' recognising my deep, positive and lasting relationship with it.
+- Despite fashioning myself a very unconventional lifestyle with my music, I had ended up in a really conventional situation. I was also guilty of becoming a people-pleaser, which is absolutely exhausting and not a sustainable way of living. It can be so damaging to fall into that trap, especially in close relationships.
+- I've always felt at home in America. Obviously, there's down sides to everywhere - the politics of America can be hard to take but it's not great here either. I really love the country's landscape and I've travelled it many times.
+- I'm a serial monogamist - I tend to dive in.
+- I get so frustrated with all these so-called singer-songwriters coming out and they don't write!
+- I've never considered myself a locked-down straight person. I've had relationships with girls.
+- I used to take it much more to heart. Now I realise that negativity has almost everything to do with the person delivering it and very little to do with you yourself.
+- I can do the vocal acrobatics but I really try not to. I've always been drawn to singers who sing it like it is, pure, straight down the line: Ella Fitzgerald, Patti Smith, Carole King. Simplicity is really important to me.
+- Sales have never been a source of joy for me in terms of my music. It's really about who's turning up at your shows, what people are saying about it.
+- Getting to know myself changed everything. It's the best thing I've ever done.
+- I've always tried to avoid music being direct therapy, and I've always found there's a power when you write something that can have its own interpretation - although I'm not being intentionally evasive.
+- When I tried to get a record deal, only one label wanted me. The rest said 'oh, we've already got a girl with a guitar.' Can you imagine them ever saying that to a guy?
+- I've never been a confessional writer.
+- I always try to travel as light as possible. I feel really embarrassed having loads of luggage.
+- Albums tend to dictate what they need. Every time I have made an album it sort of feels like it is decided for me how that album is going to sound; it is not really a cerebral decision where you sit down and decide that you are going to make an album that sounds like 'this.'
+- It feels like your subconscious can be way ahead of you, as a songwriter. You can write a song that you think is about one thing and months later you're playing it and thinking, hang on, this is completely informing where I am now.
+- The topography of L.A. is fascinating.
+- I'd love to go to Easter Island, Hawaii, Iceland and Antarctica.
+- I'm a huge fan of The Chemical Brothers and the Ninja Tune label and a lot of the stuff that they put out like DJ Shadow but I think, out of all of them, Leftism really just excited my musical brain in terms of the way that they mixed real instruments with dance tracks.
+- Use Creme de la Mer balm when your skin gets dry on a plane. You can put it on your cheeks to give your face a bit of a glow after you land.
+- It strikes me as very odd for someone to think, 'You know what, if I put on a bikini, I may shift some more records,' but it happens. If people are comfortable with that, fine, but it's not something that would ever cross my mind.
+- You know, we were outdoorsy types, my folks, and one of the first tapes I got, a friend gave me a cassette tape of Ella Fitzgerald singing with the Count Basie orchestra. And it was the first time, really, that someone's voice had really spoken to me, and it was just so pure.
+- KIN' is basically a kind of rite of passage, scars-and-all celebration of going through difficult things in your life and being better for it.
+- My parents' concern has been one of my greatest assets - I needed something to kick against. If they'd supported me every step of the way I might not have had enough fire in my belly to get where I have. Then I think: was this whole thing reverse psychology, did you really go to those lengths?
+- I joined a drama group when I was eight. It was the first time I'd made the connection with an audience.
+- If I can be somewhere with sunshine and have bare feet and a book, I'm happy.
+- I'm shocked at how much I can talk about myself.
+- When you make an album, you have to decide how much you want to give away; you have to decide how much you want to open up. Because the more you open up the more rewarding it can be but the more dangerous it can be. If you really open up and it gets panned it's really painful.
+- I work better under pressure. I was the local badminton champion when I was a kid, and there was another girl who used to thrash me for the five days leading up to the tournament and then I would just nail her to the floor in the competition.
+- I had a job for a year, working in a high-quality whiskey-and-wine shop.
+- I don't let housekeeping in when I stay in hotels. It cuts down on all the caustic cleaning products and aggressive water usage, and I never use the little plastic bottles of toiletries they set out.
+- It's a shame that when you've actually lived some life and have something to write about, they're saying you're too old to come out and play it.
+- I like that I have a boyish figure, because I love wearing men's suits.
+- I would be happy to live in a world with no mirrors, but at the same time, it's great to look good on stage because you feel you're offering more than just the music.
+- I know it sounds weird, but the kind of music I write isn't the kind of music that I listen to, which is quite underground, left-of-centre stuff like PJ Harvey and Tom Waits.
+- I always thought I had a face like the moon, because I had really chubby cheeks when I was a kid, right up until my mid-20s. My face changed in my later 20s and again in my mid-30s.
+- When I went to university I survived on jacket potatoes and pasta for three years.
+- My dad's a physicist and had a key to the St Andrew's observatory, and we used to pop down to see Halley's Comet and Saturn and meteor showers.
+- The only regular exercise I do is playing my shows, which are basically two hours of aerobics.
+- I guess if you make quality music then it has a longevity and it will find its place.
+- I really enjoy tech, but I'm not voracious - I'll find stuff because I want to use it, not because I'm interested in what's out there. It's a sort of necessity relationship.
+- I was very into tribal techno and used to go and really lose myself in great dance music.
+- My father passing really, in many ways, was a gift: It made me look at my own happiness and sense of self and realize that I wasn't happy. I had checked all these boxes and achieved all this stuff that I thought made you happy. And I was miserable.
+- For me, success is being happy. I used to think it was lots of houses, lots of record sales, lots of stories to tell. But some massive life changes, getting a divorce and my dad dying, led to a huge period of reflection.
+- British music lovers in general are dreadfully concerned about being cool, but I'm quite happy to grab uncool by the horns at any opportunity.
+- What I noticed about living by the sea when I moved to London was that it's really bad when you only have lots of other people to compare yourself to. I grew up relating to the land as well as other people.
+- I can play piano, classical flute, guitar, bass and I'm OK on drums.
+- I often talk too much and don't listen enough.
+- Touring can get really hard if you're not hitting some fashionable zeitgeist.
+- I was a child badminton wizard.
+- I'm not image-obsessed.
+- I think there is optimism to what I write.
+- My first memories of life were Californian.
+- I grew up thinking, 'You go to university, you get your degree, you get a job, you get married and then you have a family.' But when I got to the point in my life where I had all those things, and was looking to start a family, I was miserable. I realised I didn't want kids.
+- Well, I was a real late-comer to listen to music, actually, because my parents - first of all, my parents weren't big music fans. They didn't listen to music. We didn't really listen to stuff in the house.
+- There was an obvious display of blatant sexism when I couldn't get signed. They didn't say I was ugly. They didn't say that they didn't like the music. They said I was too old! At 26! So Badly Drawn Boy, Doves, Elbow, James Blunt - you can be a gnarly old beardy bloke with a bit of a paunch and that's all right?
+- When you're in the city, all you see is people. It gets more competitive, people become more introverted.
+- It's very addictive having a hit.
+- The way I feel about how I look changes daily, but as I've got older, I feel more confident.
+- I write songs, I play a guitar and that's it.
+- I've got my roots in Northern Ireland - my biological father's side of the family were from Belfast.
+- My father had Parkinson's, though he actually died following a bicycle accident.
+- It's unacceptable to tour using non-environmentally friendly fuel when there are alternatives.
+- I've always loved the idea of 'Guilty Pleasures.'
+- The only thing I know about being Asian is that my hair is black and my eyelashes are straight and I have strange eyebrows.
+- But I'm pretty lucky with my voice. When I first started touring I went to see a woman to give me some coaching on how not to lose my voice. And she was just saying really your voice is a muscle so if you're using it all the time you should actually come back from tour with a stronger voice than you left with. And that's really how I find it.
+- If your parents only listen to jazz or folk, you're like one of those trees you see in botanic gardens that have wire frames on them - you grow into that shape, you follow it or you have to break away from it. But I didn't have influences to embrace or kick against - I also had no idea what anything was.
+- When my divorce came through, it was like being let out of a cage because I hadn't been true to myself before; I was being something that was expected of me.
+- Skiing fast feels like complete freedom to me.
+- I lived in L.A. for a year when I was four - my dad was doing a sabbatical at UCLA - so it always remained quite a familiar place.
+- Criticism only hurts when there's some truth in it.
+- When I was seventeen, I left Scotland to go to Kent, a well-to-do boarding school in Connecticut, where there was a contingent of really naughty kids.
+- Like a lot of young people growing up in the middle of nowhere, I was desperate to leave my small town behind, but music reconnected me to my roots.
+- Music for me has always been a vent and has always been a great outlet.
+- Most of my friends in London are musicians, but the ones in Scotland have proper jobs.
+- I didn't find fame particularly difficult, partly because I'm proud to be able to say I'm the most unrecognisable face in pop.
+- I have always been a great fan of albums that are cathartic and that you can listen to them together and you can relate to them as a group of people or as friends.
+- Touring is such a major sacrifice, especially as you get older, to be away from friends and family and home and any sort of routine or home comforts.
+- I really liked writing rhyming poems and plays.
+- My maternal grandmother was Cantonese, so I'm a quarter Chinese and half Irish and a quarter Scottish and raised by English parents living in Scotland.

@@ -1,0 +1,27 @@
++++
+author = "Krista Tippett"
+title = "Krista Tippett Quotes"
+quotes_len = "21"
+description = "the best 21 Krista Tippett Quotes"
++++
+- Strong religious identities survive and thrive. But more than ever before, even in their most conservative iterations, they are chosen.
+- Mystery is a birthright of theology and faith, but you often do find religious people grasping for answers that shut things down and narrow what is possible.
+- I don't accept the idea that there are two sides to any issue. I think that the middle ground is to be found within most of us.
+- What a liberating thing to realize that our problems are probably our richest sources for rising to the ultimate virtue of compassion.
+- You are not going to be perfect every day. It's about turning up the next day and doing it again.
+- My depression is not something very special. A lot of people go through depression. My divorce is not something very special; a lot of people go through divorce.
+- Depression can kill you. It can also be a spiritually enriching experience. It's really an important part of my theology now and my spirituality that life is not perfect, and I grew up wanting it to be and thinking that if it wasn't, I could make it that way, and I had to acknowledge that I had all kinds of flaws and sadnesses and problems.
+- Buddhist mindfulness is about the present, but I also think it's about being real. Being awake to everything. Feeling like nothing can hurt you if you can look it straight on.
+- If we can't face our losses, we can't be present either fully to everything that is. When people have cut off or not made peace with some part of themselves, they miss out on other aspects of life.
+- For many people who were never religious or who leave the religion of their childhood behind, it's the experience of having children of your own that brings an urgency to the question of what you believe.
+- Kindness is an everyday byproduct of all the great virtues.
+- I had been a journalist in Europe and then went to divinity school in the early 1990s, and came out as somebody who had the perspective of a journalist and was now also theologically educated.
+- If God is God, we can't be afraid of what we can learn.
+- Intelligence alone does not get us where we need to go or even necessarily where we want to go. For that, the human creature must exercise harder-won capacities of wisdom, and wise action.
+- Being intellectually hospitable is a virtue that I bring into the interview space.
+- Structure is something that calms our nature; we know this of toddlers.
+- One of the things I reject in our cultural divisions is the clash between faith and reason, and I would say the same about mystery and intellect. They are somehow mysteriously akin to each other.
+- Fear usually looks like anger.
+- Tolerance is not really a lived virtue; it's more of a cerebral ascent.
+- I like to say that I'm tracing the intersection between big ideas and human experience, between theology and real life.
+- I make no apologies for the fact that I have a religious life of my own. I'm speaking as a Christian because I'm speaking as myself.

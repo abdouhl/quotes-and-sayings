@@ -1,0 +1,26 @@
++++
+author = "Maryanne Trump Barry"
+title = "Maryanne Trump Barry Quotes"
+quotes_len = "20"
+description = "the best 20 Maryanne Trump Barry Quotes"
++++
+- My personal opinions on any subject are really not relevant, not important, and to the extent that I might inject them, I am acting improperly as either a District Court judge or as an appellate court judge.
+- I stand second to none in condemning sexual harassment of women.
+- There is no more potent weapon in any profession than a woman with a feminine exterior and a will of steel, and I defy you to find one man who will disagree.
+- I do the laundry. I do the shopping. I do the dishes.
+- I was the first one in my family to go to college.
+- Neither of my parents had English as a first language.
+- Success can be as simple as the warm feeling you get when you smile at a stranger, someone you know must be lonely, and having that stranger return your smile. It can be the bringing of a child into the world and raising that child to be a good man or woman.
+- Thugs who brutalize elderly people should be punished severely.
+- My first job out of law school was as one of two women assistant U.S. attorneys in an office of 63 U.S. attorneys and the first woman to do criminal work appearing only before male judges. Scared? Every day of my life.
+- I knew better, even as a child, than to even attempt to compete with Donald.
+- I'm a very private person.
+- Needless to say, I don't want a woman working for me who's waiting for me to shoot myself in the foot.
+- My father's father died when he was a teenager, and dad went to work to support his mother and two siblings as a carpenter and as a builder's mule, hauling carts of lumber to construction sites when it was too icy for the mules to climb the hills.
+- I like a little chivalry; I like to receive flowers. I like taking care of a son and a husband, and in my judgment, those who recoil from these things don't know what they're missing.
+- I refuse to believe that 'Give me your tired, your poor, your huddled masses yearning to breathe free...' is now an empty entreaty. But if it is, shame on us.
+- Every sexy joke of long ago, every flirtation, is being recalled by some women and revised and re-evaluated as sexual harassment. Frivolous accusations reduce, if not eliminate, not only communication between men and women but any kind of playfulness and banter... Where has the laughter gone?
+- My gifts to causes in which I believe have almost always been anonymous.
+- It is a hallmark of the American system of justice that anyone who appears as a litigant in an American courtroom is treated with dignity and respect.
+- I say to the women out there, remember how difficult it was for women like Justice O'Connor starting out. Even though she graduated with top grades, she had to take a job as a legal secretary. Remember how far we have come.
+- In a country built on the dreams and accomplishments of an immigrant population, a particularly severe wound is inflicted on that principle when an immigration matter is not conducted in accord with the best of our tradition of courtesy and fairness.

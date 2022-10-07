@@ -1,0 +1,30 @@
++++
+author = "Jose Padilha"
+title = "Jose Padilha Quotes"
+quotes_len = "24"
+description = "the best 24 Jose Padilha Quotes"
++++
+- Listen, I like great actors. You can be a movie star without being a great actor - this has been proved several times - and I like my casts to have great actors. Acting is more important to me than being a star.
+- The way that I sort of direct the writers is, let's do the best story we can. Let's not worry about production issues. 'How much will that cost? How are we going to shoot that?' Let's not set up those constraints on the writing. I don't think it helps the project to work like that.
+- As it turns out, what looks like science sometimes is not.
+- No wonder we have a lot of violence in Rio: the corrupt and violent policemen meet the violent criminals in the streets. What else is going to happen?
+- In Rio de Janeiro, every cop has to make a choice. He either turns dirty, keeps his mouth shut, or goes to war.
+- We make violent cops, we make violent criminals, and no wonder we have shootouts in slums all of the time.
+- A lot of jobs today are being automated; what happens when you extend that concept to very important areas of society like law enforcement? What happens if you start controlling the behavior of criminals or people in general with software-running machines? Those questions, they look like they're sci-fi but they're not.
+- How do you make RoboCop? How do you slowly bring a guy to be a robot? How do you actually take humanity out of someone and how do you program a brain, so to speak, and how does that affect an individual?
+- Well, I'm not that popular with the politicians, I have to say.
+- People can't stand it when you deal with issues of race and class, and also sometimes the church, and you give a perspective that flushes out hypocrisy.
+- If you are in Brazil and you grew up in a right-wing dictatorship, you think Marxism is liberating. But if you grew up in Czechoslovakia, and the Soviet Union is controlling everything and killing people, then you think capitalism is liberating. Neither of those two things are true and it doesn't take a lot brains to understand this.
+- I have to be clear with myself and very conscious of what I am trying to say. Misunderstandings will always take place; it's unavoidable.
+- Either you look back and deal with your hypocrisy, or you dismiss it.
+- Pretty soon we'll have robots in our society, you're going to have a lot of automated processes that used to be done by people - this is happening. Society and technology is changing so fast, and the impact of the change on society and technology is global, not local.
+- I love the sharpness and political tone of RoboCop and I think that such a film is now urgently needed.
+- Science is based on the possibility of objectivity, on the possibility of different people checking out for themselves the observations made by others. Without that possibility, there is no empirical principle capable of deciding between different arguments and theories.
+- If you publish a scientific paper it is very hard to start a nationwide debate about something. If you do this in a movie, you can start a debate. We like to create a bridge between those two worlds - film and science.
+- I think the media needs a little criticizing now, as it did in the '80s, don't you?
+- I don't actually like blocking actors. I prefer giving actors freedom. They don't have to step on a precise mark with me. Instead of giving marks to the actors I like to give marks to the camera.
+- RoboCop the first movie was fantastic. But even if there was no movie, the concept of RoboCop is brilliant, first because it lends itself to a lot of social criticism, but also because it poses a question, 'When do you lose your humanity?'
+- How can I make a movie about the violence of the police if the police aren't going to let me film it?
+- Measurements, observations, descriptions can only be considered scientific when they are independently confirmed by other people.
+- I like to give dimension to shots inside action scenes. It's demanding because you have to rehearse a lot of things happening at the same time and frame all those things in a shot. But I feel like when you accomplish that then you've got a cool action scene.
+- Usually I say I have no imagination.

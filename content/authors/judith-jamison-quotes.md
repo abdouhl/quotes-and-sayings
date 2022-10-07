@@ -1,0 +1,42 @@
++++
+author = "Judith Jamison"
+title = "Judith Jamison Quotes"
+quotes_len = "36"
+description = "the best 36 Judith Jamison Quotes"
++++
+- I've danced all over the world, and people are people. We cannot cut off from each other in life. In order to lead, you can't do that.
+- I could say now at 66, yeah, I was a fabulous dancer. I was really terrific, you know. But I was always present. I was present. I was supposed to be where I was supposed to be at the time I was supposed to be.
+- As long as there are dancers around who love to dance, there will be an Alvin Ailey American Dance Company. We miss him so much, but he's alive as soon as you see a dancer hit the stage.
+- I was a protege; by the age of 10, I was studying with ballet choreographer Anthony Tudor in a class of adults.
+- If people all over the world, year after year, request that you do 'Revelations,' you do 'Revelations.'
+- The way Alvin Ailey has transformed modern dance and dance in general is the fact of variety. It's a cornucopia of ways to move. There are choreographers in the company as - as diverse, as different from each other as Donald McKayle and Bill T. Jones, or Jawole Zollar and John Butler, Lar Lubovitch, you know, and Judith Jamison.
+- I haven't had a family, but I don't think of that as a sacrifice: my dancers are my family.
+- I believe in being prepared. I'm going to say that. Pray, prepare, proceed.
+- You wake up white, and you think about certain things every day. You wake up black, and you think about certain things. You wake up Chinese, and you think certain things - but those things aren't major. What's major is that you are good at your craft.
+- We're dancing from here, from inside, not from outside. You could look at anybody throwing their leg and kick their leg up and a million pirouettes and do all kinds of tricks and stuff like that. But that's not what dance is really about.
+- At 10, I could walk down the street and see over everybody's head. I don't remember being little or having to look up at people. I think I was born 5 feet 10. It's not that I felt especially tall. I was wondering when everybody else was going to catch up.
+- Dancing is bigger than the physical body. Think bigger than that. When you extend your arm, it doesn't stop at the end of your fingers, because you're dancing bigger than that. You're dancing spirit.
+- I tell young people that people aren't just going to flock to you as your mentors. You have to seek them out. It could be your next-door neighbor; it could be somebody upstairs from you, somebody down the block from you. An aunt or an uncle. Some relative. A parent.
+- Since babyhood, I've always evolved from one thing to another. My mother gave me ballet lessons at 6 as part of her enthusiasm for the arts and for life. We went to museums, to the theater. While her own talent was untapped, she worked for church causes.
+- Maybe it's a generational thing, but I never wanted to be the best black dancer in the world. I just wanted to be the best.
+- I believe God has a path for me. He's always had a path for me, and I've always been in the right place at the right time - not because of my efforts, but because of my preparation and because of the guides that I have, the mentors that I have, the spiritual walkers that I've had all my life.
+- I went to an audition for a Harry Belafonte Roaring Twenties special for choreographer Donald McKayle, but I failed.
+- I'm very smart when it comes to choosing dancers and trying to show the world that there's a whole lot of dancing going on.
+- The word 'suffering' is not in my vocabulary.
+- People don't remember me for how high my legs went, even though they went up very high, and how many pirouettes I did. They don't remember me for that. They remember me and any other dancer because something touched them inside. It's an indelible memory on the heart and in the mind.
+- The world is full of ways for people to dance. Concert dance doesn't get its due.
+- People come to see beauty, and I dance to give it to them.
+- I don't think of myself as a leader. I am, but I don't think of myself that way. I'm not trying to belittle what I do, but I think of myself as a dancer first. I'll always be a dancer.
+- Dancers use their bodies in extraordinary ways, so we are chronically pre-arthritic, because of how we use our muscles and our bones.
+- We can go on talking about racism and who treated whom badly, but what are you going to do about it? Are you going to wallow in that or are you going to create your own agenda?
+- As a dancer, you really try to stay true to whatever the choreographer/artistic director is giving you. So, now the shoe is on the other foot and I have to trust everyone else - I have to trust the dancer. As I was trusted as a dancer, I trust my dancers.
+- You have to dance unencumbered. There's no other way to move. The idea of dance is freedom. It is not exclusiveness, it's inclusiveness.
+- I've been in a competitive situation almost all my life. I've been having a competition with myself and trying to be the best I could be.
+- Strive for perfection. Nobody's going to be perfect on this earth. But strive for perfection.
+- Concert dance is the hardest kind of dance. We tour constantly, around the world, year in and year out. It just doesn't work for everybody. It's the lifestyle, it's the stamina, it's the love, it's the dedication, it's the commitment, it's all those words.
+- Dance is not endangered - it will always find a way to express itself.
+- I want to know who you are as a person, and then I want you to develop as a whole human being.
+- One thing I cannot stand is when people say, 'Hi, how are you?' and they don't wait to hear how I am. They're just going through the motions. I say to people: 'Keep it human. Keep it alive. Don't turn into a robot.' You have to hear what the other person is saying clearly.
+- My wonderful editor, Jackie Onassis, asked me to write a book that I wanted to write. I said, 'Look, it's not going to be scandalized. I'm not going to talk about anybody like a dog. I'm going to say the positiveness of my life, and talk about those who have contributed to the way I've been going, and that's that.'
+- My idea for the Jamison Project was rather like a pickup company. The idea was to give the dancers a taste of the menu. Today, dancers need to try as many companies as possible without having a drop-dead loyalty to me or anyone else. They like to have the leeway to go their own way.
+- I've had a really charmed life, you know. Things always come to me - they just do.

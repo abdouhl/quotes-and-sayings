@@ -1,0 +1,106 @@
++++
+author = "Kapil Sibal"
+title = "Kapil Sibal Quotes"
+quotes_len = "100"
+description = "the best 100 Kapil Sibal Quotes"
++++
+- BJP is the mothership of violence.
+- You learn on the job. When I was a young lawyer and got a case, I knew nothing about the subject. You start reading, you look for the philosophy behind it, and by the time you are actually in a court of law, you are a master.
+- Our party never tolerated those who use violence for political ends. Our leaders lost their lives standing against terrorism.
+- We do not want to interfere with the freedom of press.
+- Most of us tend to be swayed by what we read. Judges are not superhuman. They, too, are mortals. This is why they have to be exceptionally careful in rendering decisions, which cause unintended consequences.
+- The optimal use of natural resources can be made only if there is a well-thought-out policy framework for their exploitation towards a particular end use.
+- The government must understand that it cannot substitute the health, nutrition, and overall development outcomes of Indian citizens with 'efficiency gains.'
+- I personally believe technology can transform the functioning of the judicial system.
+- Modi may be rich in politics but is poor at heart.
+- We are wedded to freedom of expression and shall do nothing to diminish that freedom.
+- Given an opportunity, Modi has violated the freedom of press both in letter and spirit. He destroys freedom of the press whenever he gets a chance.
+- Economists often get the market wrong.
+- The appointment of judges to the higher judiciary cannot be the sole domain of a few members of the higher judiciary. This turf must be shared.
+- If the Planning Commission said those who live above Rs 5,000 a month are not at poverty line, obviously there is something wrong with the definition of poverty in this country. How can anybody live at Rs 5,000?
+- Universities are not places where police can come and arrest people. Let the children have a discourse as they want to. They will learn as they move on in life. But to target individuals and institutions is dangerous.
+- While the Internet is important for us, India is also necessary for the Internet with its 1.2 billion population.
+- Corruption is in society and in every strata of society.
+- The justice delivery system needs structural change. It needs fresh vision and innovative solutions.
+- You may dislike what somebody else has said; that is perfectly valid. You may not agree with what somebody else has said. But saying something cannot possibly amount to sedition.
+- Market mechanisms are totally irrelevant when resources are used to serve a larger purpose, especially for the underserved, unserved, or marginalised.
+- My abiding faith in the wisdom of our electorate is what gives me hope.
+- I have only one sister, Asha Nanda, and she lives in Maharani Bagh.
+- How do you trust a prime minister who said one thing before the elections and does exactly the opposite after the elections?
+- Governments getting involved in sports activities would ultimately damage sports.
+- We're trying to create a better world, not a perfect one. It cannot ever be perfect.
+- To the youth who have taken up guns, I urge them to return to their parents and shun violence.
+- What the government and we in society need to do is to address the issue of gender justice.
+- Just as judges have enormous stake in the appointment of judicial officers in the higher judiciary, the government has an equal stake. Since both of us have stakes in the appointment of members of the higher judiciary, the consultation of both of them is absolutely necessary. The government must have a say.
+- An individual can have a point of view. He is entitled to that.
+- The judiciary is entitled to finally resolve a dispute. Not every decision is right.
+- We are great believers in the idea that the Internet can help bring justice, but justice varies from place to place across the world.
+- I have no personal ambitions. I consider it a great privilege to have been given an opportunity to serve, through the Congress party, the people of India. I think that itself is a great reward. I have no personal ambitions in that regard.
+- The fabric of our Constitution and our civilisational culture is based on tolerance.
+- Corruption is everywhere. It's not just in the Congress. Corruption is not just your prerogative or mine.
+- Unless the issue of the empowerment of women is addressed, the practice of women being unfairly treated will remain unresolved.
+- If there are malpractices in sports, part of the solution lies in the organisations themselves taking a very strong view and cleaning up the mess from within.
+- I believe a true Hindu in India could never have endorsed the killing of the Mahatma.
+- Ever since Modi became prime minister, he has given a free rein to his ministers and BJP functionaries to create an environment of communal tension and violence.
+- My voice is not good enough for me to sing a song.
+- I have never applied for a share in Tehelka.
+- Sports can't be run by governments.
+- When the state machinery defends criminals and the public prosecutors collude with the accused in certain cases and the victims are members of a particular community, then 'Justice to all' is empty rhetoric.
+- For a movie, you have to make sure the lyrics are consistent with the rhythm that is given to you. But, at times, during the song's recording, you find out that your words are not appropriate for the track, and so you have to change them.
+- Judges decide upon copyright law. They decide upon trademark law. They decide upon scientific issues. They decide upon very complex technical issues on a daily basis. So you must have confidence in the Supreme Court, that they will apply their mind and they will come out with a decision consistent with the Constitution.
+- The mindset of a terrorist and the mindset of intolerance know no territorial boundaries when individuals are targeted either for their eating habits or for any other reason.
+- Yes, the state must intervene to prevent the exploitation of poor Indian women who are enticed or coerced into surrogacy, as well as to protect the rights of surrogate children. However, it should also be empathetic to individuals with alternative lifestyles who are well within their legal and human rights to demand access to surrogacy services.
+- It would be a matter of concern for government if intrusive data capture has been deployed against Indian citizens or government infrastructure.
+- When you have a limited resource and you have a lot of people wanting that resource, then those who get more justify as to why they got more, and those who get less say they have been treated badly.
+- I think poetry is a fabulous medium to encapsulate thoughts far more precisely than prose.
+- By limiting access to surrogacy based on flimsy and exclusionary criteria, the government may just give rise to a mushrooming black market.
+- To fix India's healthcare scenario, what is most needed is 'systems thinking.' For far too long, India has followed a vertical approach in its health sector, which translated into disease-specific national programmes being set up.
+- When I took over the ministry for science and technology, our weather systems were in shambles. Nobody believed in the IMD. Nothing was in digital mode. I changed all that. We got automatic rain gauges, automatic weather stations, Doppler radars.
+- All of us have a romantic streak in us. That's why we are fallible, aren't we?
+- I have been writing poetry for a long time now. I started writing in my school days.
+- Normally, the law of nature is such that one who rises falls, and one who rises quickly falls as quickly. I don't know how the law of nature will work as far as Modi is concerned. But some time or the other, all bubbles burst. This bubble will also burst.
+- The government must adopt a rights-based approach that speaks to the needs and aspirations of surrogate mothers, children born out of surrogacy, and all individuals who want access to altruistic surrogacy services.
+- The success of a particular policy prescription is always a gamble.
+- Every child should get an opportunity to study irrespective of the economic status.
+- No matter who the prime minister is, incremental changes take place. The economy moves on.
+- Politics runs in every human being, and so does music.
+- The genesis of Public Interest Litigation in listening to the voice of the voiceless and giving access to the poor, the marginalised, and the weak is a unique experiment to be lauded.
+- That's what technology does to you - makes you lazy but allows you to innovate.
+- I came into politics by accident. I may go out of politics by accident.
+- Public interest is a very unruly horse.
+- The DNA of a true Hindu is liberal. We are, by essence, liberal.
+- We must make the government accept that at a time when we are expected to look ahead, we cannot afford to start discriminating against our own people in the name of 'ethos.'
+- M&A guidelines need to be liberal.
+- The media can allege corruption, but if I do the same against the media, I am gagging freedom of expression.
+- Nationalism and anti-nationalism is a matter of perception. You cannot mandate who is a nationalist and what is not.
+- In India, by and large, women are not educated enough to be bread winners and, within the moorings of traditional cultures, do not have the courage and the capacity to leave the matrimonial home. Given the inequality prevalent in family structures, the woman's right to opt out is suicidal.
+- Public figures will get public criticism, and they should be tolerant enough to take it.
+- The great challenge before the IITs is to act as a catalyst in the growth of quality technical education in the country.
+- To embrace Hindutva is to embrace an obscurantist, backward looking, divisive ideology that seeks to polarise society through identity politics.
+- Humility is an attribute of every good Hindu.
+- There's a difference between those who breed terrorism and those who fight terrorism. This difference should be recognised by the people of India.
+- India should be an exporter of technology.
+- Sedition involves sloganeering with incitement. It may be anti-national, but not a crime, unless you incite violence or communal tension.
+- I would welcome satirical references to political leaders as part of freedom of expression.
+- I am a lawyer by profession.
+- Modi is an excellent orator - sure, anybody who spouts untruths is an excellent orator.
+- If two people cannot live together, both should have the right to opt out of the marriage. In an ideal world, that would be an acceptable solution.
+- How do you trust a government whose people are proved to be untrustworthy?
+- There is an urgent need for the Central government to take the lead in ensuring health and nutrition service delivery.
+- Cleanliness is a good thing, which the society should embrace. But it has nothing to do with Modi, nor can he implement it.
+- Natural resources must be so distributed, by way of auction or otherwise, that they serve a larger public purpose.
+- Ownership is a very complex judicial concept.
+- The overreach of the judiciary can be attributed to, one, the inability of the executive to deliver; and two, the tendency to issue judicial pronouncements for national good. The second element is dangerous because that's the function of the government.
+- Appointments to the higher judiciary must be through transparent processes, which ensure that persons of impeccable integrity and high competence are appointed to these positions.
+- The greater the power, the greater the responsibility in its exercise.
+- A single element in transactional mode can never be analysed to calculate either loss or presumptive loss. The losses or gains of all elements in the transaction need to be analysed.
+- The press in India, I believe, is more free, and happily so, than perhaps media anywhere in the world. Right? Which is a good thing.
+- Can any sane person say that before something comes on the Net you must screen it? How can there be pre-screening?
+- Internet governance is an oxymoron. The Internet must govern itself. But you can't play cricket without any rules.
+- If you have decisions taken from time to time at the level of the executives, which gives the impression of being discriminatory, if you are not open when government is functioning, then obviously people will make allegations.
+- Through geospatial technologies, you can plan a whole city sitting in your room.
+- Great research universities around the world are visible not just through their quality graduates but as knowledge creators and technology developers.
+- Intolerance is alien to Hinduism.
+- No one can end it, but incidents of corruption can be reduced.
+- If you employ an army, have money, bombard cyberspace with misinformation, innocent people tend to buy it.
+- The BJP, undoubtedly, is a party with a mission. Spreading hatred and religious discord, indulging in state-sponsored violence and fake encounter killings, and resorting to divisive politics have been integral to this mission.

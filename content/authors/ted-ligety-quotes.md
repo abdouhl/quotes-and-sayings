@@ -1,0 +1,23 @@
++++
+author = "Ted Ligety"
+title = "Ted Ligety Quotes"
+quotes_len = "17"
+description = "the best 17 Ted Ligety Quotes"
++++
+- There are definitely perks to being a good ski racer.
+- Sochi will be my third Olympics, and I'm coming into these games in a stronger position than I've been in years past.
+- When I grew up, I had a lot of fun ski racing with my friends. We pushed each other, and this made it easier to work hard.
+- I started playing around with GoPros on my own to get some cool footage. But it's actually become a big training tool for my team and me.
+- I don't do ski racing to be famous.
+- My parents never pushed me to ski race. It was my choice and something I really wanted to do. I would have rebelled if they had pushed me, and I wouldn't have had the same passion.
+- I'm an athlete, so I'm very interested in making the sport as safe as possible - just for my own career longevity.
+- I feel very confident in my skiing. I know I have a good chance to win any race I start.
+- I'm very involved in Shred, constantly checking in on something. It takes a lot of time. But it has let me leverage who I am as an athlete into a product.
+- I wanted kids to know that it's cool to be in a ski race in the morning and to go play in the terrain park in the afternoon. It's not one or the other.
+- I think it is important to let your kids have independence and ownership. Let your kids do what they have a passion for.
+- I work a lot with my ski sponsor, Head, to develop new technologies.
+- A lot of racers have some of their best days when they're sick.
+- It's the nature of the beast, playing sports on the ski team and how competitive all of us are. I want to beat everybody's time.
+- Ski racing is probably the least guaranteed sport out there. It's really rare when the favorites win.
+- I've never liked the idea of working for other people.
+- I'm fine with being a little bit of an instigator.

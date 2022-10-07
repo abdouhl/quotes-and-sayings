@@ -1,0 +1,41 @@
++++
+author = "Kate Adie"
+title = "Kate Adie Quotes"
+quotes_len = "35"
+description = "the best 35 Kate Adie Quotes"
++++
+- I will never retire.
+- I have nothing to do with the selection of stories. I'm the reporter.
+- My job is to get to the heart of a story, to find out what's really going on; to get it verified and, then, to get it out to as many people as possible as fast as.
+- I sailed through my childhood with a complete lack of any drama.
+- It wasn't glamorous in my day. In the regions, reporters were seen as such low life that they didn't merit their name in the Radio Times. Now people are interested in being famous. I never gave it a thought.
+- I have no time for the endless nostalgia: 'Oh gosh I used to . . . ' Life is too short; I don't have any time for sitting and saying I miss things. What's the point? Go and do something else.
+- Up until about 12 years ago we never, ever, wore flak jacket or helmets but now the nastiness has got worse.
+- The better the information it has, the better democracy works. Silence and secrecy are never good for it.
+- But in the first Gulf war the United Kingdom was not under any threat from Iraq, and is still less so in the second one. Then there is no justification for obstructing freedom of information, particularly as nations have a right to know what their soldiers are being used for.
+- I don't find an advantage or disadvantage in being a woman when reporting. What little advantages there might be in some instances is cancelled out by the basic lack of lavatories round the world for women.
+- If I'm in danger then it's usually my fault and it's up to me to get myself out of it. I am not in it just to get an adrenalin rush. No way!
+- I also read modern novels - I have just had to read 60 as I am one of the judges for the Orange Fiction Prize.
+- I don't sit there and speculate. I'm not that sort of person. It wastes time, actually.
+- I don't want to be involved in endless media gossip.
+- It's totally mistaken to suppose that an armed escort is going to give a journalist any protection - on the contrary, journalists who turn up surrounded by armed personnel are just turning themselves into targets and in even worse danger.
+- When you are covering a life-or-death struggle, as British reporters were in 1940, it is legitimate and right to go along with military censorship, and in fact in situations like that there wouldn't be any press without the censorship.
+- I have never been attracted to any kind of violence.
+- On the Northern Ireland question, for instance, the British and Irish governments prohibit media contact with members of the IRA, but we have always gone ahead, believing in the right to information.
+- Hair is also a problem. I remember once, when I was reporting from Beirut at the height of the civil war, someone wrote in to the BBC complaining about my appearance.
+- Beslan, where the Russian authorities stopped live coverage of the school being stormed, was an illustration of the progress we still have to make.
+- War zones are dangerous, protests can be violent, also, natural disasters are difficult to cover, so there are going to be risks.
+- There was no equal pay law when I started working. I was no different to any other woman in any other job at the time.
+- I never desired to go into war zones. I never had any thought about it. It sort of just happened as part of the job.
+- In any war, there is a concealment of certain kinds of setbacks because it's propaganda for the enemy.
+- Twenty-four hour news delivers people who stand and talk to camera rather than deliver reported packages with their own camera crew where it's happening.
+- I was timid and frightened as a child. Yours truly did not shin up mountains or do any other kind of adventurous stuff.
+- I wrote in the book very specifically what I wanted to write about, period, and left it at.
+- I was sent to a nice Church of England girls' school and at that time, after university, a woman was expected to become a teacher, a nurse or a missionary - prior to marriage.
+- In Sierra Leone last year there was just the two of us hanging out of a helicopter and, when we were in Bosnia, I drove an armoured vehicle, thousands of miles.
+- I keep telling myself to calm down, to take less of an interest in things and not to get so excited, but I still care a lot about liberty, freedom of speech and expression, and fairness in journalism.
+- I've never been one to sit around and eat my heart out. Life's too short.
+- People always seem to assume that we have a full, back-up support team - make-up, costume and a driver - but usually, in a war zone, there's only me and the cameraman.
+- On the whole, when the unexpected danger happens to you, you're thinking so fast, you're thinking so hard, every bit of you is alive to 'What should I do?' 'What can I do?' There isn't a lot of time for contemplation.
+- No two wars are identical.
+- Now children as young as nine carry AK47s which can kill 30 people in seconds.

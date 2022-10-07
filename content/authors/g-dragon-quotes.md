@@ -1,0 +1,87 @@
++++
+author = "G-Dragon"
+title = "G-Dragon Quotes"
+quotes_len = "81"
+description = "the best 81 G-Dragon Quotes"
++++
+- Just like anyone else, I want privacy at times, but I understand that I am a celebrity.
+- We are Korean, so obviously they call our music K-pop. But we never thought of our music as K-pop. Our music is just our music.
+- European style is classic, with its own color, and to me, it always feels chic.
+- I'm not even sure who I really am sometimes.
+- I have a very small physique, so it's a little hard to find suits that really fit me well. I have to wear sizes that are really skinny.
+- When I perform as a solo, I think a lot about what I always wanted to do but have not done yet.
+- I think the confidence that I have right now is something that was created by the fans who love me.
+- It would be better to be recognized first for music, but people go with what they like. If I'm here because I'm recognized more so as a style icon, then, if I'm smart enough, I will use this opportunity to share more insight about my music.
+- I am a songwriter and producer, and though you have to be personal in everything you do, you always having to look at things from another's perspective.
+- We always focus on the quality of music because as long as the content is good, then the interest will be there.
+- It would be ridiculous for anyone to consider me the face of Korean art.
+- I'm the type of person who commits to the fullest to whatever I'm doing.
+- Stony Skunk, when they were with our company, had a song which I personally like called 'Red Light District.'
+- Before I was physically there in different countries to meet my fans in person, I didn't really realize how famous I was.
+- I want to do something that can support all the people in Korea and the world who see us and are inspired to do their own thing.
+- Korean people, including me, want to go faster and faster - in music, in fashion, in art, too.
+- We believe that anything and everything is possible, regardless if it's a domestic or international project.
+- We make our own music, and the songs appeal to the public well, and the public likes them.
+- I want to have daughter, and if I do, I want to make sure she learns ballet.
+- Overall, Korean pop serves as the foundation of my musical upbringing. As a result, the melodies that I create just exude that type of vibe.
+- When I wear Chanel, I feel like I'm not just wearing clothes: I'm wearing Chanel.
+- Americans might not understand, but within Korea, Big Bang was one of the first artists to make their own production. We have our own interpretation of our own songs. We do our own thing.
+- Interestingly, when I look at pictures of me when I was five or six years old, I think I look pretty stylish.
+- When I was still a student, I came out of a performing arts high school, and the female students who were doing traditional dance and ballet were so beautiful. They were beautiful, starting from their postures.
+- I always think today is better than yesterday, and tomorrow is better than today.
+- I'm not sure if they do this in the States, but in Korea, until high school, on your graduation diploma there's a line that states your future goal. Kids write 'president' or 'astronaut,' or whatever. I always wrote 'singer.'
+- Kwon Ji Yong is searching for the comfort and reliable people that G-Dragon doesn't have offstage.
+- There was this hip-hop collective called People Crew. And at the time in Korea, there was no real place to access rap music. So People Crew used to host this summer school program, which taught rapping and dancing. I begged my mom to attend that school to learn how to rap.
+- As a rapper, I was heavily influenced by American rap albums. But for songs that are more melody-driven, I get my inspiration from Korean albums.
+- I would write down the lyrics to 'C.R.E.A.M.' in Korean - not translating it, but phonetically writing out each word. I didn't know what they were saying, so I would just write everything down as I heard it. I would recite it and imitate it like that. That's how I started to write my own raps.
+- I think Taeyang developed this image as a dancing singer, mostly because of records like 'Only Look At Me,' and 'Where U At.' To me, personally, I think Taeyang tried to make a change on 'I Need a Girl.' It gets a little mellower.
+- G-Dragon is a fancy person. People don't expect the upright image of G-Dragon. Kwon Ji Yong is an introvert and has lots of things going on in his head.
+- When I create a song, I immediately think about what I'm going to wear when I perform that song. I think about the music video treatment and about how I'm going to look on stage when I perform the record. The connection is so obvious that it's a single package. An outfit, to me, is almost a tool to express the music.
+- It doesn't matter what kind of clothes you put on: if you're a stylish individual, you're going to preserve that.
+- Because I love shopping, my house is overflowing with clothes. Most of them were bought by myself.
+- You have to believe in yourself, challenge yourself, and push yourself until the very end; that's the only way you'll succeed.
+- I now know that inspirations must come from everywhere.
+- I just try to look good always.
+- I stand on stage hoping to give good energy to the audience, but if I cannot give good energy anymore, I will have to leave right away.
+- I earned the opportunity to stand on stage with many senior artists at YG, and naturally, I gained stage experience.
+- Carpe diem, you know.
+- As a musician myself, I wouldn't be confident if I received some other composers' song, because I choose to express myself through the music that I make.
+- Musical success depends on how much you enjoy it and how much you are willing to put in. Luck must follow, too.
+- I have to say I really was surprised on my first world tour. It was amazing to see what we've always dreamed of, right before our eyes.
+- When you have a girlfriend, there are many things that are irritating every day, every night. I'm sure it's different for everyone, but when you fight, it gets really annoying.
+- Unfortunately, in Korea, I feel like some people are just seeing the dollar signs and sending out artists into the foreign markets who aren't fully prepared.
+- I often enjoy wearing loud and outspoken clothing on stage, so off it, I usually wear loose-fitting vintage shirts, jeans, or track suits I've had forever. I just add styling to those pieces.
+- I just listened to regular commercial music from Korea. I would just follow the choreographed dance routines. I didn't have any ambitions of pursuing rapping. I liked dancing, so I did that.
+- I occasionally rapped along to some homegrown Korean rap. And then a friend introduced me to Wu-Tang and played me 'Enter the 36th Chambers.' It was very shocking. And then I started to look for different albums. This was pre-Internet, so it's hard to find the music, and it was even harder to find music videos.
+- In order to keep my creativity alive, I just try to enjoy life to the fullest.
+- I don't know what I would have been doing if I was not in YG, but I think I would be doing something artistic.
+- The most important thing is knowing what you are good at.
+- I am usually positive and optimistic. If I get stressed or some results are not so good, I let it go by thinking, 'Oh well, it can be better next time.' I don't worry a lot, and I'm not too serious about anything.
+- When I was young and didn't know any English, I was drawn by the energy and power of foreign songs and their melodies.
+- I started out as a child actor. Back then, I didn't have a manager or company, and I couldn't even dream of having a stylist. My mom made and bought the clothes I would wear. I think that was probably when I first got into fashion.
+- Whatever I like, even after a long time, I still like it. And I reminisce about the moment when I first heard it. That's what I love. Just remembering those moments.
+- I hope that, even when I'm simply just Kwon Ji-yong, I can be someone who still shines even without all these 'flashy' costumes on.
+- I've come to realize ways of making music without being excessive.
+- 'Storm' was the first song I did as a member of YG. The record gave me a lot of pressure. I didn't think I was prepared at the time.
+- When I was younger, Big Bang didn't go on many variety programs, so we used to try and plan many fun events for our concert, like drama parodies, which Korean fans enjoyed.
+- The sights you can find here in Paris are second to none.
+- You can't explain Chanel. It's a verb.
+- There are times even I am a bit embarrassed by my look.
+- I will keep - try - to be, like, on a new level every day.
+- I was about nine years old when I first heard Wu-Tang's 'C.R.E.A.M.' Before that, I didn't know anything about rap or hip-hop. I was just into Korean pop.
+- When I don't look cool enough or when I cannot make good music anymore, I will retire.
+- I want a daughter no matter what.
+- Every Chanel show I've been to is very conceptual. Even down to the music and smells, the whole thing is connected.
+- Don't be afraid. There is no right answer in fashion.
+- I love listening to people talking about their love, and it always gives me great energy.
+- My mom is in charge of my earnings.
+- I study my fans all the time, and what I learn from them will definitely be reflected in my future work.
+- Whether it's music or fashion, the older I get, I realize what's comfortable lasts longer.
+- Stage outfits are loud, outspoken, glamorous, fancy, and very different from normal day-to-day clothing. Therefore, by its nature, it is experimental.
+- If you look at the brands that I like, there are brands I like because of the clothes; then, there are brands I like because of their attitude and mentality.
+- People may see me as a luxurious star, but I am always thinking I can be represented by my psychological world that is fraught with vanity, loneliness, and always feels inadequate.
+- I want to have freedom with everything I do.
+- I want to continuously instigate, whatever it may be.
+- There are albums that I like because of specific songs, but then there are albums that I like as a complete body of work. 'Ghetto Fabolous' is an album I lived with daily.
+- I wasn't trying to be famous when I started making music. I mean, that wasn't the first thing I wanted.
+- I would only create clothes myself if I felt I could do something really different - create a new style subculture for my generation - and that is very ambitious.

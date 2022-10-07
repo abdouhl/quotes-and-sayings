@@ -1,0 +1,26 @@
++++
+author = "Nelson Peltz"
+title = "Nelson Peltz Quotes"
+quotes_len = "20"
+description = "the best 20 Nelson Peltz Quotes"
++++
+- After Cadbury, the candy company, separated from Dr. Pepper, the soft drinks maker, Cadbury was able to substantially lower its debt load. The profits of Cadbury, the candy company, zoomed.
+- Sequestration, sequestation - however you pronounce that word - and gridlock aren't all that bad.
+- I try to figure out the marketing puzzle.
+- The name 'Mondelez' I hate. It sounds like a disease.
+- I love women.
+- I spent most of my career operating businesses and fixing businesses, not staring at a Bloomberg screen.
+- You must make some decisions Wall Street dislikes.
+- It appears that PepsiCo views structural change as a sign of weakness, an admission of failure, and an untenable break with past traditions.
+- Rupert Murdoch is a good friend of mine.
+- Before, Tiffany sold watches only in its own stores. Now, Tiffany watches are sold in 1,500 stores.
+- I don't mind anybody coming after me as long as they're coming with facts.
+- My kids are exhausted every day, and I keep them that way. It's gym, ice, homework. They're too tired to get in trouble.
+- Legg Mason's structure is misunderstood by the market. Legg Mason has an affiliate model. They own 100% of their affiliates, which are investment managers such as Permal, Western Asset Management, and Royce.
+- If I'm on the board of any company where there's an offer that comes in, I want to negotiate.
+- I understood the power of Heinz since I was a kid, and I started to work for my father selling food to restaurants.
+- I believe in pay for performance.
+- You know what term you don't hear anymore? Arbitrage. The markets have gotten too efficient.
+- Sometimes it takes longer to create value, but if the companies generate more earnings, the stocks will ultimately reflect that.
+- I'm willing to have two directors on the DuPont board, me being one of them.
+- The activists play the balance sheet by selling a division to buy back stock and leveraging the balance sheet and buying back more stock.

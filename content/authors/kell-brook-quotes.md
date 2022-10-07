@@ -1,0 +1,101 @@
++++
+author = "Kell Brook"
+title = "Kell Brook Quotes"
+quotes_len = "95"
+description = "the best 95 Kell Brook Quotes"
++++
+- I know I've been out for a while and but I'm not going to talk about ring rust or use it as an excuse. That's nothing to me. Sugar Ray Leonard was out of the ring for years and he beat Hagler.
+- There have been some dark times. But what I've realised is that I love this sport.
+- I'm going to show the world that I'm the best welterweight on the planet and I'm going to do it right before my people's eyes.
+- I could do welterweight. For the right fight, I'll do welterweight. It would have to be a meaningful fight. A world title fight, or a big meaningful fight.
+- In boxing, some fighters let the occasion get to them and they let their opponent get to them. With me, it's just another day at the office.
+- I want bigger fights. Amir Khan doesn't want to listen to me. Why? It's getting boring.
+- You need to be a complete fighter - the heart, the chin, the toughness. You've got to have it all.
+- Once I've got my legs under me and I'm fit and healthy, I'm a hard, hard man to beat.
+- There's a lot of politics in boxing and it's destroying the game.
+- Dominic Ingle has seen me probably from 9 years old coming through. He was watching from the outside.
+- I've got all the attributes. I've got the sharpness. I've got everything you need to be a top fighter.
+- I am going to go after the big names in America and the fights all the fans want.
+- I'm accurate and I can land on anyone's chin.
+- Even as a teenager, I wanted to move up the weights and win belts.
+- If I lose to DeLuca I will announce my retirement in the ring after.
+- Timing beats speed and I'm very strong at my weight.
+- It's a beautiful sport, boxing, when you're winning and everything is going well but when you hit the lows it really upsets you.
+- I'm petrified of spiders, I've just never liked them.
+- I saw many people talk about how I would avoid Errol Spence. They don't know me, they don't know what I'm about.
+- If someone said to me you can get five million quid, a world title, fight at Wembley with a fight that every fan wants to see, it's a no-brainer for me.
+- Boxers put themselves on the line, they put their lives at risk, so it's up to the boxers to make sure they are healthy and sharp because we are giving the public what they want to see.
+- I've had X-rays on both eyes, the bone has grown back and I have plates over each one, so I'm like a Terminator now and ready to walk through walls.
+- I'm the Terminator and I'm back. I'm here to stay.
+- I want to make a serious legacy.
+- I'm interested in any light-middleweight. If they've got a belt, even if they think they're the hardest in the division, I can beat all of them.
+- I'm a born and bred Sheffield man and I just want the city to do well with sport.
+- I'm scared of heights, but for my 30th birthday I'm going to try and get someone to kick me out of a plane and do a parachute jump.
+- When I was drinking I was thinking I was having a good time but it came back twice as bad, the depression. It was just a vicious circle - drinking, not caring about myself - and it gave me a bad low.
+- The fans pay our wages and I want to give back to the fans. I have been telling them for ages that I want big fights and they haven't believed me. They don't know the politics that go on behind the scenes through no fault of my own.
+- Amir Khan is a very good fighter, but he has been knocked out a few times when he has stepped up.
+- I have a huge house surrounded by luxury but I've earned it.
+- This has been a dream of mine since I was a kid... I'm passionate about being a world champion, believe me.
+- I want to go down, like my hero Sugar Ray Robinson, in history.
+- Small things make me smile.
+- I'm a young lion and I believe I can be one of the greats.
+- I love motocross and would love to have a go but I can't go anywhere near them in case I got injured.
+- Liam Smith hasn't got a belt, but I can get excited about that fight. If they pay me seven figures for the fight, I'll take that fight.
+- Who knows how long I have got left. I could be like Bernard Hopkins.
+- I have had some dark times, it was a frustrating 2019. I was pushing for the Terence Crawford fight but, through no fault of my own, I did not get any of the big fights I wanted.
+- When you are the champion, you are there to be shot at. It doesn't bother me what people say.
+- I know it's near the end and when it's over I want to be able to say to myself - not anyone else - that I've given it everything. At least in the last part of my career.
+- Why would I fear Golovkin when I have stared death in the face?
+- Bruce Lee was my inspiration when I was growing up and I used to watch 'Enter The Dragon.' No one could sit me still and I was non-stop hyperactive doing karate moves in the house.
+- I know I've cut corners in every single fight I've had because I've used my ability to get through.
+- I'm not usually a drinker.
+- I've never been satisfied winning one world title.
+- I went to America and beat Shawn Porter, a guy that was being called a 'mini Mike Tyson' and that most people were saying was going to take over from Floyd Mayweather. I went to his backyard and ripped his title off him.
+- I'd like a big fight in America, it would cap off my career in a great way.
+- Pressure makes me perform better.
+- I want the big money fights if I'm going to make 147 pounds.
+- It's a short-lived career and I think I am in my prime now. I'm 34-0 and I want to go to 35-0 in spectacular fashion, and then the world is my oyster.
+- I'm just laid-back and cool.
+- 2019, I'm coming for those big boys; I will go to welterweight.
+- It's depression. You can't put it into words. You get stuck and time passes by. I'm stood there on the edge of a cliff, can't go back and can't go forward. Days go by. I'm still in the same place. Everyone else's life goes on, but you're stuck. You try and try and try and I don't know how, but you came out of it eventually.
+- I'm going to get better and better. You never stop learning in this game.
+- People are right to question what I've got left and how I am going to be after the injuries and defeats.
+- If I can't beat DeLuca, how can I say I want to fight the elite of the sport, rematch Errol Spence or fight Terence Crawford? There's no point and I don't have the right to call for world titles. No - I have to win.
+- People have seen I've got a big heart in there and I'm willing to fight with the biggest punchers.
+- I know I have a mandatory with Errol Spence. He's a very talented fighter but not really heard of in the U.K. or even America, but we all know he can fight.
+- I wouldn't be boxing if I wasn't given the all-clear by the doctors, I wouldn't put my family or myself through that.
+- I will fight anyone, what the fans want, where the money is.
+- The toughest time was lying in a Tenerife hospital with no-one speaking English, next to a window with the sun beating down and my leg tied up, thinking I would never box again or even walk again. It took every bit of shine off winning the world title.
+- People go on about weight. Mike Tyson wasn't the biggest heavyweight and he was an animal.
+- Two-time world champion - that's my goal.
+- When you win everything is great but when you're losing nobody wants to know you - except for the people that really love you.
+- I believe in God, Almighty. I'm a Christian.
+- I'm actually a mummy's boy.
+- I haven't got years and years left so I want to compete against the best.
+- You can't work me hard enough in the gym, I just want more.
+- I like to have a good cry at a sad film.
+- If I get beaten I can walk away with my head high, knowing I have given everything.
+- I have realised I have been cheating myself and it is me who pays for it. So I am going to give myself the best opportunity to give my all. It's me who walks in my shoes.
+- I trust the team around me to guide my career in the right direction, I just do the fighting.
+- I'm gutted, devastated that in front of my own fans I've lost my belt.
+- Rabchenko is a dangerous guy, he's no mug and he can really bang.
+- If I could have my dream fight, it would be an Errol Spence rematch.
+- I'm after people that want to fight, who are the real people. The real fighting men, that's what I want to deal with.
+- Since I was 9 years old, I've been training to be a champion.
+- My opponent DeLuca is a strong, gutsy fighter who is always ready for war.
+- Being able to adjust - to any fighter, no matter what pressure he can give me - I'm going to show I can do all that.
+- I did speak to a counsellor after hitting rock bottom. It really did help, talking to somebody that didn't know me and just pouring my heart out to them in a few sessions.
+- I got a bit down, depressed and fat, but I needed to be out of the game to realise I need boxing.
+- I'm more vicious in sparring when I am around 160 pounds or coming down from heavier than that.
+- Looking out the window and seeing the MGM and Floyd Mayweather takes me back to when I was a kid. Those were the places you'd hear about, the ones that staged big fights and top fighters. You always want to one day fight there yourself.
+- Everyone in boxing knows that I am a big guy.
+- Losing in my home town of Sheffield, it upset me really badly.
+- Golovkin and Errol Spence are no dumplings, but even losing to those guys is hard to take.
+- But I am a big welterweight so I can see why people think that I would look to move up the weights.
+- I'm a world champion, I've beaten everyone I've been in with and I want to test myself.
+- I'm the nicest kid. I'm not a big head.
+- I can't really explain how high the feeling was winning that world title in California with my family watching me.
+- I saw Bob Arum out in America, I saw him walking through the lobby in the MGM Grand. I basically went over and said: 'You're running out of opponents for Crawford and I'm the guy to beat him. I'm here.' I saw Terence Crawford, he said he was ready for it, so everybody is on the same page. Everyone wants to make the fight.
+- Listen, people that know me, know I've got a lion heart.
+- I'm going to follow the greats and make history. The likes of Felix Trinidad, Sugar Ray Robinson, Sugar Ray Leonard, Floyd Mayweather, Manny Pacquiao have all moved through the weights to prove they are greats at all weights.
+- I've gone from the top of the world to the bottom of the ocean.

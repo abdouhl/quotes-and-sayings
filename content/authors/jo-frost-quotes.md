@@ -1,0 +1,106 @@
++++
+author = "Jo Frost"
+title = "Jo Frost Quotes"
+quotes_len = "100"
+description = "the best 100 Jo Frost Quotes"
++++
+- I do love being around water.
+- I'm definitely not opposed to adopting. I think that would be marvellous.
+- I know what it is like to feel pain.
+- I would never put children in a situation where I felt I was exploiting them.
+- New parents will feel that euphoric high where they feel like their mind is racing and they can't sleep. But its important to take quiet moments when you can. Even if you can t get a full sleep, just resting and calming yourself can be so useful.
+- I think integrity's important; really important.
+- If I have children, I do. If I don't, I don't.
+- My parenting skills came from two decades of being in the field helping families and having the opportunity to work with hundreds of families of all different ages.
+- Breakfast is the most important meal for me. I love porridge, which I have with water, and some fruit, usually raspberries or melon. And I drink hot water with lemon and green tea.
+- I don't dislike any of my features - they're what make me me, and I'm confident in who I am. I see my mum in my lips and I've got my dad's eyes.
+- I was in Key West, Florida, and I ate some key lime pie and the base of the pie had nuts in it. I'm allergic to nuts and I went into anaphylactic shock, which is life threatening, and ended up in hospital.
+- My parents were people who I'm proud of.
+- I like to think that I am providing a public service to educate parents.
+- I can look at a photo and tell you about your child's temperament and personality. All that scans in seconds.
+- You know, we've got to be able to understand that in order to curb their behavior, we've got to be accountable as parents in how we raise our children.
+- I take care of myself, try to make sure I'm always well groomed, with pretty feet and good hair. Having said that, confidence and sexiness come from within.
+- There's a lot of external issues that have a ripple effect on a family and a lot of internal, practical parenting challenges that families are trying to overcome every day. Children become the silent witnesses of such worry within their families.
+- It's lovely that people feel I'm approachable.
+- We do not question an athlete who is disciplined in order to achieve their goals, and yet as parents the same premise is not applied.
+- I had this very strong intuition when working with children. The families I used to work for said, 'You're a white witch. You just know.'
+- I had a pretty well-adjusted style of parenting. I think my parents were very young, very open. I think I learned many things from them: etiquette and grace, compassion and charity. And who I am today is due to a lot of attributes of my parents.
+- I have dealt with lots of teens in my show and the big problems teenagers are facing is the impact of social media in all forms, as it seems like it has a heavy negative influence on them. Social media sites feed narcissistic behaviour and the need to be popular and they are being bombarded with half-truths and some facts.
+- When you're filming on the road you literally are isolated for two weeks and you may go to Alaska or Atlanta or you may go to Florida.
+- I'm just natural with initiative, with instinct. Paediatricians have said so themselves.
+- There's an underlining nice feeling of needing to be needed constantly.
+- I get parents under the microscope and teach calming techniques for those moments when the heart races.
+- There's always going to be those families or even just individuals who can be quite defensive.
+- You just can't go wrong when you're honest. If somebody's offended by that, it's really quite too bad.
+- We have to get out of this cultural mindset of putting badges on ourselves and playing the martyr spinning 1,000 plates. We need to be spinning six plates, and doing it well. Otherwise plates tumble and break.
+- I think it's really important to give valid information to parents about the benefits of encouraging their children to eat breakfast.
+- As anyone who's watched my shows will know - I'm no pushover.
+- Of course we need independence, but who says that should mean doing everything alone and in isolation? That won't make us stronger. Together is always better.
+- Sometimes I wish I could just take a lightweight bag on the plane but instead I've got to make sure I've got all my medical stuff. That can become a bit boring.
+- Oh, I'm always laughing with the children in 'Supernanny,' but you don't see it because Ricochet decide what to leave on the cutting-room floor and what to keep in.
+- Utmost integrity is key.
+- I'd like to see mothers at home be more assertive, be unapologetic, give themselves permission, and to stand up for themselves as an equal parent, whether that is being a parent who's authoritative and needs to discipline and put healthy boundaries in, or to serve out the candy.
+- My priority is always the family. Nothing will compromise that.
+- We have become a society that lacks empathy. Are we teaching empathy? The Internet desensitises, too.
+- I'm highly intuitive - highly.
+- It needs to be recognised that children perform better when they have eaten breakfast.
+- I clearly saw an opportunity with 'Supernanny' to reach not just one family but lots of people, and to give everyone the benefit of my knowledge and experience.
+- I change my techniques according to what the child or the parent needs, or the family as a whole needs, but as a professional, I do not move with a trend or a fad.
+- I take my job seriously.
+- I think there's something to be said for going to certain fine dining restaurants and knowing that after a certain time, it would be inappropriate to take young children. And, unrealistic for them and unfair to the child and to the others that are dining.
+- Parents are almost fearful of disciplining their children. They are scared they are going to lose the connection with them when they are teenagers or adults.
+- I do wear my hair up. To be honest with you when you are working with children you spend most of your time with your hair up, unless you want custard in your hair or some kind of baby sick hanging off the back of your shoulder.
+- We want to actively encourage children to continue with their development.
+- People think I'm terrifying but I'm really not. I am firm, yes, definitely firm, but I also have fun, I like my champagne, perhaps a rum and Coke, a laugh with the girls, all of that. Honest.
+- I have very strong belief in bringing Western and Eastern medicine together. It doesn't have to be polarized.
+- I do like Toblerone.
+- I think it is a great idea for people to look at the reality of raising children at a young age.
+- Love is love. Family is family. A family's sexuality does not define the wonderful parent that they can be for their children.
+- I had scabby knees with long socks up to my knees. I was scrumping for conkers with everyone else. I was out on my bike. I used to do the 100m sprint. We always wanted to be out playing.
+- I want to see more families have more compassion, more empathy in understanding that not every family is sitting there intentionally saying, 'I don't care about everybody else.' They're just trying to do the best that they can.
+- I never in my wildest dreams could have imagined I would be on TV.
+- I think it's an important lesson for a child. How to behave humanely toward another human being.
+- I fly a lot, particularly to and from the U.S., so I take extra care to hydrate my skin: moisturiser, eye cream, hydrating masks, Evian spritzer.
+- So many women feel this pressure to have children by 35, but I don't feel pressure.
+- We're all family at the end of the day - connected to other members of our family as adults or children.
+- People have asked me about adoption, and yes, I would. I don't feel you have to have your own children.
+- I'm pretty relentless.
+- I think being able to teach your children manners and to be respectful is one thing that you can do regardless to what class you come from or what religious belief you have.
+- I was known as this trouble-shooter and I was taking calls from other nannies asking for advice and calls from parents across Europe and America.
+- It's important for families to have a sense of purpose.
+- When we were at school my younger brother and I were very sporty, so we did a lot of stuff outside school, club activities. Summer holidays, though, my mum would take off a big chunk of time and my dad would take some time off and I have the fondest memories of the things we'd do as a family.
+- For me what's important is being able to show the truth and for me that's a very powerful thing.
+- We do too much for our kids. We disable them. We should be teaching them life skills to make them more able to do things for themselves.
+- My methods are all because of my experiences as a nanny. Parents have asked, 'How do you have an understanding of this when you have no children?' Maybe I just do and that's how it is. It all comes from my personality and what I believe in.
+- I have heard, seen and dealt with a lot of issues, but what gets me most is the shocking statistics about exercise and the amount of time some parents spend with their children.
+- I can talk the hind leg off a donkey.
+- So often I meet parents who are just exhausted. I want to look at how I can then create space for that person to recover.
+- Some people like me, some people don't. It is what it is.
+- Resilience can only form if we face, and learn how to be better equipped to manage, our problems.
+- Parents get worried that kids will hold grudges. But they just don't.
+- Children are the same everywhere.
+- It is important that breakfast is a time where a family can sit around a table and talk about the day ahead.
+- There is nothing your child is going to learn right now at the age of 10 that is going to make or break their career at 24. There just isn't.
+- Supernanny' was a format that was geared toward parents who had troublesome kids and didn't know how to cope with their behavior.
+- Parents have to be connected to their children and know what they need. When they're happy. When they're not. Discipline is only one part of the equation.
+- I spent a lot of time in Barbados as a child and I still really enjoy going back there and enjoying the island. Going to Barbados brings back great memories of family holidays.
+- You're not failed parents because you didn't meet every agenda on your child's schedule.
+- There was no way I could have foreseen the success of 'Supernanny.'
+- A lot of parents are confused because they're reading a lot, and they can't make up their mind on what they're doing.
+- All I can say is this: what I'm doing with children is good, solid common sense.
+- I certainly don't have horns growing out of head.
+- I don't think we listen enough. Half of communication is listening first.
+- One of my ongoing messages is the importance of families not being polarized. It's important to talk about routines and bring everything into the middle and not to one extreme or another.
+- I've spent thousands upon thousands of hours helping families.
+- I really want to help people have happier families.
+- I was always the person that was giving advice and helping.
+- I'm a larger lady, a plus size with a bit of belly fat, but I know what suits me, clothes-wise: blouses, tailored jackets and pencil skirts. One of my favourite outfits is jeans, riding boots and a fitted velvet jacket.
+- A lot of women feel apologetic or feel the need to make excuses for not having children but women don't need to if they don't want to.
+- There are millions of working parents out there just keeping their heads above water.
+- My mother had a Spanish upbringing. She was an excellent cook. Everything was home-made. We didn't eat food with smiley faces on it. My Mum passed away in 1994. I miss her. I miss her cooking. It would be nice to have a meal with her again.
+- My brother and his wife are such good parents. They work together as a team. They are doing really well. I'm really proud of them.
+- The importance of being present is the biggest gift we can give our children.
+- As a nanny i see the way children begin to flag in the run up to lunch time so i know food definitely has a big impact on a child's mental state.
+- I am the first to say I'm firm and fair.
+- I used to work in a maternity shop when I was at college. But I started baby-sitting in the evenings. I started then to professionally nanny full time, sole charge, when I was 18. I finished college, and then I didn't go on to do anything else. I started to professionally help families, and I chose not to go to training for professional nannies.
+- I have a schedule that is absolutely relentless.

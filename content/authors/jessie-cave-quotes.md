@@ -1,0 +1,23 @@
++++
+author = "Jessie Cave"
+title = "Jessie Cave Quotes"
+quotes_len = "17"
+description = "the best 17 Jessie Cave Quotes"
++++
+- Children who have been in work for a long time suddenly get a thud down to earth once the cuteness fades, hips widen, voices drop and jawlines strengthen.
+- People suit their star sign. If someone is annoying me over and over, and I know they're a Sagittarius, say, I'm more likely to forgive them. It comes down to my need for structure as a way of finding my bearings with people.
+- I can understand the dilemma of growing up in a bubble, and then not knowing what to do when unemployment beckons and reality bursts in.
+- I grew up with 'Roseanne'; I kind of adore her and stuff like' Home Improvement', really traditional American stuff.
+- You're made aware of what the industry is and what you need to conform to; I don't fit that, and I'm never going to.
+- My experience of children on a film set, especially on a big film set like the 'Potter' one, is not wholly positive.
+- I'm doomed romantically. I try to find a formula for everything in life, and that includes romance, but my methods haven't proven successful because there is no formula in romance.
+- I am not comfortable telling people I am trying stand-up because to me that implies confidence. I'm - well, I'm not.
+- When I got my headshots done, there was this woman screaming at me to blow my lips out. She kept saying, 'You want to be like Scarlett Johansson, don't you?' In the shot, my eyes are popping out; I look terrified. I realised I'd rather not get a job than go through pain to be something I'm not.
+- You can tell a person's morale from their Twitter feed. I like that; it's so honest. And I like being able to follow people who I respect and admire, and the possibility of them seeing my comment about them.
+- I'm obsessed with books. When a good book hits me, it's all I can think about and all I can do.
+- Getting a role in 'Harry Potter' was like winning the lottery. But no one deserves an acting job.
+- Having done film, TV and theatre, the nicest final bit of the jigsaw is to do live comedy, because you can talk to the audience. It feels really natural to be able to laugh with them, but at the same time still be within the framework of a play.
+- When I'm not working in a professional capacity, I'm writing, and when I'm at home, it's a way of having contact with people or communicating.
+- I am trying to work out what my taste is, comedy-wise. I look up to stand up comedians who appear to be telling the truth, but I don't mind if they are lying.
+- My grandparents would never admit to being Tasmanian, but I think it's really great and funny. But I guess, in the past, Tasmanians just weren't quite accepted. You had that lazy reference to them being felons.
+- I don't enjoy doing stand-up. I see it as being like exercise: I feel good about it after I've done it.

@@ -1,0 +1,30 @@
++++
+author = "Joe Sakic"
+title = "Joe Sakic Quotes"
+quotes_len = "24"
+description = "the best 24 Joe Sakic Quotes"
++++
+- I always said to myself that if I thought I slipped and could not be the player that I want to be, then it was time for me to go.
+- Hockey has given me everything, most importantly it brought me to Swift Current, where I met my wife Deb.
+- To play in the Olympics, to play for your country, there's nothing like it. You love doing it and I'm looking forward to it again. We're all looking forward to trying to win another gold.
+- My e-mail address is actually my wife's e-mail address. I actually hate computers.
+- Any free meal is a good meal, you know?
+- You can't play hockey with a bald spot, so I'm hanging up the skates.
+- After 20 years in the game, I was fortunate to get away from the game and enjoy my family, which was great for me.
+- I'm leaving the game of hockey with nothing but great memories.
+- I always said to myself that the minute I thought I'd slipped, and not be the player I wanted to be, it was time for me to go.
+- I didn't know that I'd like it this much, coaching both boys and coming out all the time and seeing how excited they are to play hockey. It reminds you of when you were that age and you wanted to be out on the ice.
+- To be honest, I don't care how it went in.
+- Obviously there are not too many people who get a chance to play in the Olympics in their hometown. That would be something special, but going into the summer you have to be realistic with yourself, and health-wise and motivation-wise you have to be willing to do what it takes.
+- I'm just happy I got a hole-in-one for the first time in my life.
+- The time of year I love the weather the most here is the fall, and I've never really gotten to experience the mountains and Denver in the fall because I was always playing and traveling.
+- As a kid, you dream of winning the Stanley Cup. As you get older, you understand the importance of winning the Olympics.
+- When you think of hockey, when you think of Canada, you think of Wayne Gretzky.
+- When you think of Canada, you think of hockey and you think of Wayne Gretzky.
+- You know what's good? Going on the ice and knowing that you don't have to skate when the whistle blows. All my life I've been the one skating.
+- The benefit is competition, the thrill of playing in the Olympics, being an Olympian, playing against the best.
+- Once you're in the game and it's a part of your life, you never want to leave it. But you have to be committed to be able to travel and do the things you need to do to be successful in whatever role you're doing.
+- The more I can hear, the more I can learn, the better off I'll be.
+- If you keep performing, and if you stay healthy, you keep playing.
+- Here in Denver, we want to thank Jeremy Jacobs for the way he runs his business. Otherwise, we wouldn't have gotten Ray Bourque and won a Stanley Cup.
+- You need a lot of leaders, but a hockey team needs a voice, not only in the community, but more importantly between the coaching staff and the players. There are always ups and downs in a season; the captain is the guy players look to in those situations.

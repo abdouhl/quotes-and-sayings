@@ -1,0 +1,76 @@
++++
+author = "Jeanne Moreau"
+title = "Jeanne Moreau Quotes"
+quotes_len = "70"
+description = "the best 70 Jeanne Moreau Quotes"
++++
+- Characters who are on screen from start to finish are not necessarily the ones who have the greatest impact.
+- My face has changed with the years and has enough history in it to give audiences something to work with.
+- To give a character life in a short space of time, it helps if you arrive on screen with a past.
+- To go out with the setting sun on an empty beach is to truly embrace your solitude.
+- Age does not protect you from love. But love, to some extent, protects you from age.
+- Some people are addicts. If they don't act, they don't exist.
+- I am subject to very powerful lows. When you have highs, you have terrible lows. When you pinpoint that you are responsible for everything that happens to you, it is very frightening.
+- I've never worried about age.
+- I don't feel guilt. Whatever I wish to do, I do.
+- I work more now because at this time of my life I am not disturbed from my aim by outside pressures such as family, passionate relationships, dealing with 'who am I?' - those complications when one is searching for one's self.
+- Women will not talk about football unless one of them is in love with a football player, and then suddenly you discover that they know everything that is to be known about it.
+- During rehearsals I am confronted by things very mysterious. I have terrific fights with inner demons, and it's more painful than it ever was.
+- You should not separate your life from what you do.
+- We have so many words for states of the mind, and so few for states of the body.
+- Success is like a liberation or the first phrase of a love story.
+- I am a woman with absolutely no sense of nostalgia.
+- As a matter of principle, I always come to a film like a blank slate, I don't learn my lines in advance. With this approach, I feel clean.
+- Something pretty... that's just the surface. People worry so much about aging, but you look younger if you don't worry about it.
+- Sometimes the directors were afraid of what they brought out of me.
+- Some gods may cross your path, but why should gods be beautiful? They could also be frightening.
+- When you live under the power of terror and segregation, you can't ever start a work of art.
+- If you're extremely, painfully frightened of age, it shows.
+- Being an actress is to be in tune with the fantasies of a man. What woman never dreamt of that?
+- Although for some people cinema means something superficial and glamorous, it is something else. I think it is the mirror of the world.
+- I can be intimidating, but not within the confines of a film shoot.
+- Life doesn't end at 30.
+- I don't think success is harmful, as so many people say. Rather, I believe it indispensable to talent, if for nothing else than to increase the talent.
+- When Tony was madly in love with me, his relationship with Vanessa Redgrave was ending.
+- I think more and more people want to live alone. You can be a couple without being in each other's pockets. I don't see why you have to share the same bathroom.
+- I need, absolutely, to be alone.
+- You don't have to be a wreck. You don't have to be sick. One's aim in life should be to die in good health. Just like a candle that burns out.
+- I'm always amazed when young women who are having babies want their husbands to watch the babies come out. I would never allow anything like that.
+- I don't like the idea of separating life and work. That notion seems dated and a bit alien to me.
+- To me age is a number, just a number. Who cares?
+- Nostalgia is when you want things to stay the same. I know so many people staying in the same place.
+- Death is an absolute mystery. We are all vulnerable to it, it's what makes life interesting and suspenseful.
+- I have no doubt who I am.
+- Aging gracefully is supposed to mean trying not to hide time passing and just looking a wreck. Don't worry girls, look like a wreck, that's the way it goes.
+- I can't belong to groups. I've tried. I behave normally, but people don't look at me normally.
+- If you want to live your life through to the end, you have to live dangerously.
+- All those vitamins aren't to keep death at bay, they're to keep deterioration at bay.
+- Usually when a woman is 60, it's over.
+- Knowing how to die is knowing how to live. What is death anyway? It's the outcome of life.
+- It's dangerous to assert oneself.
+- If you get trapped in the idea that what is most important is what image of yourself you're giving to the world, you're on a dangerous path.
+- My life is very exciting now.
+- Beyond the beauty, the sex, the titillation, the surface, there is a human being. And that has to emerge.
+- Some children I have met are very beautiful. Some children are imbeciles, vulgar, terrible.
+- Life is an accomplishment and each moment has a meaning and you must use it.
+- Acting deals with very delicate emotions. It is not putting up a mask. Each time an actor acts he does not hide; he exposes himself.
+- I don't like going where I've already been. Life is a myriad of territories to discover. I don't want to waste time with what I already know.
+- The life you had is nothing. It is the life you have that is important.
+- As long as you don't make waves, ripples, life seems easy. But that's condemning yourself to impotence and death before you are dead.
+- People's opinions don't interfere with me. Ageing gracefully is supposed to mean trying not to hide time passing and just looking a wreck. That's what they call ageing gracefully. You know?
+- Life is given to you like a flat piece of land and everything has to be done. I hope that when I am finished, my piece of land will be a beautiful garden, so there is a lot of work.
+- Living is risking.
+- Making films is no longer a way of acting, it is a way of life.
+- My aim in life is not to judge.
+- It's just as idiotic to say there is no life after death as it is to say there is one.
+- To give and receive love, you have to be in touch with pain, you have to be capable of provoking it and feeling it.
+- Every night I go over what I did in the day, in ethical or moral terms. Have I treated people properly? Did I tell the truth?
+- All fiction becomes autobiographical when the author has true talent.
+- The cliche is that life is a mountain. You go up, reach the top and then go down.
+- People's opinions don't interfere with me.
+- I gradually work myself into a frenzy as the shoot approaches, while we're choosing the costumes or working with the make-up artist. I'm not so much interested in my character as the film itself.
+- It's like climbing a staircase. I'm on the top of the staircase, I look behind me and I see the steps. That's where I was.
+- One thing you have to give up is attaching importance to what people see in you.
+- My life is very exciting now. Nostalgia for what? It's like climbing a staircase. I'm on the top of the staircase, I look behind and see the steps. That's where I was. We're here right now. Tomorrow, we'll be someplace else. So why nostalgia?
+- What is amazing for a woman of my age is that I change as the world is changing-and changing very, very fast. I don't think my mother had that opportunity to change.
+- When I'm acting, I'm two beings. There's the one monitoring the distance between myself and the camera, making sure I hit my marks, and there is the one driven by this inner fire, this delicious fear.

@@ -1,0 +1,60 @@
++++
+author = "Travis Beacham"
+title = "Travis Beacham Quotes"
+quotes_len = "54"
+description = "the best 54 Travis Beacham Quotes"
++++
+- If you squint at 'Deadwood,' you can see 'Game of Thrones' coming. That's the show that first got me thinking 'Carnival Row' could be a series.
+- You can only see 'Star Wars' for the first time once, and people are watching it again and again and again, and it's a testament to the strength beyond the plot twists that it has. The narrative strength that it has is that it can be enjoyed even though you know the biggest plot elements in it.
+- Usually, you come into it, and there's half a dozen different views or angles on what different people are wanting to see, from the producer to the director to the writers to the actors. I think 'Pacific Rim' has been an example of something that illustrates what you get if everyone is driving towards a common purpose.
+- I feel like, as an industry, we've gotten too dependent on source material originated in other mediums.
+- When you have a movie that has big stars in it... like, Will Smith does a great job in 'I Am Legend,' and it's a magnetic performance, but he's always Will Smith. That's not his fault. That's not anyone's fault. He's the center of it, and he's a movie star. But when you see something like 'Jurassic Park,' Sam Neill is Alan Grant.
+- Where do you go after something like 'Pacific Rim?' Which, for me, was such a moment, to have this thing and see it all come together, and it's big, and it has this cult following... You ask yourself, 'What's next?'
+- You don't naturally tend to identify with someone who's very different from you on the outside.
+- As I've probably said before, television exposes writers to far more of the nitty-gritty than film does.
+- I think my earliest 'Star Wars' memory that I have was from 'Return of the Jedi.' I distinctly remember the scene with the rancor under Jabba's Palace.
+- I'm so enthralled with the whole universe of 'Pacific Rim.' I never get tired of it. I could do a sequel or two without ever getting sick of it. It's a once-in-a-lifetime idea that you never get sick of.
+- Television has always been an appealing medium for writers to work in.
+- We wanted it to be that you could go to the comic shop and read about the back story of 'Pacific Rim' and the drama inherent in it.
+- With bad sci-fi - sci-fi that I don't really like - you watch it and get the impression that you're just seeing exactly what they created because they needed it in the movie. You feel like there's nothing more beyond that.
+- Legendary is in the unique position in that they have the resources to take risks, which I think has really benefitted 'Pacific Rim.'
+- I think the graphic novel form works, in practice, a lot differently from watching a movie. You can put it down and pick it back up whenever you want - something you can't do in a theater.
+- I have always been a fan of genre stuff and fantasy and sci-fi.
+- I think that's where the magic happens, when you get a bunch of people who are really, incredibly talented and good at what they do and very passionate about the project that they're working on and in love with it. I think that's when you get something that's really special.
+- You don't necessarily have to have your movie made to have success.
+- There's a few things I learned from my experience on 'Hieroglyph.' First of all, I learned that building a world doesn't need to be as expensive as a summer blockbuster. Yeah yeah, newsflash, I know.
+- I think, in general, as a writer, you can't really hide your values. They're always going to fall out onto the page, and I tend to trust that I don't have to force my ideals into the expression of what's going to happen naturally.
+- It seems so cliched and obvious, but write the movie you want to see in the theater.
+- I grew up in the '80s, and you had these original, big-budget sci-fi adventure things all the time, not based on any source material - you'd have 'Gremlins,' 'Back to the Future,' 'E.T.' 'Ghostbusters,' the list goes on and on. I would love it so much if 'Pacific Rim' was but the first in a new wave of that sort of thing.
+- If it involved giants on any level, as a kid I was really wrapped up in that.
+- Making 'Pacific Rim' was a lot like what you imagined making movies would be like when you were 12.
+- A lot of screenwriters write certain characters, certain parts, with actors in mind. I don't really tend to do that. I describe them as specifically as I can, but I don't really picture anyone in particular.
+- When you watch zombie movies, and people say, 'What's going on? What are we going to do?' it's like they live in a world where they've never seen zombie movies.
+- Once you start putting in political subtext, it does create intellectually challenging science-fiction, but with 'Pacific Rim,' I always thought it would be a shame if kids couldn't go see this movie about giant robots fighting giant monsters because it seemed to have a political point of view.
+- If you look, like, in 1960, there was no such thing as an astronaut. It was a totally fanciful concept, but nine years later or whatever, we were landing on the moon, which is just astonishing.
+- I was way into 'Voltron,' Ray Harryhausen: anything with giant monsters, I was really into. Even dinosaurs - for a while, I wanted to be a paleontologist. So it's almost like primal, ancestral mythology to me, this fascination with monsters.
+- 'Carnival Row' is us looking at the stranger; 'The Curiosity' is the stranger looking at us.
+- That's part of what I remember about seeing the movies that influenced me: the experience of watching them with a crowd and how they react to something.
+- For screenwriting, when you're writing, you're talking to hundreds - hundreds of people who might be interpreting what you're saying. When you're writing a comic book, you're really only talking to the artist.
+- If I could pick any story idea or script I had that I wanted everything to go exactly right for, it would probably be 'Pacific Rim.'
+- I remember starting working on the concept and the script for 'Pacific Rim' with a very, very conscious decision to say, 'I don't want any of these big sequences to take place in America,' because I feel like that's become so regular to the disaster genre, and then it sort of devolves into landmark stomping.
+- There's a lot of possibility in the 'Pacific Rim' universe for additional stories to be told, whether that's additional graphic novels or animated series or video games or movie sequels.
+- I actually got into 'Ultraman' through the video games first, before I realized they were based on something. You remember how they had those fighting Ultraman video games? That's how I got into it. Then I started watching the show. Their kaiju look so weird.
+- The benefit of having a story that takes place in the real world is that you don't have to invent the real world. It exists.
+- We tend to see films as artifacts of one mind. The reality of it is, I think, when you come out here and start working, you have to learn pretty quickly that it's a very collaborative process.
+- I would definitely, definitely love to do more comic work. I think, creatively, there's something that's differently rewarding about it than the rewards of filmmaking.
+- I do tend to be on the more optimistic end of things.
+- The old storytellers took the stories that meant something to them and rearranged the pieces to say something.
+- One of my earliest memories is seeing a 'Godzilla' movie - not just my earliest movie memory, but any kind of memory.
+- In my experience, very few people walk out of a movie. You have them for two hours, and you're free to explain or not explain whatever you see fit.
+- I love movies, but I would love to write as many graphic novels as people would read from me.
+- That is always really fun when you get to work with a director you understand and uses references you can identify with.
+- I really fixated on any time there was any kind of monster in 'Star Wars,' even to the briefest second. As a kid, it really captivated my imagination.
+- I would love to have more original material developed. 'Pacific Rim' has made that slightly more possible.
+- I love that sense of discovery. You're experiencing something for the first time, and your parents aren't in on it, previous generations aren't in on it. It has a chance to belong to you and your generation in a way that nothing has. If 'Pacific Rim' is a fraction of that, I would be very proud.
+- I think, television and comics, what's appealing to me as a writer about both of those mediums is that they allow you to sort of let the story unfold in its own time as opposed to trying to compress it into a two-hour discreet unit of narrative.
+- You have to think about space differently; you have to think about time differently when you're talking about a graphic novel versus a movie.
+- In a graphic novel, you have to allow for a certain amount of freedom on the reader's part to experience it how they choose.
+- The writer is just so much more intimately involved in the television process than the feature film process.
+- When I saw 'Jurassic Park' as a kid, that was the first time I thought about making movies for a living.
+- You have to be open to other people's ideas, and you can't be too married to your own.

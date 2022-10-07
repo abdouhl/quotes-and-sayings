@@ -1,0 +1,27 @@
++++
+author = "Tracy Letts"
+title = "Tracy Letts Quotes"
+quotes_len = "21"
+description = "the best 21 Tracy Letts Quotes"
++++
+- One of the things you hope you've done as a playwright is create roles that can sustain different interpretations.
+- I try to write fun - though difficult and challenging - things for actors to do, because I know if they're having fun, they're going to give it everything they got.
+- When books and plays are made into movies, they frequently want to cut out the valleys and just show the peaks.
+- After the success of 'August,' there were people saying I should change my life. And maybe I should have bought a yacht and traveled the world instead of returning to Steppenwolf to act in and write plays. But I'm from the Midwest, and that's what we do: We go back to work.
+- In theater, the playwright is the boss, period. The decisions will go through him or her. In movies, the writer is pretty far down on the list.
+- 'Killer Joe' was originally written in 1991 and first produced in '93 at the Next Theater's Lab - a 40 seat black box theater in Evanston, Illinois - back when I was getting started. I was just 25 and I had been acting for awhile, but it was my first play and the one that really got me noticed, especially by Steppenwolf.
+- I'm not a fan - this is a personal preference - I'm not a fan of tour-de-force writing. I admire it, but it's not where my inclination is. I want to hide.
+- I don't write plays for them to be turned into movies.
+- 'Killer Joe' provides a lot of red meat for the theater. Pam MacKinnon is the perfect director to shepherd a group of actors who share a certain bloodlust.
+- Some people do stage and film. Some people are film actors, and some people are stage actors. I'm quite sure that any of the actors who did the original production of 'August' could have done the film of 'August.' I don't think any of them were particularly surprised when they didn't wind up doing the film.
+- I don't have a great face for camera.
+- When I write a play, and we read it for the first time, the great fear is that everybody is going to say, 'You're a bum and you can't write. This stinks.' and throw the script in the garbage. The great hope is that they're all going to lift me up on their shoulders and carry me to the streets, singing, 'He's a genius, he's a genius!'
+- It's not a natural translation, transition, to take something from stage to screen. Onstage your action is communicated through the spoken word primarily, and on screen it's communicated through pictures. So it's always been kind of unnatural to take something that lives on the stage and turn it into moving pictures.
+- You don't work as hard to watch a movie. You work harder to watch a play, so what the audience puts into it is interesting.
+- I think my experience as an actor helps me to write anything. It certainly helped me to write 'August Osage County.' It helps me to write any play that I'm working on because I think one of the things I do well is write good roles for actors.
+- I like it when actors get an opportunity to chew into something. They love scenes with beginnings, middles, and ends - scenes that give an arc to their characters and allow audiences to get to know these people.
+- I grew up in a small town, in a small community, and I would not have had access to great plays when I was a kid were it not for the films of 'Who's Afraid of Virginia Woolf?' and 'Cat on a Hot Tin Roof.'
+- I don't believe moviegoers don't have patience. Screenwriters are told a scene can't be longer than three minutes, that you have to cut to the chase. Not true!
+- The nature of the beast is that film is a director's medium. It's not a Tracy Letts play, it's a John Wells film. 'August: Osage County,' as a play, is done. Written. On the shelf. It'll be performed in its entirety for years.
+- The way we tell our stories on stage is that we use spoken word to convey action, and in movies, we use visual images to convey action.
+- I'm just a Chicago actor who's a playwright. Even with the success of 'August,' the people in town who come to our theater know me by sight, because they've seen me onstage so much.

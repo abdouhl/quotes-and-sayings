@@ -1,0 +1,73 @@
++++
+author = "Mark Wahlberg"
+title = "Mark Wahlberg Quotes"
+quotes_len = "67"
+description = "the best 67 Mark Wahlberg Quotes"
++++
+- There's nothing like seeing the smile on my kids' faces. Laughing together. Playing. It's the best.
+- I work out Monday, Tuesday, Wednesday; take Thursday off; then I work out Friday and Saturday. So sometimes I'll eat whatever I want on Thursday, like a big breakfast of pancakes and bacon and eggs and stuff. You can eat a big, hearty breakfast because you're going to burn off most of it during the day anyway.
+- The world is very different today than it was in 1968.
+- Immortality... Is that a super power?
+- If I succeed in business but fail as a father, then I've failed.
+- In my movies, I'm not trying to erase any old image of myself, really. And also I'm not trying to imitate anyone or follow in their footsteps, because I know, Burt Reynolds was just one of the people that told me this, I know how you can only last in this business if you got something special to offer, just by being yourself.
+- And I tell you, having girls has made me a much better man. I have friends who are fathers, but they only have boys, and they have the same attitude toward women they always had, you know? And I don't play that... My girls, you mess with them? I will bury you underground.
+- The only thing I don't like about acting is that it takes so much time away from my family. Otherwise, I don't have any complaints.
+- I want people to come see my films and enjoy them but at the end of the day you can't control what people think.
+- When I was a rapper, the groupies didn't have to try too hard with me. Just show up at the hotel.
+- My sons and I thoroughly enjoy Legos. We go to the toy store every week for more. I never want to take what we build apart; I want to put it on a shelf. My wife is starting to get a little annoyed with the Legos lying around.
+- For me, family always comes first; I would do anything to protect them.
+- I approach a comedy the same way I do a drama. I try to make it as real as possible.
+- I don't wanna hear nobody complain that they're getting paid all this money and people won't leave them alone. It's part of it.
+- Women don't get the credit they deserve.
+- I don't plan on ever letting my daughters date. I'm going to try to do everything I can to prevent it. You know, it just terrifies me. It just terrifies me.
+- Being a Catholic is the most important aspect of my life.
+- The first thing I do when I start my day is, I get down on my hands and knees and give thanks to God. Whenever I go outside of my house, the first thing I do is stop at the church.
+- Having two daughters changed my perspective on a lot of things, and I definitely have a newfound respect for women. And I think I finally became a good and real man when I had a daughter.
+- I work as hard as anybody will ever work and I like that. That's why I've been successful and that is when I feel good about myself. If I do my damnedest and don't succeed, I feel good about the effort.
+- The success of 'The Fighter' made it a lot easier to get 'Broken City' green-lit. And the buzz about 'The Fighter' also made it a lot easier to get 'Contraband' green-lit.
+- It's all about hustling, whether it's in Boston or the film industry. I've been hustling my entire life - acting my way into trouble and acting my way back out again. I'm just fortunate to have had the opportunity to apply it in a different direction.
+- As far as I'm concerned, there's no job more important on the planet than being a mom.
+- I don't go to Mass every day. But I go to church every day. Just sitting there, thinking - it's a great way to start the morning, you know? You feel so good coming out, and your approach to everything is suddenly really clear.
+- I'm fortunate that my job gives me the motivation to be as fit as possible. I wound up in a profession that requires physical and mental preparation, so I get to prepare like an athlete for everything I do. I'm living the dream, man.
+- I love being on sets with very seasoned directors as well as very new directors. Every time is a discovery process. You learn something new every time.
+- If I don't go to mass, necessarily, every day, but I definitely go to the church every day. That's how I start my day. I like to get in there for about 15 to 20 minutes and say my prayers.
+- As soon as I ended up being incarcerated, I said, you know, this is not the life for me.
+- Producing suits me because I have a business mind and a business sensibility. I was a street hustler. I did whatever it took. I sold whatever I could sell. I'm a good organiser.
+- Being fit is almost as important to me as my face. And for me, it's a combination of being spiritually and physically fit. There are guys who want to look good, and there are guys who want to perform at their best. Being fit is about being able to perform at your best, not necessarily just looking your best.
+- I've got a pretty wide range of stuff that I'm interested in in life. But producing... it gives me a lot more time at home to spend with my family as opposed to being away on location shooting nights for months at a time.
+- A lot of talented actors still have to pay their bills.
+- I never got on the course with my dad, but to be playing golf with my kids - that's a dream.
+- The environment I was raised in, you had to, to survive.
+- Well every moment, every project is different. I took a very slow approach to acting, trying to really work with people I could learn from. And I got something different out of each experience.
+- If I can start my day out by saying my prayers and getting myself focused, then I know I'm doing the right thing. That 10 minutes helps me in every way throughout the day.
+- Growing up, I think I was arrested 20-odd times by the Boston police. The good news is that I've been able to use those experiences in a lot of my roles, and that has been a blessing.
+- I don't want to let my guard down and feel too comfortable. If you become complacent, you start feeling entitled. I'm ready to go dig ditches if I have to. Whatever I gotta do to provide for my family. Whatever I gotta do to make sure that I do the best possible job at whatever wonderful opportunities I've been handed.
+- I have a lot of real life experience that I can draw on. And I think that shows in the characters that I play because I'm always trying to find somebody - or find characters to play that I can identify with on a personal level or relate to. And I think it makes for a little bit more of an honest portrayal.
+- I've been in enough movies to know that when you're on the set and you start shooting, you're looking at playback and you get a sense of what it's going to be like.
+- When I - when I was going to school, I knew how to read, write, add and subtract and I - I basically said, 'What else do I need? I'm never going to be able to go to college. I'm not going to be able to afford to go to college. I'm not going to be able to get a scholarship.'
+- I've always looked at my career as an athlete would look at his. I won't play forever. Some don't know when to walk away, but the smart ones do.
+- But no, I'm not political. My obligation is to pull the lever and elect somebody who's going to make life a little better for everybody, especially those who don't have as much good fortune as others.
+- I've always wanted to do right in life. But the wanting and the doing aren't quite the same thing.
+- Clooney is just a pretty boy, man, and that's it, OK? I carried him on my back long enough. I'm on my own.
+- You know, there's nothing like seeing the smile on my kids' faces. Laughing together. Playing. It's the best.
+- I've always been into working out and eating healthy. That's just who I am.
+- A lot of people tend to chew up the scenery. I'm a firm believer in less is more, especially on the big screen.
+- I'm always friendly and encouraging on set. I want people to be at their best creatively.
+- I'm the father of two boys and two girls, so I'm more an emotional wreck than a mushball.
+- Look, if you're driving down the highway at 120 miles an hour, I'd rather be behind the wheel than in the backseat.
+- Tiger Woods is the only sports star who's worth every penny he makes.
+- I can always see something of myself in the characters I play.
+- I pray to be a good servant to God, a father, a husband, a son, a friend, a brother, an uncle, a good neighbor, a good leader to those who look up to me, a good follower to those who are serving God and doing the right thing.
+- James Cagney, Steve McQueen, I loved all those guys. I grew up loving the movies but had no desire to be in them.
+- I like to do projects I feel some connection to.
+- It's funny, because when you're younger you're in a rush to be 18 or 21 or whatever. But then you hit 30. And now, the days go by like hours. You think, 40, man, this could be the halfway point. It could be the three-quarters point, you know? Who knows?
+- I have more money now than I know what to do with.
+- All that running around in my underwear put money in my pockets. I can focus on working in interesting movies without having to worry about supporting myself.
+- I've always wanted to be in the health and wellness business. I try to encourage people to live a healthy lifestyle.
+- I did a lot of things that I regretted and I certainly paid for my mistakes. You have to go and ask for forgiveness and it wasn't until I really started doing good and doing right, by other people as well as myself, that I really started to feel that guilt go away. So I don't have a problem going to sleep at night.
+- I embrace old age. Look, I'm never going to dunk on LeBron James, and I've learned to accept that. I got a pretty good life, and I'm very fortunate, and I have my blessings.
+- I like to talk to people. I've got one assistant, one Blackberry. That's my overhead. I don't text that much or email. I like to sit down face-to-face and have a conversation with you. I'm old-fashioned.
+- I love roles where I am required to prepare physically. And it's fun putting on weight and eating.
+- He's a legend and I respect his work, so I went down and paid my respects when Charlton was on the set. He was nice but I think he lied a little. He said it was an honour to be in a movie with me, but I don't believe it.
+- I never lie. I believe everything I say, so it's not a lie.
+- There aren't really many compliments flying around with me and my friends. It's a lot of tough love. But you know, that love is there, and if you need to have a serious conversation, you just gotta wait for the right time to do it.

@@ -1,0 +1,39 @@
++++
+author = "Mahalia Jackson"
+title = "Mahalia Jackson Quotes"
+quotes_len = "33"
+description = "the best 33 Mahalia Jackson Quotes"
++++
+- Time is important to me because I want to sing long enough to leave a message. I'm used to singing in churches where nobody would dare stop me until the Lord arrives!
+- My hands, my feet, I throw my whole body to say all that is within me.
+- The mind and the voice by themselves are not sufficient.
+- The trouble with records is that they're too short.
+- Blues are the songs of despair, but gospel songs are the songs of hope.
+- Everybody needs somebody.
+- How can you sing of amazing grace and all God's wonders without using your hands?
+- This is the place to see the stars - Hollywood Bowl.
+- When you sing gospel you have a feeling there is a cure for what's wrong.
+- Anybody that sings the blues is in a deep pit, yelling for help.
+- I don't worry too much about the script, I just ad lib, like Pearl Bailey.
+- I'll come to any benefit if I see SCLC get all the money.
+- Put your mind on the gospel. And remember - there's one God for all.
+- When you are through with the blues, you've got nothing to rest on.
+- They thought I was a success as soon as I started paying the bills.
+- Anybody singing the blues is in a deep pit yelling for help.
+- If you believe in God, He will open the windows of heaven and pour blessings upon you.
+- The old Devil gets mad when you're trying to do good. Pray that God will move the stumbling blocks.
+- God can make you anything you want to be, but you have to put everything in his hands.
+- If you want me to sing this Christmas song with the feeling and the meaning, you better see if you can locate that check.
+- Faith and prayer are the vitamins of the soul; man cannot live in health without them.
+- Sometimes you ask God for something and you don't know what you're asking.
+- The Lord doesn't like us to be dead. Be alive. Sometimes I dance to the glory of the Lord, because He said so.
+- Without a song, each day would be a century.
+- I close my eyes when I sing so I can feel the song better.
+- You're blessed if you have the strength to work.
+- I hope to bring people to God with my songs.
+- It is easy to be independent when you've got money. But to be independent when you haven't got a thing, that's the Lord's test.
+- Baby, black promoters oppressed me before white promoters ever got hold of me. Don't talk skin to me.
+- Do you know most of the Jewish songs have the same trend of sadness as Negro spirituals?
+- One thing about playing the real jazz is that you can't count it.
+- Money just draws flies.
+- Gospel music rhythms are not African in origin, although I know that's what the jazz experts say.

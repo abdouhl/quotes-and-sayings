@@ -1,0 +1,106 @@
++++
+author = "Josh Barnett"
+title = "Josh Barnett Quotes"
+quotes_len = "100"
+description = "the best 100 Josh Barnett Quotes"
++++
+- I've only got so much time on this Earth and then that's it. So I better make the most of it.
+- If I focus on one person, the idea is that, oh, now you've attained this goal and beaten one person. One person. Well, what about the rest of them? Now how are you going to feel about fighting them? What's the motiviation there?
+- I think Cormier is a great opponent. He's a guy who has competed at the highest level of athletics and I'm going to have to train really hard for him.
+- The concept of USADA is not bad.
+- I have been doing some savate training.
+- Strikeforce needs a real champ. It needs a real champ like me or Cormier.
+- As long as you're moving forward whether it be one step or ten feet man, you got to keep going.
+- I know that I can beat anybody in the world.
+- Wrestling is difficult - it is not just about doing moves and running around, and creating high spots. It's so much more subtle than that.
+- Getting to work with Mauro Ranallo was awesome because he's one of my favorite MMA announcers.
+- The Young Bucks do a good amount of winking at their audience and you can argue whether that's good or bad.
+- We look at MMA and working pro wrestling as one and the same, they're just two different sides of the coin.
+- The unfortunate part about trial by fire in fighting is that people punch you in the face.
+- Often in fighting, you get dealt certain cards and that's what you have to work with.
+- I've trained women to be catch wrestlers. Shayna Baszler's a catch wrestler, she's clearly not a heavyweight. Megumi Fujii, far from being a heavyweight, and she was a fantastic catch wrestler.
+- When you think of fighting, you think of the work that you put in at the gym. Well, recovery is part of that work process.
+- When I was five years in, I was the UFC heavyweight champion, and all I could think about was fighting.
+- A lot of people take shortcuts in terms of using athleticism and defensive tactics to try and have the right game plan to go out there and win in the mixed martial arts 10-point must system. The finishing ability is put aside a little bit. But to learn to really finish takes more skill. It comes down to finishing. I go out and finish people.
+- My goal is to be the absolute best in the world and to beat everybody who walks this earth. And you know what? There's a lot of people out there.
+- Titles are spoils of war.
+- Fighting is not the only thing in my life. It never was the only thing in my life. I have other pathways if I have to ply a trade. I wouldn't be sad about doing these other things, either. I enjoy them as well.
+- The thing is, wherever I go, I'm a wrestler. I'm not an entertainer or superstar or whatever. I'm a wrestler first, and I won't concede on that.
+- I grew up in a great era of professional wrestling. WWF was just really coming into it's own. The start of WrestleManias, the legendary performers like Macho Man, Hulk Hogan, Honky Tonk Man, Iron Sheik, Sgt. Slaughter.
+- To be in the UFC would mean to go back to where I already won the belt, to go back to where I was a champion at 24 years old, and try to cement my legacy as an MMA fighter.
+- The fact of the matter is, I fight because I have to - because it's a thing that drives me, not because of anything else.
+- I'm a born fighter.
+- I'm a big proponent of 'What happens in the locker room stays in the locker room.'
+- If you were in the UFC as a heavyweight, you'd be an idiot to not want to fight Brock Lesnar. Whether he's a good fight for you, that doesn't matter.
+- I think Metamoris really likes having me as their champion, as far as I know, anyway. I think I've done a good job of being a champion and showing what a champion is.
+- Big Nog and me are two different types of fighters. Nogeuira lived by his chin, he wasn't afraid to take a lot of punishment in order to dish out a whole lot of punishment. Personally, I know I can take a really big shot. I'd rather not.
+- You have to go out there and win battles before you can raid the dead of all their belongings.
+- I was awarded a second-degree black belt in jiu-jitsu by Rigan Machado.
+- That's why guys in MMA call each other out most of the time. High reward and low risk.
+- If you want to be the best jiu-jitsu player in the world, by all means, if you want to spend most of your time doing jiu-jitsu, that absolutely makes sense. But, for one, don't consider just because you may be the best in the world at what you do, that doesn't make what you do the best in the world.
+- There's more than a few people that I could think of capable of meeting Brock Lesnar in the Bloodsport ring. We don't lack for for capable and wanting fighters.
+- There's a lot of indigenous wrestling styles there that used to be a lot more popular and stronger within the European continent. Although, there's still quite a few countries over there that produce pretty spectacular Greco and freestyle wrestlers.
+- I just make sure I'm in good shape to fight whoever's in front of me.
+- I hate to disappoint.
+- The way business is conducted on a governmental and legal aspect is completely different in China. The idea for us to have Facebook or Twitter as 'oh, well it's the Internet, anyone can put up whatever they want and be whatever they want.' It doesn't work like that in China. There are much more govermental restrictions on a lot of things.
+- I've worked in Hollywood before.
+- I don't need to chase titles because I've fought in so many title fights and so many title fight-level matches that if somebody thinks I need to give them a reason to give me a shot at any belt in the world, then clearly they don't know what they're about as far as MMA.
+- I fought 'Travis Browne's' all my career. They just had a different name at a different point in life. They had the same type of skillset. They're basically the same type of guy.
+- The fighter knows best. Let them do their job. If they want to quit, they'll quit.
+- Hard times have been on Josh Barnett. Dealing with athletic commissions. Everybody's saying, 'You did this and you did that. You're the problem for this.' That's hard times. Hard times on my family. Hard times on my friends. Hard times on me.
+- If you're in Bloodsport, it's because I've seen something in you that shows that you can fight.
+- A guy with my size and speed, the technical savate kicks can be very dangerous for a heavyweight.
+- I'm glad Ralek Gracie and Metamoris have been so gung-ho about me competing for them and being their champion. I've liked the response I've been getting and to be able to go out and represent where I'm from in catch-as-catch-can. I go out there and I've beaten my opponents, but we're picking each other off the mats, smiling and shaking hands.
+- Why antagonize somebody for no reason? Why try to garner attention by doing something negative? Why not do something positive on your own merits, instead of somebody else, whether it's to try to antagonize them or draw their ire, or even to have them help you out.
+- My interest in wrestling began when I was a little kid, watching NWA and WWF on television.
+- Any way I can beat somebody up, I want to learn it.
+- We understand in this sport, of course, people will develop friendships. But at the same time, in our business, you'll fight, and we're OK with that.
+- I can fight for a title against anyone in any league, anywhere, anytime.
+- I know I can win title belts.
+- I consider myself a pretty wrestling commentator, but only in the sense that I call it like I see it. It's serious business to me, and it's an athletic sport of wrestling, and I treat it as such without putting a big gimmick on it.
+- I'd always looked at 'TUF' and thought I'd like to do something like that.
+- I always remember the fact that all businesses are for sale if you bring them the right number.
+- I always feel very strongly that Bloodsport is going to deliver and going to continue to try and pick up the ante every single time.
+- I fought when there was no money from fighting really.
+- I've done commentary before for Pancrase, they had a show called 'Pancrase: Legends of MMA' that aired on Imagination Television. I've done live commentary for PRIDE, I've been around the block a bit.
+- I'm no snitch.
+- I'm not an attractive fight for most people. I never have been. I haven't been called out too many times in my career, and there's a good reason for that.
+- When you look at a guy like Cain Velasquez, he's a tough kid who's fought his way up the ranks, but he doesn't even have as many fights as I have wins.
+- Even the wins that I've experienced, I've spent a lot of time reflecting on everything that went into it: where I could've improved, where I did well, what was expected and how that came out, what was unexpected and why did it occur.
+- The people who follow you should have a reason to do that. You shouldn't talk like everyone else. The stars and athletes drive the sports. People tune in to see so and so fight.
+- I can act, I can do other things, but once your athletic window is done there's no returning to fighting.
+- Winning is really all that matters.
+- Having a professional grappling outlet is great for other submission wrestlers out there beyond Abu Dhabi, which happens every two years.
+- If every punch thrown was a knockout, then fantastic, but most punches don't end up in knockouts and most submissions don't end up being the one to finish the match.
+- The thing about 'Bigfoot,' he's a big guy and he's agile for a big guy, but he's not that agile and he's not that athletic. In fact, being a big guy is probably his greatest asset.
+- I've seen some folks with Olympic backgrounds go into combat sports and it just not being for them. You know, doing Judo or something else you might excel, but as soon as a punches are flying, they're out.
+- I know there's this idea going around that I bury The Young Bucks on commentary but that's never been the case. If anything, I've only treated them harshly as heels. That's it. When they started turning around from being a heel to a face, it's a whole different story. That's simply a matter of how I see commentary as opposed to beef.
+- The worst thing you can do to a fighter is stop it before you give him a chance to give all he's got.
+- I fought when you couldn't even buy MMA gear at your local sports store or whatever. We had to make it ourselves.
+- I just came to the conclusion that I'm going to fight until I can't, and that's it. I'll know when that is. I'll be honest with myself.
+- This isn't the Best Friend Fighting Championship. This is MMA.
+- I fought when most of the time we didn't even wear gloves.
+- To me, professional wrestling is made up of that: Olympians, world-class power-lifters, fighters, boxers, and you name it.
+- You're the favorite when you've won, you're the loser when you lost.
+- I couldn't think of a worse thing than to be anywhere with Chael Sonnen for 20 minutes.
+- I felt like Jeff Cobb was an absolute perfect fit for Bloodsport.
+- The big thing that Sakakibara has going for him besides experience is that he has relationships prior with the paid television stations and that is a massive component to being able to put your product into try and become successful in Japan.
+- What your strengths are are always going to be the things that you're going to go back to, especially in the that spot where you need to draw from deep within. You're tired. You're exhausted. The ability to really think things through is highly reduced from being in the midst of battle.
+- You know, there is more to being a coach than just techniques.
+- I speak for myself, my record speaks for itself, and my ability speaks for itself.
+- There will be another Travis Browne when Travis Browne is done being Travis Browne.
+- Does anybody really survive 'Sharknado,' including the viewer?
+- I've coached a lot of athletes over the years and it's not new to me to work with people and create drilling structure and things for them.
+- There are a lot of subtle things that are very, very important in wrestling, and to pick those up just takes time and experience. The only way that I really feel is best to do that is to go on the road. I learned every day by showing up early and leaving late.
+- We're not going to do any titles in Bloodsport. That's really just for a very very very simple reason and that is because as an indie wrestling promotion, there is no guarantee that we can ensure that we can have return on talent. If someone gets picked up, there's nothing we can do to make sure we keep them.
+- The thought has crossed my mind to quit even dealing with organized mixed martial arts in general and just fight my own fights, however I feel like.
+- There was no title fight in any organization in the world that in my opinion was absurd for me to be a contender in.
+- Honestly, I feel like the more entrenched into professional wrestling I got, it became apparent to me that it was really a part and parcel with MMA. There wasn't a whole lot of difference at all. If anything, I refer to it as the other side of the same coin.
+- All fights interest me. Punching people in the face and watching them cry for their momma always interests me.
+- If I were to fight Fedor I think it'd be a great match and I don't think there'd be any problem.
+- You have to beat your opponent, otherwise you get to walk home with a black eye and wounded pride.
+- Reduction of inflexibility means reduction of injuries. That just means being able to move a lot easier and, you know, not looking like Abe Vigoda when you get out of bed in the morning.
+- One of the greatest struggles of bureaucracies is they get built and created, but they design themselves in such a way that they can never be at fault. They can never be wrong, they can never have made a mistake and they never want to relent.
+- Hard times is not being able to get a fight. Hard times is, knowing the company, waking up one day and seeing they been sold to your competitor, not knowing what you're going to do. Where's my contract at? Where's my money? Where's my security?
+- Working is working, and there's a lot of great guys in WWE that I'd love to put on a match with.
+- When you can't trust someone, what are you supposed to do? Continue to give them the opportunity to break your trust?

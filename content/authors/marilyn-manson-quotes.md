@@ -1,0 +1,171 @@
++++
+author = "Marilyn Manson"
+title = "Marilyn Manson Quotes"
+quotes_len = "165"
+description = "the best 165 Marilyn Manson Quotes"
++++
+- Marilyn Manson is a mockery of American pop culture.
+- If I were in a room full of people, I'd rather be the person who is more interesting than the one who is wallpaper.
+- For me, art is supposed to be a question mark.
+- The difference between me as Brian Warner or Marilyn Manson is just words. Same personality, sensibility, sense of humor, behavior. He is me.
+- I've started to think that maybe I wouldn't mind passing my demented genius on to some small thing who can set fire and breathe profanity.
+- Leave me in a room with some crayons and I'll draw on the wall.
+- If you lose emotion, and you gain it back, you realise that hate and love are very important to distribute properly. So I'm not going to waste any kind of emotion on things that aren't related to me.
+- As a kid I just felt like an outsider.
+- Yes, I'm reckless and sometime express no concern for my own well being, and I express a misanthropic view of the world, but to have an opinion, you can't be a nihilist.
+- If what you do is being threatened as a profession, that could be scary. But that's the same reason why I walked out on stage many times after receiving death threats. I couldn't live without doing what I wanted to do. So at the same time I have to be willing to die for it.
+- I've been able to watch and to weather a lot of different periods in entertainment, politics and life.
+- Johnny Depp is like a brother to me. We have matching tattoos on our backs - Charles Baudelaire, the flowers of evil, this giant skeleton thing. It's kind of a secret. People say to us, 'Why did you get that?' And we say, 'No reason.'
+- Art gives people a reason to be alive.
+- The advantage of the internet is that it has taken away the charade of politics. China has heard of democracy and people know about certain concepts they wouldn't have previously.
+- I'm someone who is open-minded to new experiences because they teach you new things.
+- I was an extra on 21 Jump Street when I was 19 years old.
+- I don't try to be bad as much as I just am by nature.
+- They'll see it. And it doesn't matter if they don't. It's only Rock 'n' Roll. But I do intend to move more into the Mainstream. Marilyn Manson is just the First phase.
+- There's no reason to change what you are, but if you're not being you, then you need to acknowledge that.
+- Finding someone who's willing to drown with you creates a situation where you no longer want to drown.
+- I don't want to feel like I've matured. That's a stupid word that I never want to use.
+- Things have become devalued to the point where people don't realize the repercussions, that they're devaluing themselves. It could end up bringing about chaos, a lawless situation.
+- Art gives me the freedom I don't have when I make music.
+- My dad loves what I do and I support my parents financially because they didn't have a job that gave them a pension.
+- I'm completely unlike a lot of other performers in the past who have been forgiven or come to terms with the real world because they tell everyone their performance is 'just a show.' And so, people say, 'Oh, it's OK then. We don't care. He's not really a bad person.' It's not just a show for me. It's my life.
+- If you want break it down, rock and roll is about saying what you can't say in normal life to girls, so you have to say it in songs.
+- Living in Hollywood, it's easy to have someone flatter you. That doesn't help me.
+- To me, Satan ultimately represents rebellion.
+- Sometimes music, movies and books are the only things that let us feel like someone else feels like we do.
+- If Satan wasn't around, churches would go out of business.
+- To admit you want to have a comeback means you have to admit you weren't what you were supposed to be. You dropped below your own standard.
+- I never said to be like me, I say to be like you and make a difference.
+- If a kid is old enough to drive a car or buy a gun, isn't he old enough to be held personally responsible for what he does with his car or gun? Or if he's a teenager, should someone else be blamed because he isn't as enlightened as an eighteen-year-old?
+- I think people have to take responsibility for their own actions.
+- If you're gonna pretend to be something, then you have to at least live up to what it is.
+- A lot of people don't want to make their own decisions. They're too scared. It's much easier to be told what to do.
+- When I was stalking my special lady friend on MySpace, people would always say, 'Is this really Marilyn Manson or some kind of psycho?' And I'm like, 'Both.'
+- I think everybody's got a presentation. Everybody looks a certain way because they want to convey a certain image. You look a certain way because you want people to listen to you in a certain way.
+- For me, the key to longevity - and immortality, in a sense - has to do with transformation.
+- There was definitely a lack of any sort of villain in the Clinton era, which is why, when Columbine happened, it was easy to pick on me. My face was around, and it made good TV.
+- Anybody intelligent enough to realize what America is, is not going to sit around and do nothing about it. They're going to be the same way that I am. They're going to be the same way our fans are. They're going to be pissed.
+- Growing up going to Christian school and the concept that you're born a sinner and you don't really have a choice to change who you are has been hammered into my head and created the entire reason why I made art and made a band and made records called 'Antichrist Superstar.'
+- In music, you feel a connection to the voice and think about the person behind it. In art that's secondary.
+- Sometimes you feel awkward being what you're best at, you feel like you have to be something new.
+- It's shocking to me that it's easier to buy a gun at Wal-Mart than it is to buy my record.
+- I care about the people I know and love the most, but I also care about what the people I don't know think in the sense that I want them to think and understand me in a certain way. I don't base my life around either one, and I don't change the way I live to please either set of people, but I do care.
+- Actors always want to be musicians, and musicians want to be actors.
+- When I finish a picture I don't show it to anyone if I feel it's not good enough yet. I've learnt to listen to my partners and my friends. For me it's the biggest success if they like it.
+- Find out what's really out there. I never said to be like me, I say be like you and make a difference.
+- I don't have anything against Simon Cowell and 'The X Factor.'
+- The word 'Antichrist', to me, is the collective disbelief in god.
+- Fear is something I instill in other people, mostly young girls.
+- I can't go to sleep at night if I didn't accomplish at least something. That's the one thing that keeps me up.
+- I decided to make music again at a time when I couldn't have had more obstacles.
+- Music is the strongest form of magic.
+- All the seven deadly sins are man's true nature. To be greedy. To be hateful. To have lust. Of course, you have to control them, but if you're made to feel guilty for being human, then you're going to be trapped in a never-ending sin-and-repent cycle that you can't escape from.
+- I think it's the pain and suffering that drive you to become an artist. The art itself should be the pain, sort of exorcising every demon and making you feel like you're a person that matters.
+- To me, Columbine is just as awful as Vietnam, and it's just as awful as anything else.
+- I'm not a role model. I'm a role villain.
+- The point is that life for me is not going to be the way it is for everyone else. I have a fog machine and movie lights in my bedroom.
+- Is adult entertainment killing our children? or is killing our children entertaining our adults?
+- I refuse to say things behind people's backs.
+- My father had a very violent temper, and he was never home. So I was kind of a mama's boy.
+- Everything I was afraid of when I was growing up, I've become. I've taken on my nightmares, like the devil and the end of the world, and I've become those things.
+- The burden of originality is one that most people don't want to accept. They'd rather sit in front of the TV and let that tell them what they're supposed to like, what they're supposed to buy, and what they're supposed to laugh at.
+- From Jesse James to Charles Manson, the media, since their inception, have turned criminals into folk heroes.
+- I used to have nightmares about the Antichrist - what would happen, where it would come from, and who it would be.
+- It's better to use a curse word than to hurt somebody else, I find.
+- I like Kylie Minogue sometimes - I like a lot of unusual stuff... I don't know - I like Justin Timberlake over Lady Gaga, just musically.
+- This is the culture you're raising your kids in. Don't be surprised if it blows up in your face.
+- The time that people aren't expecting what's going to happen, I find that's the best time to really cause the damage that needs to be done.
+- I was a pizza delivery boy at the Pizza Oven in Canton. I wanted to get fired so bad, I actually wrecked the delivery car, but they wouldn't fire me because I was the only person they had working there.
+- I don't say things to be offensive; I say things because they're funny to me. It amuses me.
+- I wish that my life could be like the movies, like 'Bonnie and Clyde' or 'The Hunger' or 'Harold and Maude.' And... it can be! It maybe just takes somebody else who is as fearless as you. It takes a person who will not hesitate.
+- My first memories of religion were being taken to Episcopal church. My father was Catholic, but my mother, I believe, was Episcopal. So I sort of veered off into the watered-down version of Catholicism.
+- It's my job to be the Pierrot, the clown, in the theatrical sense.
+- The hero is never the star of the story.
+- I went to one AA meeting and I got asked for an autograph.
+- I believe a lot about psychology, or I'd like to learn about it - I'm someone who likes to learn about everything.
+- Anybody who does not evolve can become a self-parody. I have to evolve on a daily basis just to keep my own interest in what I do.
+- Videos have to go hand in hand with your music, so that's why, ultimately, they should be created by the artist. And if they're not, it doesn't really add up to me.
+- In a sense, terrorism blossomed in the advent of television. Television promotes terrorism in religion and in politics.
+- Part of me is afraid to get close to people because I'm afraid that they're going to leave.
+- I can't sleep without the TV on. It doesn't matter where it is. I don't like silence. My ears ring from loud music.
+- I did vote Obama. But I've never believed in the authenticity of the two-party system.
+- I'm thinking about entering a Marilyn Manson costume contest to see if I lose.
+- I like zombie movies. I like 'The Walking Dead;' I like the metaphor of it, simply because when we go with the zombie concept - if you're bitten by a zombie, you don't transform into something else like a vampire or a werewolf or whatever. You become something that's not you.
+- Everything is acting.
+- The first time I performed musically, I threw up.
+- Rumors, stories... I'm used to them. I got my ribs removed, I was on 'The Wonder Years'... You know there's a different story every day.
+- I believe that you are not stuck with a pre-destiny. I believe that there is ways to see all these things that are laid down in front of you and where you belong and to smack yourself in the face when you realize that you've strayed off your path and get back to where your path is.
+- I don't encourage people to choose any sort of sexuality.
+- Comedians have a huge carte blanche and the ability to get away with saying a lot of things.
+- When all of your wishes are granted, many of your dreams will be destroyed.
+- Marilyn Monroe wasn't even her real name, Charles Manson isn't his real name, and now, I'm taking that to be my real name. But what's real? You can't find the truth, you just pick the lie you like the best.
+- When I turned about 14, I developed a friendship with this guy whose mom was the secretary to Ernest Angley, the faith healer, who's very popular in the Midwest. He had a television show, and he was sort of like Liberace mixed with Jerry Falwell - very glitzy, very high-tech.
+- There's just no great rock albums anymore. There's a lot of rock music out there, but it's very bland and disposable.
+- I'm not going to be some kind of PC, tree-hugger.
+- Marriage changes everything.
+- Are people raised to be villains or vilified like I have become?
+- I like to be unhinged; I like to be unpredictable. I like to make people worry that worse things can happen whenever I go out to a restaurant or act in a movie.
+- Times have not become more violent. They have just become more televised.
+- The person who thinks I worship the devil and kill animals is just as important as someone who makes an interpretation that's closer to what I intended.
+- When you're in a relationship, if you just break it down to regular terms, people are attracted to something, and that's what they want you to be, and that's what you should just be, and for me, it's very simple - if I meet a girl and I say, 'This is what I like about you. Just continue. Every day.'
+- If you lose who you are, what do you have?
+- Jesus is a half-naked guy, hanging, nailed to a cross, and then people wear that around their neck, and then those are the people that are upset about violence in movies.
+- There's nothing that anyone could say about me that would hurt my feelings.
+- I've never treated anyone in my band like they're not on the same level as me. I'm not that kind of person.
+- People tend to associate anyone who looks and behaves differently with illegal or immoral activity.
+- I don't need to drive. I have no business driving. I would never be able to find my keys.
+- My feelings are, if you're gonna lead a rock n' roll lifestyle, don't let it affect your work. I know I can stay up all night and still come in the next day and write a song, and nothing will stop me from doing it. I expect the same from everyone else.
+- You might find me outside with a can of hair spray, spraying it with the hope that the sun will burn a hole in the Earth. Another part of me hopes people will grow up and evolve and get smarter. That's the paradox of Marilyn Manson.
+- I feel like I've dreamed half of my life that hasn't happened yet, so a lot of times I'm going along, and I do stuff, and I know that I've done it. I have deja vus more than I have regular experiences. If half of your day is a deja vu, then you start to wonder, 'What is real and what isn't?'
+- My first dissatisfaction has always been with religion.
+- I'm absolutely not looking for someone who agrees with me about everything or someone who wants to please me by believing what I believe.
+- I'm kind of shy, and I think that I take that out by performing in front of a lot of people. That's how I get out my shyness.
+- I can't turn off the way I think, and that's essentially who I am, who anybody is.
+- Marilyn Manson is a criticism of gimmickry, while being itself a gimmick.
+- All of my heroes, like Dali, are people who pioneered various forms of cinema.
+- In any story, the villain is the catalyst. The hero's not a person who will bend the rules or show the cracks in his armor. He's one-dimensional intentionally, but the villain is the person who owns up to what he is and stands by it.
+- Watching movies is my one distraction.
+- I like to make people think differently than they did before I walked in the room.
+- I haven't looked at marriage in the conventional sense, as far as settling down. I look at it as putting faith in another person, which has always been hard for me to do.
+- I'm my most creative between 3 and 5 a.m. That's the way I've always been.
+- I just don't like when there's a rumor that says I'm dating someone who is below my standards. But when I got divorced, my ex-wife said I was spending all my time with Lindsay Lohan and Angelina Jolie. I was like, 'Thank you for the big ups!'
+- When you want to die, you at least have a goal. You're aiming for something. It's not a good goal, but at least you want something. And you've got anger and fear, but at least you're feeling something.
+- People expect me to me a 'shock rocker,' but there's nothing you can do anymore to be shocking.
+- If you believe in what you're doing, you're going to make money. When you question it, you won't.
+- I often obsess so much about things that I can't get done, that I ruin other things.
+- I think confidence is the most appealing quality in any human being or any artist; that's what really attracts us to people.
+- You can find inspiration for man's behaviour wherever you look.
+- My art is not limited to the songs I create but also to the reaction it creates. I like to sit back and look at the whole thing as if it's a tornado that I'm controlling. It's creating chaos. When you create chaos, ideas are turned upside down, and everybody looks at things in a different way.
+- As a kid I had buck teeth and braces and acne. I hated what I saw. I'm still not comfortable, but that's why I change and adapt the way I look.
+- I am drawn to women who are independent and creative, which is problematic because it's a struggle, a competition of careers. There's jealousy.
+- Man's greatest fear is chaos.
+- I realized that I started writing songs to make people feel how I felt, rather than just making them feel something. That's not the way I should do things.
+- These people are artists. These people are musicians. They're taking it out and trying to express it that way.
+- There's a certain group of people who are always going to dislike me and disagree with whatever I say.
+- I've known Johnny Depp since I was 19.
+- I can't satisfy myself with just trying to tie all of my imagination into music, especially when music is not appreciated as an art form as much as it used to be.
+- I dare you all to write one more thing that you won't say to my face.
+- On my albums, it's as though the parental advisory is built in.
+- Ultimately, because I'm an artist, I can't ever consider myself a nihilist, so I suppose I'm optimistic.
+- I've found a woman I can relate to. That's something - and I don't even feel sappy saying it - that, if anyone has that, don't lose it, because it's probably the only thing that you can ever really find any satisfaction from.
+- I think art is the only thing that's spiritual in the world. And I refuse to forced to believe in other people's interpretations of God. I don't think anybody should be. No one person can own the copyright to what God means.
+- Someday, when I manage to finally figure out how to take care of myself, then I'll consider taking care of someone else.
+- I fall in love very easily.
+- If I think I weigh too much, I'll lose weight; if my hair looks stupid, I'll cut it. I guess I'm my harshest critic. I'm not easily satisfied.
+- When you're taught to love everyone, to love your enemies, then what value does that place on love?
+- People only hate what they see in themselves.
+- We live in a society of victimization, where people are much more comfortable being victimized than actually standing up for themselves.
+- Don't ever empty the bucket of mystery. Never let people define what you do. It's not about zigging when you should zag. It's not about doing something unprecedented and unpredictable. It's just about never being a word, or something that is not in the process of transformation.
+- My goal isn't to make money, it's to try and survive and make a point.
+- What I know is my music gets blamed for school shootings.
+- Sacrifice to me is something you do without expecting something in return.
+- I'm not a masochist. I'm simply into trying to enjoy what I do, because otherwise there's no point.
+- If one more 'journalist' makes a cavalier statement about me and my band, I will personally or with my fans' help, greet them at their home and discover just how much they believe in their freedom of speech.
+- America puts killers on the cover of 'TIME' magazine, giving them as much notoriety as our favorite movie stars.
+- My dad being a salesman taught me you can sell anybody anything if you've got the ability to believe.
+- I'm so famous, people expect me to sell as many records as Celine Dion or Puff Daddy.
+- I don't think I have ever tried to create things to encourage people to hurt others, or themselves.
+- I pity anybody who has to spend a day with me.
+- Sometimes I wonder if I'm a character being written, or if I'm writing myself.
+- I was married to someone who wanted me to change. Become more adult, more responsible. I began not to like myself, not like what I do. I lost my identity. Everything began collapsing around me.
+- In the end we're all Jerry Springer Show guests, really, we just haven't been on the show.

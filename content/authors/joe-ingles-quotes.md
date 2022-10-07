@@ -1,0 +1,105 @@
++++
+author = "Joe Ingles"
+title = "Joe Ingles Quotes"
+quotes_len = "99"
+description = "the best 99 Joe Ingles Quotes"
++++
+- At the end of the day, we're trying to win a game so whatever I can do to help us win. Obviously, I'll do that.
+- It's hard to think about the national team when you are with your club side and so invested in your team, your individual self and trying to win a play-off series.
+- There are only a handful of guys in the NBA who are going to be superstars and I think I found a bit of a niche with the Jazz to come off the bench and do what I do.
+- I get emotional. I get into the game a lot and I enjoy it a lot.
+- If you hire a coach, I believe you should let them do their job.
+- When I feel like it's my shot within the flow of the offense and getting in any rhythm, I feel like I should make every one of them.
+- The more I play, the more comfortable I get.
+- I'm realistic. I know there are players out there who are more talented than me.
+- No one hates each other off the court.
+- It's basketball and there are going to be things that change with who's injured and who isn't or who is playing and who isn't.
+- Kyle Korver, to me, is a shooter. JJ Redick is a shooter.
+- I'm obviously a lot slower than everybody.
+- A lot of people don't understand European basketball but people who know the game know how good Europe is.
+- Starting or not I couldn't really care less.
+- I'm never retiring.
+- I'm the best shooter in the league.
+- Every team is trying to be the last one standing and we've got goals and things we talk about.
+- Guys love having Australians on their rosters. I don't care if you're the number one pick or undrafted, guys love having us around, we work hard, we play hard. It brings a very cool vibe to your team.
+- I think my role on the team is to get other guys involved.
+- Me and JC, Jordan Clarkson, get along really well anyway, but being with him like every day, which I probably never thought I would really do, he's probably one of the greatest humans I've ever been around. JC will be forever be one of my favorite teammates ever.
+- I wasn't a big fan of school and sitting in class.
+- Decisiveness turns slow players into fast ones.
+- I think it's such an emotional game... I love battling with the other team.
+- You obviously don't want to cross the line of saying things or doing things, but it's a part of the game.
+- I don't mind a bit of banter on the court.
+- It's good to be able to focus on our job, our basketball and what we do.
+- I want to have a stable professional career as possible, which is obviously hard to do.
+- I am a sweater. I sweat making dinner and going to the bathroom and everything.
+- I loved my juniors growing up and how fun it was.
+- I don't take bad shots.
+- I've never played for a contract or money or any of those things.
+- Representing Australia is huge reason why I play.
+- Twitter's great because people can say whatever they want, they can feel like they're the biggest hero or they can just be a fan but just settle down, it's ridiculous.
+- For me, playoffs was always the goal.
+- Let me just keep shooting and see if it keeps going in.
+- I liked starting. I liked matching up with the best of the best players who got the start. Taking on that challenge.
+- I want to try and be aggressive and dictate the play a little bit.
+- I guess I enjoy my life. I'm in a very, very fortunate position and I enjoy playing basketball and I just enjoy life.
+- I'm not a video game guy.
+- My shooting has gotten a lot better - more consistent.
+- I think there's always things you can get better with and stuff like that.
+- I mean, I'm not going to change. I am who I am.
+- I loved it at Barcelona. My three years there have been such a great experience - the city, the culture, the weather, the food and the friends I made.
+- At the end of the day, if I can keep playing defense, I'm going to be able to stay on the floor, and obviously that's what everyone wants to do.
+- It's fun to play when you have a great group of guys.
+- You can tell when someone's starting to get a little frustrated.
+- I think I've played well at times, I've played horrible at times.
+- Playing pretty big minutes in the playoffs and having career games in the playoffs is something you dream of as a kid but never really think will happen.
+- I'm excited to partner with the No. 1 residential basketball company in the world. Lifetime makes some of the best hoops around, and I share a lot of their values.
+- I get it everywhere, 'Look at the math teacher. Look at the science teacher.' I get it everywhere I go, which I can kind of enjoy.
+- I only consider myself a shooter in certain situations.
+- In a situation like this where you're playing every second day, the best thing you can do is watch and learn from film.
+- When every guy on the team and the coaching staff is telling you, 'shoot it, shoot it,' obviously I've always known I could shoot it, but it was more of a trying to get the guys involved and being that middle man.
+- Ten, 20, 30, winning, losing streak, whatever it is, we've just got to keep pushing, keep getting better each day.
+- Maybe I am a bad person.
+- It's funny, because not everyone can make the NBA, but timing and being in the right situation is something that can make or break someone or a team.
+- I knew, as silly as it sounds, that I was never going to be the best player on any team.
+- I'm trying to focus on every play and not to worry about the offensive end.
+- Every team is different and does different things.
+- I think I've shown patches of being a good defender and then I've gotten lazy off the ball and you make a stupid play and you look like you can't guard anybody.
+- I'm very good at being able to talk to people and kind of get people off their game.
+- We do a lot so we spend probably like an hour before every practice and game on the table getting treatment. We spend probably about the same, 30 minutes to an hour after the game, to be reasonably healthy when we can. But yeah, especially for me, doing the treatment before and after the game is why I'm able to be out there every night.
+- You try and do the best you can whenever you are out there. It's just an individual mindset that when I do get the opportunity then do what I do to help the team.
+- I used to catch and take a big dip down and then finally I'd try to shoot. That first year playing the NBA, I was realizing how little time you have to shoot the ball. The time you have from when you catch it to the guy closing out is just a split second. So I had to figure out a way to get my shot off quicker. Then it was just repetition.
+- I never go into a game thinking of talking to anyone.
+- I don't know why everyone gets so stressed about it all the time.
+- The NBA isn't the be-all and end-all.
+- The Clippers guys were great. They welcomed me and were really helpful. As a first experience of the NBA, I couldn't have asked for better.
+- One airball is not going to stray away from me shooting a few more.
+- I do feel like I get a lot of open shots.
+- For me, I just go out there and play defense, hit some open shots and keep it rolling.
+- Let's be real, I've got a receding hairline, I'm slow and I'm probably not the most jacked up with abs and all that, but I'm still going to beat you one-on-one.
+- Offense, defense - on both ends of the floor - figuring that out. I'll keep watching the film and see where I can keep getting better.
+- I'm not going to go out and shoot 20 shots a game because I got paid a little bit more money or anything like that.
+- I've always said that I would love to finish in the NBL. It is where I started, and it would be awesome to finish in front of family and friends.
+- There's nothing like getting out there in the green and gold with your friends and family supporting you.
+- When you compete you feel as though you can help the team. Win or lose you can have a hand in what happens.
+- Obviously getting into the AIS and making an NBL team was pretty big, but to be able to step it up another level and play well in my first year, I'm really proud of myself.
+- There will be opportunities to start and if I do great.
+- I've always talked on-court and off-court. It's not something tough for me.
+- People looking from the outside might think that things will change because I'll have access to a lot more money, but it won't happen.
+- Nothing simulates playing basketball.
+- I get to throw a ball around for a living and go back to the kids and life is good.
+- The numbers I've shot, the percentages, they obviously are what they are and people are going to dissect everything but, I honestly feel like they're all going to go in when I shoot the ball.
+- I'm not going to change who I am.
+- Growing up I wanted to play for the 36ers more than ever.
+- I don't like anyone from any other team, even the Aussies when it comes down to it. Once you get on the court, it is what it is.
+- I feel like Salt Lake is a home for me now and it's become a home for my family.
+- I think all the Australians have that. They're willing to give up a bit of their own glory for the better of the group.
+- To me it would be hard to beat how the Jazz look after Renae and every wife or significant other, and even family members.
+- I'm very lucky what basketball has given me, so I'd love to give back.
+- When one of your best mates finds out he has cancer and he is going through what he has to go through it's tough.
+- I love Utah.
+- Being with my kids all day can make for long days.
+- I knew my role and what I was good at and what I wasn't good at. I was very in touch with reality.
+- I try to represent myself, my family and my country the right way.
+- She's very special and I've learned plenty from being around Renae. She's helped me go up another level in all categories; it's special to watch her because I'm aware of the work she has done.
+- Tel Aviv is extremely westernised, it's like a little America.
+- Playing for Australia, if they told me at 36 or 37 or whatever I'm going to be, that I can go to camp and possibly make a fifth Olympics, then why not?

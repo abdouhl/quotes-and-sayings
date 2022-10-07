@@ -1,0 +1,35 @@
++++
+author = "George Savile"
+title = "George Savile Quotes"
+quotes_len = "29"
+description = "the best 29 George Savile Quotes"
++++
+- A man who is a master of patience is master of everything else.
+- Education is what remains when we have forgotten all that we have been taught.
+- When the people contend for their liberty, they seldom get anything by their victory but new masters.
+- A husband without faults is a dangerous observer.
+- The sight of a drunkard is a better sermon against that vice than the best that was ever preached on that subject.
+- Many men swallow the being cheated, but no man can ever endure to chew it.
+- Malice is of a low stature, but it hath very long arms.
+- The best way to suppose what may come, is to remember what is past.
+- No man is so much a fool as not to have wit enough sometimes to be a knave; nor any so cunning a knave as not to have the weakness sometimes to play the fool.
+- Nothing has an uglier look to us than reason, when it is not on our side.
+- He that leaveth nothing to chance will do few things ill, but he will do very few things.
+- Men are not hanged for stealing horses, but that horses may not be stolen.
+- Anger is never without an argument, but seldom with a good one.
+- Hope is generally a wrong guide, though it is good company along the way.
+- Love is a passion that hath friends in the garrison.
+- There is reason to think the most celebrated philosophers would have been bunglers at business; but the reason is because they despised it.
+- A prince who will not undergo the difficulty of understanding must undergo the danger of trusting.
+- They who are of the opinion that Money will do everything, may very well be suspected to do everything for Money.
+- A man man may dwell so long upon a thought that it may take him prisoner.
+- The vanity of teaching doth oft tempt a man to forget that he is a blockhead.
+- Some men's memory is like a box where a man should mingle his jewels with his old shoes.
+- A princely mind will undo a private family.
+- Nothing would more contribute to make a man wise than to have always an enemy in his view.
+- Most men make little use of their speech than to give evidence against their own understanding.
+- Laws are generally not understood by three sorts of persons, viz, by those who make them, by those who execute them, and by those who suffer if they break them.
+- Our nature hardly allows us to have enough of anything without having too much.
+- Popularity is a crime from the moment it is sought; it is only a virtue where men have it whether they will or no.
+- The best Qualification of a Prophet is to have a good Memory.
+- If the laws could speak for themselves, they would complain of the lawyers.

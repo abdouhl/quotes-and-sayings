@@ -1,0 +1,36 @@
++++
+author = "Nick Park"
+title = "Nick Park Quotes"
+quotes_len = "30"
+description = "the best 30 Nick Park Quotes"
++++
+- There is no worse situation to be in than Oscar night. Not knowing whether you've won is completely draining.
+- Success brings with it pressure to conform. I always thought that success would lead to freedom, but the opposite is true: more people get involved, and committees make decisions, and it becomes a fight to stay free.
+- I'm always there at home thinking of Wallace and Gromit ideas.
+- When I was a teenager, my dad watched my films and told me I could go to art college and study animation. He made me see that I could do this for a living.
+- As I get on and films take four years to complete, I tend to have a hankering for very short projects so you can move on to the next idea. It's the ideas I'm interested in. What comes out of your head.
+- My colleagues and I have to constantly remind each other that we must keep our own view on the world while making films. With 'Chicken Run,' we learned how easy it is to be influenced by outside forces, but you mustn't lose the heart and soul of what you are doing.
+- There is something about the Australian psyche that seems to like films that are slightly offbeat.
+- It's very hard to adapt something. You end up changing it too much to make a good movie out of it. I prefer to work with things that are custom made for my kind of animation.
+- With some CGI, I think the brain slightly perceives that things aren't real. There's no gravity, the light's not quite real, the shadows aren't quite real.
+- My father, an architectural photographer, was an incurable tinkerer, maker and mender.
+- I love doing features, but it's a very different ballgame. Sometimes I yearn for short films again, working with a small team, getting my hands on the clay.
+- If you respect the audience enough, they can take onboard many things.
+- But I think people see 'Wallace and Gromit' as something akin to an elderly couple. These two know each other so well. Nothing can split them apart.
+- I went back over the sketch books I'd filled at Sheffield for ideas and discovered Wallace and Gromit, except Gromit was a cat then. I made them into Plasticene shapes and started 'A Grand Day Out.' It took me longer than I expected.
+- I have to admit to not being the greatest technician, but stop motion animation gives me licence to create machines that wouldn't otherwise be possible - inventions that seem real and actually work.
+- Get out and make films. There are so many cameras now to suit any budget, so there are no excuses.
+- I always considered Ray Harryhausen's work so fine that it was way out of my league: in terms of realism and naturalism, in terms of animal movement.
+- The best films come about through experimentation.
+- We have to look forward and keep filming new films and not get stuck in the past.
+- The nice thing about animation is that you can realise your inventions without understanding all the hard theory.
+- Like my father, I would never as a child throw anything away, keeping old toys, electric motors and bits of broken machines under my bed in what I called my Box of Useful Things.
+- I used to get in trouble at school for day-dreaming.
+- After studying in Sheffield, I went down to London to do my post-graduate degree at the National Film and Television School, embarking on the movie that would eventually become 'A Grand Day Out.'
+- Gromit was the name of a cat. When I started modeling the cat I just didn't feel it was quite right, so I made it into a dog because he could have a bigger nose and bigger, longer legs.
+- Wallace and Gromit's contraptions are created purely for gags, but we all have the urge to invent - especially children. If they're bored, kids will make something from cardboard boxes, yoghurt pots, tape and elastic bands. Often, those constructions are the best.
+- Americans like the British kind of quirkiness and the strange accent. They find it kind of cute or something, with a certain charm.
+- When we first sold the Wallace and Gromit shorts to America, people suggested we get rid of the strange British accents and put clear American voices on them, and we held out.
+- Mainstream animated movies are dumbed-down and sanitised: they make the world in their own image rather than exploring the limitless possibilities that are out there.
+- We can do things that we never could before. Stop-motion lets you build tiny little worlds, and computers make that world even more believable.
+- My dream was to draw for 'The Beano.' When I was 10 years old, I started drawing cartoon strips with 'The Beano' in mind. I lived in that world. You own a comic, it's yours and adults don't understand it. You could pile them up under the bed, and if you were off school ill, you'd go through them all.

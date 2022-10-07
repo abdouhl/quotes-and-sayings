@@ -1,0 +1,20 @@
++++
+author = "Katie Ledecky"
+title = "Katie Ledecky Quotes"
+quotes_len = "14"
+description = "the best 14 Katie Ledecky Quotes"
++++
+- I try to make the good days great and take something positive from the days I'm not feeling good - work on technique or something like that.
+- I think the beauty of Catholicism is its consistency through both successes and difficulties. I've counted on my faith to give me strength through both training and competition - but also in school, with my family and everyday life.
+- There are a lot of young swimming fans that are on Instagram, so I try to respond or post things that they like.
+- More than anything, praying just helps me to concentrate and let go of things that don't matter in that moment. It gives me peace knowing I'm in good hands.
+- It's always great to see young swimmers and their excitement and the joy that they have in the water.
+- After the 2013 World Championships, I had three goals for the Olympics: to swim 3:56 or better in the 400-meter freestyle, break 8:05 in the 800, and win gold in the 200. I achieved all of those, and soon, it will be time to set some new goals.
+- I'm just maintaining the same mindset that I had going into the 2012 Olympics and Olympic trials, which is just, whatever happens, happens.
+- It's kind of a loping stroke. It's not the prettiest stroke. But it's what's most efficient for me. And I think I kick a little more than most swimmers do.
+- My faith has always been important to me. It defines who I am.
+- I felt so relaxed. It just felt very easy, and that's why it surprised me that I had broken my world record.
+- When I was six, right before I started swimming, we went to a national competition here in Maryland and watched Michael Phelps swim, and I got to meet him afterwards, and I got his autograph. Fast forward nine years, and I'm at the Olympics with him, and it's like: 'Woah.'
+- I think our devotion to Mary is very beautiful. She has a sacred role in Catholicism, and her strong faith and humility are things we can learn from.
+- I would encourage you to set really high goals. Set goals that, when you set them, you think they're impossible. But then every day you can work towards them, and anything is possible, so keep working hard and follow your dreams.
+- I think we have the approach that every race is a sprint. Some races are just longer sprints than others.

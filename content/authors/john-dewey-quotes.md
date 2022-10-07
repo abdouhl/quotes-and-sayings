@@ -1,0 +1,31 @@
++++
+author = "John Dewey"
+title = "John Dewey Quotes"
+quotes_len = "25"
+description = "the best 25 John Dewey Quotes"
++++
+- Education, therefore, is a process of living and not a preparation for future living.
+- To find out what one is fitted to do, and to secure an opportunity to do it, is the key to happiness.
+- Anyone who has begun to think, places some portion of the world in jeopardy.
+- No man's credit is as good as his money.
+- Just as a flower which seems beautiful and has color but no perfume, so are the fruitless words of the man who speaks them but does them not.
+- Skepticism: the mark and even the pose of the educated mind.
+- To me faith means not worrying.
+- Failure is instructive. The person who really thinks learns quite as much from his failures as from his successes.
+- The belief that all genuine education comes about through experience does not mean that all experiences are genuinely or equally educative.
+- Without some goals and some efforts to reach it, no man can live.
+- Man is not logical and his intellectual history is a record of mental reserves and compromises. He hangs on to what he can in his old beliefs even when he is compelled to surrender their logical basis.
+- Time and memory are true artists; they remould reality nearer to the heart's desire.
+- The path of least resistance and least trouble is a mental rut already made. It requires troublesome work to undertake the alternation of old beliefs.
+- Arriving at one goal is the starting point to another.
+- Man lives in a world of surmise, of mystery, of uncertainties.
+- The self is not something ready-made, but something in continuous formation through choice of action.
+- One lives with so many bad deeds on one's conscience and some good intentions in one's heart.
+- Such happiness as life is capable of comes from the full participation of all our powers in the endeavor to wrest from each changing situations of experience its own full and unique meaning.
+- Every great advance in science has issued from a new audacity of imagination.
+- Nature is the mother and the habitat of man, even if sometimes a stepmother and an unfriendly home.
+- The good man is the man who, no matter how morally unworthy he has been, is moving to become better.
+- Luck, bad if not good, will always be with us. But it has a way of favoring the intelligent and showing its back to the stupid.
+- By object is meant some element in the complex whole that is defined in abstraction from the whole of which it is a distinction.
+- We only think when we are confronted with problems.
+- Education is not preparation for life; education is life itself.

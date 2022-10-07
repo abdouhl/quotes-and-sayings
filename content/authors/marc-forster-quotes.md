@@ -1,0 +1,20 @@
++++
+author = "Marc Forster"
+title = "Marc Forster Quotes"
+quotes_len = "14"
+description = "the best 14 Marc Forster Quotes"
++++
+- 'Quantum of Solace' was a bit of a different circumstance than a lot of my other films because you're stepping into a franchise, and also in that particular film, we're dealing with a script from the writer's strike, which was difficult to handle because there was never time to really develop a finished script.
+- On 'Stranger Than Fiction,' the script was so good that I stuck to every line because it was just such brilliant writing from Zach Helm that I felt like I really just want to shoot the page.
+- I think people, unfortunately, do live in constant fear.
+- I feel like every time I take on a movie, it's important that the possibility of failure exists, and of the unknown, because it's a challenge to do something I haven't done before and something I have to try to work out.
+- Even with my father and brother dying, I didn't quite process the grief.
+- Three days after my brother died, my father was in the hospital. He just did not want to live anymore. Before, he was fighting and loving life.
+- The interesting thing is that when you start out, people have no judgment and they see you young and fresh as a filmmaker - and because you have no experience yet, you're much more naive and think anything is possible.
+- One of the main reasons I wanted to work on 'World War Z' was because I'm a huge fan of the book, and I love the idea of taking a non-linear story and creating a three-act structure out of it.
+- For me, 'The Kite Runner' became about a guy who's emotionally shut down because he hasn't confronted his past.
+- I always wanted to do an action movie, not particularly 'Bond.'
+- I always think it's interesting to switch genres, because if I read a script and I know exactly how to manifest a story, I don't really want to do it anymore, because I've already done it in my head.
+- The key thing is that you start every film from sort of a blank page, almost like you discover it like a child discovers a new world.
+- What I'm passionate about is telling stories which mean something to me.
+- I don't think people understand what it takes to make a movie unless they've experienced it themselves or been around it. It's a miracle every time you make a movie, and a bigger miracle if it turns out well.

@@ -1,0 +1,83 @@
++++
+author = "John Barrasso"
+title = "John Barrasso Quotes"
+quotes_len = "77"
+description = "the best 77 John Barrasso Quotes"
++++
+- You want to continue with the social safety net: the good, the bad and the ugly parts of that, you have to have a vibrant economy. You have to have growth of the economy.
+- Carrying a concealed weapon is a sign of self-defense, self-protection, and I think it lowers crime.
+- The EPA's climate change regulations are based on compromised scientific reports and heavily flawed data.
+- The National Forest Ski Area Permit Act of 1986 needs to be updated to reflect our growing communities.
+- I'm a conservative and I believe if you tax something more you get less of it.
+- The more Americans find out about President Barack Obama's health care law, the less they like it. A majority of Americans want out.
+- Everywhere I travel around my home state of Wyoming - but also around the country - I continue to hear, 'How can Washington make us buy something we don't want to buy, a product? They can't tell us to buy breakfast cereal or something else - how can they do that?'
+- Russia's actions in Syria are not the only reasons to distrust Mr. Putin. Moscow has opposed attempts by the U.N. in November 2011 to increase sanctions against Iran for its illicit nuclear program.
+- The failed stimulus, along with Obamacare's long list of failures, show what happens when Congress passes laws in a rush.
+- There are billions of barrels of oil in the Outer Continental Shelf. There is even more in Alaska. There is enough oil shale in the Rocky Mountain West alone to power America for the next hundred years. The Democrats say all this American energy is off limits.
+- My dad, as a guy, had to quit school in the ninth grade, fought in the Battle of the Bulge. And spent his life pushing wheel barrels of heavy wet cement. So we've gone from pushing cement to now in one generation pushing legislation. But we always want any president to succeed, to do well; that means America does well and Americans do well.
+- For people who don't know me, I practiced medicine in Casper, Wyoming for 25 years as an orthopedic surgeon, taking care of families in Wyoming. I've been chief of staff of the largest hospital in our state. My wife is a breast cancer survivor.
+- Building power plants would do more to lift people out of poverty than the Green Climate Fund ever will.
+- My dad took me to John Kennedy's inauguration when I was 8. We come every time, Republican and Democrat, because of this great country.
+- I'm somebody's who's in favor of transparency and openness.
+- Illegal immigration continues to be a major problem in the United States. We have people waiting to come here legally. And we should not be rewarding people who have come here illegally.
+- As a doctor who took care of patients for 25 years, I saw the problems with America's health care system every day.
+- There is going to be a nuclear arms race in the Middle East if Iran gets a nuclear weapon. And you are going to see it in Egypt, in Turkey, in the Emirates. All of those people will want that.
+- We need to level the playing field so that people who buy insurance individually at the same tax rates as those who buy it than get it through work. We need to be able to let people to shop across state lines for better deals with insurance that works for them and their family, not something the government says they have to have.
+- Congress is the appropriate place to make laws about our country's immigration policy; it is not something that the president gets to decide on his own.
+- I was in the state Senate in Wyoming, and we actually legislated. We offered amendments on bills and voted on things.
+- Humans are contributing to additional carbon dioxide in the atmosphere.
+- Families will now have to prove to the IRS that they have Washington-approved and government-mandated insurance.
+- Americans want real solutions and good jobs.
+- The states ought to be the ones making the decisions about the individual mandate, the employer mandate, all of the different requirements of what kind of insurance people have to have.
+- Instead of giving preference to oil imported from overseas, Washington should look to North American coal, oil shale and oil sands, all of which provide an affordable, abundant and alternative source of fuel. In addition to increasing cost effectiveness options for the government, it will also increase America's energy security.
+- The Constitution is clear, Article I, Section 8, power vetted in Congress to declare war. If you go back to the founding documents of this nation, the decision of going to war was to be made by people closest to the ground - the elected officials - to make those decisions.
+- America is facing a looming shortage of doctors, nurses, and physicians' assistants.
+- As a physician and a U.S. senator, I have warned since the very beginning about many troubling aspects of Mr. Obama's unprecedented health-insurance mandate. Not only does he believe he can order you to buy insurance, the president also incorrectly equates health insurance coverage with medical care.
+- I'm telling you, as a doctor who spent about half of his time in the office taking care of our seniors on Medicare, it is a program that intentions to work are much better than the way it's working today in terms of practicality.
+- I've been calling for the support of the Syrian rebels for years.
+- The concern is that Iraq could actually ultimately defeat ISIS, but Iran will have taken over the country, because it will be their military, their boots on the ground controlling the ground.
+- Our state has a balanced budget. We have to live within our means in the state of Wyoming. I was in the state senate. This country needs a balanced budget amendment to the Constitution. We need to live within our means.
+- What people are seeing is that the cost of their care and their insurance is going up faster since Obamacare has been passed than if the healthcare law had not been passed at all.
+- When it comes to international trade, the question is, who is going to write the rules, the United States or China? And my vote is the United States.
+- ISIS already has strongholds in Syria, while the Free Syrian Army desperately needs more U.S. assistance.
+- The Russians continue to say that they'll still go after terrorists, but that's a very elastic term. They're going after anybody they want. I don't trust them.
+- For 25 years practicing medicine, I never asked anybody if they were a Republican or a Democratic or an independent and asked if they had insurance or not. I took care of everybody.
+- I'm a child of immigrants. That is the history of this country. Immigration is good and important for our country. Legal immigration needs to really be modernized.
+- The Obama administration seems to have lost the will to win. The terrorists have not.
+- The priority is to put bills on the president's desk that will move the country forward.
+- An Obama administration desperate to strike a deal is likely to strike a bad one.
+- When the president decides that he knows better than you know what's good for you or your family, we've got trouble in this country.
+- I have to tell you as a doctor, 25 years of practice, not as a politician using talking points, as somebody who has taken care of Medicare patients, we can make it a lot better.
+- States that scrap their state-run Obamacare exchanges are admitting they've wasted millions of dollars in federal grants. It's only fair that states have to pay American taxpayers and the federal government back for their total incompetence.
+- Each and every day, more people pay the price of Obamacare's mountain of mandates. As I travel across the country, I continue to hear from Americans who want Washington to take its hands off of their healthcare.
+- I've operated on people from Canada that have come to Wyoming for me to take care of them because they couldn't afford to wait long enough for their free operation.
+- EPA has a long history of relying on science that was not created by the agency itself. This often means that the science is not available to the public and, therefore, cannot be reproduced and verified.
+- Most Americans want their government to be smaller, not larger; they want their taxes to be lower, not higher.
+- A culture of intimidation has no justification in any administration.
+- Washington agencies are now trying a backdoor approach to regulate our climate by abusing existing laws.
+- The whole future, I think, of Wyoming and the economy has to do with coal and our clean coal technology, and we're going to have the ability here in Wyoming to deal with all of the things of this so-called climate change.
+- Keystone would allow us to transport 700,000 barrels of oil a day from our northern neighbor Canada to refineries in the United States.
+- When the Obama administration announced its 'reset' of relations with Russia in 2009, Americans never expected that it would include making Vladimir Putin the de facto U.S. ambassador to Syria in 2013.
+- Obamacare is, 'Patient, heal yourself.'
+- I'm child of immigrants.
+- I know how critical it is to make sure that people with pre-existing conditions have affordable insurance, and states are able to do that.
+- We need an attorney general for the people, not a presidential protector and puppet of the administration.
+- Republicans aren't interested in a one-sentence fix unless that sentence is, 'Obamacare is repealed.'
+- We can't have a third Obama term, which is what electing Hillary Clinton would do.
+- I'm fortunate to live in Wyoming, one of the most beautiful, pristine places in the world.
+- Whenever Washington makes a one-size-fits-all decision, it doesn't work in states all around the country.
+- As the 2016 presidential race kicks off, candidates on both sides of the aisle are promising to stand up for the middle class. Voters deserve to know that anyone who champions Obamacare cannot honestly say she or he is also a champion of middle-class Americans.
+- The Obama administration has already imposed burdensome regulations - for instance, the sprawling Clean Power Plan aimed at wiping out the coal industry - that will raise the cost of energy and put hundreds of thousands of Americans out of work.
+- I don't want anybody between a doctor and a patient - not an insurance company bureaucrat or a Washington bureaucrat.
+- President Obama wants a climate deal and is willing to pay dearly to get it.
+- As Secretary of State, we need someone with sound judgment, ask tough questions, and should not be willing to just read talking points.
+- We keep spending money and sending it overseas when we should be developing American energy.
+- I haven't changed any of my investments since I've been in the Senate and haven't purchased any stocks since I've been in the Senate.
+- The EPA has a history of overreaching its authority.
+- We need to focus on getting people back to work, focus on jobs, the economy, the debt and the spending. That's what will improve the quality of life for American families and for hard-working taxpayers.
+- You just never know what the Supreme Court is going to do.
+- Energy is called 'the master resource' for a reason.
+- In an agreement with China, President Obama has already pledged to reduce America's net greenhouse-gas emissions by more than 25% by 2025. In return, China has agreed to 'peak' its carbon-dioxide emissions in 2030.
+- We need to save and strengthen and fix Medicare. Seniors realize Medicare is broken.
+- Our state has a balanced budget. We have to live within our means in the state of Wyoming. I was in the state senate. This country needs a balanced budget amendment to the Constitution.
+- It will be up to Congress to check the president's ambition of committing the U.S. to an international green scheme that will produce little or no return.

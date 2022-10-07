@@ -1,0 +1,43 @@
++++
+author = "Kim Edwards"
+title = "Kim Edwards Quotes"
+quotes_len = "37"
+description = "the best 37 Kim Edwards Quotes"
++++
+- I love 'Memory Keeper's Daughter,' but in some ways I think 'The Lake of Dreams' is a stronger book. I was able to tell the story I wanted to tell. That's all you can ever do as a writer. From there on you have no control over it.
+- I don't think we'll ever lose the desire for people to tell stories or to hear stories or to be entrapped in a beautiful story.
+- One of my greatest times of inspiration is when I'm traveling or living in a new country - there's a tremendous freedom that comes from being unfettered by your own, familiar culture, and by seeing the world from a different point of view.
+- I like to think I've grown as a writer and taken some risks, but I still consider myself to be a literary writer.
+- Many Lexington natives believe they live in a special place, one impossible to leave. I'm not so sure about that - or it's more accurate to say I think a more general truth exists beneath it: the place you first call home stays with you always, whether you remain or go.
+- I lived for two years in Odawara, a castle town an hour outside of Tokyo, near the sea. It's a beautiful place, and I drew on my experiences there when writing 'The Lake of Dreams.'
+- My first job was in a nursing home - a terrible place in retrospect. It was in an old house, and the residents were so lonely. People rarely visited them. I only stayed there a couple of months, but it made a strong impression on me.
+- I had a great life even before 'The Memory Keeper's Daughter' took off. I really enjoy teaching.
+- Your understanding of a place changes the longer you stay; you discover more, and your own life gets woven into the fabric of the community.
+- I find my husband's family history fascinating, as they can trace the family lineage back to ancestors who fought, and died, in the first battle of the Revolution, as well as to many other interesting people.
+- I swam across Skaneateles Lake, about a mile, when I was 11 years old. I remember feeling when I was in the middle of the lake that I would be there forever, and having no idea where on shore I'd end up. I made it, and I'm proud of the determination and persistence that took.
+- As a writer and as a reader, I really believe in the power of narrative to allow us ways to experience life beyond our own, ways to reflect on things that have happened to us and a chance to engage with the world in ways that transcend time and gender and all sorts of things.
+- I hadn't really thought about this until 'The Lake of Dreams,' but I've set all my stories in places that are familiar to me. It frees me up to spend more imaginative time on the characters.
+- I grew up in Skaneateles, a small town in New York's Finger Lakes region, where parts of my family have lived for five generations. I can walk the streets there and point out my father's childhood home, the houses my grandfather built, the farm where my great-great-uncle worked after he emigrated from England in the 1880s.
+- You don't want to engage in road rage when the person in the next car might be your child's future teacher or your dentist's father.
+- 'The Lake of Dreams' grew gradually, over many years, elements and ideas accruing until they gained enough critical mass to become a novel.
+- Though my stories aren't autobiographical, I do sometimes use things from my life.
+- You don't know when you are immersed in a book what the reaction to it will be, but I feel great about 'The Lake of Dreams.'
+- I always talk to my students about the need to write for the joy of writing. I try to sort of disaggregate the acclaim from the act of writing.
+- I've always set my stories in places I know well. It frees me up to spend more imaginative time on the characters if I'm not worrying about the logistics.
+- Lexington is home to the University of Kentucky, where my husband and I teach, as well as to Transylvania University, the oldest college established west of the Allegheny Mountains, and several multinational companies; people come and go from all over the world.
+- The secret at the heart of 'The Memory Keeper's Daughter' is something everybody, except for some of the characters, knows in Chapter 1. Some of the narrative tension comes from that distance between what the readers know and what the characters know.
+- William Trevor is an author I admire; his stories are subtle and powerful, and beautifully written.
+- We all have secrets. We've all kept secrets. We've had secrets kept from us, and we know how that feels.
+- In writing, I want to be remembered for telling good stories in beautiful and powerful language, using the poetry of words to reflect the thematic concerns of compelling stories.
+- I never know as a writer when I set out into a novel where it's going to take me.
+- After 'Memory Keeper's Daughter,' it took me a few months to shut out the world. I really had to turn off the Internet and sort of cloister myself away from the world again and sink into that psychic space to write again.
+- I love to swim, and I love being near water.
+- The way we behave, our views and outlooks really have their sources some place. They come from somewhere. Sometimes we don't even know what they are, and yet they're very powerful in our lives.
+- I like clothes that are elegant and comfortable.
+- It's kind of a mysterious process, but something will catch my attention, and I'll make a note about it. I may even write a few pages about it, and then I'll put it aside, but I'll sort of keep it in mind. Then as time goes on, other things will gather to it as if it's a magnet, almost, and eventually, there's enough to make the story.
+- Though Lexington is not a small town, it sometimes feels like one, with circles of acquaintance overlapping once, then again; the person you meet by chance at the library or the pool may turn out to be the best friend of your down-the-street neighbor. Maybe that's why people are so friendly here, so willing to be unhurried.
+- It's impossible to control the reception of your work - the only thing you can control is the experience of writing itself, and the work you create.
+- There was a sense that there was a lot of word of mouth happening with 'The Memory Keeper's Daughter,' even in hardcover.
+- I haven't done any genealogical exploring myself, though members of my family and also of my husband's family have traced things back. I have a great grandfather on my mother's side who was a musician, and I'd like to know more about his life.
+- 'Middlesex' by Jeffrey Eugenides left me both moved and, at times, laughing out loud in delight.
+- I think that it would be hard to find a family that didn't have a secret in it somewhere, and sometimes we know about them, sometimes we don't. Sometimes we have an inkling that there's something hidden, but I think that it touches everybody's life.

@@ -1,0 +1,19 @@
++++
+author = "Jim Bunning"
+title = "Jim Bunning Quotes"
+quotes_len = "13"
+description = "the best 13 Jim Bunning Quotes"
++++
+- The family farm is the foundation for who we are as a Commonwealth. And for over a century, the family farm in Kentucky has centered around one crop: tobacco.
+- Today, Medicare provides health insurance to about 40 million seniors and disabled individuals each year. The number is only expected to grow as the baby boomers begin retiring.
+- From watching the news one would think the Iraqis want us out of their country. But an overwhelming majority of Iraqis support our involvement there. Our freedom is contagious and we helped liberate them.
+- The activists will not stop in trying to impose their extreme views on the rest of us, and they have now plotted out a state-by-state strategy to increase the number of judicial decisions redefining marriage without the voice of the people being heard.
+- The perception is that baseball's players' union is protecting players to use steroids and other illegal performance-enhancing drugs.
+- Difficult times require difficult decisions. But supporting this bill shouldn't be a difficult decision.
+- The war against terror is every bit as important as our fight against fascism in World War II. Or our struggle against the spread of Communism during the Cold War.
+- It seems as though there are Members in this body who want to filibuster just about everything we try to do, whether it is stopping judicial nominations, the Energy bill, or this Medicare bill.
+- But let there be no misunderstanding. The war against terror is every bit as important as our fight against fascism in World War II. Or our struggle against the spread of Communism during the Cold War.
+- No company fails in communist China, because they're all partly owned by the government.
+- A loving family provides the foundation children need to succeed, and strong families with a man and a woman - bonded together for life - always have been, and always will be, the key to such families.
+- We must send the message that if you use illegal drugs, you will pay the ultimate price by not playing an entire season. And if you get caught again, you will be banished for life.
+- We no longer have a free market in the United States, we have a government controlled free market.

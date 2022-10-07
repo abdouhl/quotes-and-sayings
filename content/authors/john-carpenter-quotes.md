@@ -1,0 +1,36 @@
++++
+author = "John Carpenter"
+title = "John Carpenter Quotes"
+quotes_len = "30"
+description = "the best 30 John Carpenter Quotes"
++++
+- Evil hiding among us is an ancient theme.
+- What scares me is what scares you. We're all afraid of the same things. That's why horror is such a powerful genre. All you have to do is ask yourself what frightens you and you'll know what frightens me.
+- One of my heroes is a composer named James Bernard, and oh my God... I can still listen to his music today and be stirred and moved by it. But I think that you fall in love with... Well, again, when you're young, it really is more powerful. Much more terrifying.
+- Way back in the '70s, I was approached to talk about the story I'd write for a Spider-Man movie. They also talked to me about Batman. I had to think about it, but that was way, way back when.
+- There are a lot of movies that I don't care about, especially not remakes.
+- There are two different stories in horror: internal and external. In external horror films, the evil comes from the outside, the other tribe, this thing in the darkness that we don't understand. Internal is the human heart.
+- I have two different categories of favorite films. One is the emotional favorites, which means these are generally films that I saw when I was a kid; anything you see in your formative years is more powerful, because it really stays with you forever. The second category is films that I saw while I was learning the craft of motion pictures.
+- One could make money and get a career going with a low-budget horror film about killers attacking on holidays. It is always flattering to have somebody copy you.
+- I never got in this business, in cinema, to make horror movies. They arrived on my doorstep and I got typecast. Which was fine, I enjoy it, but I got into this business to make westerns. And the kind of westerns I used to see, they died. So that didn't work out.
+- I had a talent for scoring films. I just developed it.
+- First of all, I was a wrestling fan when I was young. Even when I figured out what wrestling was, I was still a fan.
+- Well, 'They Live' was a primal scream against Reaganism of the '80s. And the '80s never went away. They're still with us. That's what makes 'They Live' look so fresh - it's a document of greed and insanity. It's about life in the United States then and now. If anything, things have gotten worse.
+- I stopped directing in 2001 for four or five years, until I did the TV series 'Masters Of Horror.' I had been working steadily as a director since 1970. That's a long time. I was burned out.
+- I love making movies.
+- Film buffs who don't live in Hollywood have a fantasy about what it's like to be a director. Movies and the people who make movies have such glamour associated with them. But the truth is, it's not like that. It's very different. It's hard work.
+- In England, I'm a horror movie director. In Germany, I'm a filmmaker. In the US, I'm a bum.
+- I've gone through various periods with superheroes. They work in the right hands, but they don't work in other hands. It's tricky. But any movie is tricky. It's impossible to say, 'This is what you do in any situation.'
+- To make Michael Myers frightening, I had him walk like a man, not a monster.
+- I made a decision back in 1978 that, in a trade off for money when I directed Halloween, I would have my name above the title in order to basically brand these movies my own.
+- I enjoyed 'The Avengers.' I couldn't do that kind of movie though. Superheroes aren't my deal.
+- It's a very good time for horror. This business certainly has changed, but there's still room for serious horror films. Look at 28 Days Later, that's not a tongue-in-cheek picture.
+- I think there are certain subjects I don't want to tackle, that I don't think I could do a good job with. I don't think I'd be good with... broad comedy? I don't know. Maybe I would.
+- I don't watch my films. I've seen 'em enough after cutting them and putting the music on. I don't ever want to see them again.
+- You have to fight really hard for a private life, and sometimes you don't have one. It just gets to you after a while. It's tough.
+- From early on, when synthesizers were first introduced into music, I liked the idea that you could get a big sound with them, electronic, but like an orchestra. And I could play it all myself. That was exciting.
+- In Halloween, I viewed the characters as simply normal teenagers. Laurie, Jamie Lee's character, was shy and somewhat repressed. And Michael Myers, the killer, is definitely repressed. They have certain similarities.
+- When I was a kid, I loved 'The Curse of Frankenstein,' 'The Creeping Unknown,' 'X: The Unknown.' I love 'Forbidden Planet,' 'The Thing from Another World.' They were science fiction/horror movies, generally.
+- When somebody who makes movies for a living - either as an actor, writer, producer or director - lives to be a certain age, you have to admire them. It is an act of courage to make a film - a courage for which you are not prepared in the rest of life. It is very hard and very destructive. But we do it because we love it.
+- I don't want to be a part of the demographics. I want to be an individual. I wear each of my films as a badge of pride. That's why I cherish all my bad reviews. If the critics start liking my movies, then I'm in deep trouble.
+- I can play just about any keyboard but I can't read or write a note.

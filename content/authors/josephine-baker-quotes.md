@@ -1,0 +1,31 @@
++++
+author = "Josephine Baker"
+title = "Josephine Baker Quotes"
+quotes_len = "25"
+description = "the best 25 Josephine Baker Quotes"
++++
+- I wanted to get far away from those who believed in cruelty, so then I went to France, a land of true freedom, democracy, equality and fraternity.
+- God dislikes evil, and no happiness can be built on hate. Love one another as brothers.
+- The things we truly love stay with us always, locked in our hearts as long as life remains.
+- When I was a child and they burned me out of my home, I was frightened and I ran away. Eventually I ran far away. It was to a place called France. Many of you have been there, and many have not. But I must tell you, ladies and gentlemen, in that country I never feared. It was like a fairyland place.
+- You must get an education. You must go to school, and you must learn to protect yourself. And you must learn to protect yourself with the pen, and not the gun.
+- I believe if the white and colored people could get together and be let alone, they would understand each other and consequently love each other.
+- Americans, the eyes of the world are upon you. How can you expect the world to believe in you and respect your preaching of democracy when you yourself treat your colored brothers as you do?
+- I ran away from home. I ran away from St. Louis, and then I ran away from the United States of America, because of that terror of discrimination, that horrible beast which paralyzes one's very soul and body.
+- I have walked into the palaces of kings and queens and into the houses of presidents. And much more.
+- I like Frenchmen very much, because even when they insult you they do it so nicely.
+- I was a devil in other countries, and I was a little devil in America, too.
+- I remember when Lindbergh arrived in Paris, I was one of the first persons to know about his landing, because as the French people know that I was born in St. Louis, thinking I would be very proud to announce it to the public, they gave me the news first. I was then starring in the 'Folies Bergere.'
+- Friends, to me for years St. Louis represented a city of fear... humiliation... misery and terror... A city where in the eyes of the white man a Negro should know his place and had better stay in it.
+- Beautiful? It's all a question of luck. I was born with good legs. As for the rest... beautiful, no. Amusing, yes.
+- I ran away from St. Louis, and then I ran away from the United States, because of that terror of discrimination.
+- Surely the day will come when color means nothing more than the skin tone, when religion is seen uniquely as a way to speak one's soul, when birth places have the weight of a throw of the dice and all men are born free, when understanding breeds love and brotherhood.
+- The hate directed against the colored people here in St. Louis has always given me a sad feeling because when I was a little girl I remember the horror of the East St. Louis race riot.
+- I believe in prayer. It's the best way we have to draw strength from heaven.
+- I wasn't really naked. I simply didn't have any clothes on.
+- All my life, I have maintained that the people of the world can learn to live together in peace if they are not brought up in prejudice.
+- All men can live together, if they wish to.
+- My people have a country of their own to go to if they choose... Africa... but, this America belongs to them just as much as it does to any of the white race... in some ways even more so, because they gave the sweat of their brow and their blood in slavery so that many parts of America could become prosperous and recognized in the world.
+- The hate directed against the colored people here in St. Louis has always given me a sad feeling... How can you expect the world to believe in you and respect your preaching of democracy when you yourself treat your colored brothers as you do?
+- I have walked into the palaces of kings and queens and into the houses of presidents. And much more. But I could not walk into a hotel in America and get a cup of coffee, and that made me mad.
+- Let us stop saying 'white Americans' and 'colored Americans,' let us try once and for all saying... Americans. Let human beings be equal on Earth as in Heaven.

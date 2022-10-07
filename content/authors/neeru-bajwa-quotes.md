@@ -1,0 +1,18 @@
++++
+author = "Neeru Bajwa"
+title = "Neeru Bajwa Quotes"
+quotes_len = "12"
+description = "the best 12 Neeru Bajwa Quotes"
++++
+- I'm a believer in arranged marriages. I mean, mine was kind of an arranged marriage. My sister introduced me to my husband. You know, kind of set it up.
+- I am comfortable in my space in Punjabi cinema.
+- I have been very fortunate that the Punjabi audience connected with me so well. Otherwise female actors are not repeated much in this industry.
+- Girls and boys also face the societal pressure to get married which I find wrong.
+- I am so honest that at times people get offended by what I say. In our industry, truth is not really appreciated. I love to be of my own. I try spending quality time with my family, my two very close friends and my pet Liam.
+- I mean, it gave me so much popularity, and because of TV, I got my first breakthrough. But I just enjoy doing films more.
+- It's been two decades. I feel blessed that I'm still working, and people still want to see me.
+- I will not even tell my daughter to get married if she does not find her life partner. I would rather push her for education and financial independence.
+- I do not have to depend on a man to give me bread.
+- When I started my career on TV, I never knew how my role or character was going to shape up or turn out to be. It was a challenging role for me and I learnt a lot from my senior actors.
+- If I get good films, I would definitely do them. But most of the stuff that I get is not good at all. They were not good scripts.
+- I was born and brought up in Canada but I always wanted to come to India and act.

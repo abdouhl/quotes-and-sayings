@@ -1,0 +1,28 @@
++++
+author = "Justin Kirk"
+title = "Justin Kirk Quotes"
+quotes_len = "22"
+description = "the best 22 Justin Kirk Quotes"
++++
+- After many of years of getting cast in sweet, angelic roles, I'm finally getting to play closer to my real life as a horrible person.
+- There is probably some great acting that goes on in movies from people who have never been on a stage, but if you are in for the long haul, you'd be missing an enormous part of what being an actor is if you're not part of theater.
+- I hesitate to say because it sounds silly, but the first play I did was 'The Caucasian Chalk Circle' by Brecht.
+- Once you walk off the set, if you're an actor, the rest isn't your responsibility, which I like a lot. I'm not responsible for the final product, which is why it's always a pleasure when you see it's in the hands of the people afterwards putting it together.
+- The funny thing is that making a pilot is sort of an audition, at least for me. There's something psychological there, where you're sort of asking for the job while you're acting. And then when it's been picked up, it's a completely different psychological dynamic.
+- You always have these moments when projects are over when you wonder if you'll ever work again. In the end, what it comes down to is that it's a fine line between becoming too enamored of your own success and maintaining the confidence to do what you do and do it well. That's the line every actor, if they're lucky, has to walk.
+- I've really grown to love film, but I think occasionally you need to get up on a stage and see what's going on.
+- Even though I wanted to be John Malkovich or Sean Penn when I was a kid, mostly I was a music nerd.
+- That's the great thing about being an actor: Stuff shows up that you never thought was going to go down. You get to play or experience an area of the world that - you know, I live a pretty simple life, I'm not much of an adventurer. I like my couch and my television. So when stuff comes up in the job, it's a good deal.
+- I think my favorite movie is 'Joe Versus the Volcano' - or maybe 'Multiple Maniacs' by John Waters.
+- I'm not married and I don't have kids, and so I like to go to work.
+- When I'm watching television or a movie, I like to see stories that are extraordinary. I don't need it be something that is, 'Well this makes more sense to me because I can see this happening to me, or this happened to me.'
+- Had a dog. I had many. I grew up in rural Washington before I moved to the Twin Cities in Minnesota, and my first dog was - his name first was Bear, but then it changed to Big, and he sort of looked like Old Yeller. And then we also had a three-legged dog named Foxy, who we found because her leg was in a trap.
+- I think the reality-show format is brilliant, has endless possibilities. It's documentary! But unfortunately, it's rarely executed well. So it becomes just a scripted show, but without actors.
+- I would rather be part of something that is entertaining than realistic.
+- No great television show has ever rested on just one person. They're all about great ensembles and storytelling.
+- It's certainly anyone's prerogative to say, 'I liked something more when it was this' or blah blah. But there's a kind of laziness as a consumer of entertainment, I think, to wish that something was repeating itself and doing the same thing. But to each their own, and I do it all the time. I've dropped television shows as a viewer.
+- I have turned into a bit of a homebody as I've gotten older. I don't really like to leave the couch in Los Angeles, but when a job comes around that you feel you have to do, you get up and do it.
+- I believe anything that anyone tells me. I have found that that is the best way to go through life. When I was younger, I used to be more skeptical, but then I found out that most things were true. So I believe tabloids. I believe legends. I believe anything anyone tells me.
+- I know the one time I tried therapy, I did after a month or two, and I only lasted a few months, because I started to worry about being entertaining. I kept driving there once a week for an hour and I'm thinking 'What am I going to talk about today?'
+- I love dogs and cats, but I don't want to be the guy who says, 'I'm going to Brussels for a while; can you take Poochie?' Or even worse, I could be the guy who takes Poochie to Brussels with him - then I'm really in trouble.
+- Ninety percent of a good performance of an actor is based on the material. If you've got the material there, you can ride it.

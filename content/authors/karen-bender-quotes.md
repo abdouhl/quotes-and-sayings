@@ -1,0 +1,26 @@
++++
+author = "Karen Bender"
+title = "Karen Bender Quotes"
+quotes_len = "20"
+description = "the best 20 Karen Bender Quotes"
++++
+- My first published work was when I was 19, in 'Playgirl.' It was an odd experience but exciting.
+- It's great being married to a writer. You live with someone who can read your work and help you.
+- You sit at your computer for hours, then slave away at your job that you may or may not like. You don't know how to explain to them that the time when you feel alive or present is when you are writing.
+- Tell your mother that any clothes she wants to purchase you as a gift has to be suitable for a job interview.
+- I wrote lots of pages. I showed what I wrote to Iowa friends, and they said, 'Good start.' That was discouraging because I thought it was almost done.
+- Don't monitor your online savings account in real time.
+- When I wrote my stories in elementary school, I signed them all 'Karen E. Bender' with the squiggly 'E.' I wanted, from an early age, to be a writer, and that name - that E - was a way of pretending I knew how to do it.
+- Giving shape to a painful experience is powerful because it helps us to see, first, how we got through it; second, how we can share it. The experience doesn't stay trapped within us, unspoken, curdling - instead, the art of arranging and transforming it reduces the burden. It no longer belongs to only you.
+- Write something beautiful and honest and that makes you very proud.
+- When I was 19 and dropped out of college for several months, I lived for some time with my grandmother.
+- Don't go into any store that features shopping bags that can stand on their own accord in the middle of a table. This sort of shopping bag denotes prices that will start chipping into your children's college education fund. Avoid it.
+- I was in graduate school. I had a birth control accident and went to get the morning after pill.
+- Make pumpkin bread as the default gift for everyone. It is cheap, it is beloved, it is carbs.
+- My second novel began after my family moved from New York City to North Carolina, and I watched my son walk into kindergarten at a school in which he was the only Jewish child out of 600 students - and this in the middle of the Bible Belt.
+- At one point, I had a story accepted at the 'New Yorker,' which sent off weird bells in people when I told them - 'Oh,' they thought, 'now you are a writer' - where I really had been for the last 30-odd years.
+- Writing about a person whose struggle you wish you could solve is an act of compassion and also, frankly, opportunism.
+- The word inventors have to create a new term to describe how I felt when I learned that 'Refund' was on the shortlist for the Frank O'Connor International Story prize - Excited, thrilled, honored, none of them quite do it.
+- Fall into your sentences; enjoy writing them. Love the world you are creating.
+- Write a story a great writer would write. Because part of becoming an artist is pushing through all the disbelief of those around you, deciding that you are a writer when you have no idea what a plot is or whether what you've written is any good, or anything.
+- What is it to be normal, at 12, at 78? What is it like when you can't grow up?

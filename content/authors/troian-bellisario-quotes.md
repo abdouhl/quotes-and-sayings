@@ -1,0 +1,42 @@
++++
+author = "Troian Bellisario"
+title = "Troian Bellisario Quotes"
+quotes_len = "36"
+description = "the best 36 Troian Bellisario Quotes"
++++
+- You have to remember what's most important in life. I am loved by so many people and have a wonderful job. I know I'm incredibly blessed. I am a completely lucky human being.
+- I've had a lot of girls reach out to me about struggling with body image. I've only been able to write back to a few of them, but I've been able to write and have correspondence with a few of them and really talk about what I think they should do or if I think they should ask for help.
+- I love being natural. I never feel more beautiful then after I've been to the beach and my hair's just a crazy mess of salt curls, or when I've just been outside all day hiking.
+- When I was 5 years old, my best friends were Mary-Kate and Ashley Olsen because we lived across the street from each other.
+- As I got older, I had a bunch of friends that were various teen stars. I've always known people in the spotlight and people who just grew up in L.A. and had nothing to do with the industry. It's not a glamorous thing to me. It's just a different type of business.
+- Seeing my friends succeed, find love, or just feeling content makes me feel unconditionally happy.
+- I was a 2-year-old baby on something, but it's not like I had lines. But I actually had my first lines when I was 4. And then I finished school, and I went to USC for their BFA program in acting.
+- My dad is a successful television producer, director and writer, and my mom's a director and writer. Even when I was young, I wanted to be an actress.
+- If I could be living anywhere now, it would be in New York. My heart is in that city.
+- Hollywood is a challenging place; it's very easy for people to lose their heads. Fortunately, I grew up on it and I think I have a little bit of a head start.
+- I was definitely a tomboy. My mother liked to dress me differently, but it was her loss when I came home with mud in my hair every day. I've always been more comfortable with guys; I don't know why.
+- I hate nothing more than having my nails painted. I feel like I'm in time out.
+- I like a lot of Ralph Lauren and classic styles... My style has changed in that I'm willing to try more things.
+- I can tell if I'm being lied to or manipulated a little better than most. It's definitely an advantage for me.
+- If I'm going to try and find something, I stick to the flea markets, or I pull hand-me-downs from my family because I like pieces to have stories.
+- I'm not a teen anymore, but growing up, some of my favorite things were, like, 'Twin Peaks,' which wasn't even really my time, and this is one of the things, like a weird, quirky, small town mystery.
+- In college, that was when I felt that acting is the one I really wanted because I got to be my true self; this is what I want to do for the rest of my life.
+- I like wearing my dad's sweaters because I knew that he wore them when he held me when I was a baby.
+- I was going to move to New York after college and had no interest in pilot season. I'd seen what happened on TV shows because of my dad, and I didn't want to open myself up to that. But 'Pretty Little Liars' had a very early audition, and my agents encouraged me to go even though I didn't think it would be my thing.
+- Being a teenager is chaotic because you're kind of coming into your own, but you're not an adult; you're fighting with your parents over responsibilities and freedom.
+- I grew up with brothers. Girls terrified me.
+- My dad is a successful television producer, director and writer and my mom's a director and writer.
+- I was born here and I was raised here in Los Angeles. And when I was five years old, my best friends were Mary Kate and Ashley Olsen because we lived across the street from each other.
+- It's a very wonderful yet difficult thing to be given a lot of really good opportunities and the world is at your fingertips.
+- When I was in high school, there was a lot of pressure on me. I felt like I had to be perfect.
+- I love to operate in a world that values things outside of beauty. It's just more what I feel comfortable doing.
+- I'm partial to slouchier, more free clothing. My icon is Patti Smith, so the more rips, the more punk, the more comfortable I feel.
+- I'm not a glamorous girl. I don't know how to do my hair. I'm very bad with makeup.
+- My only non-acting job was being a barista at Coffee Bean. While I was in college, and I had a blast! I loved making drinks because I got to be like a mad scientist.
+- My high school was a private school where you went to an Ivy League. That's just what was expected of you and nothing less. So I grew up never being okay with a 'B' because a 'B' was not good enough.
+- On my Instagram, my boyfriend will take pictures of me, or someone else will take a picture of me, and they're like, 'What is wrong with her? She looks sick.' And I'm like, 'No I just don't have two hours of hair and makeup, you guys.'
+- I'm mostly pretty quiet on the weekends. I either read or visit friends or go hiking or something like that.
+- Even when I was young I wanted to be an actress.
+- The minute I'm off that stage, I try to get as 'me' as possible. I do that by piling on my black eyeliner, and I put on my ripped tights. Dressing like myself again helps.
+- I grew up in Hollywood. My father always told me that this is a job. These events are filled with people you work with; it's not like glam-schmooze time. That's why I only like events that celebrate people I have a connection to; otherwise, it's someone else's night, and I don't need to show up in a dress to try and steal their attention.
+- What Hollywood truly wants is for people to be themselves. I think what it's designed for is to kind of turn people into something and just make them saleable. But what it really stands for, what it really loves, are people who are unafraid to be themselves, and as you can see, these are people who are excelling in their careers.

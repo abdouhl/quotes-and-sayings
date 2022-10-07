@@ -1,0 +1,96 @@
++++
+author = "Jeremy Scott"
+title = "Jeremy Scott Quotes"
+quotes_len = "90"
+description = "the best 90 Jeremy Scott Quotes"
++++
+- I think fashion takes itself way too seriously. It's just fashion, people. It's just clothes. It should be frivolous and fun. You're not meant to see it as church and pray to a blouse.
+- An Isaac Mizrahi fashion-show ticket signed by Steven Meisel. I rushed up to Meisel at the end of the show and asked him to autograph the card that had his name and seating assignment on it. It was an incredible moment when he shot the autumn/winter 2014 Moschino campaign.
+- Melania rarely wears American labels, with the exception of Ralph Lauren, who created a duplication of a Jackie Kennedy look, which was basically a costume anyway.
+- When I was born, my family was so poor that there was no money to buy food. So the church bought groceries for us - there wasn't any kind of privilege.
+- I'm very organic in nature with my creativity. It just kind of wraps around me, or it's a moment I have, a click of inspiration. It's never calculated.
+- I ultimately do still feel like an outsider, and I do feel, actually, I'm more in the world of music because of how much I participate with musicians - in all aspects, not just clothes.
+- By the nature of fashion, you're only as good as your last collection, so I'm constantly striving to be better, so I don't look at it as if I've made it.
+- Music and fashion combined make such a lethal weapon in my opinion.
+- I don't do many social events in the fashion industry. Instead, I go to things like the MTV awards because that's where I fit in - wearing a yellow tuxedo and no shirt on a red carpet.
+- I fell in love with L.A. To me, it is the most quintessentially American city.
+- I like the mix of something farmlike and something futuristic and artsy mixed together. It's kind of both my worlds.
+- There probably wasn't a day that went by in high school that I wasn't bullied either physically or verbally. It made me stronger, and I knew I had to stay steadfast to what I believed in.
+- For me, actresses are constantly chameleons, and so they are taking a backseat to their own personality. I don't feel like we're trying to show off their personality as much as let them be a blank slate. It's precisely the reason why I dress more musicians than I do actresses.
+- When Jackie Kennedy wanted to wear her favourite European designers, she was told no. She had to start working with brands like Adolfo, who had to create Chanel knock-offs because that's what she wanted to wear.
+- I don't think the distinction between high and low culture exists anymore.
+- Madonna is the ultimate pop star of all time, hands down. She wrote the playbook for it. There is no female pop star - and probably few men today, for that matter - who are not indebted to her in one way or another for her contributions to the industry.
+- I feel very blessed to have such wonderful cheerleaders and champions of my work.
+- Even as exuberant as my style is and as over the top as I may be, I can appreciate a classic when it's really well done.
+- 'What if this funny-looking youngster from Missouri is talented after all?' I think it was a nice place to grow up, but I'm glad I don't live there anymore.
+- I went to Paris to learn and absorb some of the amazing ambience I was enamored with growing up in Kansas City. I didn't go there to start my own collection. But I never could get an internship, so finally, I was left with just doing my own show.
+- I've taken a look back at my body of work and tried to deduce an essence, capturing aspects that reoccur. Reflecting on your own product can be difficult yet enthralling.
+- I'm an introverted extrovert. My job sets me apart, but I'm not hammy and don't need attention.
+- I don't make clothes for the critics.
+- I softened in my old age.
+- I've met people with my prints tattooed on them, my face tattooed on them - I have that commitment and love.
+- I'm not anti-intellectual, but primarily, I try to feel things. Emotions aren't always rational; it's not possible to put them into words.
+- I love the low-rider cars and that whole culture.
+- I have a nostalgia for the years I was growing up and experiencing new things for the first time - so the late '80s and early '90s are always fascinating to me. Those were the times that I was being informed about a lot of my tastes, and so the memories are fused with a lot of emotion.
+- I don't care if the critics don't like me. I want to be the people's designer, like Diana was the people's princess.
+- Posterity is something I'm a big fan of because that's how you leave your legacy. Not to sound pompous, but just to be truthful.
+- I was in heaven when I saw Taraji P. Henson wearing Moschino!
+- I know that my image and my clothing and my output are very colorful and can be arresting and startling in some respects. That is the nature of my work, but I am a simple farm boy, and I am very calm by nature.
+- I think because of the eccentricity of my work and how I dress, people expect me to be bouncing off the walls. But that's just not how I am.
+- I like to think of my work and the way people approach it in the same way people approach a Lichtenstein painting. You can write a one-hundred-page dissertation about why he used comics. Or it could be like, 'This is cute!'
+- There are so many serious things in the world; I just choose not to be one of them.
+- There have been a lot of challenges, but I'm still standing on my own, and it's quite an achievement knowing that I own my own business and created my own success through hard work and vision.
+- I feel like we have to fight for art.
+- My story is the American Dream, a hundred percent.
+- I think one thing I've learned over the years is just that you're not going to ever please everyone, and the most important person to please is yourself.
+- I feel my role is to push boundaries. I don't like things to be safe and sedentary. So controversy is the cross I have to bear.
+- I started at Moschino Oct. 31 or Nov. 1, 2013, and now I go back and forth between Milan and Los Angeles, where I live.
+- I'm a very normal person with a very even keel.
+- Suddenly, Dallas has become a big part of my life, and now I feel like I'm part of the fabric of the community here.
+- You don't have to be born wealthy and have an aristocratic last name or have connections or all these things. If you have a dream, you can believe in something and work hard and struggle and fight for it and still have a chance to succeed.
+- I was born dirt-poor with barely a stitch on my back, and no name or prestige attached to me, and no real clout or connections.
+- My country is in the toilet. And when my country is in the toilet, the world is in the toilet.
+- Being pure in my voice has always served me the best. Anytime I've tried to hide my light under a bushel, it's never done me any good.
+- The main thing I hope people see is how passionate I am about my work, and I know people talk about it, but I do work really hard on my stuff, and it means a lot to me.
+- I don't really dissect too much when ideas come - they just kind of pop into my head; I just take them and run.
+- I've been thinking a lot about how we worship celebrity and how we have Elvis and Marilyn Monroe and Jesus all on the same playing field.
+- I'm a populist. I'm the people's designer... It's important that there are price points that allow people in who maybe don't have the ability to have higher-ticket items - but they can still have something very emblematic of the collection.
+- I grew up on a farm and didn't have connections, and I had a dream that I believed in, and I felt passionate about it, so if I can instill hope into somebody too with the film, that's what I most want.
+- I get love from fans in a big enough dosage that it acts as a shield, and I would not sacrifice that love in order to please the industry.
+- I really don't see little girls growing up and thinking, 'Oh, I'm going to morph myself so I look like Barbie.'
+- The McDonald's icon of the colours and the golden arch, for me, resonates as one of the most iconic images ever.
+- When I design, I always pull from things that are significant to me. In my work, I search for happiness and then try to convey that joy in the clothes.
+- Sometimes when I'm just really relaxed, that's also a creative time for me, because that's when my mind is more open because I'm not worried or thinking or being very analytical.
+- I'm trying to be the messenger for the people that pay attention to me. And those people I want to help inspire because a lot of people maybe think it's - they're too cool for school. That's all I can ever do.
+- I don't really shop unless it's thrift.
+- I'd be a pop star. Although, I was once sat front row at a Rihanna concert when she came down to the audience and sat on my lap, pointed the microphone towards my mouth, and I couldn't sing a line.
+- I always grew up watching things transform, and a lot of that was what we would call trash.
+- I look at myself like a farmer, harvesting my wares and taking them to the market, and then I go back and do it again.
+- Designers have a reputation for setting the tone for what people - and especially women - are supposed to wear. How long their skirts should be, things like that. I have a different philosophy: put something out there with humour; let people see that and come around to it on their own.
+- I think when people think of something as basic, they think that it's boring.
+- Fashion is an ultimate luxury - I mean, you don't need it - so it should bring you pleasure and make you happy. I don't like the idea of people revering it.
+- I moved to Paris around 1995 or 1996; my first collection on the runway was in 1997.
+- I'm never going to be inspired by some obscure film, which isn't to say I don't enjoy that sort of thing. I just want to share my work with everyone.
+- Sometimes people have questioned whether I was making fun of the industry or just at myself. I'm just trying to raise a smile. Clothes aren't meant to be worshipped at a church altar.
+- I think about my friends all the time when I'm designing. That's always an arbiter. Would Katy wear this? Would Rihanna wear this? Would Sia wear it? Would Miley wear it?
+- I'm fully aware, fully on, and fully kind of designing everything that goes on with me. Anything that's happening is definitely on my table.
+- I think Barbie and I are very similar in many respects. That's why she made such a great muse for the summer Moschino collection.
+- I feel very blessed to have the support I have and to have the fans that I have. I'm still striving to make it every day.
+- One thing I have that the majority of other designers don't is humor. That's distinctly my approach, and it was distinctly Franco Moschino's, too.
+- A lot of my collections are informed by nostalgia. I think that's because I loved clothes early on. I remember, at maybe age five, being concerned about what I wore, right down to the underwear.
+- McDonald's, Barbie - they're all icons, recognizable from London to Timbuktu.
+- We have to fight for everything we believe in.
+- Night in. I'm really kind of a homebody.
+- I love all these things where proportions have been changed and altered.
+- I want my clothes to have a life and then end up in a secondhand store, where some cool girl discovers them 20 years later. If the runway or red carpet is the only life clothes have, it's sad.
+- When I had no place to live and I had no place to sleep - and I did sleep in the Metro - I held steadfast to the fact that I had a dream, a reason why I'm doing this... that it was bigger than this moment.
+- Fashion should have a transgressive nature; it can make you feel like someone else, give you heightened emotion. It should bring you joy and uplift you.
+- I follow my inspiration to wherever it goes. I do want the fans to feel the fun and excitement about it, and I like for people to be able to make their own interpretations about my work.
+- I love MTV, and I love the VMAs. There's no award show like it. It really is the coolest award show, hands down.
+- I have lots of muses, but one of my main girls is Cara Delevingne. She epitomises the way to wear my clothes. I love how she mixes up her style and the way she has so much fun. I simply adore her.
+- I was Hillary in '08. I love Obama, but I was Hillary first, so I was happy to be back there with her again.
+- It was here in L.A., before 'I Kissed a Girl' and all that. She stopped me and told me she was a huge fan and that she was a singer and that one day she hoped that I would dress her. I ended up dressing her for her record release.
+- There's a lot of fashion that I don't respond to and I just walk on. I always look for things that make me happy, and in my work, all I'm doing is trying to convey that joy. Fashion should always be fun.
+- I've always felt like an outsider, and I'll probably continue to always feel like an outsider. Hopefully that's a good thing. I feel like I approach things differently than other designers.
+- With the clothes I design, I think about my friends, how I'd want them to dress, what I'd want them to wear.
+- If Michelle Obama had stepped out in an outrageously priced jacket by an Italian designer, heads would have rolled. People would have said it was deplorable.

@@ -1,0 +1,160 @@
++++
+author = "Jennifer Aniston"
+title = "Jennifer Aniston Quotes"
+quotes_len = "154"
+description = "the best 154 Jennifer Aniston Quotes"
++++
+- Do I have my days when I've thrown a little pity party for myself? Absolutely.
+- I feel sexy in my jeans and wearing my boyfriend's T-shirt.
+- Your body will tell you what it needs.
+- Marriage is wonderful.
+- I am a creature of habit.
+- I entertain for a living, and I entertain.
+- I'm a bit of a clothes hoarder, admittedly. I try to weed out stuff. My girlfriends come over for cheese and wine and go shopping in my wardrobe. They especially love it when they get stuff with a tag still on.
+- Where would you be without friends? The people to pick you up when you need lifting? We come from homes far from perfect, so you end up almost parent and sibling to your friends - your own chosen family. There's nothing like a really loyal, dependable, good friend. Nothing.
+- Kids are messy!
+- I was starting to buy into my own sort of stereotype in a way.
+- I want to see friends more and travel more.
+- The fun stuff comes when someone is not so strict on sticking to the script. You're allowed the spontaneity, and great moments can happen.
+- When somebody follows you 20 blocks to the pharmacy, where they watch you buy toilet paper, you know your life has changed.
+- I always try to sleep for at least eight hours a night and, of course, water, water, water!
+- I was told to avoid the business all together because of the rejection. People would say to me, 'Don't you want to have a normal job and a normal family?' I guess that would be good advice for some people, but I wanted to act.
+- I love the unknown. I love the discovery of what will be happening and just kind of sitting back and not knowing.
+- My hair has never been my greatest feature, so that was funny enough unto itself that my hair became so focused on.
+- We're all with Friends until Friends dies. If one of us goes, we all go. One of us wouldn't leave. It wouldn't be the show it is without each of us.
+- Most of us fall in love with someone's persona and spend the next three to five years discovering who that person really is. If you can stay connected through that process of raw vulnerability, I think you have a shot at the prize of knowing and accepting another human being for who and what they really are after years of highs and lows.
+- Oh gosh, I noticed dramatic changes in my body after I started doing yoga, but I also think you have to shake things up.
+- I realised it was only me who was stopping myself from living my life.
+- It's sad, something coming to an end. It cracks you open, in a way - cracks you open to feeling.
+- I love to read about what my love life is really like.
+- I was always reading those beauty magazines and wanting to become this unattainable thing.
+- There are many stages of grief.
+- I'm just so happy, and I'm grateful for my fans. I just hope I keep doing work that they love.
+- It's sad, something coming to an end. It cracks you open, in a way - cracks you open to feeling. When you try to avoid the pain, it creates greater pain.
+- Art is so subjective, and people can react however they want.
+- When you try to avoid the pain, it creates greater pain.
+- There is nothing you can control about love.
+- It's so easy to be boxed into one part and one part only.
+- I am trying to think of the last time that I just said, 'What the hell!' and did something crazy.
+- You can't blame someone for not knowing what his or her job should be if you don't ask for it right off the bat.
+- I am pretty controlled I have to say.
+- Cancer affects all of us, whether you're a daughter, mother, sister, friend, coworker, doctor, patient.
+- 'Friends' will always remain friends.
+- I have a lot of amazing women, you know, women in my life who have been an example for me of what not to do.
+- One tradition I have with my friends is that when one of us gets married, we have a ton of fragrance oils and pretty bottles at the bachelorette party. Everyone puts a drop or two in a bottle for the bride and makes a wish, and the bride wears our creation on her wedding day.
+- I support women, men, anybody who is in a place that's not their strongest and who is ready to push forward.
+- OK, in all seriousness, I would say I couldn't be in a relationship without equality, generosity, integrity, spirit, kindness and humor. And awesomeness.
+- I actually feel I've been unbelievably lucky in love.
+- Having experienced everything you don't want in a partner over time, it starts to narrow down to what you actually do want.
+- When someone follows you all the way to the shop and watches you buy toilet roll, you know your life has changed.
+- Here's where I luck out: I'm really computer illiterate.
+- Everybody who has ever been snubbed, you know that is very humiliating.
+- Really try to follow what it is that you want to do and what your heart is telling you to do.
+- Parenting is one of the hardest jobs on earth.
+- It gets so boring you know just to do the same thing over and over again.
+- The best smell in the world is that man that you love.
+- I went to the Rudolf Steiner School in New York, and you're not allowed to watch TV.
+- I've never sat there and plotted out how I was going to become successful or famous.
+- I just feel lucky.
+- My friends love coming over because they get fed.
+- I love acting, but being an actor for hire only serves so much, and then you want to fill your well up again and be charged by something else.
+- I was always the mediator.
+- Free love never works.
+- Yes, I play dress up! I do it for a living, like a retard!
+- I don't know why women feel an affinity with me.
+- I wasn't a good waitress, but I was told that I was very nice and charming, so people liked me anyway.
+- There are a lot of movies that are unbelievable successes that I would be mortified to be a part of.
+- I love clothes, but I don't know what to put on myself, let alone others. I have a lot of help getting dressed.
+- True love brings up everything - you're allowing a mirror to be held up to you daily.
+- The tabloids, instead of being about alien babies and stuff, it's my triplets, quadruplets, marriages, feuds.
+- I'm a bit of a clothes hoarder, admittedly.
+- That's what I hate about a lot of comedies, when you're hitting a line or making it funny.
+- I think when you're off the clock, you should be off the clock.
+- You know what makes me feel old? When I see girls who are 20-something, or the new crop of actresses, and think, Aren't we kind of the same age?
+- My father and I are friends and my mother and I don't speak. It's a bummer. I miss her.
+- I don't know what it means to be a sex symbol. When I look myself on a magazine cover I don't see it as me, but as someone painted, fluffed, puffed and done up.
+- Of course, the ideal scenario for parenting is obviously two parents of a mature age.
+- When I think about a character, it does start with the shoes: What kind would she wear? How would she walk in them?
+- The greater your capacity to love, the greater your capacity to feel the pain.
+- Once you figure out who you are and what you love about yourself, I think it all kinda falls into place.
+- I don't know if I ever really get mad in real life.
+- I've seen people go through divorces and stuff, crossroads that don't end well. Often.
+- I think rage is so ugly.
+- My dad became a soap opera actor, and I was an extra in a skating rink scene on the soap. I didn't audition. It was nepotism all the way.
+- As I get older I realize what qualities are important in love and what suits me. And what I won't settle for.
+- I'm really happy. Really!
+- My most disastrous date was not so much a disaster as uncomfortable for both parties involved.
+- I'm lucky if I write a letter.
+- No, I'm not adopting any children.
+- I was just always the girl that people would come and talk to about their problems, and I still am.
+- I've gone for each type: the rough guy; the nerdy, sweet, lovable guy; and the slick guy. I don't really have a type. Men in general are a good thing.
+- You can undo a lot of things. If you're not happy, you can become happy. Happiness is a choice. That's the thing I really feel.
+- It's a really nice thing to have so many fans and people that really care.
+- I read a lot of scripts that I just don't find very funny.
+- Well, honestly I feel like an ordinary woman.
+- I love being home. I have friends that come over.
+- You know, I've got wrinkles on my forehead and smile lines, but what's wrong with that? I love to smile.
+- I was born in Sherman Oaks, California.
+- I would quite like to create a fragrance for men though - something that I like.
+- A man divorcing would never be accused of choosing career over children.
+- I'm not one aspect of the human experience - none of us is.
+- People laugh at me. Sometimes I know why, and sometimes I don't.
+- Don't rely on men but don't shun them either.
+- There are no regrets in life, just lessons.
+- What inspires you, what excites you when you wake up in the morning?
+- I guess we'd be living in a boring, perfect world if everybody wished everybody else well.
+- I think a good relationship is about collaboration.
+- You train your man to do nothing.
+- I think there are opportunities for women in comedies - how zany is up to them.
+- My best hostess tip is to have good food and really good music!
+- It's all about being comfortable, being easy and having you be able to wear something and not having it wear you. It's classic. Every time I've tried to be bold and crazy, I feel like a Japanese animated cartoon character.
+- I think you miss out on a lot of stuff when you're so protected and isolated.
+- When I was 22, I was having a ball!
+- I really am pretty happy with what God gave me.
+- I love seeing a house and thinking about how it should be redone or restored.
+- Oh, my God, my thirties blew! Forties are great.
+- I've never in my life said I didn't want to have children. I did and I do and I will!
+- People who avoid the brick walls - all power to ya, but we all have to hit them sometimes in order to push through to the next level, to evolve.
+- I think it's important to have closure in any relationship that ends - from a romantic relationship to a friendship. You should always have a sense of clarity at the end and know why it began and why it ended. You need that in your life to move cleanly into your next phase.
+- Realistically speaking, I don't know how many more years I will want to be acting or will be invited to be.
+- People who do comedy are always underrated because they make it look so easy.
+- I spent my first paycheck on a vintage Mercedes.
+- The women that inspire me are the ones who have careers and children; why would I want to limit myself? I've always wanted to have children, and I would never give up that experience for a career. I want to have it all.
+- In a man, I look for a friend, someone who's equal, with whom I'm comfortable.
+- I couldn't have found a better man than Brad. He still opens doors for me and brings me flowers. He's the sweetest goofball on the planet.
+- Designing a house is like doing a movie: Once you're done, you want to say, 'I hope you all enjoy it.'
+- I don't get sent anything strange like underwear. I get sent cookies.
+- A relationship isn't going to make me survive. It's the cherry on top.
+- I had an idea of what I thought was funny. It's kind of based on how I am.
+- I love that feeling of being in love, the effect of having butterflies when you wake up in the morning. That is special.
+- The first time I kissed Brad my knees went weak - I literally lost my breath!
+- As an adult, I can't blame my parents any more.
+- You know when I feel inwardly beautiful? When I am with my girlfriends and we are having a 'goddess circle'.
+- I almost resent the whole fashion thing. Good God- never wearing the same thing twice and all of those things. It's a pain in the ass.
+- I don't think I got thin. I think I got healthy.
+- Wrinkles happen to human beings.
+- To talk about a relationship trivializes something that's nobody's business.
+- I don't have a religion. I believe in a God. I don't know what it looks like but it's MY god. My own interpretation of the supernatural.
+- Women should stop going for the bad guys, stop looking so far when the good ones are right there.
+- I'm not sitting dwelling about the past or stressing or fretting about something in the future.
+- I'm enjoying simplifying things.
+- You're damned if you're too thin and you're damned if you're too heavy. According to the press I've been both. Its impossible to satisfy everyone and I suggest we stop trying.
+- Life can be dramatic and funny all in the same day.
+- I'm a sweats and UGGs girl. Very casual.
+- My parents' divorce left me with a lot of sadness and pain and acting, and especially humour, was my way of dealing with all that.
+- I always say don't make plans, make options.
+- I'm sprouting more than one wonderful grey hair.
+- I just stay fit and in shape.
+- Everybody relates to having a dream.
+- Marriage brings up all the things I pushed to the back burner - the fears, the mistrust, the doubts, the insecurities. It's like opening Pandora's box.
+- Nobody thinks of themselves as sexy, really. Some days you go, 'Hey, I'm not going too bad today.' But if you try and be sexy, you'll never be sexy.
+- The thing I am attracted to is just good writing and stories that are based somewhat in reality.
+- I don't feel my age. I feel young every day.
+- I've always loved to combine different scents to come up with my own unique thing.
+- Oh, it's not really gambling when you never lose.
+- Look I eat really well and I work out, but I also indulge when I want to. I don't starve myself in an extremist way. You're not taking away my coffee or my dairy or my glass of wine because I'd be devastated.
+- I feel young every day.
+- I'm thrilled with how my career is evolving.
+- I want to have it all.
+- When you accept a role in a pilot, you automatically sign up for five years. You think it's scary to walk down the aisle? Try signing a five-year contract for a show you may not want to be part of down the road.
+- I have been pregnant in so many movies it's ridiculous.

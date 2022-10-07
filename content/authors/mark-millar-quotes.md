@@ -1,0 +1,28 @@
++++
+author = "Mark Millar"
+title = "Mark Millar Quotes"
+quotes_len = "22"
+description = "the best 22 Mark Millar Quotes"
++++
+- I didn't break into comics to write fairytales or crime comics.
+- The animated books pay the lowest rates at the Big Two and you can forget about royalties.
+- I spent as much time writing proposals in '98 and '99 as I did writing scripts.
+- The breadth of the potential readership is also a factor.
+- The books are all very, very different so the publishers really had to be different too.
+- At the moment, I have it planned as a six or seven year experiment, but the books will only ever appear in bursts like this every couple of years and only with the best quality artists.
+- Artists, no matter how good their intentions, are always slower than they think.
+- I didn't want the headache of having a publisher reviewing everything I wrote in advance.
+- The trick was really finding the appropriate publisher for each of the projects I'd devised.
+- We've had really good mainstream publicity for these books and both Wanted and Chosen were snapped up as movie deals before each series even ended so I'm honestly just pinching myself.
+- However, if I can expand this to Top Cow or Avatar I'm helping the sales, however small, on my Marvel books because I'm almost certain to pick up some new readers.
+- I'd love to do something else for Avatar after this.
+- I wanted to portray very, very dark subject matter and a deceptively complex story in the brightest colours and simplest lines possible to leave the readers reeling.
+- Likewise, I see no shame in writing Captain America or Wolverine.
+- I'm honestly as happy writing Superman Adventures as I am writing Wanted.
+- Their argument, and I think it's a correct one, is that they'll make more money from the trades and the hardcovers if nobody messes with the creative team.
+- Marvel books also feed into the smaller publishers and the fact that this is happening in the same month we're launching Ultimate Fantastic Four is no coincidence.
+- I don't see one as bring better or more literate than the other and there's a real buzz to not only writing about a character I love like Superman, but also writing something that kids can enjoy.
+- Being the first to do something like this also registers a lot of attention that the line might not have gotten if all four books had just appeared from one company.
+- It's been the most creatively liberating thing I've ever done and so I'm bringing some of that mad enthusiasm to Marvel for the next couple of years as they let me loose on some Marvel Universe titles you'll be hearing about soon.
+- I think American audiences are quite interesting in that they can handle almost any amount of violence, but the moment the violence becomes sexual violence it immediately becomes an issue.
+- Wanted has gone into second, third and fourth printings of the individual issues and the north American printings of Wanted #1 are now close to 100,000.

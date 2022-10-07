@@ -1,0 +1,15 @@
++++
+author = "Kay Robertson"
+title = "Kay Robertson Quotes"
+quotes_len = "9"
+description = "the best 9 Kay Robertson Quotes"
++++
+- One of the great tragedies I see is people not putting every effort into the foundation of their marriage. My grandmother told me that it's one man and one woman for life and that your marriage is worth fighting for.
+- My kids would come in from school and sit on the floor in front of the TV and line up duck call boxes and put the stickers on the duck call and then put them in the boxes.
+- Families need to have a time when they can cook together. They can eat at the table and you can look eye-to-eye. Phones are put away and there are no interruptions. And what you do is concentrate on each other. Listen to what they have to say, and let them listen to you.
+- Robertsons love Sundays! The most important thing we do is gather together with our church family for worship, teaching, and fellowship. After church, we like to have a nice lunch of roast, vegetables, and definitely rolls or biscuits. And I love catching a nap when I can.
+- I think America needs us. 'Duck Dynasty' has given some hope to bringing the family back. I want to set that example.
+- My grandmother's house was just a place of comfort. I mean, I remember going in there, and the kitchen always had pots cooking with the lids were always bump, bump, bump, bump, bubbling, you know?
+- You have to fight for your marriage, do whatever it takes. The commitment has to be there. And if you don't have a sense of humor, I don't know how anybody makes it.
+- I love my squirrel and dumplings, but you can make it with chicken and dumplings. I love making the dumplings. I think I just like to roll out dough.
+- I tell my kids and my grandkids, 'Never forget where you came from. Never forget your roots.' My grandkids, they didn't go through the hard times as much as other ones in our family did. One thing is to just never forget where you came from and you never forget that nothing is more important than your relationship with Jesus Christ.

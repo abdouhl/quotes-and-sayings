@@ -1,0 +1,14 @@
++++
+author = "Marion Nestle"
+title = "Marion Nestle Quotes"
+quotes_len = "8"
+description = "the best 8 Marion Nestle Quotes"
++++
+- How we grow food has enormous effects on the environment - climate change as well as pollution of air, water, and soil.
+- The best way to eat is to eat lots of different kinds of foods. Except for breast milk, no one food is perfect.
+- I follow my own advice: eat less, move more, eat lots of fruits, vegetables, and grains, and don't eat too much junk food. It leaves plenty of flexibility for eating an occasional junk food.
+- I have a generally optimistic temperament and am thrilled by what I see as a rapidly growing food movement, especially among young people who care about how food is produced and what it does to their health and the environment.
+- I don't define anything I eat as a vice.
+- Healthy, sustainable food production methods give us food that is nutritionally better and with fewer pesticides, antibiotics, and hormones.
+- It's time to get the FDA to reverse its 1994 decision not to label GM foods.
+- I am not a vegetarian. I subscribe to my own mantra: eat less, move more, eat plenty of fruits and vegetables, don't eat too much junk food, and enjoy what you eat. Or, to summarise: eat less, eat better, move more, and get political.

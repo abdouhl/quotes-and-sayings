@@ -1,0 +1,31 @@
++++
+author = "Miguel Syjuco"
+title = "Miguel Syjuco Quotes"
+quotes_len = "25"
+description = "the best 25 Miguel Syjuco Quotes"
++++
+- Touching on universality is an important part of effective storytelling, but the problem with cliches is that they are tired and dull. And that's where writers must try to be artful.
+- What I do know is that writing is the thing I am best at, and I don't have the stomach, the ability, the strength or the courage to enter the political arena. And I think writing can be a political act, if only to let those people accountable know they are being watched. Literature can be a conscience.
+- The immigrant experience in 'Ilustrado' was only a small part of what I intended to be a broader look at the Filipino experience, even if that broader look was itself merely a specific perspective.
+- I have no illusions that my work can rouse the masses to create change, because literature simply doesn't have that power anymore in my country, if it does anywhere. But I do hope that it can be read by those who are in positions to create change, or that it can at least be part of that dialogue.
+- I don't believe in nationalism. I think it's a bunch of slogans. It's a bunch of poor attempts at creating pride. My problem with nationalism is that it becomes exclusionary. We start to exclude people.
+- I look at western literature and especially North American literature, and I feel like it gets bogged down so much with all of that, with domestic stories and relationships and a woman dealing with the loss of her husband.
+- Postmodernism was a reaction to modernism. Where modernism was about objectivity, postmodernism was about subjectivity. Where modernism sought a singular truth, postmodernism sought the multiplicity of truths.
+- Fiction is a very powerful tool for teaching history. The Philippines was the first Iraq, the first Vietnam, the first Afghanistan, in the sense that it was the United States' initial or baptismal experience in nation-building.
+- I want to write a book that makes people debate, and makes people think, interact with each other and exchange ideas... I write because I'm engaged in this big conversation.
+- I read a blog about this young filmmaker in the Philippines who made a short film, and one of the characters in the film reads my novel and then starts discussing the novel with someone. The idea that my book can inspire another artist and be part of that other artist's work... that's the reason I write.
+- There is that potential of the expats coming back to the Philippines. But sadly they are no opportunities, no incentive for them to come back home. Successive governments have, in fact, been training them to export them rather than working on the economy to welcome them home.
+- I studied in New York. I fell in love with an Australian-born, half-Filipina girl. So we moved to Australia when she went to her university and I moved with her. We moved to Montreal because she was going to take her year abroad, and I wanted to see if I could keep on writing there. It's really hard to make it as a writer in the Philippines.
+- I treat my writing like a day job, like my main job, even if for many years I was doing other jobs to pay the bills. I worked as a copy editor. I was a medical guinea pig. I was an eBay power seller of ladies' handbags. I was an assistant to a bookie at the horse races. I bartended. I did anything I could to make ends meet.
+- I've learned that I have to be happy with creating discussion and debate and that I shouldn't be trying to write a book that appeals to the consensus.
+- 'Illustrado' is not an autobiography. Only the ideas are autobiographical; the ideas of bitterness, frustration, unchanging society, an individual lost, social awkwardness... The book satirises archetypes from across Filipino society, and I felt that the least I could do was offer myself up, too.
+- The Philippines, it has a politics of patronage. Family and favors, in addition to the old cliche of guns, goons and gold, really do still hold a lot of sway.
+- I love my homeland, but it's an absurd country. Politics in the Philippines is like spectator sports!
+- The Miguel Syjuco character is not me. I wanted him to represent my own fears and frustrations and guilt, my own worst tendencies and my optimistic expectations. He's a cautionary tale for me. But he's also an examination of the darkest things that haunt me as a person.
+- I have to believe that literature can effect change; otherwise, I would have no purpose in my life and would have wasted four years on 'Ilustrado.'
+- If I were to go back to the Philippines, I would probably end up teaching creative writing at a university. I wouldn't be able to write, for I would become too jaded to be able to view the existing situation objectively.
+- When you live in the Philippines or a country like that, you develop something of a very thick skin because you're confronted every day with all of the problems all around you.
+- I surprise myself that I'm not dead in the gutter somewhere, surprised that I haven't given up.
+- I grew up with a very privileged background. My father served as one of the cabinet ministers in Arroyo's government, and he's been a congressman for many years, and he's running again.
+- With 'Ilustrado,' I set out to change the way we read literature, and I think I failed spectacularly. In fact, I know I failed. In reaching further than I could, I may not have produced a life- or literature-changing book, but I did produce one I am proud of.
+- I don't see myself as any different from all the other Filipinos who have gone abroad looking for opportunity, to be a nurse, a labourer, a maid or a prostitute.

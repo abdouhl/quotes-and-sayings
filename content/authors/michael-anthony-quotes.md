@@ -1,0 +1,71 @@
++++
+author = "Michael Anthony"
+title = "Michael Anthony Quotes"
+quotes_len = "65"
+description = "the best 65 Michael Anthony Quotes"
++++
+- I hate to exercise.
+- My wife likes to say I act like a kid, so maybe that's why I sing like one!
+- My father played music, so I was always around music, even from the time I was born. My father actually was the one that originally got me into music.
+- I've always been a natural singer on stage and in the studio - never had a vocal lesson in my life.
+- Everyone used to call me 'Mr. Switzerland.' I'm not the kind of guy who smack talks anybody or whatever.
+- It wasn't until the fourth or fifth Van Halen record that people would go, 'Wow! You're singing backgrounds on those records. That's not David Lee Roth.' And I go, 'Hell, no! That's not David Lee Roth.'
+- We're having so much fun with the Chickenfoot stuff.
+- The chemistry is everything in a band.
+- It's an honor to be brought into the Rock And Roll Hall of Fame and I'm going to show up if I'm invited, you know?!
+- I'll sing backgrounds, but a lead singer, you know, you've got to have that mentality and personality. I'd rather be the bass guy.
+- As far as people saying, 'Do you miss Van Halen?' or any of that kind of stuff, I've totally moved on.
+- I want to go to my grave a happy guy.
+- Well, everybody used to joke that I saved the first dollar that I ever made in Van Halen. I probably did somewhere.
+- I played trumpet in school at an early age.
+- My best exercise is going on stage and playing, but I stay active. I don't just sit around on my butt all day and do nothing.
+- You ever notice how when you get a new tattoo, it's like a magnet? People are drawn to it, everybody wants to touch it?
+- Black with flames, that's how I always envisioned a roadster. That was the classic hot rod. I used to draw pictures of roadsters with flames on them in school.
+- It always sucks to have to cancel a show because of illness, but unfortunately it sometimes happens.
+- I always want harmony within the band. I want it to work.
+- I want to keep my sanity.
+- The band changes one guy, sometimes the whole damn thing changes - look what happened when I joined Van Halen.
+- When we were in the studio working stuff out, and even when we were on stage, the music was a priority.
+- Why would I have quit Van Halen? It never happened.
+- I want to go out, play music and have a good time.
+- I'm trying to grow old gracefully. I've got to at least grow old.
+- I loved Van Halen; I loved everything we did.
+- Being a bass player in these big-time rock bands is hard work.
+- I don't hold any kind of grudges for anything, and you never know what will happen at anytime.
+- Chad Smith is a member of Chickenfoot, and that's that.
+- I don't want any drama.
+- Chickenfoot is phenomenal. I can't believe the music we're making.
+- The casinos are always packed and a little more intimate... We have a lot of fun playing those and we plan to bring all the craziness that we do. And I gotta tell you, they pay really well.
+- In my business, you could be making money one day, and the next day you could be serving up burgers at McDonald's. So if you want to be able to stay on top of your game, you've got to keep with it.
+- Oh, I just love playing music.
+- I always said to my wife, 'That's for sissies. Girls get facials.' The first time I tried it I said, 'Oh man, what the hell have I been missing all these years.' Let me tell you, I go in there for about an hour and a half, and the girl does my facial and also massages my neck and my arms.
+- There's nothing like sweating it up in a small club, with your fans right in your face.
+- For some reason, my voice doesn't age. I can still hit those high harmonies just like I did back in the day.
+- I don't collect things for the sake of collecting. I don't really see the point.
+- A Tennessee Squire is an elite group of people.
+- Chickenfoot, my relationship with those guys is great.
+- I am in a great place with Chickenfoot.
+- I didn't have any money to buy a car, so when I got my license I did not have a car at first.
+- I can sing, but I consider myself a bass player. I'm, you know, a musician first.
+- I'm always the guy that says never say never.
+- The best part about Chickenfoot is that nobody needs the money. We've got nothing we need to prove to anybody. We wanted this to be a fun band and when we get in the studio it's just so loose, relaxed, and open.
+- You can be a supergroup without having good songs.
+- You can only go with the excesses to a certain point; it wasn't always the Jack Daniels bottle. We weren't just a bunch of sloppy musicians on stage drinking; we would critique every show.
+- I always had to have music in my cars.
+- Probably for drums, a guy I really enjoyed watching is Simon Phillips. I've seen him play with The Who and with Pete Townshend on his own - a really great drummer.
+- People tend to forget you. I didn't want people to go, 'That is that guy that used to play in Van Halen. What's his name again?'
+- Joe Satriani is a methodical, and structured, kind of guy - thank God for that.
+- I had a great time playing on '1984.' I felt like I was growing as a player and background singer.
+- God, what can I say about Chickenfoot that hasn't already been said?
+- It's weird because it almost takes something like Chickenfoot to make me realize why I was playing music in the first place. And that's to have fun.
+- It was never so much the heavy metal thunder that got me. I was into players who played with taste and did these walking bass parts. If you can play like that, it really opens up the music. You can't just pound away. After a while it's like, 'So what? What else you got?'
+- I drink Jack Daniel's. I drink tequila. But you do it in moderation.
+- I'm the ultimate rock 'n' roll sideman. But that doesn't mean a 'sideman' isn't vital.
+- I didn't want to be the bass player everyone forgot about.
+- You know, we're in this business to have fun and entertain.
+- I've always loved playing Zeppelin - they were one of my favorite bands growing up.
+- I'm the kind of guy who has your back. When you want to go off and solo for ten minutes, I keep that groove going. It's an important job.
+- Lead singers, they're their own breed.
+- Like music, cooking and more specifically, barbecuing is one of my greatest passions and my sauce is a celebration of these simple pleasures in life. I am thrilled to have my original BBQ sauces featured on Hard Rock's menu, as both embody the true meaning of rock 'n' roll flavor.
+- So much of the time people focus on the awesome power of Led Zeppelin, the whole 'Hammer of the Gods' thing, but John Paul Jones, probably because he was a session player, he put a lot of thought into his playing. He didn't just lumber through.
+- Jack Bruce really showed me that you could go anywhere with a bass part, and as long as you stayed in time, as long as you held down the groove, the door was wide open.

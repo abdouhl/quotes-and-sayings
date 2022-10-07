@@ -1,0 +1,63 @@
++++
+author = "Krystal Ball"
+title = "Krystal Ball Quotes"
+quotes_len = "57"
+description = "the best 57 Krystal Ball Quotes"
++++
+- I haven't ruled out another run for office at some point.
+- If you want to understand why something is happening in America just follow the money.
+- It will already be unbelievably hard to pass Medicare for All once with a massive outside pressure campaign by an organized grassroots movement and a presidential mandate in the first 100 days of an administration.
+- It can be really lonely running for office, especially if you've never done it before and especially when all the normal channels of power are basically closed to you.
+- I know that we are supposed to believe that once voters learn the truth about medicare for all they are going to suddenly turn on it but it's not like the scary industry talking points are a secret.
+- I'm not saying that Paul Ryan would weep if Bernie Sanders won Texas but it's definitely possible.
+- Now in a lot of rural towns in Kentucky, the school system is the heartbeat of the community, not to mention one of the major employers.
+- And if you are going to truly stand with workers, it also means embracing solidarity, not attempting through lame talking points to pit union workers against non-union workers.
+- As soon as you know that someone is running for office, it puts a distance between you and that person.
+- Despite overwhelming and irrefutable evidence to the contrary, President Obama continues to believe that he can negotiate with Republicans.
+- While President Obama assumes that at their core the Republican leadership team is just trying to do what's best for America, Mitch McConnell and John Boehner assume that the president is cynically trying to secure his own reelection, power, and legacy.
+- Maintaining an employer model of healthcare means handing bosses another weapon they can use against their workers. One more way they can drain union strike funds. One more way that the power dynamic is asymmetric.
+- Yes, health care is an election issue. It's also a moral imperative especially in a wealthy nation.
+- Being a host or a guest or a pundit, you really want to say something that's interesting and potentially provocative, that's going to stick with people. The last thing you want to say when you're a politician is something provocative.
+- In the age of Trump, we have witnessed an unprecedented attack on the judiciary across the country.
+- I find it so astonishing how poorly a lot of politicians handle negative whatever in the press. You have to just get it all out there. You have to be totally, uncomfortably honest.
+- Serious concerns about worker safety and fair treatment have been reported at Amazon warehouses. Workers have fallen ill from extreme heat, had to urinate in bottles because they don't have enough time to use facilities, and been unfairly terminated.
+- When you've been told in ways large and small your whole life that your voice doesn't matter and that you don't count, it's not an easy thing to get over.
+- The American people are incredibly generous and even playful when you open yourself up and feed the media beast until it goes away satisfied.
+- Most of you probably already know this but for those who don't, I was a bit of a trailblazer in the field of salacious photos released without consent.
+- There's no dignity in hiding from an undignified story. You don't want to die the death of 1000 cuts. Just get the whole thing out... the entire thing, every detail, answer the questions and move on.
+- Voters do not choose candidates because of their ideological fit. They choose them because of their cultural fit.
+- A preliminary agreement in principle is not a deal.
+- Perhaps the right to authenticity and the reverence of authenticity should be reserved for people like John McCain. John McCain who at his most authentic chose to stay and face years of torture rather than leave before his brothers.
+- People may not have the right to know about your personal, private life or any detail about any potentially embarrassing photo, but they do have the right to know whether you are honest, candid and forthcoming.
+- Conversely, conservatives assume that humans are fundamentally lazy and prone to immorality. In this view, the entitlement system coddles and rewards laziness. This cynicism spills over into their view of government and government 'bureaucrats.' It also spills over into their political tactics.
+- Charlotte Goddard is the story of 2018. There are a whole lot of Charlotte's out there this year. You do belong. You are worthy. And you sisters? We've got your back. Go get em.
+- Once we accept our own basic worthiness we cannot help but see the basic worthiness of every other human.
+- You pretty much have to be prepared to talk about whatever the news is. Running for Congress was good practice for that.
+- I deeply admire and respect Hillary Clinton. I think she is a great intellect with great fortitude. I think she was a strong secretary of state and a hardworking and effective senator.
+- After all, chamber of commerce type conservatives love nothing more than to opine on the great virtues of Texas. The low taxes, the low regulation, delightfully paired with a low investment in education, health care and really anything else that might be of use to their working-class citizens.
+- To my friends on the right, Katie Hill's national shaming is as much an example of an out of control cancel culture as anything that we've seen.
+- I can assure you that women all over the country are paying close attention to the GOP 'War on Women.'
+- You cannot win the democratic nomination if you are not trusted on the most important issue to democratic voters.
+- We can all mouth the words that every human is fundamentally worthy, but we don't act like it. We don't even believe it about ourselves.
+- If you hang around political talkers or strategists much, you're likely to hear a lot about authenticity. This is supposed to be the golden currency which we all look for in our leaders.
+- Watching my little 18 month old confidently waddle around his weekend exploring the world, I realized that one of the things that's so joyful about being around little one's is that they haven't absorbed all of our cultural programming yet.
+- So when you hear these lies about how we can't possibly change our health care system because it would be electoral disaster, kindly remind people that we already have a moral and ethical disaster on our hands.
+- Kentucky has long been Democratic at the state level but that trend had completely reversed in the Trump era.
+- One woman can be written off by a culture always looking to judge and blame women.
+- The Republicans abandoned the pretext of democracy to fight a war for power long ago.
+- I have a message for any young woman who is thinking about running for office and has ever attended a costume party... or done anything stupid on camera. Run for office. Fight for this country.
+- If there is any state that typifies prototypical 'Murica' where the trucks and the guns are big and the social safety net is oh so small, it's Texas.
+- How can we even call this a Democracy when the House, the Senate, the White House, and now the Supreme Court are all controlled by the representatives of a minority group in America?
+- The corporate takeover of America pre-dates Trump and it will outlast him. This president has revealed the rot of America. He has made it worse. It will take more than ousting him to fix it.
+- Unimaginable riches for the few, disaster for the many - that's the new American way.
+- Especially in a rich nation, there is absolutely no reason why everyone couldn't and shouldn't have a life of dignity.
+- For a while under Donald Trump, it was possible to believe that we could go back to a more functional, less rancorous time. This desire was expressed most eloquently at John McCain's funeral services.
+- Usually, I chalk Democratic dreams of a blue Texas to the same sort of thinking that brought us the inevitability of the coalition of the ascendant and 100% certainty that Donald Trump was going to lose.
+- For a long time, Americans have bought into the meritocracy, the American dream ideal. But when we watched banksters completely destroy our economy and get bailed out while ordinary homeowners were intentionally left to have their homes seized and lives destroyed, it kind of made people think.
+- At their core, liberals assume that humans are fundamentally good and decent. This means that we believe that people are trying the best they can to make it and only ask for help when they really need it.
+- But the truth is the meritocracy is a lie. Those born into wealth and privilege will always be able to game the system for their own benefit and their children's own benefit.
+- For decades now, Republicans and Democrats have shared the same mythology around the great American meritocracy. The only real difference was that republicans thought the American meritocracy was already perfect and Democrats believed it could be perfected if we just dealt with racism and sexism and other forms of bigotry.
+- When I was 27, having never run for office before, I decided to run for Congress.
+- I've lived in the state almost my entire life, so I think if I ever wanted to come back and serve in Virginia, it would be pretty hard to paint me as a carpetbagger.
+- The Trump administration has been quietly moving to systematically undermine health care putting lives at risk and offering no alternative solution.
+- In politics, you're safest when you're saying as little as possible. You're safest when you've got your talking points and you stick to them like glue, even if it means repeating yourself over and over.

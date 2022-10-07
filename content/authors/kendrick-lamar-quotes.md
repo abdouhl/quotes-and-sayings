@@ -1,0 +1,82 @@
++++
+author = "Kendrick Lamar"
+title = "Kendrick Lamar Quotes"
+quotes_len = "76"
+description = "the best 76 Kendrick Lamar Quotes"
++++
+- If my edge is dull, my sword is dull, and I don't want to fight another guy whose sword is dull. If you've got two steel swords going back and forth hitting each other, what's gonna happen? Both of them are going to get sharper. Everybody that's in the industry has lost their edge.
+- My folks ain't graduated from high school or nothing like that, so we always had to struggle in the family - and I come from a big family.
+- I'm only as good as my last word, my last hook, my last bridge.
+- My whole thing is to inspire, to better people, to better myself forever in this thing that we call rap, this thing that we call hip hop.
+- Temptation is just the feeling that you're the most independent person on planet Earth. That you know everything. That's something that we all go through as a kid. Now, this lifestyle that I'm in, the same thing exists! But it's 10 times worse, because everything is at my disposal. When you're in the limelight, you can get anything you want.
+- The way people look at me these days - that's the same way I looked at President Obama before I met him. We tend to forget that people who've attained a certain position are human.
+- At first, I was scared to show fear because you can never be sure how people will perceive you. But I dared myself to do that, to stand out. Now I'll talk about being beaten up or robbed or making a stupid decision because of a girl or whatever.
+- The majority of my interactions with police were not good. There were a few good ones who were actually protecting the community. But then you have ones from the Valley. They never met me in their life, but since I'm a kid in basketball shorts and a white T-shirt, they wanna slam me on the hood of the car. Sixteen years old.
+- People gonna be they own individuals and have they own worlds and I can't knock it.
+- Sometimes you have the trends that's not that cool. You may have certain artists portraying these trends and don't really have that lifestyle, and then it gives off the wrong thing. And it becomes kinda corny after awhile. It's really about keeping hip-hop original and pushing away the corniness in it.
+- I'm just writing, writing, writing. I keep these tablets on me until I'm inspired to go back in and make the music. I never take a break from my pen, because I pride myself on that.
+- I had to come from something, come from a place that was negative and positive but the majority of it is a negative place.
+- People have to go through trials and tribulations to get where they at. Do your thing - continue to rock it - because obviously, God wants you here.
+- It's easy to forget who you are.
+- The hardest thing for - not only an artist but for anybody to do is look themselves in the mirror and acknowledge, you know, their own flaws and fears and imperfections and put them out there in the open for people to relate to it.
+- You can have the platinum album. But, you know, when you still feel like you haven't quite found your place in the world, it kind of gives a crazy offset.
+- Me, as a person, I grow. I'm like a chameleon. You know? That is a gift and a curse for me. But more so a gift, because it never puts me in a box.
+- I think my worst problem is actually living in the moment and understanding everything that's going on. I feel like I'm in my own bubble.
+- I'm sticking to the script, I'm putting that organic feeling back in the game.
+- I always tell people that if I move anywhere it would be Toronto.
+- When I went back to my old high school, all these kids looking at me like I'm the real big homie, the same way I look at Jay Z, Nas, or Dr. Dre. You would've thought Michael Jackson walked through that joint off the excitement that they had.
+- If I'm gonna tell a real story, I'm gonna start with my name.
+- I like to let things breathe.
+- This is the thing about hip-hop music and where people get it most misconstrued: It's all hip-hop. You can't say that just what I do is hip-hop, because hip-hop is all energies. James Brown can get on the track and mumble all day. But guess what? You felt his soul on those records.
+- I don't vote. I don't do no voting.
+- When everybody looks at our generation of kids, they always call us the misfits - you know, like we just don't give a damn.
+- I used to consider the listener. But now I'm in a space where, if I'm not inspired, I can't really do the music. I can't feel it.
+- You don't hear no artists from Compton showing vulnerability.
+- Whenever I make music, it reflects where I'm at mentally.
+- My moms always told me, 'How long you gonna play the victim?' I can say I'm mad and I hate everything, but nothing really changes until I change myself.
+- I've been called a recluse. There's definitely truth in that. I like to spend time alone.
+- Sonnymoon and Quadrants are a couple of bands that really inspire me in terms of the melodics of things and certain tones and just what feels good. It takes me back to the type of music that I grew up on in my household. We played a lot of gangsta rap, but we also played a lot of oldies, and I think that mix is part of what inspires my sound.
+- I knew I was blessed with a gift of having both parents.
+- We're in the last days, man - I truly, in my heart, believe that. It's written. I could go on with biblical situations and things my grandma told me. But it's about being at peace with myself and making good with the people around me.
+- I think my vice would be outdoing myself.
+- We're all put on this earth to walk in His image, the Master.
+- I'm selfish.
+- My passion is bringing storylines around and constructing a full body of work rather than just a 16-bar verse.
+- I think that's why I put my energy into making music. That's how I get my thoughts out, instead of being crazy all the time.
+- When I talk to kids, I'm really listening. When I do that, we have a little bit of a bigger connection than me being Kendrick Lamar and you being a student. It's almost like we're friends. Because a friend listens.
+- I can't help the way you was born if you was gay.
+- I learned, when I look in the mirror and tell my story, that I should be myself and not peep whatever everybody is doing.
+- My mom's one of 13 siblings, and they all got six kids, and till I was 13 everybody was in Compton.
+- Tupac, Biggie, Jay. Your usual suspects. These were the people that was played in my household.
+- As a kid from Compton, you can get all the success in the world and still question your worth.
+- From the moment I started writing raps, I was always aware of the pressure. I always wanted to live up to how huge Snoop got, how huge Dre got, how huge Pac got. I was always aware.
+- I look at where I'm at today and realize that most of my success is owed to the mentors that was in my life.
+- I'm Machiavelli's offspring, I'm the king of New York, king of the coast, one hand, I juggle them both.
+- Since day one, since the first time I touched the pen, I wanted to be the best at what I do.
+- When I ask OGs why there's so much division in the streets, nobody never really knows. But you know one thing that everybody always mention? A woman.
+- When you go on your Twitter or look down your Timeline and it's all great positivity - I love that. But at the same time, it can really divert you from what your purpose is or what you're trying to do. And I've seen artists get caught up in that.
+- It's a great, great experience to finally get the reception that you know you rightfully deserve.
+- People are used to music that justifies street culture but something that's not touched on is why these kids act the way they act, live the way they live.
+- The worst part of success is, to me, adapting to it. It's scary.
+- Black and brown pride have been taught in my household for a long time.
+- My parents were fairly young in the city of Compton. So the things that they played - you know, that was the hip crowd. So I was being exposed to all these ideas, from Big Daddy Kane to Eazy-E to the Bay Area - Too Short, E-40 - you know, back to Marvin Gaye and the Isley Brothers.
+- I got a greater purpose. God put something in my heart to get across, and that's what I'm going to focus on, using my voice as an instrument and doing what needs to be done.
+- I always felt like there was a certain standard of music that I had to do from the beginning, even when I didn't have the recognition that I have now.
+- Being acknowledged for your work is always a great accomplishment, whether it's people in my city, kids in the street, all the way up to the Grammys.
+- I'm putting out this free music, constantly putting it out.
+- When I'm in the studio, I'm looking for creativity I haven't matched yet, a feeling I haven't felt. It's a high.
+- Eventually you get to this point where you understand what you want to do and get across and sound like.
+- I don't want to be something that just comes and goes.
+- In all my days of schooling, from preschool all the way up to 12th grade, there was not one white person in my class. Literally zero.
+- God to me is love.
+- My word will never be as strong as God's word. All I am is just a vessel, doing His work.
+- I always thought money was something just to make me happy. But I've learned that I feel better being able to help my folks, 'cause we never had nothing. So just to see them excited about my career is more of a blessing than me actually having it for myself.
+- I always was that person who was hard on myself and challenged myself no matter what I was doing, whether it was passing third grade or playing basketball.
+- I don't really believe in the type of pressure that people are wanting to put on the type of music that I make.
+- I'm constantly thinking.
+- Groups break up because they never got across what they wanted to do personally, and they have creative differences, and egos start to clash.
+- I've got an extra-specific story about Dr. Dre. I saw him when I was 9 years old in Compton - him and Tupac. They were shooting the second 'California Love' video. My pops had seen him and ran back to the house and got me, put me on his neck, and we stood there watching Dre and Pac in a Bentley.
+- My pops and my mom started playing Marvin Gaye and the Isley Brothers and all these people, but at the same time, they always had Snoop on right behind it in the same mix.
+- The best thing is to always keep honest people around, because when you have a bunch of yes men around that know that you're making a mistake but let you go on with it, that's when it ruins your mind state as an artist.
+- As long as my music is real, it's no limit to how many ears I can grab.
+- Before finding music, I didn't have too many aspirations. I wanted to hang out, make a little money from whatever I had to do.

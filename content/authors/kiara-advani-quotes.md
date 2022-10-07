@@ -1,0 +1,35 @@
++++
+author = "Kiara Advani"
+title = "Kiara Advani Quotes"
+quotes_len = "29"
+description = "the best 29 Kiara Advani Quotes"
++++
+- It's great that we have commercial filmmakers who make family films and understand the aesthetics well, taking this route. They know how to bring the emotions out there without being vulgar. After all, it's a natural instinct.
+- I signed my first film soon after I graduated from college. So, my real struggle started after my first film didn't do too well. But I believe failure only makes you stronger.
+- At the end of the day, films mirror our society. It will take time for everybody to open up to this and accept it. They are not instantly going to sit up and change the way they think about it.
+- People think it is such an easy life, and you just go get ready, and someone does your hair and make up, and all you have to do is say a few dialogues. But there is lot more behind it. You are getting into a particular frame of mind to get into a scene; you have to get your emotion right.
+- For me acting is passion, emotion, and creating the character and the whole world around the character. We enjoy all that. Sleeping on time, eating healthy, you are what your lifestyle is.
+- It is very touching that you are able to create some kind of impact through a character.
+- I am very excited for my special appearance in 'Kalank,' since it's a huge film and it's the first time I am doing something in the period space.
+- If you are passionate about something, with hard work and opportunity, you will continue as long as you are enjoying what you do.
+- What I've realised is that I'm happiest when I'm at work, as I am always preparing myself for when the opportunity arises.
+- You have ups and downs in any field, but the wait will always be worth it if you love your job.
+- I think cinema is a reflection of the society and whatever is being shown is because of the climate we're living in. It is relevant, topical, and surely somewhere it's impacting people who can relate to these circumstances.
+- I think the most important thing in life is to be happy. If you're happy, it will show in everything that you do.
+- When I started with 'Fugly', I was excited that I was playing a raw and edgy character in the film. After I nailed the audition, I realised that the role wasn't something I was comfortable with.
+- My first-ever meeting with Abbas-Mustan sir was for three-four hours! I haven't met anybody for so long, even those who I know well.
+- I just won't sing and dance in a film. But when you have a chance to star in an Abbas-Mustan film, why will anyone let it go? I have been lucky to do films which have been different from each other.
+- I was born and brought up in South Mumbai. My father, Jagdeep, is a businessman and a Sindhi. My mother is half Brit and half Muslim. I am thus a cocktail of mixed blood. From the time I remember, I wanted to be an actress.
+- I studied at Cathedral School, where a lot of kids go abroad after Class XII. But I was clear that I wanted to be an actress, and thus, even though I got 92% in my board exams, I applied only to Jai Hind College for Mass Communication and got in and completed my graduation.
+- For me personally, fitness is more about a lifestyle. It's not just about looking good but also doing stunts. For me, it's a 360 degree approach - whether it's working out, food we eat, sleeping on time, everything comes together to be fit.
+- I don't stress about the outcome because I know the only thing I have control over is my own hard work. So long as I'm being honest about that and striving to be the best version of myself, I'm happy.
+- If my mother was taking pictures, I never wanted her to take the camera off me, ever. When I look at my videos from when I was even just two, I would be playing ballerina.
+- I took part in plays in school and college, and that is when I realised this is what I wanted to do. My parents told me to finish education and then do what interested me. This is what all parents say, and I am glad that I did that. I took mass media and advertising in under-graduation.
+- 'Machine' was one of the biggest decisions I have taken in my life - it was the best narration till date. It is a typical Abbas-Mustan thriller.
+- My mom knew Salman sir, as they grew up together in Bandra. He would often tell my mother Genievev Advani how one day he would be a star. They have been friends for the longest time and would go cycling together.
+- Sometimes, the fate of a film is not in your hands, and you can only take home some experiences and what you got to learn during the journey.
+- I just enjoy what I do - looking forward to going on a film set, being in front of the camera, interacting with many people. I'm fortunate to be living my dream.
+- It is good to have healthy competition and be inspired by others, as all this helps you take up challenging roles. There are people who come from different backgrounds in this industry. In my case, my mom runs a play school, and Dad is into business. When I go home, conversation revolves around that and lot more topics other than cinema.
+- I love dancing and outdoor activities. I like going to the gym, trying different routines of fitness - kickboxing, martial arts. I try to do a bit of everything so I make it exciting for myself and so there are no shockers for my body.
+- I was waiting for good films after 'Fugly' released. My second film was important. I kept waiting, and the period strengthened me. I would rather wait and do something worthwhile than take up bad films.
+- My dream is to get a role where I get to do little bit of action.

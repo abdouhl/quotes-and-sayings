@@ -1,0 +1,105 @@
++++
+author = "Jill Ellis"
+title = "Jill Ellis Quotes"
+quotes_len = "99"
+description = "the best 99 Jill Ellis Quotes"
++++
+- I went into coaching never worrying about what I was coaching for other than trying to make sure that I can prepare my team, select my team, have an amazing staff around me.
+- I think I'm just a naturally curious person.
+- It's easy for a player to stand out in two or three days. But the grind of a camp, and just the level of consistency in performance that requires, that needs to happen.
+- I took a $40k pay cut to leave my technical copywriter job and work for $6k a year.
+- When you go to a World Cup, in midfield you need to have players who can score from distance, who can get in the box and obviously play-make.
+- If we're about winning world championships, we can't just have all of our focus be on the Olympics.
+- When we went into 2015, we had our way of playing, and we were fairly rigid in what we were doing.
+- What I've always valued is people.
+- When I used to recruit in college, my sole job was to out-recruit what I had. And if I did that, I knew we would grow and be successful.
+- Our intent is to attack for 90 minutes.
+- Especially in the States, at every level - whether it's collegiate, whether it's our professional league - we need more women in coaching, 100 percent.
+- These countries - Spain, France, Germany - have environments that are really geared toward the professional player.
+- When I first took over the team in 2014, the message was, even if you're on the right track, if you sit there, you'll get run over.
+- When all is said and done, I always used to say this to recruits: 'I don't remember one goal I scored. I don't remember one result. I just remember the people that touched my life and that connected with me.'
+- I think every time I'm with the team, even in a World Cup, as a coach, you're constantly evaluating.
+- If I walk into a room, I'm quite content to sit in the corner and chat with people who walk by. But coaching forced me to come out of my shell.
+- World Cups are about winning.
+- I was a Pompey lass - I can't say I supported Pompey all the time.
+- Many people say, 'Your dad was so ahead of his time,' and he was a feminist in the truest sense, but he's very much for opportunities for all people... To him, a soccer player is a soccer player.
+- My whole British culture in growing up is still with me for sure. I'm very grateful for that.
+- I am a sensitive person.
+- We have to get to a point in this country where our top players are seeking out the most challenging environments.
+- When you weigh putting a player in with 10 minutes left in a game, and they know their role on a set piece, and the moment doesn't get too big for them, those are the pieces you just - you can't buy that experience.
+- I haven't seen many pretty games in a World Cup.
+- Coaches understand that pressure is part of the rush of coaching. The challenge of trying to outplay your opponent is part of the fun, the adrenaline, the preparation, seeing your team evolve. It's why coaches become coaches.
+- Ultimately, if you can have a very cohesive and tight unit, it obviously will pay dividends down the line.
+- Player X might be the best outside back, but does that player help the best wide player be as good?
+- Something you look at when you go into a World Cup is your depth and your players that change the game.
+- It's important that our team has confidence.
+- Ultimately, we've got to make sure our players understand that the margin for error is very small against these top teams in the world, and we've been punished several times for that.
+- Every game you play, you gain. There's always valuable lessons.
+- I never thought I'd end up coaching. It wasn't the plan.
+- Why have a rule if you're not going to enforce it?
+- When you have a group of players with self-belief... nine times out of 10, players can be very talented to make the roster, but they need that quality, and it is pivotal at a World Cup.
+- My dad has a certain spirit, a twinkle in his eye, someone who can set a certain standard for players but also convey it with humor. What I learned from him is that coaching is, more than anything, about connecting with people.
+- World Cups aren't moments to invest in players.
+- My dad's always had an unbelievable, positive attitude about everything.
+- I don't have to talk about critics - I don't care.
+- The players come out and want to be as fresh as they can, press, keep a team in their end, create chances, create set pieces, and really try and get the upper hand early.
+- I can truly say this: I don't care, and I've never really read what people thought.
+- I grew up playing in the schoolyard with the boy, and on the side of the grounds my dad coached on. I have a lot of fond memories.
+- To be respectful to opponents is to play hard against them.
+- Part of what's important for me is for our players to play on the road.
+- We've got to make sure we have players that can break teams down because there's no space in behind; we need to problem-solve in a different way.
+- My own personal opinion is putting three finals in one day isn't supporting the women's game.
+- You spend a lot of time as a coach going through every possible scenario. That's the kind of level of depth and versatility you have to go through. When I did that, things started to really fall into place.
+- When you go through a tournament of seven games, there are peaks and valleys. You kind of ride the players that are hot.
+- It's fascinating to me how they build bridges or tunnels.
+- I had zero opportunity to play football over the years.
+- I have a lot of fond memories of my life in England.
+- If a team has multiple looks, it's so hard to stand in front of your team and say, 'This is the scouting report. This is what you have to prepare for.'
+- If you ask my dad, I'm always the person that found the little bird out of the nest and is trying to put it back or take care of it.
+- I think people get hung up on starters and 11s, and that number kind of rings through a lot of media's heads.
+- What I know about Ali Krieger is no moment is ever going to be too big for her.
+- You have to pay the same amount of detail regardless of opponent when so much is on the line.
+- I truly think if I had stayed in England, I'm not sure I would be coaching. So what America gave me was kind of a dream and the opportunity and ability to follow that path, which I really had never dreamed about. I just feel very fortunate to be here.
+- I have a tremendous staff around me. It's a really good family vibe in terms of our environment.
+- You can't just live cautiously, I think, when you're in a knockout game.
+- A rule is a rule.
+- My job is to bring in players I think can help this team, regardless of where they're playing.
+- You have to be able to adjust with the moment, whether it's an injury, a result.
+- I have been a Man United lass since I was seven.
+- It's incumbent on you to play games outside your region that will really test you. That's important to keep your edge.
+- Coming out of 2015, I just realized it's OK not to look perfect. It's OK to make sure that your players remain in that bubble, stay focused and true to who we are, and keep the belief internally.
+- There are a lot of programs, a lot of teams now that have the backing of federations, the growth of the game domestically. You see this with Holland; you see this with Italy. It's a matter of time. I had to leave my home country to go and experience the game. Now, it's delightful that these countries are actively supporting women's football.
+- You've got to turn over every stone; you've got to look for every advantage. You need to make sure you're doing everything you possibly can, not just on the field but off it, to give your team an advantage - from having a sleep expert coming to talk to your team to having an independent analysis of your team done.
+- I grew up in a military family, and my dad was gone for long periods of time. Families make it work because you know you care for each other.
+- I always want to know about things.
+- I was just fortunate to move to the States and have an opportunity to play organized football.
+- You don't go into coaching if you're not willing to step into that moment and go, 'OK, this is what it's going to take, and this is why you do it.' Everything hinges on winning and losing, right?
+- The challenge for young players is always stepping into the next level in terms of how much faster the game is.
+- There's always things you can refine and polish.
+- The players do their thing on the pitch, and there's a lot of young women or former players that want to coach.
+- You can do a lot of breakdown on games you played, but the takeaways from games you've played has to be on what's in front of you.
+- It's part of the beauty of the job in dealing with this is you have to have a plan, and that's why you can't only train 11 players; you train your whole team.
+- I just love the sport, love the game.
+- Many, many years ago, when you named alternates, and they wouldn't travel with you - I think you're dealing with a small roster. Now you travel with these alternates, which you can replace at any time, obviously, if it's a medical situation, so you have it in your back pocket.
+- Players don't change drastically. Maybe they get more in form if they're a goal scorer, or they get healthier if they've been injured.
+- What soccer and coaching gave me was sort of a stage.
+- You've got to make sure you're listening to the people that are important to listen to. And then everything else, you kind of have to tune out and do your thing.
+- If we're looking at the pure development of our game, the challenge is not to have a 200-cap player because that means there is something better that is coming along.
+- Little things that I've emphasized are turning in pockets and looking to penetrate and finding these spaces and playing at a good tempo when we're in the middle third.
+- I grew up playing with boys in the yard and my brother in the backyard and boys in the schoolyard.
+- One of the things we recognized coming out of 2015 is we had to get more and more high-level competition.
+- From my perception, listen: the game is different on turf, but it's the same for everybody.
+- I don't read social media.
+- I'm an American except when I'm in the supermarket or at the candy store.
+- We need people in the game to be honest, to call things as they are.
+- I love pace. I love it.
+- Opportunity only knocks so many times.
+- Sometimes it is the mentality that is really important. To have players with self-belief makes my job a lot easier, as they are certainly motivated and hungry.
+- We have to constantly be looking to improve.
+- A win's a win in a World Cup.
+- If someone's off their line, they're off their line.
+- Any player playing at a high level is available for consideration to the women's national team.
+- I think that's how it has to be in a tournament format. You can't dwell on games.
+- I think that what we did in 2015 as a team was phenomenal, and I think in, now, 2019, we have similar players but a lot of different players.
+- I get a text every day from my dad: 'Enjoy the challenge.'
+- You coach to coach. You don't coach to satisfy media, satisfy fans.

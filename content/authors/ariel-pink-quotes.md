@@ -1,0 +1,62 @@
++++
+author = "Ariel Pink"
+title = "Ariel Pink Quotes"
+quotes_len = "56"
+description = "the best 56 Ariel Pink Quotes"
++++
+- R Stevie Moore was obviously a huge influence and is still a very big influence in my life.
+- I was actually under a lot of heaviness when I was younger. I thought of myself as an old soul. I was very obsessed with death. Basically, I didn't really have a youth - I sublimated all that into my identity and my music.
+- I don't want any injustice brought against the bullies. Bullies just don't know any better. Anyone who is crying about police brutality or victimization as an adult needs to stop it and realize the privileges we have in this country.
+- When a song blows your mind the first time you hear it, you don't know where it's going. It's blowing your mind as it's unfolding. Then there's that sensation that you're actually going to remember the song.
+- In the years between 2000 and 2004, I always got the feeling that people were just starting to hear about me, and they were all late to the game. I'd be out playing shows for records that I recorded back in 1999 that were just coming out.
+- That's one thing I don't think people consider nowadays. They want to believe in the importance of marriage, boil it down to just a signature on a legal document. But that's exactly what it is. If not, why not just get married without one?
+- I'm in love with Ariana Grande - she's got a very curious personality; I hear she loves Freddy Krueger, and I love Freddy Krueger, which makes me feel like we'd be perfect for each other.
+- I do get credit for having a California sound to my music, but I don't think people really know what that means - they think the Beach Boys. I'm thinking more like Sunset Strip in the 1960s and stuff like that.
+- Confidence was never in short supply in my case. If anything, I think I overshot the mark with confidence way too early in my career, and gradually, it's about just getting more humble and wanting to sit down more.
+- I never thought of myself as capable of stirring up - generating - the actual drumroll for a record, you know, all the press.
+- I know when somebody's heard my music. I can hear it in their music.
+- My career is a burden, but I can't just fade out like a pathetic sore loser. More often than not, I'm just making a fool of myself for the hundredth time, and that wasn't part of the plan, initially. I'd be happier not having any kind of public presence whatsoever and just hiding behind the sleeves of the CD.
+- I want to stay in some era and remain there like a stupid idiot and see what happens when you try to pause time and not affect it. Not succeed. Not try to think ahead or think behind.
+- You marry your friends when you stay with your friends. It's hard enough to find a good roommate, let alone a good person you can live with and fall in love with at the same time. You might as well just take your roommate, if you can find one, and marry them.
+- If I got the option of going into outer space and hanging out there for a day and then coming back home and dying the next day, or just waiting around to see if there's any opportunity for the technology to develop so that I might experience outer space sometime in the future, I would probably take the ride today and die tomorrow.
+- I had a very active inner life as a kid. There's a good album or two worth of stuff that I can bring out on a rainy day if I have a loss for inspiration or whatever - even now.
+- I love everybody. You have to embrace all facets of humanity; love and accept everyone as being part of yourself.
+- That's my talent, I make people feel uneasy.
+- If you are going to go to Heaven, I'm going to Heaven. But I don't believe in Heaven.
+- Maybe by making people feel uncomfortable, I tap into that uncanny quality that is a part of the scariest, weirdest things that you remember happening to you when you were a kid.
+- I have a strong impulse to protect history and time and the lineage of events.
+- I love to get to that place where I don't know what kind of music I'm doing; I don't know if it's any good. I don't know if it's anything. It's a big question mark. The idea is to have interesting results. That's my bottom line.
+- When I get to do whatever I want, I'm perfectly happy. I've found that the best scenario is that I just do what I do, and if somebody wants to be part of it, they should work as a conduit for what vision I have. They should help me complete the universe.
+- I probably would never be caught wearing a baseball cap. Hats are difficult to me because they tend to be too big for my head. They don't fit right, and I feel ridiculous.
+- I feel like I'm neither a girl nor a boy. I don't feel like a man.
+- I think I've been lucky enough to have had an extended adolescence. I'm a lot like I was when I was 15.
+- I never see songs as permanent. I'm always in a state of revising everything.
+- I'm so unmaterialistic in every way. If you saw my apartment, it would explain a lot, I think. It's not so much a mess, but it just needs to have some feng shui or a real 'Queer Eye' makeover or whatever.
+- You have all these song titles and song time, and you put it in a certain order, and you slap a cover on it. That's a record. That's how I've seen all my records.
+- I have a theory: I believe that with the advent of the United States and the lawful definition of marriage, it was defined as between one man and one woman. It was anti-polygamy, in effect saying no man can hoard his women.
+- I couldn't imagine what it's like to be a journalist talking about music. You're left with empty descriptions; you probably have to make up a sort of weird cocktail of band influences and references to other music to get your point across.
+- I'd like to be seen as a normal, attractive person with good values.
+- Do you know I used to pride myself on the fact that I'd never booked a show in my life, but that I'd played so many because I'd been invited?
+- I look suspicious if I dress in sort of benign clothes, going to the airport.
+- I always wanted to get into rock music so I could cover up my real personality, change my voice, and create a false self to hide behind.
+- I'm in Hollywood - I have no business not being in the movie industry.
+- My music has always been my solo project.
+- The early pictures of me you see online, in just T-shirts and hoodies - I'm still that guy with the hoodie. But what you don't get to see in most of those pics is that I had these red clogs on that had, like, eyeballs on the ends of them that I drew on. That speaks a little bit more to what I was going after, stylistically.
+- We're all making castles in the sand, wonderful tapestries, an exquisite corpse. But is it meaningful? No. It's dogs barking. It doesn't mean anything beyond our yelping, at the pain of being alive.
+- The media lies to us all the time, and we always believe the media.
+- I always thought, 'I could go the route of saying some controversial things and have it explode, just do it like that. But I don't do that.' But of course, it wasn't really up to me.
+- Ariel Pink never really existed because he was always Ariel Pink's Haunted Graffiti, but then people started doing interviews with Ariel Pink as if Ariel Pink existed.
+- I love it when other people can come up with ideas and tell me what to do.
+- I'm not interested in nostalgia; I'm interested in who I am.
+- I really wanted to make the worst thing: the thing that even people who liked bad, terrible music wouldn't like - the stuff that people would ignore, always. Something really, really stupid. Something that is destined for failure.
+- I get to live down my reputation for being cantankerous if I slowly evolve towards being a really good live show.
+- If you spend the first 30 years of your life only trying to look good, you're not going to know yourself very well. If you got it, flaunt it.
+- People should be more passive with what they consider trustworthy.
+- I was definitely a thespian of sorts in elementary school. I went to a real small private school, and every year, I participated in the talent shows and the school plays - all of 'em.
+- If you don't appeal to kids, to the zeitgeist, you get thrown on the scrapheap.
+- I have lots of friends, but I'm probably a terrible friend to all of them, even my family. I wouldn't be surprised if I found myself with no friends later on in life. My friends become my enemies.
+- There's no relationship to the narrative anymore. People want their own interpretation of history. We're compartmentalizing, forgetting what came directly before, like it's not a big deal. That, to me, is a crime.
+- I'm not just going to go back to my bedroom, get a job and 'get real with myself' - come on. I'm already too old, and I'm lucky to have a job at all.
+- I don't think I threw myself into music because I had the best intentions; it was because I was really angry.
+- Oh, I had my gothy phase, but I was never a troublemaker or anything like that. I was a little bit introspective, a little bit morbid. I was small for my age, so I was bullied and that kind of stuff.
+- If somebody ever says something is a mature theme, it's bound to not be. I mean, you shouldn't fall for that. You can make it sound mature, but anything that's about being mature is pretty immature.

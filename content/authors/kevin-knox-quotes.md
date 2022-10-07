@@ -1,0 +1,106 @@
++++
+author = "Kevin Knox"
+title = "Kevin Knox Quotes"
+quotes_len = "100"
+description = "the best 100 Kevin Knox Quotes"
++++
+- The spacing is so much different in the NBA... There's more spacing, more 1-on-1. I got more space to do work - something I didn't get to show at Kentucky.
+- Everyone dreams of playing March Madness and playing in those tournaments, big-time games.
+- I'm nervous before all games, but once I hit that first shot, the jitters go away.
+- I'm going to get criticized my whole career.
+- Personally, I want to win rookie of the year.
+- Of all time, my craziest fan experience was signing a little baby's forehead, like a newborn baby. The parents came up to me, they wanted me to sign his forehead.
+- I'm going to have to work it, compete for that starting spot, compete for that job. I'm willing to come in and work, willing to compete and go at people in practice so I can have that ability to start in the starting lineup.
+- I want to play years in this league.
+- Maybe I'll have a different role in the NBA than college.
+- I would love to join Big Blue Nation and play for Coach Calipari at Kentucky, and I would love to join my close friend Michael Porter Jr. and play for coach Cuonzo Martin at Missouri.
+- I'm fine with pressure. I went to Kentucky, dealt with it all season, playing in front of all the top teams and top crowds.
+- You come into the NBA, dudes are trying to come after you. You're a rookie. They look at you as fresh meat.
+- I love the military, of course, but it wasn't my thing. Sports was my thing.
+- I can lift weights every day and I'm not going to look huge, but it's good to get in the weight room every now and then.
+- Every coach has told me I'm positionless. They want me to play an all around type of game.
+- That's why I love this game, that's why I play this game, that's the goal. I want to be great.
+- Playing quarterback you have to have quick reactions. You've got to be able to know pretty much everything that's going on on the field, lateral quickness, lateral movements in the pocket.
+- Puma does a really good job with its athletes and providing what we want.
+- I just wanted to become a better player at everything - someone who is a real tough matchup to guard.
+- I have to work my way up. There's nothing guaranteed in this league.
+- It's not really in my genes to be walking around looking like a body builder.
+- I'm never going to get down on myself.
+- I really enjoy watching on the side because I can really see the game from a different perspective.
+- I think by me playing inside-out, it's really been opening up that 3-point shot for me.
+- Every rookie, every player, is going to go through their struggles throughout the season.
+- It's not always fun. It burns inside to play defense. But you have to keep working and eventually defense is something you get used to.
+- I played football until my sophomore year of high school, then I stopped.
+- There's a lot of players that get starstruck.
+- In college, I played a lot of 3.
+- When I was in high school watching college games, I was like 'I can't wait to get to March Madness.'
+- A lot of people think you go to a top college, you come into the NBA and it'll be all a breeze and easy. It's not like that.
+- My first time at Staples Center - it was a great win, great experience. It was fun to play there - a lot of big games have been played there.
+- I have confidence in myself.
+- If I have a wide open look, I'm going to shoot it.
+- I'm going to keep shooting, keep getting in the gym, keep working.
+- I grew up playing sports. But I always celebrate Veterans Day.
+- I need to focus on getting to the free-throw line and knocking them down in practice and getting them in the game.
+- There's a lot of people that hate on me, but I'm really willing to prove 'em wrong.
+- My game really complements what the NBA wants - a long guy who can really handle the ball and shoot the ball and make multiple decisions.
+- I have the tools and the size to be a good defender. I've just got to be able to put it all together.
+- Starting should be a goal for every rookie.
+- You custom make your own car, ain't nobody else driving that.
+- A lot of people say you can't make the league if you can't play defense, so I really play really good defense. That's something I really pride myself on.
+- At Kentucky, the environment and the coaching staff is going to prepare you for the next level, but the way we played in college... there's not a lot of spacing in college at all. So, I mean, you've just got to be able to play off the ball.
+- My dad coached pretty much my whole life. I think he stopped coaching me when I got to the seventh, eighth grade, serious AAU, when I started getting recruited and stuff like that.
+- One thing I learned when struggling, you got to get to your spots.
+- I like to watch a lot of Kevin Durant, Brandon Ingram and Giannis Antetokounmpo - those tall lanky wings that can handle the ball and shoot it.
+- It'd be crazy to be an all-time great in New York City. That's a dream come true.
+- My family's big on discipline, respect, manners, make sure that we respect our elders. So that's kind of what the military is. You have to say, 'Yes sir,' 'No ma'am,' 'Yes ma'am.' All that stuff. That's kind of the mold my dad has for my brothers and I.
+- Most rookies coming in, they're a little short on the 3-point line because it's a little further back. But once you adjust to it, you'll be fine.
+- I'm going to keep getting better every single year.
+- My dad really pushed me, my brother and my sisters from young to be great. We've taken the time and put a lot of work in, so I'm sure we can all go on and achieve some great things.
+- I can play really pretty much anywhere on the court.
+- Playing at Kentucky, before 24,000 people, you have to learn how to grow real fast and play under pressure and playing on ESPN with millions of people watching. Right away, you learn how to play under control.
+- I learned a lot at Kentucky.
+- I'm versatile, so it's easy for me to play any type of game.
+- How to you use your lower body is a big thing you got to be able to use in the NBA.
+- You got to be able when you get the ball, slow it down, read the defense, call for a pick, and go off a pick-and-roll instead of going isolation all the time. Just be able to use that screen.
+- In pick-and-roll situations, I feel like the NBA is all pick-and-rolls, so I want to be able to handle the ball in pick-and-rolls and make the right read, make the right passes, and make plays for my teammates.
+- Everyone knows Summer League isn't the real deal.
+- I like to watch college basketball, high school - don't matter who it is.
+- I learned a lot my rookie season - the pace of the game. Playing at the right pace, not 100 miles an hour.
+- That's something I loved growing up - the other team yelling, hyped, student section, all of that gets me going.
+- Kevin Durant's kind of been my favorite player my whole life, so it's going to be fun going against him in the Garden.
+- Personally, I wanna be in an All-Star Game. Get All-NBA.
+- I just want to win as a team, take road games, play some of the top teams and beat them to make the playoffs.
+- I would love to add to the rich tradition that Duke University holds on and off the court, and play for one of the all time great coaches, Coach K. I would love to go up to Chapel Hill, play for Roy Williams, and chase back-to-back National Championships at North Carolina.
+- I see a lot of people judging me and my rookie season, but I'm not really worried about struggling. I know I'm only going to get better.
+- I'm an all-around type player.
+- Duke and UNC are great schools.
+- I'm ready to come out and show people I'm able to play defense.
+- At Kentucky, I was kind of a role player.
+- I would love to play for Leonard Hamilton and follow in the footsteps of my father at Florida State, where he played wide receiver and after a great career as a Seminole was drafted into the NFL.
+- When I used to get the ball on the wing, I'd go fast and I'd go right. Veterans in this league, they watch film. They're definitely going to strategize. They know you like to go right. They know what your moves are.
+- You can learn from watching others play and I have friends on other teams.
+- Duke has coached a lot of players who were versatile.
+- I love playing away games, love going against people on the road.
+- Football is a little bit different as far as lifting weights. We lifted weights every day. It's a different type of sport. So those things, different aspects, they help you in basketball.
+- My favorite Subway sandwiches are meatball and chipotle chicken.
+- A lot of coaches might yank you after the first couple shots don't go in.
+- Guys in the league have grown-man strength. They're not going to move off when you bump them. They know your moves and are going to cut them off. You have to be strong and have counters. You have to slow down.
+- I want to make it to the championship.
+- Eight minutes is a long time in basketball.
+- Defensively, I think I'm very versatile, I can guard different positions.
+- Just to see kids who are inspired by you is an amazing feeling.
+- I want to win as many games as possible.
+- I can play pretty much 1-5.
+- People have different mentalities, different loves.
+- The competitive spirit and the way we worked hard growing up came naturally to me from my family.
+- If I played a bad game, there's gonna be people out there that want to try to bring me down. But I always stay up.
+- Ultimately I want to win. That's my main focus as my rookie year.
+- I love Drake and Future, and I gotta bump some Jay Z for that New York flavour too.
+- No matter whether you're hurting or it's just a precaution, you gotta eat right, make sure that you're protecting your body because 82 games and all those road trips - it's going to be a lot.
+- Everyone who's great - play any sport, tennis, basketball, football, volleyball, swimming, don't matter, everyone's failed. Everyone's gonna fail. It's how you bounce back.
+- Overseas and going straight to the NBA wasn't even an option.
+- My whole family growing up played sports, so I'm definitely from a strong sporting background.
+- Offensively, I can play different positions.
+- That's kind of what I got in the NBA for. I want to go against superstars that would be a good challenge for me.
+- Like I tell myself all the time, you have to keep shooting. I'm not going to stop shooting.
+- I found out some of the spots on the floor that I like to shoot - do my little floater shots, my pull-up shots, being able to get all the way to the rim. By me doing that, it's kind of opened up my 3-point shot.

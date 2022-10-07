@@ -1,0 +1,38 @@
++++
+author = "Melanie Laurent"
+title = "Melanie Laurent Quotes"
+quotes_len = "32"
+description = "the best 32 Melanie Laurent Quotes"
++++
+- I never took any theater lessons. So when I started to do movies, I was 14.
+- There are a lot of French actresses who just hate me now. I've made enemies.
+- For me, it was a lot of pressure to make another movie after 'Inglourious Basterds' because I didn't want to do something wrong. I wanted to have a beautiful project for another American movie.
+- I'm not a crazy old cat lady!
+- I think that everything is part of creativity - the more you create, the more you have ideas, and the more you meet people.
+- Holiday? Is like, what? I'm a hyperactive girl, so it may be boring for me to be on the beach doing nothing. I just need to find a place for three weeks and work but sleep in the morning, maybe write a little bit, have a glass of red wine. That's my perfect holiday.
+- Sometimes you just work, you work, you work, and you have no life, no boyfriend, you have no more friends, no more nothing, you just make movies, and you're tired, and you don't know why. Then everybody says, 'Oh you are so lucky, you are working!' And you're like, 'Oh yeah, oh yeah, it's so great!'
+- When you make successful movies, everyone on set takes care of you, everybody is so nice and you disconnect from reality.
+- I'm not scared of growing old, I'm just scared of not achieving everything that I want to do.
+- Everybody just asks me 'Are you going to make Hollywood movies now?' First, I don't know. Second, I never dreamed about that; I just dreamed about making movies with Tarantino. So if I can make movies with a lot of amazing directors - yes.
+- Because I've made a film with such an amazing director as Tarantino, I'm much more conscious of working with good directors from now on, so that's what's important to me. I don't really care about making a big movie - I just want to make good ones.
+- I didn't really want to act. Gerard Depardieu discovered me when I was 14 and asked if I wanted to make movies and I said, 'Why not?'
+- I don't really like those sorts of actresses who say, 'I don't want to make that movie,' but they make the movie. They just spend their time not liking being on a set and I just think it's absurd, because we are so lucky to do this job. When you accept to make a movie, just make the movie. And then it's more easy for relationships.
+- When you're an artist, there's always a moment in your life when you think you're not inspired and instead of doing things and instead of travel and instead of falling in love, you're just depressed, so you don't move, so you don't change. So you're not inspired.
+- When I was a little girl my parents always told me do everything you want in an artistic way. If you want to draw, make a drawing. Just do it. And if you want to play piano, play piano. It was a very free childhood where everything was possible.
+- I'm taking a break from music... everyone was so mean about it and it was so hard that I wanted to die.
+- The thing is, making movies as an actress, you learn so many things. Like when you're making a movie with Quentin Tarantino you're just at the best cinema school ever.
+- A good director has to be a captain - he has to work with a lot of people every day.
+- I'm really confident. I had a perfect childhood. I had perfect parents and grandparents. They just love me, simply. So I have no fears.
+- Every time a director calls me and says, 'If you practice a lot in two months, can you be an American?' And I always tell them, 'Well, maybe but I'm French. So it's going to be hard to be someone else.'
+- France is an old country that needs to wake up.
+- I think I was, like, maybe frustrated for many years because I didn't try to direct. And since I made my movie I'm just like, 'It's great.'
+- I want to continue to make beautiful movies. The most important thing is to be a part of beautiful stories, that's all I want. So I don't care if it's a Hollywood movie or an independent movie or a Spanish or American movie. I care about telling stories.
+- When I think it's good not to say the truth, I don't say anything. I don't like actors in general, they lie, they are liars, trust me.
+- I always choose my movie because of a director and a story and a, a character.
+- I'm in love with love, so I'm always taking risks! I think it's part of love, taking risks.
+- Every time I play in a movie, I never expect that it'll be huge. I don't like thinking about that, because it's so scary.
+- I never practice before, I never work hours on a script. I just choose my characters and trust them, and after that, it's about the director taking your hand.
+- It's so French to be a cat person.
+- It seems like the more you grow up the more you fear things.
+- I like Chanel and Yves Saint Laurent. I have some great Balenciaga jackets and I'm shoe crazy.
+- The perfect life would be to have an amazing part every year and to spend all my free time to just write.

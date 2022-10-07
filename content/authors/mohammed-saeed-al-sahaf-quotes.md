@@ -1,0 +1,32 @@
++++
+author = "Mohammed Saeed Al-Sahaf"
+title = "Mohammed Saeed Al-Sahaf Quotes"
+quotes_len = "26"
+description = "the best 26 Mohammed Saeed Al-Sahaf Quotes"
++++
+- Now even the American command is under siege. We are hitting it from the north, east, south and west. We chase them here and they chase us there. But at the end we are the people who are laying siege to them. And it is not them who are besieging us.
+- They're not even within 100 miles of Baghdad. They are not in any place. They hold no place in Iraq. This is an illusion... they are trying to sell to the others an illusion.
+- They are sick in their minds. They say they brought 65 tanks into center of city. I say to you this talk is not true. This is part of their sick mind.
+- Yesterday, we slaughtered them and we will continue to slaughter them.
+- Today, the tide has turned, we are destroying them.
+- We will push those crooks, those mercenaries back into the swamp.
+- We blocked them inside the city. Their rear is blocked.
+- We made them drink poison last night and Saddam Hussein's soldiers and his great forces gave the Americans a lesson which will not be forgotten by history. Truly.
+- The simple fact is this: they are foreigners inside a country which has rejected them. Therefore, these foreigners wherever they go or travel they will be rained down with bullets from everyone. Attacks by members of the resistance will only go up.
+- Washington has thrown their soldiers on the fire.
+- God will roast their stomachs in hell at the hands of Iraqis.
+- There are no American infidels in Baghdad. Never!
+- The Cruise missiles do not frighten anyone. We are catching them like fish in a river. I mean here that over the past two days, we managed to shoot down 196 missiles before they hit their target.
+- We butchered the force present at the airport, we are destroying them.
+- We will welcome them with bullets and shoes.
+- They are superpower of villains. They are superpower of Al Capone.
+- Blair... is accusing us of executing British soldiers. We want to tell him that we have not executed anybody. They are either killed in battle, most of them get killed because they are cowards anyway, the rest they just get captured.
+- When we were making the law, when we were writing the literature and the mathematics the grandfarthers of Blair and little Bush were scratching around in caves.
+- Search for the truth. I tell you things and I always ask you to verify what I say. I told you yesterday that there was an attack and a retreat at Saddam's airport.
+- It has been rumored that we have fired scud missiles into Kuwait. I am here now to tell you, we do not have any scud missiles and I don't know why they were fired into Kuwait.
+- The fact is that as soon as they reach Baghdad gates, we will besiege them and slaughter them. Until now they have refused to do battle with us. They are just going places. One can describe them as a boa: when it feels threatened, it runs to somewhere else.
+- I can say, and I am responsible for what I am saying, that they have started to commit suicide under the walls of Baghdad. We will encourage them to commit more suicides quickly.
+- We are in control, they are in a state of hysteria. Losers, they think that by killing civilians and trying to distort the feelings of the people they will win. I think they will not win, those bastards.
+- The United Nations is a place for prostitution under the feet of Americans.
+- There is no presence of American infidels in the city of Baghdad.
+- Our initial assessment is that they will all die.

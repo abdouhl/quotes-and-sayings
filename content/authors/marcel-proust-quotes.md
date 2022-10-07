@@ -1,0 +1,61 @@
++++
+author = "Marcel Proust"
+title = "Marcel Proust Quotes"
+quotes_len = "55"
+description = "the best 55 Marcel Proust Quotes"
++++
+- The voyage of discovery is not in seeking new landscapes but in having new eyes.
+- We are healed from suffering only by experiencing it to the full.
+- It is not because other people are dead that our affection for them grows faint, it is because we ourselves are dying.
+- A woman one loves rarely suffices for all our needs, so we deceive her with another whom we do not love.
+- Like many intellectuals, he was incapable of saying a simple thing in a simple way.
+- Our intonations contain our philosophy of life, what each of us is constantly telling himself about things.
+- Illness is the doctor to whom we pay most heed; to kindness, to knowledge, we make promise only; pain we obey.
+- Time, which changes people, does not alter the image we have retained of them.
+- Like everybody who is not in love, he thought one chose the person to be loved after endless deliberations and on the basis of particular qualities or advantages.
+- Only through art can we emerge from ourselves and know what another person sees.
+- If only for the sake of elegance, I try to remain morally pure.
+- The only real voyage of discovery consists not in seeking new landscapes but in having new eyes.
+- We must never be afraid to go too far, for truth lies beyond.
+- There is no man, however wise, who has not at some period of his youth said things, or lived in a way the consciousness of which is so unpleasant to him in later life that he would gladly, if he could, expunge it from his memory.
+- The charms of the passing woman are generally in direct proportion to the swiftness of her passing.
+- Those whose suffering is due to love are, as we say of certain invalids, their own physicians.
+- Happiness is beneficial for the body, but it is grief that develops the powers of the mind.
+- We do not succeed in changing things according to our desire, but gradually our desire changes.
+- A change in the weather is sufficient to recreate the world and ourselves.
+- It is always during a passing state of mind that we make lasting resolutions.
+- A fashionable milieu is one in which everybody's opinion is made up of the opinion of all the others. Has everybody a different opinion? Then it is a literary milieu.
+- The paradoxes of today are the prejudices of tomorrow, since the most benighted and the most deplorable prejudices have had their moment of novelty when fashion lent them its fragile grace.
+- Love is space and time measured by the heart.
+- Love is a reciprocal torture.
+- We don't receive wisdom; we must discover it for ourselves after a journey that no one can take for us or spare us.
+- We become moral when we are unhappy.
+- If a little dreaming is dangerous, the cure for it is not to dream less but to dream more, to dream all the time.
+- All our final decisions are made in a state of mind that is not going to last.
+- We are able to find everything in our memory, which is like a dispensary or chemical laboratory in which chance steers our hand sometimes to a soothing drug and sometimes to a dangerous poison.
+- The real voyage of discovery consists not in seeking new landscapes, but in having new eyes.
+- A powerful idea communicates some of its strength to him who challenges it.
+- What a profound significance small things assume when the woman we love conceals them from us.
+- In a separation it is the one who is not really in love who says the more tender things.
+- Let us leave pretty women to men devoid of imagination.
+- The bonds that unite another person to our self exist only in our mind.
+- Happiness serves hardly any other purpose than to make unhappiness possible.
+- Words do not change their meanings so drastically in the course of centuries as, in our minds, names do in the course of a year or two.
+- No exile at the South Pole or on the summit of Mont Blanc separates us more effectively from others than the practice of a hidden vice.
+- Time passes, and little by little everything that we have spoken in falsehood becomes true.
+- People can have many different kinds of pleasure. The real one is that for which they will forsake the others.
+- As long as men are free to ask what they must, free to say what they think, free to think what they will, freedom can never be lost and science can never regress.
+- Your soul is a dark forest. But the trees are of a particular species, they are genealogical trees.
+- Every reader finds himself. The writer's work is merely a kind of optical instrument that makes it possible for the reader to discern what, without this book, he would perhaps never have seen in himself.
+- People wish to learn to swim and at the same time to keep one foot on the ground.
+- The world was not created once and for all time for each of us individually. There are added to it in the course of our life things of which we have never had any suspicion.
+- Everything great in the world comes from neurotics. They alone have founded our religions and composed our masterpieces.
+- There are perhaps no days of our childhood we lived so fully as those we spent with a favorite book.
+- In theory one is aware that the earth revolves, but in practice one does not perceive it, the ground upon which one treads seems not to move, and one can live undisturbed. So it is with Time in one's life.
+- Habit is a second nature which prevents us from knowing the first, of which it has neither the cruelties nor the enchantments.
+- Lies are essential to humanity. They are perhaps as important as the pursuit of pleasure and moreover are dictated by that pursuit.
+- Let us be grateful to people who make us happy, they are the charming gardeners who make our souls blossom.
+- The time at our disposal each day is elastic; the passions we feel dilate it, those that inspire us shrink it, and habit fills it.
+- Three-quarters of the sicknesses of intelligent people come from their intelligence. They need at least a doctor who can understand this sickness.
+- The only paradise is paradise lost.
+- It is in moments of illness that we are compelled to recognize that we live not alone but chained to a creature of a different kingdom, whole worlds apart, who has no knowledge of us and by whom it is impossible to make ourselves understood: our body.

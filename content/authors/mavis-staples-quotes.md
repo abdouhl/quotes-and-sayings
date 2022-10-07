@@ -1,0 +1,31 @@
++++
+author = "Mavis Staples"
+title = "Mavis Staples Quotes"
+quotes_len = "25"
+description = "the best 25 Mavis Staples Quotes"
++++
+- I won't wear rings and jewelry on the stage because I don't want you looking at my hands. I want you hearing what I'm saying.
+- I never sang for a Grammy, for money, for fame. That's my whole purpose for singing: for people, for the fans.
+- My high-school a cappella teacher would embarrass me in front of the choir. 'Mavis, you're in the basement. Mavis, you're singing with the boys.' I said, 'Mr. Finch, my voice isn't soprano. I can't sing up there with the girls.' So I just got out of the choir.
+- I get my voice from my mother's side of the family. My mother and my grandmother both had strong voices.
+- I'm singing these songs to inspire you, to keep you going, to lift you up and give you a reason to get up in the morning.
+- We've had a great change. Dr King saw to that. I was so grateful to see the 'colored only' signs come off the water fountains and bathrooms in the south. But the struggle lives on.
+- The kids today have these fresh faces. It's like they're on pins and needles, waiting to see what I'm going to do. They've never seen me. In the 1960s, those were hippies. They were wired up already. The kids today know me because I've worked with Jeff Tweedy and other young producers.
+- Whenever somebody tells me they want me to stop singing, I'm gone.
+- Pops, he was a singer's singer. I loved to hear my father sing. He just was so laid-back and cool. I always wished I could sing like Pops.
+- I sang with my father for over 50 years, and now all of a sudden he's gone, and I just dropped out.
+- I'm just singing what I feel in my heart.
+- I have fun just about everywhere I go.
+- Pops always taught us that family is the strongest unit in the world. If you stick with your family, nobody can break you, nobody can harm you. You'll always have your family.
+- The devil ain't got no music. All music is God's music.
+- My purpose: to lift your spirit and to motivate you.
+- I can't just turn over and sing disco or rock.
+- If you don't get out among the people, how are you going to know what they need to hear about?
+- When I come out of my dressing room, I go to my heart and say a little prayer and go out on stage. There I am, coming to lift you up and to motivate you. I want to bring joy. It's gospel, and gospel is the truth. It's what I do. I'm going to bring you the truth and lift up your spirit.
+- I've got to sing for Pops; I've got to keep my father's legacy alive because he started all of this. So I started calling people, and nobody would give me a chance, but I didn't let that stop me. I took money out the bank and I started making me a record, and I did it in this guy's basement.
+- The best music of my life I heard at my grandmother's church, this little wooden church up on a hill.
+- I feel so good singing songs that I sang with my father.
+- Music is such a joy, just an absolute joy.
+- I don't know which way I'm going. My next CD might be country, might be Dylan, might be Mick Jagger. I don't know. I love a challenge.
+- There are songs that I have to play!
+- It's been an amazing life. It's really just been the most magical thing for me - and I have these musical friends from all walks of life.

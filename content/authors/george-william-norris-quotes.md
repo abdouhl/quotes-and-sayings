@@ -1,0 +1,25 @@
++++
+author = "George William Norris"
+title = "George William Norris Quotes"
+quotes_len = "19"
+description = "the best 19 George William Norris Quotes"
++++
+- First, we could have defied both of them and could have gone to war against both of these nations for this violation of international law and interference with our neutral rights.
+- No nation ought to keep a navy larger than is necessary to do police duty.
+- Great wealth took possession of the government. It was reflected in Mr. Harding's selection of a cabinet.
+- In my judgment, if we had pursued this course, the zones would have been of short duration. England would have been compelled to take her mines out of the North Sea in order to get any supplies from our country.
+- We ought to disarm Germany completely.
+- If the world is disarmed, and remains disarmed, there will be no more world wars.
+- The reason given by the President in asking Congress to declare war against Germany is that the German government has declared certain war zones, within which, by the use of submarines, she sinks, without notice, American ships and destroys American lives.
+- I am bitterly opposed to my country entering the war, but if, notwithstanding my opposition, we do enter it, all of my energy and all of my power will be behind our flag in carrying it on to victory.
+- The first war zone was declared by Great Britain. She gave us and the world notice of it on the 4th day of November, 1914. The zone became effective Nov. 5, 1914.
+- Third, we could, while denouncing them both as illegal, have acquiesced in them both and thus remained neutral with both sides, although not agreeing with either as to the righteousness of their respective orders.
+- I think we ought to take the world as it is and not as we would like to have it.
+- And when it is done, we ought to follow the example by disarming ourselves.
+- To my mind, what we ought to have maintained from the beginning was the strictest neutrality. If we had done this, I do not believe we would have been on the verge of war at the present time.
+- There is not much danger of the smaller nations if the big nations will behave.
+- Teapot Dome involved the conservation of the oil resources of the United States, especially those situated upon the public lands.
+- Fourth, we might have declared an embargo against the shipping from American ports of any merchandise to either one of these governments that persisted in maintaining its military zone.
+- During practically all of my public life, I have been a sincere advocate of an agreement between the leading nations of the world to set up all the necessary international machinery that would bring about a practical abolition of war between civilized nations.
+- The constitution ought to specifically state that every nation is left entirely independent and supreme in its internal affairs, such as regulating emigration and all other similar matters.
+- Men are often biased in their judgment on account of their sympathy and their interests.

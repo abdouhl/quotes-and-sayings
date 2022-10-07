@@ -1,0 +1,18 @@
++++
+author = "Kevin Johnson"
+title = "Kevin Johnson Quotes"
+quotes_len = "12"
+description = "the best 12 Kevin Johnson Quotes"
++++
+- Being selected Most Improved was a special individual award because when I speak to young people I always try to tell them the importance about it's not where you start but where you end up.
+- My role model was my grandfather. He instilled in me the feeling that no matter how successful you are you have a responsibility to help others.
+- I just felt all along that if I could get a certain amount of years in the league, have great years and still have my health when I walked away, that would be great.
+- I still say one of the greatest moments in my whole NBA career was getting drafted.
+- You realize you can't change the world but it shouldn't stop you from trying.
+- I think that New York is the city of all cities. There is so much diversity there. I also like that when I go there, I can catch a play or musical and see some of the most talented people practicing their craft.
+- I would like to somehow make the community I live in a better place to live.
+- It's unfortunate that you don't see the loyalty from management to players and players to management like we used to see in the old days.
+- I know I can catch the football. That's the least of my worries.
+- My musical background is like almost every non classical musician in the world. One day a special record was heard and that was it. I was hooked, started trying to play various instruments and was off to bar land to become a rock star. What else?
+- When I played in the NBA for 12 years, Seattle had some of the best fans in the NBA.
+- I have no desire to coach basketball.

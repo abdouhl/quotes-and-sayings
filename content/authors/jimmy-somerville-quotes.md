@@ -1,0 +1,29 @@
++++
+author = "Jimmy Somerville"
+title = "Jimmy Somerville Quotes"
+quotes_len = "23"
+description = "the best 23 Jimmy Somerville Quotes"
++++
+- Glasgow is a city, but it's one with a small-town mentality.
+- When disco came around the first time, there was this real core of progressive thinking and a positive lyrical content - about freedom, the possibilities of love, change and expression.
+- I think there's a lot of honesty in that track. 'Smalltown Boy' was about leaving Glasgow but it was also about the people I had come to meet on my journey, especially when I was squatting in London.
+- So many people have to struggle for years, very few bands get success with their first record, but I was instantly successful and famous on a very large scale, which was scary.
+- I had good parents. My mother had morals and standards and she brought us up to be good kids - some of the families around were just laws unto themselves, it was really tribal.
+- People like Duran Duran were a big production but it was a nothingness. That's just my personal opinion.
+- I was painfully self-obsessed and self-aware. I wanted people to love me but at the same time I was terrified of them.
+- I slowly became less famous and less successful. That was very difficult.
+- I've always relied on a big producer and big studios. I had budgets that were ridiculous.
+- I believe now that love is letting people in. Love is bigger than all of us.
+- Actually, it doesn't matter to the papers why you left Glasgow. They never look at the roots of the problems you had, and you simply end up being painted as un-nationalistic.
+- I definitely didn't have a happy childhood.
+- The first record I ever danced to in a grown-up disco was Donna Summer's 'A Love Trilogy'. I danced for the full 15 minutes and I thought to myself, 'This is it, this is what it's all about.'
+- I've never liked bosses telling me what to do.
+- I'm Scottish and I was born there and but in my heart I'm a Londoner.
+- When you grow up with constantly being told or made to feel that you are less than, then it's very difficult to grow into an adult and to shake that off.
+- Actually, have you ever heard Sylvester's live version of 'Mighty Real' that was recorded in San Francisco? If I listen to that, I never fail to get goose bumps all over. I go crazy. That song just makes me so emotional.
+- I've always been making music, but I sort of went under the radar. I kind of disappeared... I was never really that comfortable with the music industry. I loved the idea of being able to express myself creatively - but the rest of it never really sat well with me.
+- I went to squat with a bunch of friends - creative, intelligent, political people. We got involved in a community project funded by the Arts Council and we made this video. I sang a poem and somebody, I think it was Richard Coles, who was later my partner in the Communards, said I had a very strange sound and I should use it.
+- Now that I'm older, I understand that it's up to the individual to decide who they are or what they are.
+- I discovered later in life that there's not that many men with a counter-tenor vocal ability.
+- It has to start from the playground and parents teaching kids that diversity is what makes us so wonderful.
+- For someone who doesn't live there, when I go back to Scotland it's very weird for me.

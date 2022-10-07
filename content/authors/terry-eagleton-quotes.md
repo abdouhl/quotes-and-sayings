@@ -1,0 +1,63 @@
++++
+author = "Terry Eagleton"
+title = "Terry Eagleton Quotes"
+quotes_len = "57"
+description = "the best 57 Terry Eagleton Quotes"
++++
+- The German philosopher Walter Benjamin had the curious notion that we could change the past. For most of us, the past is fixed while the future is open.
+- Men and women do not easily submit to a power that does not weave itself into the texture of their daily existence - one reason why culture remains so politically vital. Civilisation cannot get on with culture, and it cannot get on without it.
+- Rousseau ranks among the great educational theorists of the modern era, even if he was the last man to put in charge of a classroom. Young adults, he thought, should be allowed to develop their capabilities in their distinctive way.
+- Nothing in human life is inherently private.
+- One side-effect of the so-called war on terror has been a crisis of liberalism. This is not only a question of alarmingly illiberal legislation, but a more general problem of how the liberal state deals with its anti-liberal enemies.
+- Irish fiction is full of secrets, guilty pasts, divided identities. It is no wonder that there is such a rich tradition of Gothic writing in a nation so haunted by history.
+- Poetry is the most subtle of the literary arts, and students grow more ingenious by the year at avoiding it. If they can nip around Milton, duck under Blake and collapse gratefully into the arms of Jane Austen, a lot of them will.
+- It is in Rousseau's writing above all that history begins to turn from upper-class honour to middle-class humanitarianism. Pity, sympathy and compassion lie at the centre of his moral vision. Values associated with the feminine begin to infiltrate social existence as a whole, rather than being confined to the domestic sphere.
+- Those who sentimentally indulge humanity do it no favours.
+- Deconstruction insists not that truth is illusory but that it is institutional.
+- Universities are no longer educational in any sense of the word that Rousseau would have recognised. Instead, they have become unabashed instruments of capital. Confronted with this squalid betrayal, one imagines he would have felt sick and oppressed.
+- The study of history and philosophy, accompanied by some acquaintance with art and literature, should be for lawyers and engineers as well as for those who study in arts faculties.
+- A truly common culture is not one in which we all think alike, or in which we all believe that fairness is next to godliness, but one in which everyone is allowed to be in on the project of cooperatively shaping a common way of life.
+- God chose what is weakest in the world to shame the strong.
+- From the viewpoint of political power, culture is absolutely vital. So vital, indeed, that power cannot operate without it. It is culture, in the sense of the everyday habits and beliefs of a people, which beds power down, makes it appear natural and inevitable, turns it into spontaneous reflex and response.
+- Evil is unintelligible. It is just a thing in itself, like boarding a crowded commuter train wearing only a giant boa constrictor. There is no context which would make it explicable.
+- For the liberal state to accommodate a diversity of beliefs while having few positive convictions is one of the more admirable achievements of civilization.
+- It is easy to see why a diversity of cultures should confront power with a problem. If culture is about plurality, power is about unity. How can it sell itself simultaneously to a whole range of life forms without being fatally diluted?
+- Virtue is something you have to get good at, like playing the trombone or tolerating bores at parties. Being a virtuous human being takes practice; and those who are brilliant at being human (what Christians call the saints) are the virtuosi of the moral sphere - the Pavarottis and Maradonas of virtue.
+- I value my Catholic background very much. It taught me not to be afraid of rigorous thought, for one thing.
+- The conversion of agnostic High Tories to the Anglican church is always rather suspect. It seems too pat and predictable, too clearly a matter of politics rather than faith.
+- The frontier between public and private shifts from time to time and culture to culture.
+- Cynicism and naivety lie cheek by jowl in the American imagination; if the United States is one of the most venal nations on Earth, it is also one of the most earnestly idealistic.
+- Americans use the word 'dream' as often as psychoanalysts do.
+- People do evil things because they are evil. Some people are evil in the way that some things are coloured indigo. They commit their evil deeds not to achieve some goal, but just because of the sort of people they are.
+- The political currents that topped the global agenda in the late 20th century - revolutionary nationalism, feminism and ethnic struggle - place culture at their heart.
+- The British are supposed to be particularly averse to intellectuals, a prejudice closely bound up with their dislike of foreigners. Indeed, one important source of this Anglo-Saxon distaste for highbrows and eggheads was the French revolution, which was seen as an attempt to reconstruct society on the basis of abstract rational principles.
+- You've got to have a sense of different audiences. I'm a kind of performer manque - I come from a long line of failed actors!
+- We face a conflict between civilisation and culture, which used to be on the same side. Civilisation means rational reflection, material wellbeing, individual autonomy and ironic self-doubt; culture means a form of life that is customary, collective, passionate, spontaneous, unreflective and irrational.
+- In the end, the humanities can only be defended by stressing how indispensable they are; and this means insisting on their vital role in the whole business of academic learning, rather than protesting that, like some poor relation, they don't cost much to be housed.
+- It is true that some liberals and humanists, along with the laid-back Danes, deny the existence of evil. This is largely because they regard the word 'evil' as a device for demonising those who are really nothing more than socially unfortunate.
+- Today, nostalgia is almost as unacceptable as racism.
+- What's wrong with a bit of nostalgia between friends? I think nostalgia sometimes gets too much of a bad press.
+- Postmodernism is among other things a sick joke at the expense of revolutionary avant-gardism.
+- Most poetry in the modern age has retreated to the private sphere, turning its back on the political realm.
+- Nations sometimes flourish by denying the crimes that brought them into being. Only when the original invasion, occupation, extermination or usurpation has been safely thrust into the political unconscious can sovereignty feel secure.
+- I say that virtue is really all about enjoying yourself, living fully; but of course it is far from obvious what living fully actually means.
+- Dawkins considers that all faith is blind faith, and that Christian and Muslim children are brought up to believe unquestioningly. Not even the dim-witted clerics who knocked me about at grammar school thought that.
+- The role of the intellectual, so it is said, is to speak truth to power. Noam Chomsky has dismissed this pious tag on two grounds. For one thing, power knows the truth already; it is just busy trying to conceal it. For another, it is not those in power who need the truth, but those they oppress.
+- There is an insuperable problem about introducing immigrants to British values. There are no British values. Nor are there any Serbian or Peruvian values. No nation has a monopoly on fairness and decency, justice and humanity.
+- Real men study law and engineering, while ideas and values are for sissies. The humanities should constitute the core of any university worth the name.
+- With fiction, you can talk about plot, character and narrative, whereas a poem brings home the fact that everything that happens in a work of literature happens in terms of language. And this is daunting stuff to deal with.
+- Language, identity and forms of life are the terms in which political demands are shaped and voiced.
+- I liked early Amis a lot, but I stopped reading him some time ago. I admire Hitchens on literary topics - I think he is very astute. McEwan, I read a bit. But I suppose it's more the ideological phenomenon that they represent together that interests me.
+- There is no way in which we can retrospectively erase the Treaty of Vienna or the Great Irish Famine. It is a peculiar feature of human actions that, once performed, they can never be recuperated. What is true of the past will always be true of it.
+- In the end, it is because the media are driven by the power and wealth of private individuals that they turn private lives into public spectacles. If every private life is now potentially public property, it is because private property has undermined public responsibility.
+- It is true that too much belief can be bad for your health.
+- Like the rest of us, Tom Paulin is a bundle of contradictions. At its finest, his work is brave, adventurous, original and wonderfully idiosyncratic.
+- The past can be used to renew the present, not just to bury it.
+- I enjoy popularisation and I think I'm reasonably good at it. I also think it's a duty. It's just so pedagogically stupid to forget how difficult one found these ideas oneself to begin with.
+- Anyone can be tolerant of those who are tolerant.
+- For Aristotle, goodness is a kind of prospering in the precarious affair of being human.
+- Evil is often supposed to be without rhyme or reason.
+- Most students of literature can pick apart a metaphor or spot an ethnic stereotype, but not many of them can say things like: 'The poem's sardonic tone is curiously at odds with its plodding syntax.'
+- I attacked Dawkins's book on God because I think he is theologically illiterate.
+- If history, philosophy and so on vanish from academic life, what they leave in their wake may be a technical training facility or corporate research institute. But it will not be a university in the classical sense of the term, and it would be deceptive to call it one.
+- Imagine someone holding forth on biology whose only knowledge of the subject is 'The Book of British Birds,' and you have a rough idea of what it feels like to read Richard Dawkins on theology.

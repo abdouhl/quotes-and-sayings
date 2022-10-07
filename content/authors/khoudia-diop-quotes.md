@@ -1,0 +1,61 @@
++++
+author = "Khoudia Diop"
+title = "Khoudia Diop Quotes"
+quotes_len = "55"
+description = "the best 55 Khoudia Diop Quotes"
++++
+- It makes me proud to help girls realize that they don't have to change who they are.
+- I hear a lot from women in Africa. And not just from dark-skinned women but from all women struggling because of insecurity. They thank me and tell me that I inspire them. And that makes me feel really, really proud.
+- There were times I wouldn't leave my room for weeks and sometimes missed school because I hated how people would look at me. But my older sister helped me find the positive: She used to show me pictures of Alek Wek to say, 'See! You can be a model if you want!'
+- I was in Italy on vacation, and I saw my reflection in a mirror. I saw how unique my skin was and why people stop me on the street to ask about it. I started falling in love with it.
+- To this day, the first thing that I do every morning is look in the mirror. I'll tell myself, 'Look at your skin. Look at your teeth and your smile. You are beautiful.'
+- Negative energy is wasteful.
+- Having support from family, friends - and now fans - definitely helps to affirm that I am worthy, loved, and beautiful. I hope everyone can see that in themselves and feel this way.
+- I let my life, and success, speak for itself.
+- My mom was the only one who didn't bleach her skin. She was the one who kept her natural complexion. So yes, I consider her a role model. All of her other family members would say to us, 'Oh, your mom is so beautiful. She's lucky she kept her skin.' Those comments stayed with me.
+- Being teased and losing my self value eventually ended up inspiring me to be a better version of myself.
+- I didn't have to listen to nobody or look how anybody wanted me to look. I just wanted to be myself and look however I want.
+- I've learned to ignore the negative people and just be a living example of confidence and self-love.
+- I want to inspire young girls and let them know that we are all goddesses inside and out.
+- I was born in Senegal in 1996. My mom moved to New York when I was two years old, so I was raised by my aunt back home.
+- I wanted to bleach my skin so bad, but my sister always discouraged me. She'd say, 'This is a bad thing. Don't try it.'
+- The message I have for my sisters is that how you look doesn't matter as long as you feel beautiful inside.
+- I was mostly bullied by my classmates. People would come up to me and say, 'You're so dark.' I'd always fight back by calling out one of their insecurities, like, 'Well, you have a big nose.' Today, I'd tell them that I really love them. I'd thank them because they made me realize how unique I am.
+- In my country - even though we have a lot of dark-skinned people - people think the lighter you are, the better you are. They think beauty has to do with being light-skinned. I think that's really wrong.
+- Kids used to tease me and call me 'fille des etoiles,' which translates to 'daughter of the stars.'
+- Make Up For Ever has foundation options that work for me - and everyone.
+- I learned to find things to love about myself and to celebrate them.
+- You are OK however you are, and you are very beautiful.
+- A tip that I got from my mom that really helps keep my skin fresh is to wash my face with ice water in the morning. I love it. Just splash with water - cold water. That's the first thing I do every morning.
+- In my family, only my brother has a similar skin color. But in Senegal, the color is common.
+- My very first account was @BlackBarbie, which is what my friends called me growing up. Then I thought, 'You can either call yourself that, or you can find something that will matter to dark-skinned girls.' So I came up with @melaniin.goddess.
+- Self-love is not something that you get in one day or two days. It's an ongoing process, and I go through it every day.
+- We need more women of colour in fashion, period.
+- I wanted to show girls it's not bad to be dark, that different is beautiful.
+- People have made comments, calling me names like 'midnight' or 'mother of stars.' At first I confronted the bullies, but eventually I learned to tune out the negativity and just love myself more.
+- When I was younger, I didn't have any inspiration to like the skin I was in.
+- I feel beautiful when my makeup looks great.
+- When I was in high school in Paris, some photographers wanted my photos and asked if I was interested in modeling. I wasn't interested because I wanted to get my education first. I was scared because I didn't know what I was getting into.
+- I want to be an actress and learn astronomy!
+- Even though I was very young, it was traumatizing seeing someone try weird things on their skin all for the sake of being lighter. It's as common as relaxing your hair or maybe even brushing your teeth. I had friends not wanting to do it, but their moms gave them creams to help lighten their skin. That's how accessible it is.
+- I was teased a lot, growing up, because of my skin tone.
+- For those who feel the need to be bullies, I ignore them.
+- As I grew, I learned to love myself more every day and not pay attention to the negative people, which helped a lot.
+- Where I grew up, we had light-skinned models but not dark. Every time I would talk about being a model with my friends, they would start laughing out loud.
+- Personally, it was always very difficult to find complexion products that match my shade.
+- I was so ashamed of it that I would spend hours in the shower crying and trying to wash my skin off.
+- Celebrate yourself... and stay positive!
+- Learn yourself and love yourself.
+- My sister was the one person who told me not to change, that my skin was beautiful. She really helped me feel good about myself.
+- I use Aveeno Daily Moisturizing Lotion for my body and Aveeno Clear Complexion Daily Moisturizer for my face. I love how it smooths my skin and keeps it soft and shiny all day.
+- I would get so angry whenever I'd notice people looking at me weirdly. They'd even stop me on the street and ask questions about my skin color.
+- While in Paris, I got into modeling - photographers would literally stop me on the street.
+- I wanted to express myself using visuals and also celebrate the beauty of black women, travel, and have amazing opportunities. I also wanted to be a living example of inspiration for other women and girls.
+- I grew up in Senegal, where more than 50 percent of the women bleach their skin, and skin bleaching is a huge deal. I grew up seeing my cousins and my aunts using it.
+- My skin is dark and glows. It almost seems blue, and it's supersoft.
+- Diversity is what makes life interesting.
+- There are so many types of beauty that all deserve to be celebrated.
+- I was bullied a lot, being a kid, so I feel like I'm standing out because I realize who I really am.
+- I want to inspire other young women of color and empower them. I want them to know that they can do and be anything they dream of.
+- I've always had trouble finding makeup in darker shades.
+- I don't know why. I'm fascinated with stars and space. I just love them.

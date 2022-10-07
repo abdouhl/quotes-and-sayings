@@ -1,0 +1,106 @@
++++
+author = "Michael Waltrip"
+title = "Michael Waltrip Quotes"
+quotes_len = "100"
+description = "the best 100 Michael Waltrip Quotes"
++++
+- I like Miami.
+- As I've gotten older, I know I race less, but I as an owner I have the same anxiety and the same frustration and energy for it.
+- Charlotte is a place I always enjoy racing.
+- I try to motivate and inspire people by showing them how much I love this sport and love this organization.
+- There are several races that anything can happen and Talladega is one of those places for sure.
+- You've got to understand, I'd been trying to get to Victory Lane my whole career.
+- No matter what town we went to, if there was a comedian playing, I'd go watch.
+- You will rarely get introduced as the two-time Pocono champion. You will certainly be introduced as the two-time Daytona 500 champion.
+- When you're not successful, people look at the driver and say, 'what's wrong with him?' and sometimes the drivers look back and wonder 'what makes you think you're not the problem?'
+- I was always one who thought that if something is painful, you just ignore it and it will go away. That's not true.
+- I'm a Christian guy. I believe that we're going to heaven, and I believe when Dale Jr. and I drove off from Turn 4 at Daytona, I think that Dale Sr. had a smile on his face.
+- You can always figure if it's a Busch race then I'm going to be at the front.
+- People are obviously capable of handling the highest of highs and the lowest of lows. But I don't know how many people have had to experience them within seconds of each other.
+- I know y'all have probably heard I lost a few races in a row before I won one, but I never gave up. Never believed I wasn't good enough.
+- I think people - especially folks who haven't seen a lot of NASCAR - they get this idea that we're just going around in circles. And that's so far from the truth. You're running as hard as you can to get all you can every lap.
+- You have faith in who you are as a driver and stay strong when things go wrong.
+- Well, when you think of Dale Earnhardt, you think of determination. You think of grit. Just a blue-collar, working-class guy that got out there and fought for the checkered flag and fought hard for it. And I got so much out of him. He inspired me.
+- Anytime you're pushing the envelope as hard as you can to be successful at anything at life it's easy to go from hero to zero in a second.
+- I always thought if you run a Marathon in less than 4 hours, there is a tick of athletic accomplishment in that. Anything over that is just an old guy with a hard head who isn't going to stop until he's done.
+- Obviously you can make a pretty good living these days as a crew member or a crew chief or as a driver. But the technology is expensive.
+- I won the Daytona 500. I won these races twice. I knew I didn't need anything cheating on my part.
+- The thing that warms my heart is people. I have just met so many kind folks that want to just pat you on the back and say, 'We love you.'
+- I love Daytona and Talladega. I'd like to think maybe I could quit one day running all the races and just run a few that I like.
+- Anybody can be replaced. I can be replaced.
+- You can't take your win for granted. Your next win might be your last win or you might never get to your next win, so I can't imagine not being overcome with joy by winning and never taking winning for granted.
+- If you look up the definition of stand-up comedy, it's funny on purpose. A little bit of pressure there. It's basically acting. You're telling stories and acting them out for people. The more you make it seem real, really a person doing it, then it seems to me the better it works.
+- Predominantly everything I have and everything I do revolves around my commitment to NASCAR on the team ownership side.
+- My life is consumed by racing.
+- As a driver, you always want to win every race, but as a car owner you know that isn't very realistic.
+- I love being outdoors.
+- And Dale Jr., Dale's son, and Dale and I all raced to the checkered - were racing toward the checkered, which would have been the greatest race in NASCAR history, I'm convinced of it, had we have made it that last quarter of a mile. But instead it became the worst race in NASCAR history when Dale crashed and died on turn four.
+- I would probably build somewhere between a half-mile and three-quarter-mile track. It would be sort of like Indianapolis Raceway Park. When I was a kid, that was my favorite track.
+- I love when architects build a golf course that compliments the landscape rather than intrudes upon it.
+- I love the sport, I love getting other drivers' helmets and collecting some of the things that are special to me.
+- People that know me know I take stuff personally.
+- I love to give people chances that otherwise wouldn't have them.
+- Physically helping me with advice and direction and a job was Richard Petty. He did a lot for me at a young age, when I needed help and direction.
+- I like to tell my own story using my personality and my insight, the way I see things.
+- When I showed up to drive for Dale in '01 it was a brand new team.
+- I built my team with Dale in mind. He lives with me. He's part of who I am because I just appreciated who he was and how he went about things. People worked on his cars at Dale Earnhardt Incorporated before I got there. When Dale would walk by you could just tell people were thinking, 'these are Dale Earnhardt's cars.'
+- Dale was just trying to get third. Maybe he was thinking that he could get a run on everyone coming out of Turn 4. But the race was over. Junior and I had pulled away, so there was no need to block. That always hurt me when people said he was blocking for me, because it almost felt like it was my fault that he died. But I don't think that anymore.
+- I'm a sensitive person.
+- The computer systems that we have on our cars when we go test just blow my mind.
+- I am just so proud to be able to take my NAPA car, my NAPA Toyota, to the West Coast and race in front of the fans in Southern California.
+- The racing team is the most important thing in the world to me. It's where all my eggs are fully in that basket. I go dance and do TV to try to make that world more important.
+- The Daytona 500 is what it is because of the tradition and history of this great event. People have been coming out in February since 1950 to watch this great race. It would be hard to ever change that.
+- I just was fortunate enough to be talented at what I was watching my brother do. It's great that it worked out that way; I might have been wasting a lot of time saying that's what I want to be, but when I got behind the wheel I had the ability.
+- I've got my hands in every aspect of the NASCAR world, not only as the part time race car driver but as the full time TV guy and race team owner.
+- The drivability of an engine is a big part of the setup on a road course. If you can't squeeze the gas down you can't go anywhere.
+- There's been bumps in the road and serious challenges along the way, but my love for NASCAR and my zest for life is what's most important to me.
+- It's my opinion tracks got too wide. You put 43 cars on the track, and if the turns are too wide like they are at some tracks, you sort of lose perspective of what's going on.
+- The one feeling that settled in and stayed there for a long while, and I still deal with, is guilt. I was there. I was a part of it. Why does it have to be like this? Was I responsible? Was I the reason Dale was in that position? I'd ask myself that question and look around at people and wonder if they were thinking that, too.
+- I'm pretty comfortable in a car to know what I'm doing, and I'm exactly the opposite onstage.
+- There's a Bible verse that says if you believe, you will be in the presence of the Lord in the blink of an eye. And I know Dale was a believer, and that means that he saw his son and his friend going to win the Daytona 500, and he was in heaven all within the blink of an eye.
+- You don't win NASCAR races without ability.
+- This is racing. There is going to be twists and turns. You're going to be dealt setbacks.
+- I really love the camaraderie you can share amongst some buddies, and the ability to laugh, enjoy the afternoon, enjoy the day. Golf brings all of that together and that's something I really enjoy.
+- I love NASCAR. I love the sport. I love the people. I believe I love it more than I ever have because of the people that have gone out of their way to tell me that they appreciate who I am and who MWR is.
+- When you've been ridiculed and talked about as much as I have over the course of my career, pressure doesn't exist.
+- I love my job. It doesn't feel like a job, and I don't look at it as work.
+- I don't know anyone who's started more consecutive Daytona 500s than me.
+- Once the race starts, it doesn't matter what you did yesterday let alone last year.
+- I'm used to being judged. I know what that feels like.
+- You have to think that if you're starting first instead of 31st you've got a better chance to win.
+- It's as much looking out your rear-view mirror as the windshield. You want to make sure you put your car in front of the right line. You're constantly looking behind you.
+- It takes a good car for anybody to be good, but it takes a good car and a special driver to achieve greatness.
+- When 'Michael Waltrip Racing' and 'competitive juices' are discussed, naturally the subject of jet fuel arises. I'm here to tell you that I can be competitive without jet fuel; that stuff tastes awful.
+- The chances of me getting into the Hall of Fame as a racer are slim to none. But as an owner I have a chance to do something special, mostly because I learned a lot of secrets from Dale.
+- Everyone at Michael Waltrip Racing is working hard to deliver great results to our owners, employees and sponsors. All organizations have a lot at stake each week as we are all measured by our performance and finishing position.
+- Well, my favorite memory of a president was in 1984. I was in the grandstands at Daytona, and maybe I was 20 years old. So just sort of down in Daytona, having a good time for the 500 - or for the 400 in July. And Air Force One lands on the back straightaway. It was President Reagan.
+- Whether you're Michael Waltrip or Jeff Gordon or Richard Petty, you can't be the Daytona 500 champion without it having an impact on people around you. When I say that, I mean the race fans. They want to congratulate you for winning the biggest race of the year. It has changed people's perception of me.
+- Nobody had ever lost 462 races and then just won. But Dale Earnhardt Sr. had told me I had the ability, and that day, I knew I would.
+- It's sort of like baseball - the more you know about baseball, the more you get into a baseball game. NASCAR is the same way.
+- Lying in bed, I determined that since I'm a Christian, I believe we all have our days - our days are numbered. I figured it was Dale's day to die, and I was the best person to win the race and be able to honor him in the victory.
+- I'll always wear NAPA blue. I'm thankful they were a part of my life.
+- I've been a pretty impatient driver my entire life.
+- I don't understand why everybody can't remember how exciting the Daytona 500 has been over the years when Richard Petty and David Pearson and Darrell Waltrip ran just the three of them racing for the win. Why do you have to have 40 cars in a pack to say it's exciting?
+- If you look at my career statistics, it's not pretty.
+- When there are challenges like there were up to and after Daytona in 2001, you remind yourself it will one day make sense why everything happens the way it does. You may not figure it out now on this earth, but in heaven, it will all make sense.
+- They say some people are born with the ability to play golf. I wasn't.
+- I just don't think human beings are designed to have that big of a swing of emotions. I mean, I'm standing in Victory Lane literally seconds after Dale Earnhardt died. Dale Earnhardt was not only my car owner that day, my first victory in 463 tries, but he was my dear friend, too.
+- Talladega is one of the macho tracks on the circuit and when I was a kid, I remember everyone wanting to go watch this race because the cars go so fast on the circuit; there were so many great battles.
+- You can only beat a guy down so far before he has a tendency to start listening to what you're saying.
+- It's real important to me to do what I say I'm going to do.
+- I've always loved comedy.
+- When you have turnover, somebody not work out, they'd leave, it really affects a young organization because you don't have your process down pat. You got people coming and going who are affecting your direction. It's just really hard to start from scratch and quickly put your direction in place and be able to stick to it.
+- Some people might say I'm two different people, but I think it's more like seven or eight.
+- I'm a Christian and I believe in angels and God.
+- Everyone who has ever aspired to be a stock car driver wants to win the Daytona 500. If someone says that it's better to win somewhere else, then that tells me one thing for sure - they've never won at Daytona.
+- I do believe I'm not good enough to be a professional dancer. I believe that in my heart.
+- NAPA has been with me from winning two Daytona 500s, to missing races with a new start-up team, and back to victory lane again. The relationship grew far past that of just a sponsor, but more of a partner and a friend.
+- I understand the relationships between the crew chiefs and the engineering or between fabrication and the body shop.
+- Driving the No. 26 Sandy Hook School Support Fund Toyota is like nothing I have ever been part of in my NASCAR career.
+- I've never had anything given to me. I've never had anything easy. My whole career has been that way.
+- I liked unique setups. Like when we started coil-binding springs or running soft springs, those things really felt good to me.
+- I act like I'm always in a good mood when I'm not, but it's my job.
+- You know, it's funny: Over my career, I didn't win as much as I hoped, but I can look like Flavor Flav if I want to put on all my rings that I've won for different reasons.
+- It's easy to get bogged down in all the negativity that when you see people smile and pat you on the back and say, 'We're going to get through this,' it means a lot.
+- I just feel so confident when I get in my race car that I'm going to do good, I'm going to win, I'm going to outrun everybody.
+- I was confident that I not only could win races, but I could win the championship.

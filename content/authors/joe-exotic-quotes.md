@@ -1,0 +1,28 @@
++++
+author = "Joe Exotic"
+title = "Joe Exotic Quotes"
+quotes_len = "22"
+description = "the best 22 Joe Exotic Quotes"
++++
+- Does it feel good to stand on my stage with 500-pound tigers and everybody envy you? Absolutely.
+- When I left the zoo and I sent my chimpanzees to the sanctuary in Florida and imagined what my chimpanzees went through for 18 years, I'm ashamed of myself.
+- Just because you have an exotic animal as a pet does not make you a danger or irresponsible.
+- There is nothing wrong with professional pet owners and private breeders of exotic animals. And I would be the first to fight to take away an animal from an irresponsible owner.
+- You'll never meet a bigger, nicer guy than Shaq.
+- I'm not cutting my hair because I'm not going to be fake.
+- People don't come to see the tigers; they come to see me.
+- For 30 years since the liger has been in existence, everyone thought they were sterile. But we paired a baby liger and a baby white tiger male six years ago and came up with the first tiliger. That proved female ligers weren't sterile.
+- I struggle every day to hold on to what little hope I can find.
+- I'm outspoken, good looking, love to party and have fun.
+- The animal industry has sucked the life out of me for the past 20 years. I need a break.
+- I have pretty good, strong support in Tulsa.
+- I am gay. I've had two boyfriends most of my life.
+- Do you know why animals die in cages? Their soul dies.
+- I'm not changing the way I dress: I refuse to wear a suit.
+- One day he just showed up at the zoo, and I actually didn't know who the man was. Everybody was like, 'that's Shaq!' And I'm like 'who's Shaq?'
+- I'm done with the Carole Baskin saga.
+- This is my way of living, and nobody's gonna tell me otherwise.
+- I learned more in 11 months in running for president than I did in 12 years of school.
+- I saw in my life what pushed a lot of people to drugs was being an outcast to society, so being gay I related to that.
+- My problem anywhere is the damn Republicans closed out the independents from being able to vote in the primary.
+- My soul is dead.

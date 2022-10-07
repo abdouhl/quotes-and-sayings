@@ -1,0 +1,91 @@
++++
+author = "Michael T. Flynn"
+title = "Michael T. Flynn Quotes"
+quotes_len = "85"
+description = "the best 85 Michael T. Flynn Quotes"
++++
+- The only way to clean up Chicago is to get rid of Capone.
+- The lack of trust between the federal government and the American citizens of this country is such a wide gap, we have to renew that trust for the people of this country going forward.
+- We want, certainly, the threats around the world, those that don't like our way of life, we want them to wonder what options we still have.
+- This pro-choice issue is a legal issue that should be decided by the courts.
+- What people do in their private lives, these are not big issues that our country's dealing with.
+- Given its Internet sophistication and the attraction the group has with vast numbers of potential recruits from among disaffected populations around the globe, ISIS has the realistic potential to eventually swell its ranks of jihadists waging a 'holy war' to hundreds of thousands in both the western and eastern hemispheres.
+- I think what - I think what the American people is looking for is they are looking for moral and intellectual courage and clarity, and not a sense of passivity or confusion.
+- Obama has made incredibly poor decisions that have made us less safe.
+- I've always operated so far outside my lane, I'm not sure what lane is mine anymore.
+- I believe that our country is going in the wrong direction, and I have a very strong desire to help out in any way that I can.
+- Trump has a bigger, longer-term vision for this country than just sitting as a president for four years. He really does. And that's what I was impressed by.
+- The world has lost faith in American leadership, and the threats are mounting.
+- What we need to do is we need to come to grips with this cancerous form of the Islamic religion that is breaking down the Arab world order, and that is very clear.
+- Is there going to be a peace in the Middle East? Not in my lifetime.
+- I think these al Qaeda franchise groups have clearly evolved into a much more dangerous strain.
+- I think that our weakness is understanding that when we go to war, we go to war to win.
+- If Hamas were destroyed and gone, we would probably end up with something much worse. The region would end up with something much worse.
+- I honestly don't know how John Allen can look at himself in the mirror and say why he supports Hillary Clinton.
+- Units were coming to combat with DCGS because it was their tool kit, so to speak, but they basically had it boxed up and parked in a corner. They were using off-the-shelf stuff they were having to buy prior to coming into the theater.
+- The Salafists, the Muslim Brotherhood, and Al Qaeda in Iraq are the major forces driving the insurgency in Syria.
+- The intelligence community does not have complete 'eyes on' the totality of the Iranian nuclear program, nor can it guarantee that we have identified all of Iran's nuclear facilities and processes.
+- There's one race that we have to worry about, and it's the human race.
+- We are in a global war with a radical and violent form of the Islamic religion, and it is irresponsible and dangerous to deny it.
+- The president says, 'What difference does it make what you call the enemy?' Are you kidding me? As an intelligence officer, I would never get away with that. I could never say, 'Well, you know, boss, I don't label this enemy that we're facing.'
+- I promise you, I promise you that Donald Trump knows, Donald Trump knows that the primary role of the president is to keep us safe.
+- Every year, the State Department declares Iran to be the world's primary supporter of terror.
+- We have to face the fact that ISIS and its army of like-minded jihadists are determined to win that war and believe they are on the path to victory. They may well be right.
+- I grew up as a Democrat in a very strong Democratic family, but I will tell you that the Democratic Party that exists in this country is not the Democratic Party I grew up around.
+- What he's really talking about - and I'm speaking for Mike Flynn, not Donald Trump - is that he's saying, essentially, we have to have options. We have to have a lot of options. And, frankly, we do. We do have a lot of options.
+- We don't go to war to protect Pizza Hut or Burger King or some other things, some of the nonsense I've seen on our battlefields.
+- What I believe in is I believe in law.
+- One of the things that we have to keep in mind on Iran is Iran is also a country with ballistic missiles, cyber capabilities.
+- There's a lot of information on Iran in the files and computer discs captured at the Pakistan hideout of Osama bin Laden.
+- The tactical issue is ISIS or ISIL in the greater Levant area, which is essentially Syria, and Iraq, Lebanon, Jordan, et cetera. But the wider problem is not just trans-regional in that part of the world, but it's also global. I mean, 40 to 50 countries supplying fighters to this current fight in the Middle East? Come on.
+- We are tired of Obama's empty speeches and his misguided rhetoric.
+- On the gay issue, hey, you know what, if people love each other, Jesus, I mean come on.
+- There is no substitute - none - for American power.
+- Put simply, we are still at war with radical Islamic groups and an ideological movement that can't be ignored nor wished away.
+- Our message must be that we want to help and that we will leave once the problems have been solved.
+- We should quit using phrases like 'turning points' and 'tipping points.' There's been multiple turning points, multiple tipping points.
+- We should not fear what our country was built on: a set of Judeo-Christian principles.
+- I believe our inability to achieve victory stems mainly from having lost sight as a nation of what it means to win.
+- Be more conscious about what you say about foreign policy issues, because they are complicated.
+- Tehran already has the largest inventory of ballistic missiles in the Middle East.
+- Frankly, Donald Trump won the candidacy for the Republican Party. Let's get on board and help him win.
+- The point is technology and innovation have advanced far past what DCGS is capable of doing. It's not an agile enough tool to be able to incorporate and integrate the most advanced technology that is on the shelf today that can be bought by our forces that frankly our war-fighting units want.
+- My God, war is not about bathrooms. War is not about political correctness or words that are meaningless. War is about winning.
+- One letter to bin Laden reveals that al Qaeda was working on chemical and biological weapons in Iran.
+- Number One, if there is no America, then the world will be a complete mess.
+- We're in a world war.
+- What we have to do is we have to make sure that our country is as strong as it can be economically and from a defense standpoint.
+- I think women have to be able to choose... sort of, the right of choice. They are the ones that have to make the decision because they're the ones that are going to decide to bring up that child or not.
+- I mentioned it yesterday: I'm one of these people that - I don't - like, on the abortion issue, it's not something that - I'm very uncomfortable talking about it. I'm not gonna kid you. It's a very uncomfortable thing. I think that it's a legal issue. Definitely a legal issue. It's been decided upon by our Supreme Court.
+- Donald Trump's leadership, decision-making and problem solving will restore America's role as the undeniable and unquestioned world leader.
+- Because of Obama's ill-advised actions, the world has lost American leadership.
+- I do believe - I very strongly believe that the Arab nations would be willing to put together an Arab NATO-like structure.
+- I could care less if someone is purple polka-dotted.
+- We're in a global war, facing an enemy alliance that runs from Pyongyang, North Korea, to Havana, Cuba, and Caracas, Venezuela.
+- Within the government, within the Department of Justice, the Department of Defense, you have practically eliminated any training or any use of the term 'radical Islam.' That's what we're facing.
+- We have real enemies, dedicated to dominating and eventually destroying us, and they are not going to be talked out of their hatred.
+- There is no substitute for American leadership and exceptionalism.
+- You come home when the war is won.
+- The historic lesson is that it was a strategic failure to go into Iraq. History will not be and should not be kind with that decision.
+- The direction of this country is going into the wrong direction.
+- I think ISIS is achieving the objectives that they have set out to achieve. I think that they feel probably very emboldened. They feel pretty good. Their resiliency is extraordinary.
+- I love serving this country, and I miss serving this country.
+- On military battlefields, we have defeated radical Islamic forces every time we have seriously gone after them, from Iraq to Afghanistan.
+- Iran has every intention to build a nuclear weapon.
+- If we are going to conduct a population-centric strategy in Afghanistan, and we are perceived as backing thugs, then we are just undermining ourselves.
+- My message to you is very clear: Wake up, America!
+- As brutal as Saddam Hussein was, it was a mistake to just eliminate him. The same is true for Moammar Gadhafi and for Libya, which is now a failed state.
+- What we achieved under General Petraeus up through 2011, and defeating this threat that we faced out there, I mean, once we decided to come out of there, we squandered an enormous opportunity that, frankly, the military did actually provide our nation and provided the Middle East.
+- If people want to change the law, they should vote so that we can appoint pro-life judges. I believe the law should be changed.
+- When my father served in World War II, he wasn't told, 'Go to Europe for four months, for six months, and then you can come back, and there'll be plenty of big bases there for you to serve on, and don't worry about it.'
+- All I would say is that I have been honored to serve my country for the past three decades and look forward to serving in other ways now that I am retired from the U.S. Army.
+- DCGS is hard to learn. It takes a long time. You have to use it all the time, which means it's not a simple technology that people are used to and can buy off the shelf today. And frankly, it doesn't do what it's touted to do. That's why you see units out on the battlefield asking for very similar things.
+- The Arab nations must be on our side. And if we catch them financing, if they funnel money to IS, that's when sanctions and other actions have to kick in.
+- One of the things I expect Mr. Trump would look for in a vice president is discretion.
+- I am certain - I am deadly certain that we cannot win this war unless we are free to call our enemy by name: Radical Islamicists and failed tyrants.
+- I've been a soldier too long to refuse to entertain any request from a potential commander in chief.
+- I don't know Jeb Bush. I've never met him.
+- I vote for leaders, and honestly, I didn't vote much in the military because I served whoever is the commander-in-chief.
+- You cannot defeat an enemy you do not admit exists.
+- I've been called an extremist.
+- Despite what you hear in the news from the Obama administration and the military, our strategy of conducting infrequent airstrikes and re-taking pockets of Iraq and Syria terrain will only help us achieve short-lived tactical victories.

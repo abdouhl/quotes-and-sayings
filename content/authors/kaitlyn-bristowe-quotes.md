@@ -1,0 +1,106 @@
++++
+author = "Kaitlyn Bristowe"
+title = "Kaitlyn Bristowe Quotes"
+quotes_len = "100"
+description = "the best 100 Kaitlyn Bristowe Quotes"
++++
+- As I get older - and wiser of course - I appreciate natural beauty in a different way.
+- After my time on 'The Bachelorette,' I launched my podcast called 'Off the Vine.' The premise is simple, my guests and I open a bottle of wine and have some good conversation.
+- I try to just be as real and open as possible.
+- I think a lot of women feel pressure to have kids, especially when you get engaged. And for me, I'm like, I don't want that pressure on myself.
+- Tan-Luxe will always be on my list of favorite beauty products.
+- Everything I do - whether it be the podcast, the wine, scrunchies, my live spring break tour - I always want it to be about empowerment and bringing women together and feeling strong.
+- Because of social media, we're so fixated on our appearances.
+- Everyone is different, and I would rather be disliked for who I am than liked for who I am not.
+- If there is one thing you should know about me, I am a family person.
+- I grew up dancing and singing and I just love everything about that.
+- There is something about a guy who has a great relationship with his sisters.
+- You make one mistake and you feel like the worst person in the world.
+- I actually got a lot of negative feedback about my hair on 'The Bachelor' because I like to just wash it and go.
+- Social media is always a highlight reel. I think it's about finding the right accounts to follow. There are so many refreshing ones out there to follow that will inspire you or make you feel better.
+- I have never been the type of girl that has pictured my wedding.
+- Shin splints are something I actually suffered with a lot in my younger years of dancing. I know the pain and it's not fun.
+- I think a few bullets have been dodged in my 'Bachelor' journey.
+- Yeah, I grew up doing ballet and jazz and tap, but I stopped at the age of 25, and I've never stepped foot in a ballroom.
+- I just want an intimate beach wedding.
+- For me, everybody knows I'm outspoken.
+- If you had asked me when I was little, like, 'Imagine you were on Broadway,' I'd be like, 'Yeah, right.'
+- I love being in a dance studio.
+- Ruby Woo by MAC is my fav.
+- That's why I love wine, it opens people up, brings people together, and it's an important part of so many of my favourite memories.
+- Some people have their beliefs and what they think is right and wrong in a relationship.
+- I've loved and been so passionate about dance since I was three years old, and it's really what I wanted to do as a career.
+- The very idea of family is something I hold so close to my heart.
+- I'm definitely not the traditional type of gal.
+- I'm an open book. I share a lot of my life with everybody.
+- I've always in some way tried to rebel against the norm, but there's always been a voice deep inside that pressures me to look my best, not leave the house without makeup, etc.
+- I get comments all the time about my weight just because I'm really tiny.
+- Being in the spotlight, you're always picked apart. It's not easy. But over time I've realized that you can't please everyone and when you feel overwhelmed, just take a step back. Love yourself first.
+- When you decide to come on to 'The Bachelor' or 'The Bachelorette,' you make a conscious decision to share your journey. But what people sometimes forget is our families don't necessarily make that same choice. They aren't the ones who sign up for this experience.
+- All the people that I love and care about have got my back, so that's all that really matters.
+- I kind of want to start doing some prank calls.
+- It is too exhausting to try and make everyone happy or pretend.
+- I never really thought about pursuing singing because my whole life was about dance and singing just kind of came with it.
+- My dog, Ramen... is the only one that keeps me calm when I experience being close to a panic attack and when I feel that pain and heat in my chest. That's what emotional support animals do.
+- I have an amazing family dynamic.
+- I'm good at finding good deals!
+- Whenever I see my family, we always drink wine and play cards together.
+- If you've ever been a person who is running a successful brand or business and with someone who is doing the same, but in a different career path, you know that times can be tough. You're both always away. You're exhausted at the end of the day. Sometimes the relationship isn't being put first, but does that mean, 'Oh, you call it quits?' No.
+- Anything I do in life, I always want to work hard, play hard and so I'm still drinking my wine, I'm still eating my McDonald's on Sundays, but I am working hard through the week.
+- I believe men and women should be afforded the same opportunities.
+- I love going to Broadway shows.
+- I am so not one to share body pictures, not that I have anything against them, it's more just like I've never gotten into that.
+- I have two great examples of a father. My dad is honestly my hero and sets the bar high for how a man should treat a woman. My stepmother is a caring, genuine and supportive woman. My mom is a spunky strong woman with a huge heart. And my sister is just a pure angel. There is a lot of love in my family.
+- Like, I just feel like the way a man speaks to a woman - the way that people speak to each other - it's a respect thing.
+- You can't let people control your feelings, or you'll live a pretty miserable life trying to change them.
+- While my season of 'The Bachelorette' was airing, people would call me awful, awful names. They'd question my integrity and character.
+- I was told I'm disgusting, that I belong in a dumpster, that I'm going to hell... just the worst things you could say to somebody.
+- Sometimes you need to take a moment and take a step back to think about what you are fighting for and if it make sense for your long-term happiness.
+- I'm obsessed with my scrunchies!
+- I don't want my bridesmaids looking better than me.
+- I don't like dragging people.
+- When a woman says the connection is gone, don't tell her how hot she is. A connection is more than someone's appearance.
+- You cannot make somebody else responsible for your own happiness.
+- I wear T-shirts and backwards hats and buy my shoes at Payless!
+- When in Texas, do as the Texans do: Drive trucks, wear cowboy boots, and two-step!
+- I'll never forget my mom coming into the room middle of the night with YouTube videos of hypnotizing people saying, 'You're happy, you're going to be okay,' and she just played it in my ear as I slept.
+- Citi Field is one of the coolest spots I've been to. It was so much fun to hold a cocktail party and rose ceremony there.
+- My mom would always over decorate the house to the point where she'd switch like soap dispensers and all the towels. We would blow fuses in our house all the time because we have too many lights going on and I just feel like we did Christmas right around the Bristowe residence.
+- I love connecting with other women.
+- I always say that my biggest fear in a relationship is cheating, and people giving up.
+- I always think about taking 10 random people off the street and trying to pair them. Probably a lot of them are not going to work out, but randomly one might. That's basically what they're doing on 'The Bachelorette.' Here's 25 guys, see if you like one of them and it might work out.
+- I love when a guy has some sort of talent.
+- It's unbelievable to me that someone can go on someone's photo and comment on their weight. It's not healthy for anyone.
+- How come no one warned me how hard being the Bachelorette was?
+- I'm attracted to men who know what they want and go after it.
+- Life is about connections, and some people have better chemistry with others. That don't make you bad people.
+- I pushed away a lot of friendships.
+- I have a really crazy cackle laugh, and I think sometimes people don't realize that they're not laughing at my jokes, they're actually just laughing because of my laugh.
+- I am human, and I am also honest.
+- When women come together, we're unstoppable.
+- I think everyone should definitely know they're not alone.
+- I always laugh at Americans and their football.
+- Lipstick is so feminine, but there's nothing worse than having a dark merlot stain on a fresh coat of petal pink lipstick.
+- When I was approached with the idea of two Bachelorettes, I was definitely not jumping for joy. It was more like, pouting for hours.
+- Using Tan-Luxe makes it easy to not expose my face to the sun because I know I can still get that natural tan. It's very easy to apply, and I love the bronzed color it turns into - definitely not an orange tone at all.
+- I've always dreamt about having kids more so than my wedding day. When it comes to colors, flowers, dresses... no idea. But if you ask me about kids; how many I want, names, genders? I'll have a full list for you!
+- A lot of the people in the 'Bachelor' family have got my back.
+- Truth is, I have been scared of birds since I was a little girl. I think it's genetic because my mom shares this fear with me.
+- It's always my biggest insecurity - disappointing myself or my partner.
+- I think my dad taught me what a man should be to a woman.
+- Time flies when you're on an emotional roller coaster.
+- It's okay to be annoyed with your significant other and feel overwhelmed at times.
+- I'm telling you, I'm going into 'Dancing With The Stars' being like 'Okay this is my last hurrah,' because I'm ready to have babies.
+- Reverse washing was a huge game changer for me, because if anyone knows me, they know I am obsessed with getting volume in my hair.
+- I seem to stand my ground.
+- Do I have some regrets? Of course.
+- I have a huge fear of birds, but I truly believe in facing your fears head-on, so, I now have two sparrows tattooed on the back of my arms.
+- I think when you're looking for a lifetime partnership, intimacy is obviously a part of that.
+- Some people have different beliefs and aren't going to agree with everything you do. There's nothing you can do to change their minds. All you can do is have your own voice and believe in your own beliefs.
+- I am an honest person, and that includes showing my emotions - good or bad.
+- Let me tell you, I am not a girl who loves to get flowers. I love the sweet gesture, but those things are high-maintenance!
+- I share a lot of my life with everybody.
+- Nothing beats a good tan, but I've also been trying to avoid sun exposure on my face as much as possible.
+- The Bachelorette' is always entertaining.
+- I always eat pretty healthy.
+- My grandparents were best friends in kindergarten and never loved anyone again.

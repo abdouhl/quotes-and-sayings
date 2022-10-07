@@ -1,0 +1,50 @@
++++
+author = "Tom Bateman"
+title = "Tom Bateman Quotes"
+quotes_len = "44"
+description = "the best 44 Tom Bateman Quotes"
++++
+- I sweat on stage a lot.
+- I try to be warm to everyone I meet.
+- I remember when I was younger, we used to read the Goosebumps books that were absolutely terrifying.
+- I have friends who say, 'I don't want to do period now because I have done a period piece and I need to wait for two years' - I don't have that.
+- It's awful because if you have a blessed life like me, where I've been so lucky, you end up saying things like, 'Oh, my God. I was just playing hide-and-seek with Penelope Cruz.'
+- Actually, competitiveness was never part of our upbringing.
+- All of my friends at drama school were still sat on the floor doing voice exercises and I was doing scenes with David Tennant and Catherine Tate.
+- I can cross the line when I'm making fun of people.
+- For actors, the idea is that you convince people you're someone you're not.
+- Nothing really teaches you for the film world.
+- I'm not a sit-on-the-beach kind of guy.
+- There's a funny line between feeling objectified and feeling supported and it's a very odd one.
+- I'm one of those old-fashioned people who keeps their private life private.
+- I got in so much trouble when I was doing 'Snatched' in Hawaii.
+- I don't think people care what I had for breakfast.
+- I don't do the gym.
+- Maybe it's a bit snobby, but it's as if you're a proper actor if you do stage.
+- I don't miss working on camera as much as theatre. But I do love film and television because it's so immediate; you walk on to a set and the tables are dusty, and everything's as it should be.
+- Jekyll is quite close to me, a little bit more shy. Whereas Hyde is a mish-mash of lots of things. I didn't realise I was borrowing it throughout the auditions - but Heath Ledger's Joker was an influence.
+- It's nice to play to a full house.
+- I've got a wonderful family. They're so non-showbiz.
+- Me being able to trash hotel rooms on set means I don't do it in real life.
+- My mum is a primary school teacher and my dad is a music teacher and I've got loads of brothers and sisters.
+- I don't have social media.
+- I've been exceptionally lucky and I know that.
+- People are always telling me I look like Federer.
+- I've got a brother who works for the Red Cross, another brother is working with the homeless in France, some who work in restaurants or as teachers and dental technicians. My twin brother Merlin is an artist.
+- There isn't an actor alive who hasn't been turned down, and I promise you I have taken a hell of a lot of rejection. That said, I do count my blessings every day.
+- The book says, 'Vanity Fair - a story without a hero.' Becky is effectively the protagonist, the hero we follow. But she is flawed. Becky is a subject of her own time.
+- With this job people want so much from you and of course I understand, but if you don't keep that back, then what have you got left? If you auction off parts of your life you are left with nothing but a bag of money and no soul.
+- I went to a masterclass with Jonathan Pryce who said that a successful actor is not a famous actor, it's an actor who acts. And I have been incredibly fortunate to have worked constantly from the moment I left drama school, so I achieved what I set out to do. I am an actor.
+- India is just amazing.
+- I'd love to meet Shakespeare. I've done so much research on him and there are so many unanswered questions.
+- I think you could very much make a 'Vanity Fair' in 2018, and I think it would probably look like a documentary.
+- I've been brought up to be polite and I'm not very confrontational, but even I have walked away from situations and thought, 'If only I'd said or done that.' Well Mr Hyde says and does that.
+- My mum asked me what I prefer, and I said, 'I never miss film, but I miss theater.'
+- I don't look at myself as an attractive person.
+- I don't like to feel like I'm being looked at all the time.
+- If you're playing someone who's not like you at all, it's good to find music that is their rhythm and their energy.
+- Obviously I have more in common with Jekyll, but there's something about Hyde.
+- It upsets me where you do a take and people go 'that's so funny,' and you think 'I was being serious.'
+- For someone to stand up against the norm makes them very intriguing to me.
+- Jekyll is quite me: young man; polite. But being able to play Hyde was quite fun, to create a character that's nothing like me. I quite enjoyed creating a new character like that: he had a different voice; physicality; mannerisms. Everything had to be thought about. It was a real challenge.
+- It always comes down to script and characters.

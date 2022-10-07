@@ -1,0 +1,130 @@
++++
+author = "Tom Douglas"
+title = "Tom Douglas Quotes"
+quotes_len = "124"
+description = "the best 124 Tom Douglas Quotes"
++++
+- Sustainability includes how you run your business, and my bottom line includes how you treat your people. Sustainability starts with your staff.
+- I would love to see McDonald's pay more money.
+- Be sure to read a recipe all the way through before you cook. The time it saves you in the long run is invaluable.
+- Every chef has his treats. By that, I mean bits and pieces from things you're working on - crusty little cake trimmings, ends from a brisket, collars from a salmon, scraps. But they're snacks to me, and I eat them right off the cutting board - maybe too much.
+- I would say a full-time waiter in a high-price house could easily make $75,000, $80,000 a year.
+- Money is like manure: if you don't spread it around, nothing grows.
+- I think about sustainability all the time, whether it's with fish or farmers in Eastern Oregon.
+- We've become such a restaurant society.
+- Some of the best things you do are the things you don't do.
+- Catfish has a nice firm texture and mild flavor.
+- Support a small chef. Not these big chains... but support the people who are out there trying to do things right and working hard to do that.
+- I particularly like to make crunchy slices of garlic bread to serve with steamed clams.
+- Utrip makes it easy for travelers to experience the destination highlights that most interest them, be it food, art or history. Just like a culinary experience, every palate is different, and Utrip is all about personalizing travel for their users.
+- In some cities, McDonald's rules, but Seattle is ruled by teriyaki joints.
+- If you're going to start a fire, why cook just one chicken?
+- It's hard to legislate what people eat. People are getting fed up with being told what they can and can't do. It boils down to personal responsibility. People need to read labels, do their research and act accordingly.
+- When you watch 'Shark Tank,' everything is about off-shore this, off-shore that.
+- My favorite way to cook trout is whole, bone-in, on the grill. The fish are stuffed with sliced lemons and herb sprigs, brushed with oil, and cooked over fairly hot coals until the skin is crisp and the flesh is moist and flaky. Go ahead and gild the lily by adding a sauce.
+- I think you owe it to your kids to teach them how to cook - you know, self-survival.
+- The best meal I was served was ribollita, an Italian bread soup at the Castello di Ama winery in Tuscany. I usually hate ribollita, and the people I was traveling with thought I was crazy for ordering it.
+- In my 'Big Dinners' cookbook, I recreated my mother's recipe for crab dip. The creamy dressing for this dip, made with mayonnaise, tomato paste, a touch of honey, sliced chives, lemon juice and zest, horseradish and Tabasco, is reminiscent of Thousand Island dressing.
+- One-pot meals make a lot of sense... because so much of what people hate about cooking is really the cleanup, the mess, the grease.
+- If you want something beautiful to put on the dinner table, pick up a sockeye, the salmon species with the most vivid red flesh.
+- Maybe there are too many restaurants. Maybe some of mine need to close. So be it. I'll live with the market place.
+- Oysters, such as Dabobs, Quilcenes, Westcotts, and Willapas, to name just a few, are often named after the place they are harvested.
+- While it's typical to find steamed clam recipes which include a bit of bacon or sausage, you might not think of adding shredded ham hock, but it's another way to pair the lusty, smoky flavor of animal fat with the briny ocean flavor of shellfish.
+- I know Jeff Bezos because I cater at his home.
+- The one thing I could do with my eyes closed is my Grandma's schnecken.
+- Most of the catfish you find at the fish counter has been farmed. Though I usually prefer to buy and eat wild fish, farmed catfish taste cleaner, without the muddy taste of their wild relatives.
+- The state of Washington calls tips 'wages.'
+- How can anyone live off of minimum wage?
+- A chunk of seared albacore tuna, salted and peppered, then seared rare in a little oil in a hot skillet for just a minute or so per side, is the perfect addition to a savory plate of fried rice. Just slice the tuna across the grain and fan those mild, meaty slices over the top of the rice.
+- I pay a living wage, I believe in healthcare, I declare all my income, and I don't cut corners.
+- I didn't go to university. I didn't go to culinary school, barely made it through high school.
+- It's just an American tradition to make sure people don't leave hungry. The worst thing is to have them say, 'Great dinner, but now I have to go get a burger.'
+- The key to great fried squid is 'flash-frying' in hot oil for only a few minutes, which keeps it tender.
+- Cooking with your kids is a remarkable exercise to let them in on the purchasing part of the process - kids love to shop, and its great to take them to these ethnic places where people don't always speak the language.
+- I don't ever preach to people.
+- My wife and I decided to try and kick start our kitchens to a $15 minimum wage for cooks. I've probably had to go through and raise every menu price now by 50 cents because it took away my profit. I just underestimated what it was going to cost.
+- Every cook I knows loves to make pizza.
+- I think that people need to stand up with their backbone and not go to places where they feel like the workers aren't taken care of.
+- Disappointing cakes have often been sitting out too long. They should last just long enough to have the last pieces the next morning with coffee - who doesn't love cake with coffee?
+- Cooks are an undervalued, awesome profession.
+- I want to do the basic things, like putting my daughter to bed. It's the sweetest thing.
+- I try to eat in one of my restaurants every day, and I eat out in another restaurant every day. It's what I do.
+- I'm kind of fat.
+- Coho or silver salmon are very common and easy to get for a good price.
+- I can't stand it when restaurants don't have a sense of place in a city. When I'm in London, I want to know I'm in London. When you're sitting in my joint, you know you're sitting in Seattle.
+- I can't believe how many people don't have time to cook but have time to watch football and 'The Voice.' They're certainly making a choice.
+- Mastering one recipe is better than mastering too many. Learn something and own it, and you'll feel so much better about it. You'll have more confidence if you've made it five times, and that confidence adds so much fun to cooking.
+- Summer in Seattle allows me to indulge in some of the region's top culinary delights - I'm talking about wild king salmon and fresh, ripe Washington stone fruits and berries like cherries, peaches, plums, and blueberries.
+- I was driving around the country when I was 19 and happened to run out of cash in Seattle, so I settled here.
+- Ling cod is a mild-flavored and somewhat delicate fish that takes well to poaching, braising and pan-roasting.
+- Who doesn't love digging into a plate of crab cakes or going after a chilled cracked crab with crab cracker, cocktail fork and a plastic bib for protection?
+- It's important that your shucked oyster is clean and pristine.
+- Alaska Airlines and I have a lot in common, so coming together to delight travelers with savory, high quality food from the Pacific Northwest made sense.
+- My longtime friend Steven Steinbock, who has worked with me for more than thirty years, is a master at panfrying fish and seafood.
+- To shuck oysters, you'll need an oyster knife, a handy tool with a sturdy handle and a short, rigid blade which you can pick up for about ten bucks in a kitchenware shop or fish market. A quick trip online will yield any number of videos and slide shows with step-by-step instructions on how to shuck an oyster.
+- Pork is my friend.
+- I was $4,000 short on my first payroll.
+- The classic Italian green sauce, salsa verde, is easy to make and especially nice in the spring when bunches of fresh herbs start appearing in the farmers market or in your garden.
+- If you don't have the confidence in baking, commit to making the recipe three times. The first two, do it exactly the way I've told you to make it. Twice. The first time you'll screw it up. The second time it will come out pretty good, and then the third time, make your adjustments.
+- The simplest way to prepare Dungeness crabs is to boil them in the shell and set them in front of your guests with crab crackers or crab hammers, cocktail forks, and plenty of napkins.
+- When I was a kid and my mom made tomato soup, she would cut buttered toast into squares and float them on top of each bowl.
+- Salsa verde is delicious with trout or most any fish.
+- Entrepreneurial people are never satisfied.
+- Steaming is a great way to cook any firm fleshed fish, but it's often overlooked by the home cook.
+- I eat out at least once every day.
+- There's a restaurant in Manhattan called Balthazar, and next to it is Balthazar Bakery. It's tiny, and it's very charming to have that little retail outlet to sell the house desserts and breads.
+- If you just feel lazy and don't want to cook, then don't cook.
+- Horseradish is one of those perk-me-ups. You can use it in a cocktail sauce, you can bread fish with it - it loses its punch when cooked. It's a 'What is that?' flavor. It adds depth of flavor to things.
+- When I eat oatmeal, I'm hungry by 10 A.M., but pho is a great way to start the day.
+- Thanks to the abundance of shellfish in Puget Sound, Washington State is the largest oyster producer in the country.
+- Around the time I opened my second restaurant, Etta's, I had just finished judging at the Jack Daniels World Invitational BBQ Championship in Lynchburg, Tennessee. Back home in Seattle, my goal was to recreate the sweet and smoky taste of that BBQ using our local wild king salmon instead of pig.
+- The lakes in Washington State give us tons of crawfish.
+- I'm a compassionate person, so if a product is 15 percent more than what I typically pay, and I see the purpose, I'll foster that kind of sustainability for the farmers/fishers.
+- Sweet Washington cherries and Walla Walla onions are two of my favorite local treats.
+- When I was young, I would make my parents breakfast in bed on Saturday mornings.
+- I was once made honorary mayor of my hometown of Newark, Del.
+- Farm to table is a personal choice.
+- I'm much less shy in conversation than I am on my own.
+- Spanish chorizo is a spicy cured sausage that's especially tasty with clams.
+- The flesh of king salmon, which varies in color from white to pink to red, has a high fat content, making it perfect for grilling.
+- Customers are more friendly when they've had a meal.
+- Often we eat squid fried, so it's fun to grill it for a change. To grill squid, slice the cleaned bodies open into two flat pieces and thread them, along with the tentacles, onto skewers, then grill quickly over a direct fire with the coals as close as possible to the grate, turning the squid several times.
+- If deep-frying catfish, try a dredge of seasoned flour and cornmeal and add some bacon fat to the oil.
+- My dad never explained anything growing up.
+- I crave my mom's Sloppy Joes.
+- There's natural mentoring that goes on in my life every day.
+- I love being able to help promote Seattle to travelers worldwide.
+- Razor clams are large, oblong clams, although not as big as geoducks.
+- It's really fun to have a convection oven, even it if it's a little convection toaster oven. It really changes the way you bake.
+- I don't have any interest in being a chef without being on the business side of things, or vice versa, because if you don't make money at the end of the month, you're going out of business.
+- Most of America doesn't pay dishwashers $10.
+- My own favorite way to cook and eat razor clams is to simply dredge them in a mix of seasoned flour and cornmeal, then pan fry them in butter until crisp and golden. Be careful not to overcook them so they stay tender, not tough and chewy.
+- It's always a good idea to chill your crab cake mixture for a few hours, or even overnight, before frying because they'll hold together better.
+- After being cooked, ling cod tends to bleed out some moisture, so, before serving, let it rest a few moments on a plate. Once the moisture has been released, you can carefully pick up the fillet with a slotted spatula and transfer it to another plate for saucing. This way, you won't sog out your beautiful sauce.
+- There's something majestic about a 30-pound Chinook salmon roasted and served whole - people get excited when you present it with the head and tail on. It has beautifully browned skin and extraordinary bright red flesh when you cut into it.
+- For a group of friends or a family dinner, fish tacos are popular and fun to make.
+- I don't answer my phone in a restaurant.
+- I'll never understand those greasy little deep-fried wings most bars serve.
+- Albacore tuna has a mild flavor that's delicious served raw or seared briefly on the outside so that it's still rare on the inside.
+- Spooning a seasonal fruit relish onto a plate of grilled king salmon is very much my style - flavorful, straightforward, and unfussy. I also like the way fresh, ripe fruit balances the richness of the salmon.
+- One of my favorite ways to eat albacore is tuna poke.
+- Sweet, delicious Dungeness crab is always a treat.
+- Every time you make a fruit crisp for me, you are my favorite person in the world. It's something delicious and warm, right out of the oven. I mean, what more could anyone want? And all you're doing is taking the best fruit of the season, putting a crumb topping on it and putting it in the oven.
+- I don't know too many kids who ask to weed the garden.
+- When I wrote my cookbook, 'I Love Crab Cakes,' I asked some of my best chef buddies to contribute recipes.
+- Another way I like to barbecue king salmon is as a whole fish stuffed, literally to the gills, with sweet onions, sliced lemons, and summer sage.
+- I have an affinity for the old Seattle coffee shops, places like the Green Onion and the Copper Kettle, the classic kind of coffee bar - little places that served breakfast, lunch and dinner and have pretty much disappeared.
+- I'm not exactly the best capitalist ever.
+- Catfish's mild taste adapts well to a wide array of flavors, especially strong assertive ones, which is why you used to see it 'blackened' Cajun style on so many restaurant menus - a trick which soon became a tired cliche.
+- I have a good flavor memory.
+- Some versions of crab cakes are mostly crabmeat lightly bound with egg, but I'm a firm believer that a crab cake should contain bread crumbs.
+- I love restaurants from top to bottom.
+- Tender and sweet, Manila clams partner well with a wide variety of foods - white wine, sake, beer, butter, leeks, fresh herbs, roasted peppers, olives, and wild mushrooms, to name a few.
+- At the fishmonger, choose fish with bright scales and clear eyes.
+- The two things that are going to make you a better baker without even trying are a scale and a thermometer in your oven.
+- In the restaurant business, there's the concept of pivot. Pivot to the stove, pivot to the refrigerator.
+- Over the years I've tweaked my stuffing recipe many times, adding a variety of ingredients like sauteed wild mushrooms, dried cherries, fresh chevre, toasted hazelnuts, chopped ham hock meat, and other taste treats.
+- I've been taught by everyone I've ever worked with.
+- I use ginger like garlic. I love it for steaming fish and making barbecue sauces or roasted chicken.
+- Sometimes managers are a little shy to criticize another manager or another operation.
+- I'm just sick of food going in the garbage.

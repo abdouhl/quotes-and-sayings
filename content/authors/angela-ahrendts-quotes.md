@@ -1,0 +1,94 @@
++++
+author = "Angela Ahrendts"
+title = "Angela Ahrendts Quotes"
+quotes_len = "88"
+description = "the best 88 Angela Ahrendts Quotes"
++++
+- I have always admired the innovation and impact Apple products and services have on people's lives and hope in some small way I can help contribute to the company's continued success and leadership in changing the world.
+- If I look to any company as a model, it's Apple. They're a brilliant design company working to create a lifestyle.
+- I don't want to be a great chief executive without being a great mum and a great wife.
+- The purer our message, the more compelling it is to consumers.
+- Burberry was about building a relationship. But it was always about selling an amazing product that you would have forever. Apple is just a deeper relationship with a much broader constituency. Because it's everybody.
+- At some point in your career, maybe you, too, have made the life-altering decision to start anew. If so, you know first-hand how exciting, challenging, and sometimes disorienting the first 30, 60, 90 days can be.
+- People talk about the age and positioning of a brand, but hell, it's not about that. The global language is digital, and we need to speak the language.
+- Online, offline, it's gotta be the same.
+- You have to realise that I am the third out of six children, and I am raised with very strong core values and a very strong upbringing. I always put myself in other people's shoes.
+- I've never gone to the Oscars because I can't afford another week away. It is not more important than my husband. It is not more important than my kids.
+- Store windows are like landing pages on the website.
+- What we have wanted to do is build an amazing brand experience and an amazing way that people can engage with the brand.
+- Unless I can come in in the morning and smile, walk in the lobby and say, 'Good morning!' - if I am stressed - I am not going to do a good job. Everybody is watching us. They are feeding off of our energy.
+- In an era of social everything, we want to spark possibility and opportunity in the creative arts, in real life, person to person.
+- From the store windows, the store touch-points, the website, social media, or a magazine, it has to be one pure customer experience, not just to gain market share but to gain mind share.
+- I don't think malls are going to go away. People still need somewhere to go, but they do have to evolve.
+- You have to do what's best for the brand.
+- The luxury customer is increasingly global and increasingly mobile. Their brand journey is not linear. They might browse online and purchase in store, or vice versa.
+- When I became the CEO of Burberry in July 2006, luxury was one of the fastest-growing sectors in the world.
+- Great design alone isn't going to yield the results investors are expecting.
+- I have learned to feel my way through life, personally and professionally.
+- We cherish right and we cherish left, but more important, we cherish when you are able to use the whole mind that you were born with.
+- I don't care how advanced technology gets. I don't think that there's anything that can replace looking someone in the eyes, touching their hand, you know?
+- I'm not shy, but I have a job to do. I don't need the notoriety.
+- My father smoked cigars his whole life, and my husband once in a while does. And when he does, it reminds me of my father. It's a heartwarming thing.
+- Just put the best person into the job.
+- It is not about gender, it is about experience, leadership, and vision.
+- I hadn't grown up always aspiring to be a CEO.
+- If you can't control everything, you can't control anything, not really.
+- I work through teams. It's the only way I know how to work.
+- It's no longer possible to think of the physical and digital as two different worlds.
+- Everyone in the world should have a trench coat, and there should be a trench coat for everyone in the world. It does not matter your age; it doesn't matter your gender.
+- Ask questions; don't make assumptions.
+- I was raised in a small town in Indiana and educated at Ball State University.
+- I'm from a small farm town in Indiana!
+- Great design... you won't have a business today without great design.
+- I think that the larger and more complex the business gets, I have to listen twice as much as I speak.
+- Technology has given us access to the world and its sea of content, allowing us to never speak to another person if we don't want to.
+- I don't believe that you are ever done. Is life ever going to stop and stand still? We have to move as fast as the world is moving.
+- I am not in favour of quotas. Just put the best person into the job. It is not about gender; it is about experience, leadership and vision.
+- I think when you're empathetic, you're putting yourself in somebody else's shoes, right? It's not about you.
+- An influencer, to me, is someone who shares their journey - the ups and downs - and their approach to their craft or the spark that ignites a new interest allowing people to do more and go further.
+- I think if I'm guilty of anything, I'm guilty of always being incredibly focused on the task at hand. So wherever I've worked, I've just always tried to do my best, achieve my best, build a great team around me.
+- You know, I think that anything you do at Apple... you feel a tremendous onus. You want to carry on the legacy of what it meant.
+- In China, you've got six people buying for one child. But the thing is, you've got the largest rising upper-middle class in the world.
+- There's seven billion people on the planet. It's not about you.
+- Don't stop. Don't slow down. Keep focused.
+- Ninety-five percent of the time, I put myself in somebody else's position - that's how I live.
+- Computers and smart devices are among the greatest intellectual gifts ever created for man but, if not balanced with human contact, may offer little to develop one's heart.
+- The more technologically advanced our society becomes, the more we need to go back to the basic fundamentals of human communication.
+- I know who I am. I know what I love.
+- At their core, an influencer creates an empowering human connection.
+- To any CEO who's skeptical at all, you have to create a social enterprise today; you have to be totally connected with everyone who touches your brand.
+- Part of me is very entrepreneurial.
+- Trust your instincts and emotions.
+- I don't believe that if you are going to build a long-term, sustainable brand that you can chop up every component part and expect everyone to have a perfect P&L.
+- In luxury, ubiquity will kill you - it means you're not really luxury anymore.
+- It's not unusual for a luxury company to be born from a single product and then diversify. Louis Vuitton began with luggage, and Gucci with leather goods.
+- The sign of a great leader is knowing what you know and knowing what you don't know.
+- We all control our careers. Those choices that you make are so critical.
+- We're building a lifelong relationship with people, and every great relationship has to be built on trust.
+- You have to create a consistent brand experience however and wherever a customer touches your brand, online or offline. The lines are forever blurred.
+- Intuition is the wisdom formed by feeling and instinct - a gift of knowing without reasoning... Belief is ignited by hope and supported by facts and evidence - it builds alignment and creates confidence. Belief is what sets energy in motion and creates the success that breeds more success.
+- Think of energy almost like emotional electricity. It has a powerful way of uniting ordinary people, their connected spirit, to do extraordinary things.
+- Forget luxury; as a great company you have to keep evolving.
+- We always said if we were going to target a millennial consumer, then we had to do it in their mother tongue, which is digital.
+- I always say that my job is not to think about today. My job is to look around the corner and feel and see what's coming, and then warn everybody else.
+- It is one of the most important parts of my job, showing that you can't do it all.
+- The thing is, I don't want to be sold to when I walk into a store. I want to be welcomed.
+- People love to talk about themselves.
+- The basis for all human relationships and where we derive our greatest strength and power, trust is single-handedly the most powerful source of positive energy and, once in place, unlocks a freedom and peace to explore.
+- I'm nearly always at home at the weekends; that's important for every working woman today, not just me. I don't encourage people to come in at the weekend and work; I encourage people to go home and create great families.
+- People don't want to just make stuff. They want to make stuff with purpose.
+- Whether it's countries or companies, it's about putting the best person in the job who can unite people and create value.
+- We value feeling over knowing, because you can't prove something that hasn't been done before.
+- Work has never really been work for me. It's been a natural extension of my life.
+- I have learned to listen and to hone my instincts to be perceptive and be receptive to change, to constantly live in ambiguity.
+- Remember - the universal language is not texted, emailed, or spoken. It is felt.
+- Everyone talks about building a relationship with your customer. I think you build one with your employees first.
+- I know it might sound weird, but empathy is one of the greatest creators of energy. It's counterintuitive because it's selfless.
+- All I have are my instincts. They've never failed me.
+- I grew up in a physical world, and I speak English. The next generation is growing up in a digital world, and they speak social.
+- You're going to see relationships with technology across anything that's brand. I don't care if that's in home or what you wear. I just think it's a new fact of life.
+- The main objective - our soul is our people. And our job is to enrich their lives, change the world. And so I think that's the bigger pressure you put on yourself.
+- Great brands and great businesses have to be great storytellers, too. We have to tell stories - emotive, compelling stories - and even more so because we're nonfiction.
+- Just because you're a luxury brand doesn't mean you have to have an attitude.
+- At Apple, we believe that people with passion can change the world.
+- 'Balance' is a really big word for me.

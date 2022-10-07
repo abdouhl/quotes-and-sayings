@@ -1,0 +1,21 @@
++++
+author = "Kevin Clifton"
+title = "Kevin Clifton Quotes"
+quotes_len = "15"
+description = "the best 15 Kevin Clifton Quotes"
++++
+- I think there is a lot of pressure on people to be perfect all the time, and so there is this fairytale image of everything, but at the end of the day we are just like other people.
+- From a place of truth, I think artists or actors have to be real with what they're doing.
+- I didn't get in to 'Strictly' the first time, but my determination and enthusiasm shone through and got me a job on the show the following year. Don't give up and turn the no's and setbacks into a positive!
+- For me personally, and I'm sure not everyone is like this. But for me I find it difficult to choreograph in the daytime.
+- Being there for each other in person or at the end of the phone during the show is so important for us and is a nice comfort. Whenever we get time out we make sure we go on dates, watch films together and just relax without thinking about work!
+- I've been doing some Shakespeare acting classes - and I really enjoyed it. I never thought that would be something I would say, but I am.
+- You don't have to be the cool party guy, getting everyone's attention.
+- When I'm in a bar I need to be the coolest one that can drink more than anyone else and I need the girls to fancy me.
+- I hate Cha Cha Cha the most on 'Strictly.' If I was in charge of 'Strictly' I'd get rid of Cha Cha Cha.
+- I already have a second career, running a property investment business with a friend.
+- At school people found it quite funny that I did ballroom, but I recently went to my school reunion and all they wanted to talk about was ballroom and 'Strictly.'
+- You just want someone that you're going to get on with. That is genuinely the first priority. Even before how good they are, you want someone that you know you're going to have a laugh with and that the journey is going to be OK between the two of you.
+- There have been times when I booked out a dance studio and I've tried to choreograph in there and suddenly I feel like I have no creativity.
+- Because if you get someone who is a bit of a diva or are just not on the same page it can be a nightmare - and I'd rather go out knowing they've had an amazing time and we've got on than win the Glitterball although you've just had a horrible time and the person was horrible.
+- Strictly' has changed everything for ballroom dancing.

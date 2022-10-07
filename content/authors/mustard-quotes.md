@@ -1,0 +1,96 @@
++++
+author = "Mustard"
+title = "Mustard Quotes"
+quotes_len = "90"
+description = "the best 90 Mustard Quotes"
++++
+- I wanna be involved in everything, not just one thing.
+- I don't know why people be in the club trying to be so cool. Standing around, trying to be cool. I don't get that. I just think everybody wanna be a star. That's why people don't dance.
+- My cousin went to jail, and I was like, 'I don't wanna spend my life in jail.' So I just started DJing, and that was my out.
+- I don't want to be known for only making ratchet music.
+- There's male groupies - guys that wanna stand next to you to get to the girls. A male groupie is the worst.
+- My uncle, he's a big DJ out here in L.A. His name is DJ Tee; he's got a bar in Westchester.
+- It's just dumb: how you can have the number 1 record in Los Angeles and not have the number 1 record in New York? It's crazy.
+- Everybody likes good music, so when you're just playing good music and encouraging everybody to have fun, they'll have fun.
+- I create my music so you can go to the club and have fun.
+- I feel like me and YG are the closest to Dr. Dre and Snoop Dogg that people are gonna get.
+- I like dressing in designer clothes, and it's hard to buy them if you are overweight. And I got tired of, like, going in the stores, and then it was like I couldn't fit in anything. And overall, I wanted to be healthy.
+- When Drake sings, it makes everybody feel like they can sing. Not saying he's a bad singer - he's a good singer - but it just makes everybody feel like, 'If Drake can sing, I can sing, too.'
+- What I would tell young producers is if there is someone out there who can help you, then go work with that person.
+- When I came in the game, it was just me making beats in Inglewood at YG's house; it wasn't nobody to help me.
+- 10 Summers isn't just a label, it's a lifestyle.
+- You can't stop what God wants to happen.
+- I think Justin Bieber should let me executive produce his album.
+- I just want people to hear my music and feel good, go to the club, dance, have fun, and get home safe... none of that gang-banging stuff.
+- I think that you're only going to get better if you take time to better yourself, not because someone says you should get better.
+- When you're in this music thing, and you got friends involved in this, of course ya'll gonna have disagreements, and that's gon' be the outcome: we gon' fight each other.
+- I know that everything comes to an end. Everything is a phase.
+- I started DJing when I was, like, 11.
+- Apart from working on music, I'd rather play big festivals than almost anything else.
+- When you come in the club, people are trying to get your attention, so they pull your hand. It's like, why are you pulling on me?
+- I'm not afraid of anything.
+- I can do every type of music, but hip-hop was my way into the game.
+- You see so many musicians come and go. For me, it's really about the longevity in the music industry. It's not all about having a lot of hit records at one time.
+- You never know with me. I change my mind like I change my job. And I do that very often.
+- I feel like having a son made me go harder and work harder. And now that I got a daughter, it's the same grind, staying focused on what I have to do for them.
+- Whatever energy you put out is what you're gonna get.
+- As long as you have a percentage of a song, that lasts forever. You have to study the business. Don't just be in it for money. You have to understand what you're in it for, then get your money.
+- Kids don't come with instruction manuals. It's interesting, but after you have your kids, it's a blessing. It's not as hard as people may think it is.
+- My uncle is just, like, always pushing me to be better, be a man, and showing me the ropes of the game.
+- I wanna compete; I wanna be the best at whatever I do.
+- You can't complain about everybody that steals your sound. You'll be fighting for years trying to figure out how to make people not steal it.
+- Everybody knows YG is a turnt up dude that can't nobody control.
+- Me and my little cousin DJ John John, we used to always be DJing in the house. We never took it seriously.
+- TeeFlii brought an edge to our camp. He's definitely going to be one of the greats.
+- Time repeats itself, so it's up to you to keep up with the curves of the music and keep reinventing yourself so you can be better than what you are.
+- I like everything to happen organically.
+- Anytime anyone of my friends in my camp, if we argue, we gonna fight for real.
+- I think it's good that producers are showing more ways to show their artistry and be more the artist, you know? Not just the producer in the back making the beats.
+- Don't let this music industry or any industry come between friendship. Just stay focused on your goals.
+- I actually care about my shows.
+- I don't want people to think that just because I do club records, I can't do an album record or an R&B single. I can do R&B, I do pop, I do whatever - but it's still Mustard.
+- I just wanted to do my own albums where nobody could tell me what to do. Roc Nation was the perfect fit because I could do what I wanted to do.
+- I hear a lot of people saying my stuff sounds the same. When you're in my position, people come to you to give them the same sound in a different type of way.
+- Everybody likes the new guy. Being the new guy is cool. But then when you're there for a couple months, you're just the cool guy. I think I'm just the cool guy.
+- Skrillex is dope. He plays everything. It's amazing what he does.
+- It means everything to be a father. I had a father growing up, so I wanted my kids to have a father as well.
+- The past is always recycled. I'm just taking what the people I looked up to did and translating it for my generation.
+- I'm into having a good time and showing people you can have fun. Because for a long time, the West Coast, it wasn't about having fun. It was about gang banging; it just wasn't fun no more. So now I'm bringing fun back.
+- I don't really like listening to so much rap because I like to have my mind focused on what I'm doing instead of worrying about what everybody else is doing.
+- I'm just real in-tune with music - I really listen to R&B more than I listen to rap.
+- Being the new guy, you're gonna dress your best every day. When you're the cool guy, you gonna be like, 'Ah, I'm the cool guy anyway. I don't need to dress like that.'
+- YG and I told each other when we was coming up that if we didn't feel like we was close to making it by 25, we was going to stop.
+- My real name is Dijon. My mom named me Dijon, so everybody used to call me Mustard.
+- I thought I was going to be YG's DJ forever. I didn't plan on producing; I just picked up producing and got good at it.
+- I'm getting too much money to be fighting people.
+- I've always had an ear for rocking a party. Just knowing what people like.
+- I used to live with YG.
+- You've got to change with time.
+- My goal is to be the Jay Z of DJing.
+- If I ever do meet John Mayer and we end up in the studio, hopefully he'll bring the guitar, and I'll make a beat to it or something.
+- When I got my first check from 'Rack City,' I was like, 'Damn, I can make this much money making beats?'
+- I'm big on simplicity. I'm not too much on all the extra instruments.
+- Diplo is one of my homies.
+- Dark music always works in a club.
+- Now I have a business, artists to take care of. I want to make sure everything's going right, because at the end of the day, it's my name.
+- Sometimes you can do a million songs, and if they're not good, you're just wasting your time.
+- I was taught to work for what I wanted to achieve in life.
+- I'm trying to work with as many people as possible.
+- You can't pick a fight with anyone doing something with your sound.
+- I've been working hard to lose weight and become healthier overall. I even started putting the workouts on my Snapchat so my fans can see how dedicated I am to being better.
+- I could do beats with a million sounds, and I could do beats with two sounds. Which one is going to make the most sense, and which one is going to sell the most records? Most of the time, it's the simplicity.
+- With me and YG, he could rap a hook, and I could make a beat around it. Ten minutes, we done.
+- Any man can take a sucker punch, but if you get slapped, it's other repercussions to that.
+- I never want to get stuck in the box.
+- Everybody in the West Coast always like to hear YG, RJ, and Mustard together.
+- I want my hands in all the pots and not just one. I want to make the right moves that'll put me in the right place.
+- 'Ratchet' has a lot of meanings. You can be a bad ratchet or a good ratchet. You can have fun, be ghetto, and get ratchet.
+- Anytime you throw claps back to back on a song, it makes everybody want to get up and have fun. It's a fun sound.
+- Sam Smith is amazing.
+- Don't just be a mystery to your kids. You need your kids to know you and know they can call you whenever they need you.
+- I'm just doing all type of music that I like. I'm not so worried about the money like I used to be. I got money now. I don't have to worry about that.
+- When we came out, they just labelled us 'ratchet music' cos we said 'ratchet' a lot. Ratchet means that's it's ghetto, but I would just call the music we're making just good music.
+- 'Who Do You Love' was kinda cool to make. I just made the beat; I was self-determined to make beats at the time.
+- I think my set is more so mixed in everything. It's not just EDM.
+- I like working with new artists.
+- If I'm DJing, and you stop me and take a picture? That's annoying.

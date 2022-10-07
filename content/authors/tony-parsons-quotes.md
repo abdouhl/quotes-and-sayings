@@ -1,0 +1,37 @@
++++
+author = "Tony Parsons"
+title = "Tony Parsons Quotes"
+quotes_len = "31"
+description = "the best 31 Tony Parsons Quotes"
++++
+- Grammar schools are public schools without the sodomy.
+- A tattoo doesn't make you look like an individual.
+- There are a handful of barbecue seafood shacks on the beach at Hat Nai Yang, which is a fabulous place to have dinner. It's very much run for locals and they serve the catch of the day, which might be lobster, white snapper or squid. It's ridiculously reasonable, too.
+- The thing I care about is my weight - I'm as fanatical about it as a member of Girls Aloud. I weigh myself every morning. I know exactly what I want to be - 82kg - and I try to stick to it.
+- When you have a kid, money matters.
+- I box for four hours a week and my diet is pretty healthy.
+- The thing to remember about Phuket is it's very beach-oriented and relaxed. The trendiest beach is Koh Sirey, which is full of groovy places to have a cocktail and watch the sun go down.
+- My parents gave up a lot to bring me up in the little house on the prairie, and I wasn't prepared to make those sacrifices, nor was the generation before me and the generation after.
+- I've been visiting Thailand for more than 20 years but didn't fall in love with it until I visited Phuket Town in Phuket. The northern part of Phuket is one of the most fascinating places I've ever been, and largely unspoilt and unknown.
+- I don't think much of anything I wrote before the age of 30.
+- My parents have been dead for many years, and when your folks are gone there is nobody standing between you and eternity.
+- I can't think of a bigger waste of police time than chasing somebody who has said something offensive on Twitter.
+- I hate Nassau and the Bahamas. It's one of those places I'd always wanted to visit since reading Ian Fleming but it was full of casinos with Americans in shorts.
+- Tattoos are so widespread, so ugly and so very, very permanent. You can, in theory, have them removed - but a large chunk of your living flesh will go with it.
+- When you are a journalist in the music business, as I was, you end up dying or going to the gym - I chose the gym.
+- People are always surprised at what a nice guy I am.
+- I am all for cracking down on inappropriate digital behaviour. Too often the connected world is an excuse for some coward hiding behind a keyboard to bully someone else.
+- I think airports are places of huge human drama. The more I see of it, the more I am convinced that Heathrow is a secret city, with its own history, folklore and mythology. But what has surprised me is the love the people who work there feel for the place. Everyone seems to think they are plugged into something majestic.
+- When he was born, I looked at my little boy and felt an unconditional love I never knew was inside me. As he grew, and I watched him stagger about, squeak his first words, and turn into a beautiful little boy, that feeling did not change.
+- You have to give kids from ordinary families a ladder. You have to show them there's a way out.
+- I have found having my dad as my North Star has worked well for me.
+- It felt natural. That is what I remember most about becoming a father halfway through my 20s. As if Mother Nature was giving me the big thumbs up.
+- If someone does something illegal on Twitter - like incite hatred, or make racist remarks, or threaten to rip someone's intestines out if they insult Justin Bieber - then there has to be some way of censuring them.
+- I feel like the only person in the world who sees David Beckham modelling his swimming pants on the cover of Elle magazine and thinks - oh, how much better a handsome guy like you would look, David, without all those dumb ink stains stitched into your skin.
+- My principal motivation is supporting my family, which is not a bad reason for getting up in the morning. That's always been my motivation - to take care of the people who rely on me.
+- The most convincing argument against early parenthood is that you are in a relationship that is likely to fall apart before that child grows up.
+- The tattooed nation will live to regret this voluntary disfigurement.
+- I am a sweet old softy, but it took toughness to get through what I went through.
+- I do tend to look back to my parents generation and think wow! what a great way to be, to live with one person for a lifetime, to bring your kids up in these really solid families.
+- My teenage years were spent trying to look like Rod Stewart - I ended up looking like Dave Hill from Slade.
+- Largely this is a class thing - writers tend to be cosseted little middle-class kiddies who think that the world owes them a royalty cheque. But just doing it - being in your room for years on end, locked in your head, alone with invented ghosts - it weakens and softens the body. And I know I can't just live in my head.

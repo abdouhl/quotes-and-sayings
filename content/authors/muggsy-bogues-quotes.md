@@ -1,0 +1,37 @@
++++
+author = "Muggsy Bogues"
+title = "Muggsy Bogues Quotes"
+quotes_len = "31"
+description = "the best 31 Muggsy Bogues Quotes"
++++
+- I've never met Mr. Mark Cuban, but I tell people that I thank him more than life itself.
+- Wake Forest came knocking on the door, and I accepted that offer. It changed my life completely.
+- As a small guard, you need to understand how you impact the game and make sure you impact it in the way that you can showcase your talent on the floor and having that understanding of the game. Tony Bennett was a smaller guard, too. We all have different strengths.
+- Growing up as a kid in inner city of Baltimore, Maryland, the way I played the game, I used to always steal the basketball.
+- No one knows how big your potential is, how big your heart is, when you start.
+- My very first NBA game was against the Los Angeles Lakers; it was a pre-season game against Magic Johnson.
+- My mom always brought home a present once a week for all of us. We never felt like we ever needed anything. We never felt poor. So I never felt I had to go out and do something wrong to get money.
+- Give yourself a chance. Now, everyone can't play basketball. But find something you're interested in.
+- I was 'Little Ty,' 'Little Tyrone.' I always got this negative feedback from the game of basketball.
+- I played all sports when I was young. I was into wrestling, basketball, baseball, football, and I ran track. But wrestling was my main sport because there was no criterion height-wise.
+- I was just trying to play the game, having fun. It was a hobby for me at the time.
+- Everybody has a way to get to college. You study in high school, you do your work. There are always grants or loans that can be available. I guarantee you - if you want it, you can get it. Don't close the door on yourself.
+- I know I've accomplished a great deal for a man of my height. It's been a blessing, and I thank God for the talent. I've always given 110%.
+- I loved the game. I loved it from the start. I was always with a basketball. I'd even dribble a basketball when I'd throw out the trash - and I got so that I could do it without spilling the trash.
+- We tied the milk crates on each end of the fence, and we had our own milk crate basketball pickup game, and it was a good time 'cause we could jump off the fence and dunk the basketball. You had to be creative in order to play, and I wanted to play.
+- I tipped one in college and dunked in high school. I can still touch the rim. I've always been a guy who has been able to get off my feet. I've still got a little hop to my game.
+- I have a business in North Carolina but am open to coaching or broadcasting as well. I've got four years on my contract and want to play as long as I can with my knees, but I'll let God take care of that.
+- I was playing and having a lot of success, but I also felt a lot of criticism behind it. I didn't know why.
+- I always tell people I think my mom had me when I was 5 feet, 3 inches - I don't remember ever growing.
+- I was stealing the ball from all the guys. Every time they dribbled the ball, I used to take it, and I'd go down the court, and I'd either lay it up myself, or I'd pass it to one of my teammates. I was getting a lot of excitement from that; I felt good about doing that.
+- You've got to have the skills. You've got to have a great attitude because, if you don't, nobody will want to deal with you.
+- Speed was one of the criteria for me - one of my strengths. But I had to use them all... everything I had.
+- That's what you want to keep sharing with the players in today's world: knowing that you represent yourself and your family each time you step on the court and to be the best at it because you never know where it leads to after it's all said and done.
+- It all depends on the athlete. It all depends on if the bigger guys come out, and they become a Shaquille O'Neal, or if they become a Porzingis...You don't ever lose sight of those type of players, even though the game has changed.
+- Absolutely, there's still a place for smaller guards. This is the time for it, really. You can't hand check, you can get your space wherever you want, plus you can create your own opportunities.
+- I understood my path and what I meant to the game and what I mean to kids. Not only kids, but individuals around the world. Folks that didn't think that the game was meant for smaller people. For me, I always felt that, tall or small, the game was for all.
+- I was wrestling all the way to high school, but it kind of came in the same season as basketball, so I had to pick and choose one, and I decided to go all the way with basketball.
+- There was a TV show that came on every week called the 'Bowery Boys,' and there was a character named Muggsy. The way I played basketball and the nickname stuck with me. No one calls me Tyrone except one person: Mom!
+- Being able to compete against the best, having success against the best, and to be included with the best - that's something I really relished whenever I got on the court.
+- It's a whole new world once you get to the professional rankings, being able to continue to stay on top.
+- Our main thing was playing basketball and just trying to win games. Doing that was a representation of who you are and people wanting to associate themselves with you.

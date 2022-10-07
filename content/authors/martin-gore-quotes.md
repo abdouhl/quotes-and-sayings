@@ -1,0 +1,58 @@
++++
+author = "Martin Gore"
+title = "Martin Gore Quotes"
+quotes_len = "52"
+description = "the best 52 Martin Gore Quotes"
++++
+- I find it odd seeing a DJ playing to huge audiences. I know that people have been doing it for a while, but the fact that it's been embraced so much in America now and it's become like this new, big thing, I find it slightly odd.
+- God knows why - no pun intended - but every time I write a song, I feel a need to touch on religion.
+- There's something insane about this business - about the cycle of making albums and going on tour to promote them.
+- I'm not particularly prolific.
+- I wasn't ever a massive David Essex fan, but I liked a few of his tracks, and Stardust was one of them.
+- I tend to like songs that are very emotional, that strike a chord with me emotionally.
+- People are People still gets played to death on '80s stations. It was our first big break in America. It's not exactly my favorite song.
+- I do a cover of a Velvet Underground song, and they were one of the most important bands, for me.
+- When I write a song, I always start on acoustic guitar, because that's a good test of a song, when it's really open and bare. You can often mislead yourself if you start with computers and samples and programming because you can disguise a bad song.
+- I knew at quite a young age that I had an issue with drinking.
+- I think being in a band is probably the only job when you're actively encouraged to be out of it most of the time.
+- It creates a conflict of interest - what songs would I use for me, and what would I use for the band.
+- I've not worn a dress since about 1985. It always amazes me how there is still a fascination for it in England. The rest of the world doesn't seem to care. I'm not sure whether they don't remember or whether they've just moved on from it. I was brought up in the glam era.
+- There are Depeche Mode parties around the world where people listen to our music all night long. The more remixes we can give them, the more interesting those nights have got to be.
+- I will be the focal point for however long I decide to play. Half of me likes that idea and half of me doesn't, but once the adrenaline kicks in, I'll probably really enjoy it.
+- More than accepted, it's encouraged for rock stars to be out of control.
+- I even have nephews who make music, my daughter makes music. I don't know what advice to give them these days. It's really a tough industry to break into.
+- It was so exciting to go to the record shop and buy a piece of vinyl and hold it, read the liner notes, look at the pictures. Even the smell of the vinyl.
+- There haven't been many credible electronic covers records.
+- Anything that I write comes from the soul.
+- As part of Depeche Mode, I don't think it's right for me to be using my own songs for a solo project. I'm not a very prolific songwriter, so I keep those for Depeche Mode.
+- I studied German at school. I lived in Berlin for two years and had a German girlfriend for five years, so I don't find speaking German particularly difficult. Singing was slightly more difficult.
+- Record covers helped me discover a lot of music that I wasn't aware of.
+- If you took music out of my life, I don't know what I'd do. It's the one thing that I have a real passion for.
+- I started getting back into buying old analog gear while we were recording. Lots of old drum machines and synths. It wasn't a conscious thing. I didn't consider myself a collector, but boxes of vintage gear would turn up virtually every day.
+- I don't think I've ever tried to be anything other than a weirdo.
+- Technology is a bit of a double-edged sword. Used right, it's a wonderful tool, but unfortunately, it makes it easier for a lot of mediocre people to get really crappy ideas out.
+- If you repeat yourself, then I think you're in danger of losing that fan base, because if you're not interesting yourselves, you're not interesting your audience.
+- I try to get a degree of realism in my music.
+- There are definite reference points to older Depeche Mode records.
+- I don't write poems and put them to music. Just let things flow.
+- I live in Santa Barbara. My wife's American, and she lived in England for 11 years and then told me she'd had enough.
+- I always hate explaining away songs, because for me they mean something, and for other people, they'll mean something absolutely different.
+- I love being in the studio. If I'm at home, I will go to the studio pretty much every day anyway. It's just something that I like to do.
+- Songwriting is a mysterious art. When I sit down to write a song, the end result should be mysterious and have this dark quality.
+- For years, I was stuck behind a keyboard rig. When I started playing guitar onstage, it was a bit of a release - not to be stuck in one spot the whole night. It's really enjoyable having the freedom to move around. You just have to remember to end up somewhere near a microphone.
+- Our music over the years has been very cinematic. It's surprising we never really got into film soundtracks.
+- I didn't expect us to be around after 25 years.
+- I didn't write songs for a very long time.
+- I don't like to think 10 years down the road.
+- I don't know if it's cool to say this anymore, but I grew up listening to Gary Glitter. A majority of his songs were in that shuffle-blues beat, and I think that's probably why I tend to write like that.
+- Kids today don't know that much about vinyl.
+- All of my kids are into music. My older daughter plays guitar, piano, sings. My young son, he sings.
+- I loathe the idea of going onstage in a T-shirt and jeans.
+- I lead two totally separate lives. There are times when I have to slip into rock star mode.
+- You make one solo album, and some people swear you're about to leave the band or there are creative differences.
+- Once I'd chosen the songs, it seemed like it would just be a question then of recording them. But it's a case of trying to re-invent the songs; taking them in different directions.
+- When people meet me I think they're surprised to find out I'm not always angst-ridden.
+- I sit down and create atmospheres, start playing guitar or piano and just sing whatever comes out of my mouth.
+- I like their darkness but I also like the pop-side of the Velvet Underground.
+- Music is really all about experimentation and lots of trial and error. It's just mind-numbingly boring until you hit on something that works well.
+- The majority of the time I'm at home with my family, I play football three times a week.

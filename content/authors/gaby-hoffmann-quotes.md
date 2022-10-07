@@ -1,0 +1,127 @@
++++
+author = "Gaby Hoffmann"
+title = "Gaby Hoffmann Quotes"
+quotes_len = "121"
+description = "the best 121 Gaby Hoffmann Quotes"
++++
+- I had a very long home birth. She was almost 10 pounds and did not want to come out.
+- Everybody I grew up with has incredible self-confidence and self-assurance. We were all loud, outspoken, wild kids and were celebrated for it.
+- Playing dysfunctional characters or crazy characters is only fun if they're well written. So I have been lucky enough to be asked to play crazy people who are very well written.
+- Suburbia, to me, was the most fantastical, unusual place. I thought it was Disneyland.
+- I don't think it should be allowed for people to start working at a young age and not take the time to just be living as themselves in the real world, especially now in this new age of new media and the obsession with celebrity. I think it's a real crime.
+- I was born naked. I'm a natural. I'm a natural nude. So I've been on camera naked a lot.
+- I had a world of people raising me; it was like a little village.
+- I basically took six or seven years off, but then I had another five or four of me not working at all because I was in school. It was really 13 years of me not working at all... I really couldn't even think about it.
+- I have a teacher friend who gets nervous when there's $200 in her account. But at least she knows that in a week, she'll get another paycheck. I have no idea.
+- I just want my kids to have the space of childhood to explore themselves as fully as possible.
+- My mom could be pretty strict.
+- I thought I was a sexy symbol!
+- My mom grew up in a strict Catholic family and moved to New York and became part of the Warhol factory.
+- I think it's great anytime somebody can be in control of their own distribution.
+- I loved being on the set of 'Field of Dreams' because I hung out with the baseball players all day, played cards, flirted with Ray Liotta, and had a ball.
+- I think that every young person is a little mentally ill, you know? If we're not totally shutting down, we're all a little bit mentally ill in our twenties and maybe into our early thirties.
+- People are obsessed with actresses being hairless, fatless Barbie dolls.
+- I was never that famous, but I do think going to college and really getting away from the business and taking a true break is incredibly, incredibly important if you start acting at a young age.
+- I watched a lot of television as a kid, and the suburbs to me - that was exotic! Like, a mom and dad who lived in the same house and had jobs and cooked breakfast at the same time every morning and did laundry in a washing machine and dryer? That was like, 'Woah! Who are they? How do you get to be like that?'
+- My mother is the sort of a person who has no boundaries and no filter. She also has a big ego, but it's a very unique one. And I grew up with lots of artists in an environment where conformity and the norm were totally not what anybody was after.
+- 'Crystal Fairy' was one of the first movies I did after I recommitted to the idea of acting.
+- It's funny because I grew up with the T.V. on 24 hours a day. And the more money I made, the more T.V.s we had.
+- If you don't have a healthy relationship with yourself, how can you with anyone else? Even if it's not healthy, I imagine it's a lot of fun. And healthy or not, I still think there can be a lot of love.
+- When people are struggling, that's a painful place to be in, to not know who you are and where you belong and what you desire.
+- It was like I lived in a little suburban neighborhood in the middle of New York City because I could run around barefoot or, you know, completely independently from a very young age in the safety of this building where I knew everybody and where I had friends on every floor, and I knew the bellmen in the lobby.
+- Nudity has never been a big deal to me. I sort of grew up with a lot of it in my family.
+- When I was a kid, I wasn't making my choices based on anything other than 'Did I want to work that day?' or 'Did being in school sound more fun?' And I don't remember ever reading a script and thinking, 'Is this going to be a fun part to play?'
+- I think I happened to work with sort of a bunch of slightly difficult male directors when I was a kid. I've since worked with lots of male directors that I love, so I no longer see the distinction gender-wise.
+- It's so nice that there's all this new space for new, good content. It's good news for us actors, since nobody makes real independent films anymore.
+- I often use the word 'magical' to talk about what it feels like on set.
+- I had a world of people who were raising me; it was like a little village.
+- I was like, Amazon Prime? Who has Amazon Prime? It turns out everybody.
+- I'm basically useless in interviews because I don't remember anything. But I find it very peaceful, actually, because I have a sort of busy mind. I'm like, 'This is great!'
+- I've never been on a television show as a regular before.
+- My mom was a single mother, raising my sister and me. My mom has an incredible talent for living in the world without traditional structure, and her friend, who was in advertising, put me in a commercial when I was five. It was just to make money.
+- I didn't even realize that I was interested in film until I was in college, and since then, I've had a very uncertain and sort of lost decade.
+- Too bad, whenever adults tell kids to enjoy their childhoods, kids are like, 'You don't understand anything,' and everyone is right.
+- I just try to show up and be relaxed and present and honest. And that's my only trick. And sometimes it works, and sometimes it doesn't. Honestly, sometimes it really doesn't work.
+- There's something extremely bizarre about the way people consume media now.
+- I was never as famous as all these kids. There was no social media. We weren't celebrity-obsessed as a culture. I feel like these kids are under a crazy microscope; they're basically brands. And they eventually implode and act out. They need a break, and they're not getting one.
+- I went to school to study literature and writing, even though I didn't end up really doing that in the end. I thought I would be a teacher, but I didn't really think about it in any practical way.
+- We all got driven out of Manhattan. It was a very conducive place for artists when I was growing up, and now it's definitely not. The city has been completely taken over by the rich.
+- I curate my T.V.-watching quite carefully.
+- I was given an incredible gift growing up in the Chelsea, a space where it is completely fine to be yourself - you just had to figure out what that was. You didn't have to figure that out in the face of opposition at every turn.
+- I've been told by many people that if I had a Twitter account, I would be making five hundred thousand dollars more a year.
+- My senior thesis was a documentary. By the time I graduated from college, I thought I was going to make films, and my interest in acting was there but kind of confused.
+- I am paid to dive deeper into my own humanity and do that with other people in collaboration... so that, in and of itself, I just feel like is the greatest privilege in the world.
+- I'm not one of those New Yorkers who so much identifies themselves with the city that they can't imagine living anywhere else. I plan to live a lot of other places, but it is defiantly is a big part of who I am. I have a complicated relationship with it. It has changed so much, but I love it, and it's my home. I'm really glad I grew up there.
+- I didn't intend to introduce food so early, but she became very interested at about 5 months, and I just gave her whatever sort of nutrient-rich food I had. Her first food was smoked trout.
+- I don't know how people do this waxing thing. Now I just have all these bumpy ingrown hairs.
+- I was raised in a way where there was no distinction between kids and adults.
+- I've been very excited to have children for a long time. It definitely added an interesting twist to the night we screened 'Lyle' at Outfest, and I got up to do the Q&A, and I had this huge belly no one was expecting. It creeped everybody out in the best way.
+- As an actress, vanity is your enemy. If you're thinking about how you look, you're not going to give a good performance. Once I realized, 'Hmm, I guess I'm not that vain,' it's like something I wanted to protect. I can't imagine anyone could give the full dynamic performance they're capable of and still be vain.
+- I know that in my own personal life, the people who I have dated who are funny can get away with a lot more than the people who aren't.
+- I wanted to live in the suburbs and have a white picket fence and my own bedroom. And a staircase - I thought having a staircase meant that you were a normal family. I thought somehow if you could transplant us to the suburbs, we would become a normal family. But in retrospect, I'm so grateful I grew up in the Chelsea.
+- People ask me all the time, 'What is it like being on set for a show about trans people?' And this is a state of normalcy to me.
+- The biggest issue that we have to contend with is campaign finance reform.
+- It's very odd that we have such an easy relationship to violence in this country, and we're still shocked by the female figure.
+- I just had fun making the movies - just being on set - but I didn't really care about the acting part.
+- It's hard to live in a blind and aimless - or dishonest, rather - narrative when somebody in your family is going farther toward - or at least think they are and say they are - their true self.
+- Television has filled the space for actors that really want to make good work and not just make a lot of money and be famous for making a lot of money and being famous.
+- I think sexuality is fluid, and we have such a strange relationship to it in this country. It's been so fixed and so controlled for so long.
+- Here in America, just as we see such incredible progress happening in one state, we see another state passing absolutely disgusting and oppressive laws against the rights of all sorts of people - transgender people, gay people, women.
+- I had so many faux-parents.
+- I don't revisit anything unless there's a really good occasion, like BAM screened 'This Is My Life', with Lena Dunham and Nora Ephron before she died. It also screened 'Uncle Buck', so I took my niece. I don't have a TV, so I don't happen upon old movies like you would if you had cable.
+- There's plenty of great independent films to do, but you can't support yourself making independent film as an actress.
+- I made a lot of movies that people loved when I was a kid, but I didn't have any real relationship to them.
+- I never set out to be an actor. Again, my mother presented this job by job to me at the time, and if it sounded fun, I would say yes and if it didn't, I would say no. I always knew, since I was 7 or 8 years old, that it was a means to an end and that I wanted to go to college.
+- I went to school to study literature and writing, even though I didn't end up really doing that in the end.
+- We lived in a classless society. We'd spend a summer at Gore Vidal's house in Italy, but we were on and off welfare.
+- Going into my 20s, I was uncertain, trying to figure out what my relationship to acting is.
+- The early part of my career was the 1990s, and I was living in New York working as an actor. It was the world I was in. A lot of companies had a great deal of money.
+- I've always looked the same, and every 10 years, I'm a little bit in fashion.
+- I just wanted to rollerblade at Union Square.
+- Our parents all experimented with raising us in a fairly loose, unorthodox way. A huge emphasis was placed on creativity, and our artistic efforts were never dismissed as childish. There was a sense that we - kids and grown-ups - all had the potential to make something of value. Our drawings were not simply destined for the refrigerator.
+- If somebody smiles at me on the street, I'm like, 'Hi, have a nice day!'
+- It's true that most people in the trans community don't have the incredible wealth and privilege that Caitlyn does. I don't think that, in any way, diminishes her struggle in her own transitioning.
+- If you're working opposite an actor who can act, then all you have to do is listen and respond.
+- I grew up with artists and drag queens. These were just my neighbors and friends and the people who are raising me.
+- I certainly don't have any boundaries myself, but I think I'm very aware of other people's.
+- I really enjoy taking care of people, and I was really ready to have a kid, so I didn't have to sacrifice anything that I didn't want to give up.
+- I met Jill Soloway at Sundance a couple years ago. I was there for 'Crystal Fairy', and she was there for 'Afternoon Delight'. She reached out and wanted to get together.
+- I'd started acting as a child. But I wanted to see if it was something my true personality was interested in. I stepped away from offers when I took five years off to go to college. I've only really just decided to whole-heartedly embrace acting.
+- I'm normally the least busy person I know.
+- If you needed to borrow a cup of sugar, you knocked on your neighbour's door.
+- It was sort of a solution to financial problems when I was a little kid. I just kept doing it because it's fun to be on movie sets.
+- I really, really loved making 'This Is My Life' and 'Now and Then.'
+- I think that anybody coming out and saying, 'This is who I am, and let me show it to you...' is good for the world.
+- I actually voted for Nader.
+- I thought of myself as an adult trapped in a kid's body. Had I known what adulthood was like, I would have embraced childhood a little more.
+- There are really very few roles for women in films in which you can also make a living.
+- I'm somebody who's super into psychology and analysis and the human psyche and the human experience.
+- I always knew when I graduated from high school, I'd go to college. I never thought about what I was walking away from... I just wanted to study literature and writing.
+- My mother certainly never altered the topics of her conversation based on children being present.
+- I think being on a set where people aren't being treated as equals, and with just a common level of decency and respect, is really uncomfortable.
+- Anything that needs to be accessed is within me. Even if it's in a circumstance that seems outrageous, I can still just go back to the basic human experience and it's all there.
+- I was watching 'Pulp Fiction' when we were making 'Now and Then'. I didn't care about 'Now and Then,' you know?
+- I just wrapped a new show for Amazon called 'Transparent.'
+- I don't know if I'd say I feel green, but I'm getting to know myself as an actor now in a way that I never did as a kid.
+- I'm interested in people. I'm curious about people, and of course we're curious about people whose work we respond to. So I'm not saying that I don't understand fascination with other people. But as it's dealt with in this American, modern-day culture, I find it not just boring but actually sort of destructive, really.
+- Oh, I'm pregnant on 'Girls.'
+- I think anyone who behaves boorishly but without a good sense of humor is not as fun to watch.
+- I'm not on social media; I don't watch TV. I'm really out of it.
+- You can do your job and be yourself and be comfortable all at the same time!
+- I think that the fact that we had a trans woman on the cover of 'Vanity Fair'... is only good for the trans community. I can't imagine that the more we talk about this that it's not just doing everybody a lot of good.
+- Acting was something that I grew up just doing. I certainly never thought about it.
+- I was obsessed with the idea of going to college. And I took many years off after that, so I sort of missed the weird, crazy transition that was what making movies was in the nineties to what's happening now.
+- Every scene is on the table to collaborate on, to pick apart, to try a million different ways. Usually, what ends up occurring in the end is something that no single person knew would happen or had planned for.
+- I was anxious before I decided to go back to acting about what I wanted to do with my life. Once I realized I was sort of interested in acting, I've been pretty lucky and had all these great parts. And I feel pretty much like, 'What will happen will happen.'
+- The sleeplessness is proven; it eradicates your memory.
+- There's a lot of improv in 'Girls'.
+- I started missing acting when I was in school, and I realized after being in the business after however many years that I was really interested in film.
+- I think mental illness is a slippery slope to talk about these days because people are overly diagnosed, overly prescribed, overly everything.
+- Every once in a while, I would say, 'I don't want to do this anymore,' and I would go back to third grade, and after six months, I'd say, 'OK, I'm bored. Let's go make a movie.'
+- Her mother, Laurie Simmons, is a contemporary artist, and my stepmother, Cindy Sherman, is a photographer, so they've known each other forever. Lena and I were often at the same dinner parties when we were kids.
+- All my cousins steal things. They're just a bunch of thieves. My whole family is like that. You put something down for a second, and they steal it. You never see it again.
+- The amount of attention and sensitivity and education that we're getting in terms of specifically the transgender community is great, and certainly that's new to me. But it's not incredibly unfamiliar. I grew up in downtown New York in the '80s.
+- People would say, 'Can I hug you?' And I would say, 'Yes, you can hug me! We're fellow New Yorkers!'
+- Nicole Richie invited me to her birthday party, and it was at Michael Jackson's Neverland!
+- I don't watch a lot of T.V. I only watch things via Netflix, so I only watch the things that I'm choosing to watch.
+- History is weirdly dismissed as not having anything to do with the present moment.

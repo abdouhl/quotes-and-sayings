@@ -1,0 +1,19 @@
++++
+author = "John Crowe Ransom"
+title = "John Crowe Ransom Quotes"
+quotes_len = "13"
+description = "the best 13 John Crowe Ransom Quotes"
++++
+- But we moderns are impatient and destructive.
+- Too much is demanded by the critic, attempted by the poet.
+- Their free verse was no form at all, yet it made history.
+- It is a miracle of harmony, of the adaptation of the free inner life to the outward necessity of things.
+- The arts generally have had to recognize Modernism - how should poetry escape?
+- Or he can work it out as a metrical and formal exercise, but he will be disappointed in its content. The New Year's prospect fairly chills his daunting breast.
+- And how can poetry stand up against its new conditions? Its position is perfectly precarious.
+- He can develop sense and style, in the manner of distinguished modern prose, in which event he may be sure that the result will not fall into any objective form.
+- For no art and no religion is possible until we make allowances, until we manage to keep quiet the enfant terrible of logic that plays havoc with the other faculties.
+- And yet what is Modernism? It is undefined.
+- Till now poets were privileged to insert a certain proportion of nonsense - very far in excess of one-half of one per cent - into their otherwise sober documents.
+- Now between the meanings of words and their sounds there is ordinarily no discoverable relation except one of accident; and it is therefore miraculous, to the mystic, when words which make sense can also make a uniform objective structure of accents and rhymes.
+- When critics are waiting to pounce upon poetic style on exactly the same grounds as if it were prose, the poets tremble.

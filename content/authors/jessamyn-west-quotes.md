@@ -1,0 +1,37 @@
++++
+author = "Jessamyn West"
+title = "Jessamyn West Quotes"
+quotes_len = "31"
+description = "the best 31 Jessamyn West Quotes"
++++
+- We want the facts to fit the preconceptions. When they don't it is easier to ignore the facts than to change the preconceptions.
+- Nothing is so dear as what you're about to leave.
+- In my time and neighborhood (and in my soul) there was only one standard by which a woman measured success: did some man want her?
+- Talent is helpful in writing, but guts are absolutely necessary.
+- Fiction reveals truths that reality obscures.
+- A rattlesnake that doesn't bite teaches you nothing.
+- There are two barriers that often prevent communication between the young and their elders. The first is middle-aged forgetfulness of the fact that they themselves are no longer young. The second is youthful ignorance of the fact that the middle aged are still alive.
+- If you want a baby, have a new one. Don't baby the old one.
+- Memory is a magnet. It will pull to it and hold only material nature has designed it to attract.
+- We can love an honest rogue, but what is more offensive than a false saint?
+- A religious awakening which does not awaken the sleeper to love has roused him in vain.
+- The West is color. Its colors are animal rather than vegetable, the colors of earth and sunlight and ripeness.
+- Only a fool would refuse to enter a fool's paradise when that's the only paradise he'll ever have a chance to enter.
+- Groan and forget it.
+- Faithfulness to the past can be a kind of death above ground. Writing of the past is a resurrection; the past then lives in your words and you are free.
+- It is very east to forgive others their mistakes; it takes more grit and gumption to forgive them for having witnessed your own.
+- You read a book from beginning to end. You run a business the opposite way. You start with the end, and then you do everything you must to reach it.
+- I've done more harm by the falseness of trying to please than by the honesty of trying to hurt.
+- If you train people properly, they won't be able to tell a drill from the real thing. If anything, the real thing will be easier.
+- The past is really almost as much a work of the imagination as the future.
+- Sleeplessness is a desert without vegetation or inhabitants.
+- Teaching is the royal road to learning.
+- Writing is a solitary occupation. Family, friends, and society are the natural enemies of the writer. He must be alone, uninterrupted, and slightly savage if he is to sustain and complete an undertaking.
+- Justice is a terrible but necessary thing.
+- The sick soon come to understand that they live in a different world from that of the well and that the two cannot communicate.
+- The basic essential of a great actor is that he loves himself in acting.
+- The source of one's joy is also often the source of one's sorrow.
+- In their sympathies, children feel nearer animals than adults.
+- A taste for irony has kept more hearts from breaking than a sense of humor, for it takes irony to appreciate the joke which is on oneself.
+- A broken bone can heal, but the wound a word opens can fester forever.
+- A big iron needle stitching the country together.

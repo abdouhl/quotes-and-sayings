@@ -1,0 +1,85 @@
++++
+author = "Mirko Cro Cop"
+title = "Mirko Cro Cop Quotes"
+quotes_len = "79"
+description = "the best 79 Mirko Cro Cop Quotes"
++++
+- Nobody should underestimate me. When you have a self-made fighter like I am with the Pride belt I earned, it's not good to underestimate him.
+- To be a successful fighter now, you have to go to a camp.
+- I think I owe a lot to the UFC and UFC fans.
+- The UFC was the black spot in my career and my life.
+- Even the biggest heroes turn into cowards when they get tired.
+- Low kicks, you need to throw at least 20 to finish the guy, and he has 20 chances to block you, and you can break your leg.
+- Martial arts gave me everything in life. It is not about a paycheck; it is about how I live my life.
+- It's not up to me. I will fight whoever the UFC puts in front of me. If it was up to me, I want to fight Dana White.
+- People don't get it. Martial arts is my life.
+- K-1 is the sport where I started. This is my first love, and I find K-1 more attractive and more suitable for our Croatian fans than MMA.
+- It was a mistake of mine to train like that, with friends, at home. It was a handicap I should not have given myself. In Croatia, we do not have big camps like in other countries, but I was not willing to go away to train.
+- I underestimated the difference of fighting in a cage.
+- When my shoulder problems started, basic methods like massages and icing the shoulder did not help.
+- I was training in an old garage - just a roof. And when its snowed, it would cover the floor, so I would have to clear this first. I didn't have a punch bag. There was no place to buy it, so I managed to get a speed ball, but it didn't have the swivel mechanism, so I just nailed it to the ceiling and started kicking.
+- Of course I will submit if I have a chance, but I always prefer to finish a fight in a stand-up position.
+- People say people who spend too many years in prison don't know how to act when they get free. I don't know how I am going to act, how I am going to kill time, once I am not a fighter. Retirement scares me, and I have to think about how I am going to handle it.
+- I'm not angry or anything at Sonnen, but I will say one thing - I hope nobody gets offended; I don't wanna sound disgusting, and I am certainly not fan of any anthropologic theories - but you can see on that guy's face that he is limited and stupid, and his IQ is not higher than the size of the shoes he's wearing.
+- I never liked to say any trash talk about anyone, and I never go low on that level.
+- For my whole career, I didn't have sparring partners. I was frustrated when I came to the UFC because, after a few minutes of the first round, I would feel dead because I had no sparring partners.
+- I really believe that I'm a better fighter than Gabriel Gonzaga.
+- I'm 240, and I'm not fat.
+- I train in the cage all the time. I have my own cage in my gym.
+- I feel that Japan is like my second home; this is where I want to fight.
+- The cage is bigger than the ring, and it's a little bit different.
+- I'm a guy who likes to have fun, and I like everything normal people like, but I am always quoted before the fight when I'm jet-lagged and focused. In everyday life, I am different.
+- Frank Mir is gonna be my toughest fight in my UFC career. It won't be easy.
+- I'm not old. I'm 37, but I can do things that fighters 10 years younger cannot. I will prove that, or I will die trying.
+- All of the people I have lost against, I always want to fight again.
+- Gabriel Gonzaga is a very solid fighter, and I've seen some of his fights. He's a tough guy.
+- Even though I didn't do as well in the UFC as the rest of my career, I feel like I did everything that I could to have an overall successful career.
+- I want to beat all the opponents who have beaten me before.
+- I was free on the market, and I wanted to go to the UFC, the only global organization.
+- I broke people's bones, tore muscles, ribs, faces, inflicted some serious and heavy damages to my opponents, etc... I got hurt myself, too, from serious attacks.
+- Obviously, I can't break my mental block in the Octagon.
+- I don't know if I will take the UFC title, but I will die trying.
+- Everything was good when I was in Japan, and then, unfortunately, the injuries started.
+- Conditioning is the most important thing in MMA.
+- People consider me a striker, but I have trained jiu-jitsu for 10 years.
+- The biggest shock was the first fight. I didn't know what to expect. I fought Fujita. At that time, he was one of the most dangerous PRIDE fighters. He was a complete beast and with 130 kilograms of pure muscle.
+- I might be the first fighter who has ever been suspended after retirement.
+- I had 33 kickboxing fights, 37 MMA fights, plus 44 amateur boxing fights, which most of them were international. I will keep fighting as long as I feel good, but I will repeat once more, any fight could be the last one.
+- I will keep fighting as long as I can, as long as I'm going to feel fit, as long as people would like to see me fighting, and that's it.
+- The UFC has been so good to me over the years, and it is hard to leave this company and this sport.
+- Saying that fights in Japan were fixed and that me, along with other guys like Silva, Minotauro, etc., did not win those fights legitimately is an ultimate and absurd nonsense.
+- The only 'special supplements' I'm using is two hard and bloody trainings per day, five days a week.
+- Of course I could keep fighting, but every man comes to the point when he asks himself, 'Do I need it anymore?'
+- I'm not allowed to be woken up under any circumstances except if my house starts burning. Then my wife is authorised to wake me up, but only if fire gets to the door of my room.
+- Sooner or later, the time comes when a man has to think on the health. I had a really long and great career, and I believe I left a deep mark in the martial arts. I have no regrets.
+- The best feeling in the world is a hard workout, a shower, and a protein shake.
+- I don't want to think too much about the future. I want to go step by step, and we'll see what's next.
+- When I came to UFC, I was treated like a king.
+- I think it's stupid to say a guy who has trained in jiu-jitsu for as long as I have is just a stand-up fighter. I have trained with some of the best black belts in the world. I am comfortable on the ground. I can fight wherever the fight goes and not be concerned.
+- I need to raise my kids. It takes a lot of time and a lot of energy to raise kids and make men of them these days. I don't want them to be lazy and just spend their father's money.
+- I wish you could see a new Cro Cop, 15 years younger. I wish it was possible.
+- Win or lose, just stay calm.
+- I won a lot of money in UFC. I earned that money. The money wasn't given to me as a present. I earned every dollar of it.
+- I have to be honest: when you have 70 fights under your belt, your priorities change.
+- I am aware that I have come to the end of my martial times, but training with pain I want no longer. My body is battered by countless trainings. I collected nine operations; the body has become prone to injury.
+- I usually train twice a day, and Thursdays and Sundays are supposed to be my days off. But even on those days, I'm training at least once. I have to do at least one session each day to be happy.
+- I'm not the kind of fighter who just hates each other before the fight. I can talk to you until one minute before the fight, and then I will take your head off if I can.
+- Some of my fights in PRIDE, I felt tired. I would train on the punching bag and feel great but then get tired in my fights.
+- People ask me if I'm going to open a school. Why not? I think I should. Maybe not a typical school where anyone can come but with young fighters definitely one day. I don't have the nerves for amateurs.
+- Training is not the key. Head is the key. For me, it's head. How aggressive you will be. Who will attack first? But you need to be good in your head, and there will be no problem.
+- I've heard that I could be facing Randy Couture. That would a great.
+- I think I should be respectful of fighters. This sport is brutal enough itself. I don't think you should say stupid statements or should act like savages.
+- Now I am training with sparring partners who are nice people, sure, but not my friends. These are sparring partners who want to knock me out in sparring. In the Croatian media, they said it was 'life and death' sparring - it was not quite life and death, but it was all-out fighting, very hard.
+- I just hope that God will give me the strength that I can prove my worth.
+- Talking about a fight with Randy Couture is a jinx for me.
+- I really think me and my family live humbly. I've secured my life, and I won't have to open the newspaper and be looking for work.
+- I'd most prefer to be a free agent and fight up to six times a year, but that is unlikely.
+- In 1993, I joined the Croatian army. I was a radio telegraphist.
+- This fire in me will last forever.
+- I was a professional and did my best to prepare for every fight, but after PRIDE Grand Prix, to be honest, I didn't have motivation to go on.
+- First I'm a sportsman and then a politician.
+- I've made some investments during my career that I'm happy with, so my life, talking financially, is definitely OK.
+- I think the best thing to say is that I was born to fight.
+- I have twenty years of training like a spartan behind me. It has caught up with me. My body is broken down. I've been worn out.
+- Training, and every morning I have to take my dogs out into the forest. That's all I'm doing. I'm staying out of everything else. All other things that can take out my concentration and my energy from the training.
+- I had it on my mind that I will fight in Cologne, because UFC is coming to Germany, where the biggest and largest Croatian community lives there. It was my big, big, big wish to participate. Even my doctor didn't believe I will make it, but I did.

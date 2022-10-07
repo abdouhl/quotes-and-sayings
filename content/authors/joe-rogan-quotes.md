@@ -1,0 +1,66 @@
++++
+author = "Joe Rogan"
+title = "Joe Rogan Quotes"
+quotes_len = "60"
+description = "the best 60 Joe Rogan Quotes"
++++
+- I've done jiujitsu a huge chunk of my life, and I try to spend a lot of time educating people on the nuances, the subtleness of the ground game. It's a big part of mixed martial arts.
+- What's interesting about science is that we're constantly discovering new things about the universe, about ourselves, about our bodies, about diseases, about the possibilities of the future. It's amazing. Science is one of the coolest things about being a human being - without a doubt.
+- We're constantly re-evaluating the potential for life. We're finding it where we didn't think it could exist, such as volcanic vents and other extreme conditions like under arctic ice. We're finding life in these incredibly harsh and dynamic conditions, so we're having to re-evaluate our own ideas of what's possible on this planet alone.
+- Being a celebrity or anything else where you're really ambitious, it's really a game to see how successful you can get.
+- Stand-up is still my favorite, but the podcast is a close second. It's so fun, and it's given me the opportunity to have three-hour conversations with people I wouldn't have otherwise been able to talk to. When I talked to Maynard Keenan from Tool, I almost couldn't believe it was happening.
+- I've been involved in mixed martial arts since 1997 when I first started working for the UFC.
+- You're sort of programmed a certain way because of your environment. That's all you know. But we don't have that anymore because of the internet. Because of the internet we're all communicating with each other all across the board, so you're getting information from people all around the world, hitting a much more diverse slice of culture.
+- On my left knee I have a long scar from an ACL operation. I've had both knees reconstructed.
+- I really never had any ambitions to be a standup comic. I was talked into it by guys that I used to work out with.
+- When someone comes along and expresses him or herself as freely as they think, people flock to it. They enjoy it.
+- I see martial arts as moving forms of meditation. When you're sparring or drilling techniques, you can't think of anything else.
+- After this whole acting thing is over and done, you eventually have to be human. Some people are never human. It's very weird.
+- It never hurt Lenny Bruce's career to get arrested for swearing. It did back in the time, but he broke those doors down by doing the stuff that he believed in.
+- The Comedy Store in LA, it's a really loose room and it's really dark and creepy and a great place to explore your own thoughts onstage.
+- So many times I've done a CD, and then the week after I record it, I've got this new tagline that's killer. And it makes the whole bit better. It happens all the time. But that's just the process of comedy.
+- Have you ever talked to someone, and you're not even really talking to them? Actors are the worst for that.
+- Comedy is really not like any other art form in that it's very specialized and varied in it's content, but generic in it's title.
+- The planet's spinning a thousand miles an hour around this gigantic nuclear explosion while these people roll these machines with rubber tires over this hard surface that we've laid down over the planet so that we can easily move ourselves back and forth.
+- No matter how civilized we are and how much society has curbed violent behavior. Human beings still have the same genes they had 10,000 years ago. Our bodies are designed to have a certain amount of physical stress and violence in them. We're designed to run from jaguars and fight to defend our territory.
+- That's my only goal. Surround myself with funny people, and make sure everyone has a good time and works hard.
+- I talk so much about sex that girls just want to meet me.
+- The audience changes every night. You're the same person. You have to speak your mind and do the stuff that you think is funny and makes you laugh.
+- Because I have a girlfriend, I try and take the straight and narrow path, which is good because it prevents VD.
+- The two things I understand best are stand-up comedy and martial arts. And those things require an ultimate grasp of the truth. You have to be objective about your skills and abilities to compete in both.
+- I really feel like it's a travesty to make a child famous. I really do.
+- Although not considered a martial art, boxing is really a martial art. It's a very limited martial art as long as you agree to just box... but in an actual physical fight against someone who's just a wrestler, you're going to get killed.
+- I do cagefight commentary in my spare time.
+- The misconception is that standup comics are always on. I don't know any really funny comics that are annoying and constantly trying to be funny all the time.
+- Phil Hartman was brilliant, and Dave Foley is a really funny guy. Phil Hartman was actually even funnier offstage than he was onstage because he would say nasty things. Dave Foley's very funny, very witty guy, very quick.
+- Richard Pryor is, in my mind, the most honest comedian. He bared his soul to people. I think that's why everybody loved him so much.
+- I never in my wildest imagination dreamed that I would somehow become a sports commentator.
+- I had a sense of who I was before I got famous.
+- Apartment living is tough action. Just the whole idea that you share a washer and dryer always freaked me out.
+- Faith itself is a horrible mechanism that stunts the growth of ideas. It also stunts the act of questioning, and it does this by pushing the idea that you have to have faith - and that nothing has to be proven.
+- The comics I hate are thieves. Nothing's more disgusting than a guy who steals another person's ideas and tries to claim them as his own.
+- I'm a huge Groucho fan. There were some great comic minds that would transfer into any generation, and Groucho is certainly one of them.
+- It's painful for me to watch someone who isn't funny. It's horrifying to sit in the back and watch some guy who just totally sucks.
+- People want their 15 minutes and are willing to do anything to get it.
+- Reality really is theater. There's no other way to describe it. It's all so nonsensical, ridiculous and chaotic.
+- People for the most part can smell lies.
+- I wouldn't totally rule out doing Letterman or the Tonight Show if I had a set that I just happened to write that I thought was funny but was still appropriate for network censors. But I'm not going to go out of my way.
+- I never want to compromise my act just to get a laugh.
+- Your body's really only meant to compete at the highest levels of combat sports for a few years.
+- I don't care if you're gay, black, Chinese, straight. That means nothing to me. It's all an illusion.
+- I had seen movies before that that had made me laugh, but I had never seen anything even remotely close to as funny as Richard Pryor was, just standing there talking.
+- If someone plays a brooding actor in a film, people think they're brooding all the time.
+- The only time I commit to conspiracy theories is when something way retarded happens. Like Lee Harvey Oswald acting alone.
+- If you are the greatest, why would you go around talking about it?
+- I had a great time on News Radio, I got to make tons of money in relative obscurity and learn a lot about the TV biz and work on my standup act constantly. It was a dream gig.
+- Dick Gregory was a great comedian who went and got arrested, did hunger strikes, protests. It never hurt his career to be outspoken.
+- When you snatch little pieces of other people's lives and try to palm them off as your own, that's more disgusting than anything. Robin Williams is a huge thief. Denis Leary is a huge thief. His whole stand-up career is based on Bill Hicks, a brilliant guy who died years ago.
+- I'm afraid of heights. Not unreasonably, but rationally afraid of heights. I think everyone is.
+- My act is so completely and totally uncensored that the only way I could really pull it off is if I treat the audience like they're my best friends.
+- Any comic like myself owes everything he has to Lenny Bruce. He was the originator. The godfather of uncensored American stand-up is clearly Lenny Bruce.
+- If you can lie, you can act, and if you can lie to crazy girlfriends, you can act under pressure.
+- As a longtime practitioner of yoga and a person who's been involved in physical fitness my whole life, I can tell you, yoga helps you achieve altered states of consciousness. It is not just stretching. The only way you can say that it's stretching is if you haven't done it, or that you haven't done it rigorously for a long period of time.
+- To me, comedy is a great occupation because I don't really worry that much about what other people think of me.
+- But it's hard for a chick to do comedy. It's not as open for them.
+- Never stay in a bad marriage, and don't hang around with psycho coke fiends.
+- I think that one of the reasons why people look towards the end of humanity is that people are afraid to die alone. If you die alone, the people you love will miss you, or if they die, you miss them - the sorrow is inevitable. When you truly love someone, the thought of losing them forever is horrible.

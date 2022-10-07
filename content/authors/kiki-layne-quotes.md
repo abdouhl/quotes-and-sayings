@@ -1,0 +1,106 @@
++++
+author = "Kiki Layne"
+title = "Kiki Layne Quotes"
+quotes_len = "100"
+description = "the best 100 Kiki Layne Quotes"
++++
+- It's amazing to me how quickly the industry will try to put you into a box. It's like, I did 'Beale Street.' And they decided now, all of a sudden, 'Oh, okay. KiKi Layne does those little quiet indie dramas.' I'm like, 'No! That's just where I got started.'
+- I feel there's a really raw quality in the Chicago theater community that's really special.
+- It's important to me that I'm more than a pretty face or another person starring in movies. That's great, but there's so much more than can and should be done.
+- Most Sagittariuses start off really reserved. You gotta check people out, see what they're about, and then once we decide you're cool, then that's when we become super fun and really outgoing. But first we gotta make sure everybody's cool.
+- I'm learning so much about my style just having access to so many things now. Growing up in Cincinnati, we really didn't have much money so it was really about places where you can go to get the most for the least.
+- Hollywood has had a very limited way of telling stories about black people.
+- I always say, food is the way to get KiKi Layne wherever you want her to go. As long as I'm not cooking.
+- Love & Basketball' has stuck with me since I first saw it.
+- For young girls to see someone who looks more like her, doing and being her. That's where my ambition and drive comes from, it's being so insanely committed to that. To achieve that, I'm doing everything I can.
+- Who do I have a cinematic crush on? I mean, it's such a go-to: Michael B. Jordan. I was like, it's everybody's go-to. Who else?
+- I could do comedy, action, or even science fiction.
+- I never weigh myself.
+- It's not about opening a door and shutting it right behind you. I want to keep it open so others can come behind me.
+- That love and loyalty, that groundedness, is always there. I got the type of family that no matter how far I go in Hollywood, they will quickly remind me who the hell I am and where the hell I came from.
+- The history of black people in America, it's so painful. But throughout all that history there has still been the ability of our community to find love and laughter and joy even in these very painful circumstances. That's why I think in particular black love is so powerful, because it's constantly under attack.
+- Will Smith is my favorite actor, because he has so much variety in his career. He's done all types of roles, played in all types of worlds, and to me, that's the fun of acting. That's why I started doing it when I was eight years old, because you get to be whatever you want.
+- I just think the way Regina King carries herself in this industry is something to strive for. Even though she's been in the business as long as she has, she's still just one of the most genuine, realest people I've met so far. And so watching her, I realize that I don't have to change who I am at the core in order to have a career.
+- I always have to find things that I relate to and understand in the characters that I play; otherwise, it won't feel that authentic.
+- I'm hopeful that, at the end of my career, wherever it takes me, there's a lot of variety.
+- To see a young black woman being loved for just who she is - her hair, her skin, her clothes - is powerful.
+- Aaliyah is my favorite singer.
+- I love big jewelry trends and moments, especially some gold hoops.
+- I'm just hoping that, as more black artists take control of the narratives that are out there, more opportunities will come around for artists of colour. We want to make the same waves that the white artists do.
+- The texture my hair, my skin tone; it does work, you don't have to change. But historically we've seen fashion try to change that: straighten your hair, thrown on a super straight silky wig, lighten your skin tone.
+- If you see black people being portrayed in this one way well then, when you see a black person in real life, you're going to carry some of that way of thinking with you.
+- As an actor, my commitment is to be really mindful of how I'm representing Black women. It's the heart of my drive, and my career is to expand how Black women have been represented.
+- Fashion is another opportunity for me to break through boundaries and to be seen wearing things.
+- I don't want to be put into a box.
+- Seeing all of these beautiful brown faces and having that patience for them to live in whatever it was that they were living in; I was just so blown away by the artistry that I recognized in 'Moonlight' - the colors, the music.
+- We're seeing more black women saying: 'This is who I am; this is what I've been given.' And it's beautiful.
+- I'm definitely a person, even when I need help, I got to be going through it to finally ask for help.
+- It's the first way I feel we can really express ourselves. There's always a story you can tell with fashion.
+- Some things shoot in Chicago, but even those things that shoot there still cast their bigger roles in L.A. or New York.
+- Making films is such a large, collaborative effort and there's so many people who are a part of it.
+- I used to have really bad acne and so there's a cream and a gel that I use.
+- It's just always been in my heart to perform.
+- It's not lost on me to have the ability to be wearing custom Dior or Gucci, with my box braids or my bantu knots. It's another opportunity to show that Black girls belong in these places and that what I naturally bring as a Black girl belongs as well.
+- I left before I had the opportunity to pursue work more widely in Chicago.
+- We all have those moments when you're sitting in your feelings and you're sitting in your thoughts and you're taking in what your current situation is.
+- It's important for me to not be put into any type of box because that steals the fun of acting. I want to do everything.
+- I'm not one of those people that's like, 'I'm about to serve on this Whitney Houston song at like 2 A.M.' No. Karaoke? I'm just like, 'Live your best life.' We're not worried about those notes, we just living.
+- The black community is under attack in so many different ways.
+- I was artsy.
+- We all live in different worlds and situations, so what's the issue with representing that on screen?
+- I'm very grateful to Barry Jenkins, who took a chance on me.
+- I think a lot of times for women, especially in this industry, we're forced to do things for beauty that aren't good for what we already have.
+- When men are put into these types of circumstances like Bigger in 'Native Son,' or Fonny in 'Beale Street,' it destroys relationships, their love, their relationships with their children - it's under attack.
+- I want to push the boundaries on the roles that have historically been given to actresses who look like me. There is so much more we can do. There always has been.
+- It would be tough to live a life without any of the people you loved, where you can't even build new relationships. That connectivity is so important as humans. I wouldn't want to live like that.
+- People will definitely know that my art has something to say.
+- We witness so many people lose themselves in this industry, and sacrifice who they really are for success and accolades.
+- I'm not going to sit around and wait for some old studio executive to decide my career path.
+- The only thing I'm sure of is that I want to keep doing work that speaks to me.
+- My mom put me into a performing arts elementary school back in Cincinnati, so I started studying acting in school when I was seven.
+- I remember growing up and feeling like I didn't really see much of myself represented. Or if I did, there were only a few types of roles that had authority.
+- I'm very thankful I went to college, because I've seen the difference that it makes for me in the professional world. After graduation, I was building a name for myself in the Chicago theater scene, but there was always this pull to L.A.
+- It's important for me to not just do the same type of roles and movies that I've seen actresses that look like me do.
+- I think with the 'Fresh Prince,' there were all of these really interesting personalities and characters, and yet there's so much love in that household.
+- There was never a moment when I thought I'd be a dentist, I've always wanted to perform.
+- I definitely want to get into producing. I want to be on the side of the table where I can give people jobs.
+- When you hear these stories about different cases of police brutality, don't even just make that person just another hashtag, another statistic. That is somebody's father, brother, sister, mother - be more aware of what that means.
+- As much as I love to slay a red carpet hitting the ground running with 'Beale Street' and 'Native Son,' representing two such important voices in James Baldwin and Richard Wright let people know that I'm an artist and I really have something to say with this gift.
+- All of us can relate to when something happens in your life and it just completely changes it. Now you have to figure out how you're going to move forward.
+- When you're a Black actress, the box that we often get put in is so small. And me being a dark-skinned Black actress, the opportunities become so limited in a way that is just wrong. It's not fair. I'm so capable of playing a wide variety of roles. It comes down to whether or not I'm given the opportunity to do it.
+- Acting is communication. It's giving and receiving.
+- Instead of asking for permission, we're seeing more artists and creatives taking control over the stories we tell.
+- Growing up, my favorite movie was 'The Lion King.' I used to watch it every day and create these extravagant stories with my Barbies and stuffed animals. My dad says I would say the entire movie out loud, and it's still the one VHS that I have.
+- Once upon a time you could actually unplug and it wasn't, like, a weird thing. Now your friends will say, 'I'm fasting from social media.'
+- I want to have the kind of career in which I'm accomplished and respected enough that I'm able to open doors for other people, especially those who look like me. That's what happiness and success could look like for me.
+- It means so much to be a part of bringing James Baldwin's words to life.
+- That is the thing that brought the Black community through so many of the hardships that we've faced historically. It's the ability to love and laugh and experience joy still in so many ways.
+- Well, I used to model back in high school, and I was one of those people that, every week I was tuning in to 'America's Next Top Model.'
+- I'm trying to be what I want to see more of: Black women onscreen.
+- To me Kate Spade represents a woman who still has stuff to get done. She's like, 'yeah I'm stylish but I need to be comfortable and able to move.' I'm excited to be a part of a brand that's meaningful to women in that way.
+- Watching 'Moonlight,' I just recognized this patience in the film - allowing moments to live and linger - and I just thought that was so beautiful.
+- The thing about tarot - maybe this to me is the difference between it and working with a psychic - to me it's clarifying the things that you already know. I don't feel like any tarot reading I've done or received was particularly surprising. They always speak to things that you kind of felt already.
+- I'm not going to ever feel bad about sharing what my dreams are.
+- I'm very grateful that 'Beale Street' was that opportunity for me to be introduced to the industry in that way and have some doors open for me.
+- My favorite artist is J. Cole. I like Kehlani a lot. Teyana Taylor is dope too.
+- If you're good at your job, you're good at your job regardless of being male, female, whatever. Either you're a good director or you're not, and there are plenty of bad male directors.
+- An unlikely source of inspiration? My nieces and nephews. I feel encouraged to keep going because I know that if I keep going, then I can tell them to keep going.
+- I started off with the flute and French horn, and then I was playing trumpet in the jazz band.
+- I think the biggest thing is reminding myself how hard I worked for it,' Layne continues. 'It wasn't just handed to me. I trained so hard; I've been so committed.
+- I'm a huge fan of 'The Avengers,' but 'Black Panther' was so special to me.
+- Like, no, I can really be queen of the universe. I can be president. I can be, I don't know, an alien from Venus. Like you could just seriously... and that's the fun of acting.
+- For whatever reason, Hollywood has had a very limited view of what life is and what certain people in certain roles, what they look like.
+- I used to climb trees and ride my bike way too fast downhill.
+- I'm not extra, I'm not going to be the person walking around the house in an extravagant gown during quarantine.
+- Fashion, film, and music - all these industries have ways of putting us in a box. Ultimately my goal is to push those boundaries.
+- I'm committed to jumping into roles, worlds, and stories that historically actors who look like me have been left out of.
+- I've determined my style - I like to call it elegant funk. You'll see me in some really beautiful gowns but I'll still have my septum piercing in.
+- My mom knew we were going to call me Kiki by birth. I think she had the nickname before she had my name, and she then found the name that would allow that.
+- What does it mean when I wear something that makes me look like a Disney Princess? Versus something that's like 'ooh, maybe Kiki Layne can be a sex symbol.' Because these are things that, sometimes dark skin actors with natural hair, we don't get put into those types of conversations.
+- I think I learned the value of being more patient with myself.
+- I think especially when depicting young love, so often we see young love where you're just all about this other person, where you're willing to do everything, anything, wherever they need you to be.
+- 'Beale Street' is such an intimate story that I think it requires intimate connections between the artists that are a part of it.
+- I know for me personally, I'm a person that tends to pull back from the people that love me when I'm going through something.
+- I want a career filled with a lot of variety.
+- The Kate Spade woman is a classy sort of working woman who's still stylish.
+- I will never forget my first Valentino Haute Couture show.

@@ -1,0 +1,124 @@
++++
+author = "Nadia Comaneci"
+title = "Nadia Comaneci Quotes"
+quotes_len = "118"
+description = "the best 118 Nadia Comaneci Quotes"
++++
+- I believe that you should gravitate to people who are doing productive and positive things with their lives.
+- I like Oklahoma. It's a quiet place. You can work, and nobody disturbs you.
+- People ask me what the definition of perfection, I said it's none: there is no definition of perfection.
+- When you're growing up, you realize you've got a lot of heavy things on your shoulders.
+- I have had a few turning points, the first day I entered a gymnastics school at age 6.
+- In Montreal, I kept thinking, 'Pay attention: this is the Olympics! It only happens once every four years!'
+- I am not a perfect 10 anymore. I can only try my best.
+- At the end of the day, I just want to see good gymnastics!
+- When I got married in Bucharest, there were 10,000 people on the street. People didn't go to work that day. It was emotional to see how people care about you. I didn't expect that.
+- I come from a wonderful country with wonderful people.
+- I work out every day, but my idea is to make something short. I work out a maximum half hour. I only do like 20 minutes of cardio, and I do some stretching and some light weights, and I'm out of there.
+- I hoped to win a medal and hoped it would be gold. I knew I was good but didn't know I would be the one to score something that had never been done before.
+- It's like someone important is missing from a party because you can't imagine an Olympic gymnastics competition without Romania.
+- I always say I don't want to change anything in my life.
+- If I have a feeling of not trusting, I don't get too close.
+- Other kids had more talent, but I was the most focused.
+- When I was 14, I had no pressure. I was a kid, and I didn't understand all the attention.
+- I didn't know I wanted to be a gymnast; I was just introduced to the gym. I loved the place because it looked like a hi-tech playground with mats and a lot of things I can hang from.
+- My message to the ladies would be, you can do all of the things, but not all of them at the same time.
+- Near the end of my career, I saw things that didn't make too much sense to me when I was a kid.
+- As an Olympic champion gymnast, I have always stayed involved in my sport.
+- I live in the moment. I can turn the page and move on.
+- I think gymnastics was associated with the 10. I thought that belonged to the sport, and somehow we gave it way.
+- That's what everybody remembers. They don't remember how many medals I won in my career. They remember the 10s.
+- When I look back, I am happy that my mum took me to the gymnastics club. I didn't join gymnastics to become a famous athlete or celebrity; it just happened - I did more than I expected, of course.
+- Every generation comes with a unique athlete, I don't think anybody wants to be the next Nadia; they want to be themselves.
+- Romania doesn't have a big tradition of gymnastics as a fun activity. We were a little behind in this aspect.
+- Of course, I grew up in Communist Romania, but I am happy to say that now our country is democratic, and prospering, since the revolution in 1989.
+- I had a lot of energy, and my mom decided to look for a place where I can spend the energy, because I was jumping on the couch and furniture, and I was jumping on the top of the things in the house.
+- Uchimura is the greatest of all time.
+- I wanted to have a free life.
+- It was good to be a kid because I did not realise all the things that came with the success. Going to the Games, I was asked what I expected to do.
+- I have a classic taste with a twist, because classic never goes away.
+- In the '80 Olympics... people expected me to win. I was good enough to win, and I made a mistake and ended up second, which is pretty good, too.
+- Of course I used to smile and laugh in 1976, but not when I was competing. Please show me somebody who laughs when they are concentrating; I always smiled.
+- We only had white socks in Romania. But when I used to come back from the States, I used to bring back pink and yellow socks with all kind of designs, and hair clips and elastic bands for the ponytail that had colourful designs.
+- I don't run away from a challenge because I am afraid. Instead, I run toward it because the only way to escape fear is to trample it beneath your feet.
+- I worked hard in gymnastics since the time I was six years old until I retired at 23 years of age.
+- I remember everything from 1976. I remember I was 14, and I remember my routines.
+- Gymnastics should be popular everywhere; you just need the right person to start the right programme.
+- I made the cover of 'Sports Illustrated,' 'Newsweek' and 'Time' all in one week, and I didn't even know what that meant.
+- I didn't realize that winning the Olympics at age 14 automatically put me in the category of being a celebrity.
+- Maybe that's why I like gymnastics - because I like to fly.
+- When you go out of your country and meet people, you get a wider perspective.
+- See, when I went to the Olympics in '76, the gymnastics people knew that I was good, but everybody else, after I won, everybody was like, 'Where's she coming from? Who is she? What is Romania?'
+- At 14, you think you compete, you retire and you get a job. I didn't think gymnastics was a career that was going to change my life.
+- Now, I have a kid, I have businesses to take care of, I have to travel. I have to sit down... and find a little time for me.
+- Two gold medals and two silver, I don't think is that bad... I think I still did a pretty good job.
+- I used to tell people if they looked at a map, it was right in the middle of the United States. But now everybody knows Oklahoma because of the Thunder and their success. I don't know if I'll get 'Why?' anymore.
+- My parents were very loving, but disciplinarians.
+- What makes me happy is the appreciation of people around me.
+- If I was 14 or 15 again, I would do the same thing. I've done everything. I think I've accomplished more than I had in mind.
+- I basically have my life today as a result of what I did as a child. What did I miss out on? Yeah, I missed not hanging out at shopping malls, I guess, but that is not a big deal because you don't get a medal for that.
+- I'm very good friends with my former coaches. We speak on the phone a lot.
+- It's very hard to get to the top. It's hardest to stay at the top.
+- You should also appreciate the goodness around you, and surround yourself with positive people.
+- I thought I was going to retire at 20, and I was going to be a surgeon.
+- Of course, most people remember that I received the first perfect 10 in Olympic gymnastics competition.
+- Two days after returning from Montreal, I was training again, and I went on to win two more golds at the 1980 Moscow Olympics.
+- My marriage to my husband, Bart Conner in 1996 is my proudest personal moment.
+- Yes, gymnasts aim for perfection, but I never thought about the score. If that's what's in your mind, it will probably mess you up.
+- I cannot change anything, so I don't want to think about what I would have done.
+- People think you have pressure when you are young. It's the other way round, actually.
+- To me, family is what is important. If you don't have it, nothing is going to matter.
+- I was turning actually 15 at the Olympics in '76... I don't think that one year makes a huge difference.
+- I come from a communist country. We learned nothing of lawyers, nothing about rights.
+- Hard work has made it easy. That is my secret. That is why I win.
+- I ended up in the US for a month or so, before moving to Montreal with some Romanian friends.
+- I am a relaxed person. I am very happy.
+- We developed a system in Romania that was very successfully continued for a number of years, but I don't know if it was because of some conflict in the organisation or whether there was government interference... but somehow, they have forgotten the importance of raising gymnasts to be ready for every Olympics.
+- People assume a lot of things about gymnasts - that the girls work too hard, it's way too much for them, they are too young to work so hard.
+- People always accused me of not smiling like my rival Olga Korbut, but that was just my personality. When you're balancing on a nine-inch beam, you have to concentrate. But if you look back at the footage, I was always smiling and waving at the crowd after my performances.
+- We used to exchange leotards with gymnasts from other countries. I don't remember who I got my most prized leotard from, but it was one with a lot of stars on it.
+- My mother never watched me train in Romania. She wasn't allowed, it just wasn't done back then. My training was paid for by the government. My parents were not at the Olympics with me, either. I never expected them to be.
+- Life is not easy for anyone. You have to have ups and downs. You can make mistakes. You learn and try not to make them again. That's pretty much my principle.
+- After retiring from competition in 1981, I did exhibitions and coached.
+- I don't think many people consider in their heart that they have two places that are home.
+- We are not coaching on a daily basis because we often travel with our charity and commercial interests.
+- I was a perfectionist in gymnastics.
+- I remember before the Olympics, I was asked, 'What do you think you're going to do in the Olympics?' and I said, 'I'm hoping I'm going to win a medal, and, if possible, it's going to be a gold one.'
+- The fans had become used to looking toward the scoreboard whenever a gymnast stuck a landing. You could tell they were thinking, 'Was that good enough? Would the numbers read 10.00?' The athlete was looking, too.
+- At some particular time, when I was 14 years old, I've done something that people didn't expect.
+- Everything I do today is because of what I did when I was 14.
+- I like to tell young people to work hard for your goals and live in the moment.
+- It was my mother who got me involved in gymnastics, sending me to classes when I was six just to stop me doing back flips on the couch and destroying the furniture.
+- Ceausescu thought I had only a few medals, but I have a room full of them in Bucharest, between 150-200 in all. They needed suitcases to haul them out.
+- I like risky stuff.
+- I had more pressure when I competed in Moscow. I had no pressure in Montreal because I only went to do my routines and hoping I didn't mess it up when I was on the bar. When I came back, 10,000 people were at the airport and I thought, 'Why?' because, in my mind, I hadn't done anything different from what I used to do in my gym.
+- You can't jump from little things to big things. It just takes time and patience.
+- If I was a boy, nobody would care that I worked out six, seven hours a day when I was 9 years old, no? Why were people always saying 'poor little girl?' I liked to work out and always did more than I was asked to.
+- It feels good when you come to a place like Oklahoma to charge up the batteries. I need that.
+- I like America. I don't want to hurt America.
+- Enjoy the journey and try to get better every day. And don't lose the passion and the love for what you do.
+- I'm the kind of person, I leave a little space for better.
+- I couldn't do everything in the first or second day; it took me years to be able to get to the achievement that I've had. I wasn't perfect from the beginning.
+- I tell people, 'Have you ever been to Oklahoma? There are a lot of nice people there that do wonderful things.'
+- The - I don't want to say older, but the more experienced I get, I treasure and I honor what I've done much more.
+- I know my life story sounds too extraordinary to be true.
+- I'm not a dreamer for, you know, 'I want to go to the moon someday.' I accomplished something when I was young, which was much more than I expected to. My results were much bigger than I ever dreamed about it.
+- Nellie Kim, an Olympic champion from the former Soviet Union, got a 10 right after me in '76, but nobody talks about that.
+- I think that when you are on a four-inch balance beam, you don't care about laughing or smiling or waving to the crowd because you're going to be down in a second.
+- What can you know about life at 14? I have learned a lot since, but you learn slowly. You get hit by many things and try to make sense of it.
+- Gymnastics was my way to travelling the world.
+- I thought celebrity meant Hollywood, that's it. I began to see that does include Olympians. People have so much respect for Olympians.
+- I would love to be in 'Dancing With the Stars.'
+- Once you become an Olympic champion, you are expected to win all the time.
+- I did not even look at the scoreboard when my routine was done in 1976.
+- When I went into the Montreal Games, nobody expected much out of me.
+- I always say, 'When the Olympics are happening, you shouldn't be in any other place in the planet - you should be here.'
+- One of the most difficult times in my life was when I escaped from Romania in November of 1989.
+- I never thought I would be standing here, married to an All-American guy, living in Oklahoma. What a country.
+- I never personally complained; everybody else complained for me.
+- Scoring the first 10 in history was a big deal, but the fact that even an electronic scoreboard could not figure out how to put out a score, it made the story more historic.
+- I wasn't allowed to leave Romania. That made me mad. You just want your freedom. You want your space. You want opportunity.
+- I think a lot of people don't actually know me. They think, 'She's like this,' or, 'She's like that.' They say I have no emotions - I do, but you couldn't see them then. I had to keep them inside.
+- Gymnastics is so huge in the Olympics. There are a lot of fans who want to see more.
+- I like seeing advanced acrobatics, but I also like to see more than tumbling. It's important to combine the artistry of gymnastics with the tough skills. It's called artistic gymnastics. We should stand by the name.
+- I am very highly appreciated in my country, and everybody seems to love me.

@@ -1,0 +1,13 @@
++++
+author = "Gus O'Donnell"
+title = "Gus O'Donnell Quotes"
+quotes_len = "7"
+description = "the best 7 Gus O'Donnell Quotes"
++++
+- It's amazing what you can get on open source now if you actually use the right search engines to find the material.
+- There are too many countries where the values we take for granted in our civil servants simply do not exist. Seeing these values in action, applied with dedication by hardworking individuals, makes me proud to lead a service that is making life better for millions across Britain.
+- If you want to understand what's happening to the situation in a town in Afghanistan, go down to the market. Is it vibrant? Is it safe? That will tell you an enormous amount about the security situation.
+- I'm a bit of a freak for evidence-based analysis. I strongly believe in data.
+- The use of the Internet, the use of Twitter, the way protest movements developed... This is a different world.
+- It is our job to work for the government of the day and so that means working for Gordon Brown as Prime Minister, and we need to do those preparations just to be sure that we're ready for whoever you, the British public, elect and that's core to our civil service values over the last 150 years.
+- Civil servants are fully aware of the challenges the British economy faces. They are, after all, working tirelessly and professionally to support the coalition government through the current challenges, every day, and in every part of Britain.

@@ -1,0 +1,29 @@
++++
+author = "John Tavener"
+title = "John Tavener Quotes"
+quotes_len = "23"
+description = "the best 23 John Tavener Quotes"
++++
+- I used to think there was something dirty about being paid for something which is a sacred thing to do. I can't disconnect the act of writing music from the act of prayer. If anyone tries to stop me working, it feels like someone is trying to stop me from taking communion.
+- I've written a very long piece of music recently, the 'Veil of the Temple,' which lasts about seven hours. It's really a kind of vigil. It takes place during the night, waiting for the resurrection of Christ.
+- I've got great joy from rediscovering Western music. I love Schumann and Chopin, and those amazing symphonies of Bruckner.
+- In his late quartets, Beethoven introduces an element that shouldn't be there, that should be left for meditation, though I love them. I can see that through them came Wagner and Mahler and Schoenberg and Berg. And then came Tracey Emin. And I can see it all as one downward path.
+- My consultant keeps telling me sudden death could come at any moment.
+- When I talk of primordial innocence, I hear it in Sufi music with the nay flute. I see it in Coptic icons, in most traditional art, particularly art of the American Indian. I find the texts extraordinarily beautiful and very childlike and very simple. I've been particularly interested in American Indian texts.
+- 'Canticum Sacrum' is wonderfully archaic. What Stravinsky does is extraordinary. It takes you on a journey from Gregorian chant right through to the modernism of Webern - and all in 17 minutes.
+- Every woman I have known has actually deepened my spiritual awareness. Even if I have been a selfish man and treated them badly... There were two women, I won't name them, who had a powerful religious effect on me. The ancient idea of a muse is there.
+- I've always been aware of mortality because I've always had ill health most of my life.
+- I was having these terrible back pains, and then one day in Switzerland, things got very bad. My wife Maryanna called the hotel doctor, but I don't remember any of this, I was out of it. I had an operation, and I was nearly lost.
+- My way towards God has been to write music.
+- I think there will always be a possibility that God doesn't exist because He is infinitude and into that infinitude must come that possibility.
+- We seem to have lost our contact with the primordial: the idea of - call it divine revelation as opposed to something that's learned by the human intellect - something that, if you lay yourself completely open, and you just open your heart completely, something will actually come into it.
+- 'The Whale' was in the category of so-called serious music, and yet it brings together a wide series of musical styles. It was influenced by people such as The Beatles, the spirit of the times, and I think 'The Whale' certainly had a pop element to it.
+- The music is something outside myself that's also inside myself... Music and a sense of another presence always went hand in hand. Even when I was three, I would improvise music, and my maternal grandfather would act as an audience and used to applaud. I would imitate things like thunder and rain.
+- I don't hate pop music. I liked the Beatles, but then, I knew them.
+- Suffering is a kind of ecstasy in a way. Having pain all the time makes me terribly, terribly grateful for every moment I've got.
+- The thing I regret most about my life are those inane photos of me with icons. They used to come down here and dress me up, and I just tolerated it. It's my fault. But I shouldn't have done it. They literally brought down costumes, candles, and icons! It was unbelievable stupidity.
+- Hildegard von Bingen conveys spiritual ecstasy, if we're talking of Western music. What bothers me about Western music is that it doesn't have an esoteric dimension in the way the music of the East has, whether it be Byzantine chant, the music of the Sufis, or Hindu music.
+- I think I've been very lucky all my life because the writing and the faith seem to go together.
+- Every time I have a hit, I buy a Rolls.
+- I don't think Beethoven expresses religious truth. He expresses a human truth.
+- The path I follow is still an Orthodox path. You have to follow a path; otherwise, it becomes a little bit new-age, a bit of this, a bit of that.

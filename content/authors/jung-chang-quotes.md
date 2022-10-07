@@ -1,0 +1,26 @@
++++
+author = "Jung Chang"
+title = "Jung Chang Quotes"
+quotes_len = "20"
+description = "the best 20 Jung Chang Quotes"
++++
+- It's taken us 10 years, and it was constant excitement. I was constantly shocked by how evil he could be. Mao was very, very shrewd but he didn't have human feeling.
+- I always wanted to be a writer.
+- I remember when my mother pointed to a stone, and she said this was the kind of stone people used to place on the feet of the baby girls to stop them trying to climb away and unbind their feet.
+- I no longer have the terrible nightmares that I used to have. Mao had just died in 1976, and China began to open up. For the first time scholarships to go to the West to study were awarded on academic merit.
+- When I was in China, Mao was Chairman, and parents were terrified to tell their children anything that differed from the party line in case the children repeated it and endangered the whole family.
+- What has marked Chinese society is its level of cruelty, not just revolutions and wars. We ought to reject it totally, otherwise in another upheaval there will be further cruelty.
+- If children were brought up to become non-conformists it would only ruin their lives. So parents all over China who loved their children told them to do as Chairman Mao said. It was not possible to tell them anything else.
+- In certain areas where the media are still controlled, the changes have come to a halt, which is a very frustrating situation. I would like the changes to take place throughout China.
+- While I was writing Wild Swans I thought the famine was the result of economic mismanagement but during the research I realised that it was something more sinister.
+- I feel perhaps my heart is still in China.
+- I like to have Chinese furniture in my home as a constant and painful reminder of how much has been destroyed in China. The contrast between the beauty of the past and the ugliness of the modern is nowhere sharper than in China.
+- The Chinese seemed to be mourning Mao in a heartfelt fashion. But I wondered how many of their tears were genuine. People had practiced acting to such a degree that they confused it with their true feelings.
+- Although my book is banned I am still allowed to go to China and travel. There is no longer the kind of control that Mao used to have-there have been deep fundamental changes in society.
+- I would love mainland Chinese to read my book. There is a Chinese translation which I worked on myself, published in Hong Kong and Taiwan. Many copies have gone into China but it is still banned.
+- For anyone to open their heart, they need the right atmosphere, and something to prompt them. For my mother it was her trip abroad: she was in a very relaxed, understanding environment. I was very sympathetic towards her.
+- I was not allowed to take notes but my friend and I memorised those two and a half pages. Most people talked to me because of the warning. They knew this book was not going to be the official line.
+- We were not treated by our own government as proper human beings and consequently, some outsiders did not regard us as the same kind of humans as themselves.
+- At the age of fifteen my grandmother became the concubine of a warlord general.
+- I think because of their terrible past, particularly this century, the Chinese have come to accept cruelty more than many other people, which is something I feel very unhappy about.
+- China is more prosperous than before. The people have better lives but they are not happy and confident because the scars are still there.

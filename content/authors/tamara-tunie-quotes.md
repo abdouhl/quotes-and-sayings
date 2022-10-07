@@ -1,0 +1,51 @@
++++
+author = "Tamara Tunie"
+title = "Tamara Tunie Quotes"
+quotes_len = "45"
+description = "the best 45 Tamara Tunie Quotes"
++++
+- I believe that you can always learn from observation.
+- The first thing I do is brush my teeth - we like to start the morning with fresh breath - and put on my pajamas and meander down to the kitchen for a glass of orange juice. No coffee. No caffeine.
+- Here's how I look at it: Life is full of challenges. Everybody has them. For some, it's health or family crises. I had a financial challenge.
+- I still enjoy doing the things I've always done, like going to a monthly dance party at a club downtown.
+- I've always come into a show when the show was already up and running.
+- I took the whole college prep trajectory, and then in my senior year of high school, I decided that performing was something that I had always done as a kid, and I loved it... I said, 'This makes people happy when I do this, I feel good, I get to pretend and explore other areas and learn so much'.
+- Living in New York, for me at least, just keeps it very real and keeps my feet firmly planted on the ground.
+- I was the first African-American woman to play Maggie in 'Cat on a Hot Tin Roof.' It was at the Virginia State Theatre, and we turned Richmond upside down.
+- We sit and read the paper in conjunction with having a little breakfast. Usually fruit salad, or I make myself a smoothie with rice milk, coconut water and yogurt.
+- I grew up in Pittsburgh, and regularly, my parents would take us to the Holiday House Supper Club to see acts like Nancy Wilson, Sarah Vaughn, Ben Vereen, Freda Payne, Stephanie Mills, and The Temptations, to name a few.
+- I wake up late, say 10 or 11, because we've usually been out and about town until 2 or 3 A.M. listening to music at the jazz clubs or hitting the jazz clubs post-theater.
+- I'm all about the drugstore beauty products. They're affordable and get the job done.
+- There was a time, actually, when I hadn't been singing, and I'd lost a lot of my ability. My range had shrunk.
+- I adore the designer B. Michael's curve-flattering gowns, but there is nothing better than jeans with a crisp white shirt.
+- Chuck Cooper is a friend, and I adore him. He can do so many things.
+- I am always happy to use my song and dance training.
+- I've lived in New York for thirty years now, but I'm a proud Pittsburgher, and home is home. My family's still in Pittsburgh.
+- My Native American heritage was not embraced by our family, and we grew up African-American, so I didn't have a lot of access or history to that line of my family.
+- I missed singing. I missed performing in a nightclub.
+- You have to continue to grow and evolve as individuals in order for your marriage to evolve. It takes two pillars to support a structure. If those two pillars become one, you have a structure that teeters.
+- I have Native American blood. I have African blood. I have European blood.
+- The key is allowing your partner to be who they are and not having expectations that really have nothing to do with the person you married.
+- I believe in saying 'yes.' I love to work, and I always believe that the schedule can work out if everything is willing to allow it to work out.
+- I grew up in a funeral home. Both my parents were morticians.
+- Show business is fickle, and though I have been blessed with a healthy career, who knows how long that will last?
+- I'm Irish on St. Patrick's Day. I'm Italian on Columbus Day. I'm a New Yorker every day.
+- Even though you're married, you're still individuals. You still have to grow and nurture your individuality.
+- Fortunately, I'm known as the hardest-working woman in showbiz, not to compete with James Brown. I've always been a multi-tasker.
+- I always watch the work I do.
+- When I first moved to New York, all I did was musical theater. That's what I studied at Carnegie Mellon University.
+- I'm a rabid Steelers fan: I'm originally from Pittsburgh. So if the Giants or Pittsburgh are playing, the rest of Sunday is all about food and football.
+- I was very good in all the maths and sciences.
+- When I first got to New York, all I did was musicals. After a few years I had to make a conscious choice to close the door on musicals, because I was getting pigeon-holed as a musical theater performer.
+- I appreciate being able to give back to charities I care about such as the American Diabetes Association - my older sister passed away from diabetes - and Figure Skating in Harlem, which teaches young girls about confidence, focus and goal-setting.
+- I just think there are enough hours in the day. If you just focus and dedicate yourself and approach each task as it presents itself, you can accomplish a lot.
+- The stage and working in front of a camera are two completely different mediums. Each requires different techniques.
+- Understand that the time in the audition is your time. Really own it and take control of it. And do what you prepared. Focus on really executing what it is that you intended to do.
+- I wanted to make a home that was similar to the kind of home that my mother made. To be able to create something like that in my adopted city, New York City, one of the toughest cities on the planet, is really special.
+- All you have is yourself and what you have to present, and just focus on that. And if you can walk out of the audition and say to yourself, 'I hit all my beats,' 'I accomplished my emotional honesty,' or 'I remembered my words,' then that's winning.
+- Working on a film is so great because you have the luxury of more time when you're on a movie than when you're on television.
+- I want to play Eva Peron. I've already done a lot of Shakespeare, but I'd like to do Lady Macbeth.
+- I grew up in a funeral home, born and raised, and everyone was always like, 'Well, what was that like?' and I was like, 'It was normal', because it's all I knew.
+- I'm always happy and most at home on the stage. I love film and television, but I love live performance... your immediacy with the audience, it makes all the difference in the world.
+- I truly believe that when a person makes a concrete decision and takes action towards a goal that they've set, that the universe will step in and provide opportunities.
+- I've been in this business a long time, and I'm very clear on what is real and what is fleeting.

@@ -1,0 +1,93 @@
++++
+author = "Manuel Neuer"
+title = "Manuel Neuer Quotes"
+quotes_len = "87"
+description = "the best 87 Manuel Neuer Quotes"
++++
+- Obviously, I couldn't imagine that my career would go so well. When I first started, I wanted to play out of goal. But there was no goalkeeper, and the coach put me in goal.
+- I love to tackle, especially when the grass is wet, but my main aim is to be a complete goalkeeper who can do everything.
+- Before important games, I don't change my preparation.
+- It's easier to fine tune in club football, and you have the chance to win the Champions League every year.
+- The calmness and confidence I take into matches has an effect not only on our rivals but also on my team-mates, who are counting on me.
+- You have to feel comfortable - then you can perform better.
+- I love playing football every day. I love working hard, I love training, I love the games; I love the challenge. As long as that still applies, I don't see any reason to call time on something that makes me so happy.
+- If you look at the history of Manchester United, they are always a big side, so there is no time of underestimating them.
+- As a goalkeeper, you like to be called upon.
+- Schalke are my club. I used to stand on the terraces as a fan, and I've realised my dream of making it as a pro right here at my club.
+- Personal success means nothing if it isn't aligned with the success of the team. I consider myself to be a team player more than anything else.
+- Sometimes you can say it is boring being in goal, but what is important is I am in communication with the defence.
+- For me, it's more important to win a team award, like a World Cup.
+- Lewandowski is one of the world's best strikers.
+- I have a good record in shoot-outs. In such moments, I'm always confident of making at least a couple of stops; I always feel the taker is under more strain. Worrying is the kicker's job, as he's expected to score, while I have nothing to lose.
+- As players at Bayern, we're not interested in any boredom - we're interested in picking up three points each game.
+- It's a bitter thing to have one or more defenders missing.
+- If I think I will get the ball, I go out. I can't stop halfway because the goal is empty and the player would have the opportunity to shoot. You make the reaction, and then, of course, you have to be sure to get the ball. But it's years of practice. You can't say from one day to the other, 'Now I will do it,' you know? You have to feel it.
+- I do everything I can for the team's success.
+- I am a professional player, and I will naturally do everything to be in goal.
+- I think I am capable of captaincy.
+- FC Bayern are only my second club.
+- On the pitch, I conduct and organise. I'm loud.
+- The coach put me in goal, and back then, we were playing on bone-hard ground: red ash; we even trained on black ash, which was worse. That's not easy for a goalkeeper. My mother was always taking out her sewing kit for the countless holes in my training pants. For a long time, I had to buy my own gear.
+- I know that I often take risks, but it is always for the purposes of the team.
+- To be a modern goalkeeper, I have to think offensively, to initiate our attacking moves safely and securely.
+- I used to cry when I let in a goal. I always thought I was to blame because I was the last man.
+- Every player has different skills.
+- I feel fit and well - I know that I have to look after my health, but turning 30 is no reason to start considering the end of my career.
+- I consider that part of my job as a pro: to know who you're up against and how the attacking players play, what kind of characteristics they have, their qualities, how they move, their preferred foot.
+- It's more difficult to achieve something with the national team because players from several clubs get together and less frequently.
+- I try and help my team-mates as best I can, and I lead from the front, on and off the field.
+- It's obviously very tough for any team to lose on penalties.
+- As for being the best goalkeeper in the world, it's been written occasionally, but I'd never say it myself.
+- I do not like the red carpet; I prefer the green pitch.
+- Some young players think that they want to be like Manuel Neuer.
+- I think as long as I feel good and am able to perform on a high level, I will keep playing because I love football so much. After that, I have many options but haven't set any goals.
+- As a goalkeeper, I talk a lot to my fellow players on and off the pitch.
+- It's difficult when you don't take part in team training and have to train alone.
+- In my opinion, it is important to have a stable defence.
+- I'm the 11th field player.
+- We know from experience that anything can happen in games against strong opponents; nuances can make the difference.
+- In Germany, Jens Lehmann was a model style for a German goalkeeper.
+- I got my first football when I was two and played my first proper game before I was five. So nothing else was ever an option!
+- In life, I'm a guy who likes to drive a car quite fast, but I wear a seat belt at the same time.
+- In Germany, the football association is the best.
+- I love to compete with the very best. That's why I feel great at FC Bayern.
+- For me, the main thing is that I continually improve my game and make sure I keep setting the bar high.
+- A keeper has to adjust his game to the team. If the team moves further up, he has to do the same. It's nothing I've invented.
+- What's mostly left after a match? The scenes in front of the goal where the attackers are the highlights of the play. But doing the spectacular is not particularly important to me. I just want to play for my team.
+- First of all, I am and I remain a goalkeeper, but I try to be involved as much as I can and to help the defenders. I try to read dangerous situations in advance.
+- For me, the Bundesliga is a great league.
+- It's a great thing to play a final in your capital city.
+- I want to win lots of titles.
+- It's obvious you always have to give everything in order to succeed. That's why playing at 80 per cent isn't enough - not against a 'normal' Bundesliga team. You always have to work hard.
+- I've trained under a lot of coaches and always picked up elements that develop a player.
+- The Bundesliga is a lucrative league, and in Germany, the best club is Bayern, and I wanted to play for the best club in Germany.
+- You cannot compare warm-ups with World Cup games.
+- The team is the star at Manchester United.
+- I have three goalkeepers who really inspired me. Jens Lehmann was my idol because he played for Schalke and was really progressive in the way he developed the position in Germany. I also have a lot of respect for all that Oliver Kahn achieved with the national team. Outside Germany, I would add that Edwin van der Sar was a big role model.
+- A fit player has good and bad times during a season, and you have that in rehab, too.
+- I have a lot of respect for Messi and for everything that he has achieved. He is very humble. But it's crucial to show authority when we meet on the pitch and show him who's boss.
+- I am very proud to be the captain of the German national team.
+- After matches, the highlights show mostly the goals, scoring chances, assists. The spectator tends not to remember that, as a goalkeeper, I make difficult saves at great risk and start moves with my efforts.
+- Bayern are a club where success is demanded, and second place isn't particularly appreciated. We have a history and culture to respect.
+- I am a sportsman, not a brand ambassador, besides being the first goalkeeper of Adidas.
+- Food is a passion for me, especially Italian cuisine. I prefer to have somebody cook for me, but I can do some very nice pasta dishes.
+- With Bayern, we want a lot of ball possession and to control the play, so I operate sometimes like the 11th outfield player. Thus I am included a lot into the build-up play and have a lot of touches of the ball.
+- I generally don't think one's age is all that meaningful - there are 50-year-olds who still act and think like children.
+- I am convinced by my style of play, so I take risks without much hesitation.
+- As a keeper, you can't be afraid.
+- I am always motivated.
+- At Bayern, I was used to coming out of my box to try and clear up dangerous situations. The World Cup was just another platform, so it gave other people the chance to see me who don't watch German football.
+- I'm not the sort of person who poses in their underwear.
+- Many things are necessary if you want to win games.
+- One of the great things about being a professional football player is visiting countries and seeing cultures you might never see.
+- Winning the treble was confirmation for me that joining Bayern rather than moving abroad was the right decision.
+- I took responsibility in Munich from the beginning. But I could not walk in with splayed elbows into the club and say, 'Here comes the Schalke captain.'
+- I am someone who takes a lot of time before making a decision and then has to be fully behind it.
+- I think at the age of 30, you still have youthful aspects, but at the same time, you have gathered enough experience to know how to succeed in life. I like this mixture.
+- Nervenstarke means that no matter the situation, I have to show my teammates that I remain prepared and confident and there for them. They have to feel my Nervenstarke.
+- It's difficult to say you can replace Franck Ribery one on one with another player.
+- The goalkeeper always starts again at nil, even when you're 2-0 down. It always starts again at scratch. It's a completely mental thing, and I keep reminding myself of it during matches.
+- I always want to play at the highest level; that's the Champions League.
+- You can plan, but what happens on a football field cannot be predicted.
+- In the past, goalies weren't even part of the team. They had their own dressing room. They didn't speak with the other team members. They were lone warriors.
+- I have always been interested in finding new ways to play and have looked at handball keepers and ice hockey goal-minders. It helps me.

@@ -1,0 +1,32 @@
++++
+author = "Jim Capaldi"
+title = "Jim Capaldi Quotes"
+quotes_len = "26"
+description = "the best 26 Jim Capaldi Quotes"
++++
+- Everything that Traffic ever did, I'd give Steve a complete lyric, titled, written out with the verse, the bridge, the shape and rhyme and then Steve had to figure out how the meter of the words would fit musically.
+- I think you do better when you are really up for it, cause passion goes up.
+- Far From Home was also my idea from a magazine I'd seen.
+- There I met Gordon Jackson and Dave Meredith who were playing in local bands.
+- I have to confess that a strong contributing factor was that I had just taken what was probably the first acid ever made, given to me by a guy called Johnny Fellows, who had just returned from America.
+- They gave it to us for about five bucks a week, and we just went there to live. Probably the first band that ever did that back then and it became the famous cottage.
+- Guys would hang out in groups just to be with the music.
+- I turned everybody on so, psychologically, I guess I was pushing the boundaries creativity.
+- I have always had a tremendous amount of energy and any band I was ever in from the age of fourteen, I would always be the one who would describe the future and vibe everyone up.
+- You know, I had the ability like a catalyst to really get everybody hyped up.
+- Mr. Fantasy was the only song that was scribbling on a piece of paper.
+- We played at a club called, the Elbow Room. Don Carlos, the nightclub owner, was very hip and a very important person who made a big impact on my life.
+- Because I would just tell everyone it was going to be great and just put that belief in them.
+- I was half asleep lying there writing this lyric in my head at about 3:30 in the morning. I woke Steve up with this idea and then we went into the living room where there was a little upright piano and finished the song. I wonder where that piano is now?
+- You have to have a strong title. It's got to say something.
+- We all ended up jumping up and down, hugging each other when Ali won; cause Ali is the greatest.
+- So the name of a group has to say something. The name has to be strong.
+- We all had a desire and appreciation for such a wide range of music.
+- Traffic was very, very free. It was great.
+- After that, I specifically started writing lyrics. I would like sweat and think and get it all together.
+- You try to be moody when you're young and it had a good ring to it.
+- This was an important part of my life. But it was also sad that we didn't play there, cause we had such alot of fans that were waiting for us and Brazilians are great people. It's now my second home.
+- This kind of music was just hitting England, so we were getting this following in clubs in Birmingham just cause we were trying to do something different.
+- For me, naming bands was the forerunner to really writing lyrics, because I work off titles.
+- But then you have to write a song, so at that point, I picked up the reins and started to write lyrics.
+- We loved everything. We wanted to be able to do anything.

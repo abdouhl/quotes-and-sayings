@@ -1,0 +1,66 @@
++++
+author = "Kimberly Bryant"
+title = "Kimberly Bryant Quotes"
+quotes_len = "60"
+description = "the best 60 Kimberly Bryant Quotes"
++++
+- I do believe that most startups who develop applications and digital products design 'towards the middle.' By this, I mean they design their products to reach the broadest consumer base possible, which is a sound strategy in some respects.
+- You can absolutely be what you can't see! That's what innovators and disruptors do.
+- Women and girls are naturally agents of change. If we teach one girl to code, she will go on to teach more - we've seen this in our own programs and workshops around the country.
+- It's critical for girls to see role models like myself that are in technical fields. Looking for ways to come in as speakers or do a career day, or just find a way to connect with students or invite students to their workplaces to shadow them for the day... is critically important.
+- I hope to literally change the world with Black Girls Code by changing the paradigm which produces the current monolithic ecosystem in technology.
+- It's always been my dream to be an attorney, and I'm that weird breed of human being that loves being in a courtroom.
+- For me, as a woman in one of the less diverse fields - electrical engineering, which is what I studied in college - it was hard to persist and really build a career. Some of the things I experienced were really scary, and they weren't experiences that I wanted for my daughter.
+- While there is still certainly much more work that needs to be done, Lyft actually believes in increasing diversity and inclusion within their workforce, and also, they believe in being a strong supporter of that in the community.
+- I had originally wanted to be a lawyer. Even when I went to college and majored in engineering, I still thought I'd get a law degree. Then I started taking electrical engineering classes where I saw some of the innovation happening around computers and solid-state technology in the mid '80s.
+- Some of the perceptions from my professors were that I was less than or that I wouldn't be able to compete or wouldn't be able to meet the same bar as my peers. I don't want that for my daughter or for any of the girls who come into our program.
+- As a little girl growing up in the Deep South, my mother told me that my future lay in my education. And she was right.
+- I don't think that the trickle-down theory of diversity ever really works.
+- While there should be collective efforts to increase tech inclusion overall, the industry must work to specifically attract and retain women of color.
+- The images you see in media are vital to impacting not just what the world sees in terms of who can be a computer scientist, who can be techie, who can be a geek or who can be a creator; it also impacts the girls and what they internalize.
+- We really pride ourselves on the notion that what makes our program special is that we really do our very best to make sure that everything we do is culturally responsive and relevant.
+- Technology can be biased in how it's developed if coders aren't careful. There are apps that are clearly made by companies with no people of color on their team.
+- If people are not tied to the work from a mission-driven focus, I don't think you're going to motivate them.
+- Jobs in technology have the rapidest rate of growth. The need for computer science is so incredibly large, and it's important that girls of all colors have the opportunity to move into that field.
+- We want to see companies making a good faith effort and putting some tangible initiatives behind their pledge for diversity.
+- We understand bringing girls into the tech space is about giving them skills to create social impact and change in their community.
+- I did not grow up around computers, so technology was not a tool used every day in my household. I was drawn to computer science due to the creative nature of programming and the technology focus.
+- If technology is designed mostly by white males, who make up roughly half our population, we're missing out on the innovation, solutions, and creativity that a broader pool of talent can bring to the table.
+- By reaching out to the community through workshops, hackathons, and after-school programs, Black Girls Code introduces computer programming and technology to girls from underrepresented communities.
+- I had been tracked from grades 1 through 12 in an accelerated program in the public school system in Memphis and had done well in math and science classes. When I was getting ready for college, my guidance counselors suggested I look into engineering.
+- We're creating this new breed of techies who are going to be the ones starting the tech companies of the future.
+- I definitely think there needs to be more of a focus and movement on getting coding taught in schools. There's really only so much after-school programs like Black Girls Code can do to really drive that change. And those classes shouldn't only take place in high school. We should make sure that we teach kids about coding at an early age.
+- I'm looking to see more women of color not only in companies in technology, but also creating companies.
+- Women are both talented and innovative thinkers and tend to use computer science as a tool to solve larger problems.
+- There's not enough said about the beauty of being able to focus on what you do well.
+- We need to really focus on getting this digital equity across the board in all of our public school systems, for both girls and boys.
+- Girls who participate in Black Girls Code think of themselves as leaders.
+- One of the biggest lessons that we hope to model for several folks, including some of the young women of color who come to me, is the value of understanding your worth, standing up, and demanding the best for yourself and not taking less.
+- Few of my classmates looked like me. While we shared similar aspirations and many good times, there's much to be said for making any challenging journey with people of the same cultural background.
+- Our goal is to really have young women of color embrace the tech marketplace and the tech innovation space as both leaders and creators.
+- I was doing a lot of networking in the Valley, and I found that it was not a very diverse environment, and most of the conferences and meetup events I went to, there weren't many women or people of color in those rooms.
+- I don't think quotas are necessarily an evil. I think when we look at industry in general back to the '60s and the '50s, the way more diverse people like my dad and mom's generation were able to break into industry was because of affirmation action, because of quotas.
+- When you've already experienced great challenges in your career, it gives minor setbacks a different perspective.
+- We want to create a community of girls who will be empowered to become catalysts for transformation in their communities.
+- When I started Black Girls Code in 2011, there weren't any programs that had a foundation in communities of color to teach our kids about technology.
+- I loved school, was an exceptional student, and found a passion for math and science that led me to Vanderbilt University, where I discovered the world of electrical engineering. I did well in college, loved the work I was doing, and soon found myself climbing the corporate ladder after graduation. I was one of the lucky ones.
+- You cannot possibly be reaching the needs of your consumers when the makeup of your company is not reflective of the community you serve.
+- If I understood the great opportunities that are available to women and underrepresented minorities in the field of tech I would have made the transition from traditional engineering to the technology field much earlier in my career.
+- As the coding movement continues to grow, the common narrative of the white male geek as the predominant influencer on geek culture will erode.
+- Gender is not central to coding.
+- We like to say we hope to be like the Girl Scouts of technology, having many different chapters in many different states as well as many different countries.
+- Although we use a lot of technology and consume a lot of technology as people of color, we're usually not the ones at the tables doing the creating of it.
+- Girls are almost always socialized to be perfect: 'Smile, do well in school, don't take too many risks.'
+- I believe it is incredibly important for women and people of color to become the builders and creators in technology. In order to do so, we need to know how to code or, at least, know the language of coding - what I like to call 'code speak.'
+- Our camps and workshops offer a space where girls of color can learn computer science and coding principles alongside their peers, with mentorship from female role models who have established themselves in tech fields where women, and minority women in particular, tend to be underrepresented.
+- My first introduction to computers and computer programming came during my freshman year of college. I majored in electrical engineering with a minor in computer science, so I learned during my required courses at Vanderbilt University.
+- We want to teach girls of color the skills they need and create a diversity of voices into the tech community.
+- I'm horrendous at capturing a decent selfie.
+- I grew up in a close-knit community where I was expected to excel, and it was a different experience when I got to the university. There were very few students of color, and those numbers were extremely low in the school of engineering.
+- We are not generally included in that narrative - people of color - definitely, women of color don't normally fit that narrative that has been built around the whole image and the whole story of the Silicon Valley.
+- For me, if a company is really committed to diversity, that means everything. That means gender diversity, that means sexual orientation for me, that means race, ethnicity.
+- I think my biggest mistake was deciding not to go to law school directly after I graduated from college.
+- I didn't want my daughter to feel culturally isolated in the pursuit of her studies as I had as a young girl. I didn't want her to give up on her passions just because she didn't see anyone else like her in the classroom.
+- I think that if companies build for diversity from the beginning from the ground up, that's definitely the ideal state for how to build diversity into your company.
+- We need to have women as role models, both inside and outside corporate America's leading tech companies, leading the path for other women.
+- Technology is a ubiquitous part of our everyday lives, and the accompanying geeky lexicon has infiltrated every facet of our modern day society.

@@ -1,0 +1,27 @@
++++
+author = "Mick Ralphs"
+title = "Mick Ralphs Quotes"
+quotes_len = "21"
+description = "the best 21 Mick Ralphs Quotes"
++++
+- The parrot's so funny. He imitates me and I don't even realize he's doing it. I'm walking around the house talking to myself and whistling and the next day he's said something I've said... it's scary you know?
+- Santa Fe is a great place which people don't get there often, but it's like a unique place.
+- One of my big inspirations was Chuck Berry, and his playing was always about the rhythm and the lyrics. So I've always been that way in my playing, really.
+- Guitar is great for a certain thing, but a piano is so much more expansive.
+- I've got a Range Rover. It's brilliant actually but it's manual.
+- Since I've got on the Internet, it's opened a whole world of wasted time for me. My wife says she's an Internet widow.
+- I think that as you get older, you mellow out a lot more. Having been through the ups and downs in life, I feel more qualified to play the blues.
+- Put me on stage and I'm happy.
+- I have been playing a lot of keyboards, especially in the last five or six years. I suppose it gives you more scope than the guitar, although it does tend to make you write a different way.
+- I've never had a plan - it was just to try and get with the people you like to play with, and try to do the best you can.
+- I didn't like Los Angeles very much but I like San Francisco.
+- I'm not a country picker, really - I like a nice, beefy, raunchy sort of sound.
+- I've had Range Rovers for a few years actually.
+- When I did it, I was a starving musician in London in a basement flat, but a simple tune with the right singer or the right situation can become very well liked and accepted. I'm only too pleased to say it happened with that one.
+- That's me. I can be me a bit at home, but I'm kind of like a square peg in a round hole.
+- This kid's excited because he's with Bad Company and I'm excited because I'm with Chuck Berrys' son.
+- I'm ready for some rock 'n' roll action.
+- That's what I find with any good song, you just have to let it happen. Out of about twenty songs you might write, one of any significance. It might be thirty or forty, but I just keep churning them out and churning them out in hope that one of them will stick.
+- We just sang real simple songs in a simple way that got to people. We didn't try to tart them up with orchestral arrangements and all the stuff. We were all blues fanatics. We like R+B and blues and simple, gut-feeling music.
+- It's funny, when I'm not on the road or doing stuff with Bad Company - or whatever- I've always written songs galore... a lot of stuff people don't even hear.
+- But I find that the keyboard is the complete instrument you know?

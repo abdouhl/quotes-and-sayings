@@ -1,0 +1,74 @@
++++
+author = "Mase"
+title = "Mase Quotes"
+quotes_len = "68"
+description = "the best 68 Mase Quotes"
++++
+- With me, I always try to give my all to my hood, put my hood on my skin, man. I love it.
+- God is able. God is real.
+- Rap has always been about using your talents for doing more.
+- I gotta do what make me happy.
+- I would say 'Harlem World' is a cult and at the end we're gonna have everybody believin'.
+- There are a lot of styles out there and, basically, people make a choice.
+- There is a way you can make incredible music without following the so-called formula.
+- God's word is for everyone.
+- I'm not the kind of person to put all my eggs in one basket.
+- Once God puts something in your heart - you know, God talks to everyone different.
+- A lot of people have money, but they don't have peace with it. They can't sleep. They need bodyguards every day.
+- Atlanta has always been my favorite place to go, even when I was 'in the world.' When I came down here, people used to show me a lot of love.
+- I can only do music if I can do it the way I can do it.
+- It takes a great person to walk away from money.
+- I don't want to do music in a box, like everybody say what I can't do, 'he can't say this.'
+- I like J. Cole when he's not taking shots at me.
+- I'm not trying to live anybody else's life.
+- I see different artists making clothing lines and people respected it.
+- I love Kanye, I love what he does musically, I love his ability to push the envelope.
+- I just didn't want a musical side of me being prosperous but I'm dying on the inside.
+- Somebody sold millions of record before. I want to do something that hasn't been done.
+- I don't get into record beef. That's the wackest beef. That's not even a beef; that's entertainment. Might as well be a wrestler or something.
+- That's the one thing you never judge, another man's spiritual walk. I wish more people knew that, because when you begin to talk about a person spiritually, you invite all types of bad things to happen to you. That's the worst thing you could do, because when you do that you're actually saying that you don't respect anything that's of substance.
+- I like to be around people that's not afraid to be different.
+- I could only do music if I could do it the way I could do it. That's what be making me stop, I don't wanna do music in the box.
+- I'm the only artist who got paid by Puff, like really, really, paid.
+- I know God touched my heart to lead the youth back to Him. A lot of people can do it, but He chose me to do it.
+- I'm not with G-Unit for protection. I chose G-Unit because I felt like that's the place where the people would be more supportive of a person that is considered a rebel.
+- I actually would say when it comes to something like a person's spiritual walk, it's not really about what I think.
+- What I have inside of me is more powerful than anything the world could ever offer me.
+- I try to help everybody that I can.
+- I thought I could do more than rap and I just so happen to be right.
+- God called me to be rich.
+- I want the ladies to respect themselves.
+- Mase was never a filthy artist.
+- You make money at anything you're good at. If you're a good doctor, you make money.
+- Harlem World' is all about me doing my thing.
+- My biggest fear was, who would I be without music?
+- Nobody gets as many chances as I got.
+- I don't want to be a rap star. I want you to see me and just say, 'That's Mase,' not 'That's Puff Daddy and Mase,' you know.
+- You can't do gospel and rap. Either you're of the gospel music, or you're a rapper. You can't put the two together. You can, but is it right? It's questionable.
+- I only gave back the devil the stuff I got serving him.
+- I don't do the Mohawk thing. I thought about it and said, 'Nah. I'm too cute for the Mohawk.'
+- I was always a hard working basketball player.
+- I wanted a fulfilling life, what every person wants. And then I just made a decision to leave music to venture out and go after what it is I always wanted, and that was total life prosperity.
+- Everybody knows who I am.
+- What I have is a personal relationship with God.
+- Basically, God is everything.
+- I just always said I'm going to work my hardest and whatever God has meant is going to happen when God lets it.
+- I'm not really into all this trying to be No. 1, trying to be King of New York. I'm not with that, I'm just trying to do the best I can and know at the end of the day I gave it my best.
+- It's time for us as Black people to realize that we can do more than one thing.
+- I used to be real cocky about what I do but then I realized it's not me, all of this is really God's gift and whenever He want to, He can take it away.
+- Money is not of the devil. It depends on who's controlling it.
+- Let me tell you something: being broke ain't going to make nobody come to the Gospel.
+- I think a lot of rappers limit themselves by doing the gangster movies and that's stereotypical for a rapper.
+- I think to put someone in a box is somewhat narrow-minded.
+- I'm not just a rapper; I'm an intelligent young man. But being able to give my mother everything she's ever wanted, I could care less about being famous or the money; that's my dream. That's all that matters to me.
+- I just want everybody to have fun. When I came into rap, that was my whole inspiration. That's what rap used to be about.
+- Before I got signed to Bad Boy, I grew up listening to Snoop and Tupac and my hood was all Tupac driven.
+- I think I overachieved.
+- We gonna teach the ladies they can still respect themselves and still be beautiful.
+- Puff always does great collaborations, it's just you need that flair to make it work.
+- Why is it Christians are more confident in the Devil taking me more than Christ keeping me.
+- I look at Puff Daddy as somebody that gave me a chance to prove the whole world wrong. Cause when I used to think about rap, everybody would say, 'Well, you talk too slow,' or, 'You rap too slow,' when in reality, that was my uniqueness.
+- Once I get to a certain level, I don't want to rap all my life.
+- I don't pursue women - they pursue me.
+- I think if you want to be groundbreaking, you have to do something that's never been done.
+- All great artists have some spiritual backing.

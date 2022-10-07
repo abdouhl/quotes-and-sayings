@@ -1,0 +1,106 @@
++++
+author = "Massimiliano Allegri"
+title = "Massimiliano Allegri Quotes"
+quotes_len = "100"
+description = "the best 100 Massimiliano Allegri Quotes"
++++
+- Padoin is proving himself to be a great professional. He's tactically intelligent, and it's tough to play in front of the defense.
+- We must play for everything until the end.
+- You can play Dybala and Ronaldo; it just depends on the situations.
+- You have to focus more in Serie A, because in the Champions League, focusing happens automatically, as there are not as many matches, and they are all tough.
+- Life is full of surprises, and you need to be ready for everything.
+- I see things differently: you need to take risks in life.
+- One doesn't win by chance. One doesn't lead a business to make a €1 billion or €500 million if he is a moron.
+- I am always pleased to talk about Buffon. He is an extraordinary player, a professional with values.
+- The Champions League mustn't be experienced like an obsession because, when you have an obsession, you never win!
+- In Italy... people think that they can win matches with only systems. I say this is impossible because, otherwise, there wouldn't be players that cost 100 million euros and others who cost 1 million.
+- Evra, besides being a great professional, is a great person.
+- I always said that VAR is a very important tool on objective and important decisions.
+- There are many good players, in Italy and abroad.
+- In every match, there are difficult decisions; sometimes they go in your favour and sometimes against. You need to be able to accept them.
+- Nothing is ever certain in football.
+- In Italy, it is really hard to win the Serie A.
+- At the end of the day, in football, you need more than technique to win. You need other values that can push you on during difficult times.
+- Ronaldo plus Juventus does not guarantee the Champions League. There are so many components in football.
+- I train with joy and fun, because if I'm not persuaded by the squad at my disposal, I try changing things around, moving players into new positions, and trying something different; otherwise, I get bored.
+- Sir Alex Ferguson already has his place in the history books; he is definitely one of the best coaches ever.
+- It's no simple task getting the very best from each and every member of the squad.
+- Unfortunately, in football, sometimes you think that things might go one way, but eventually, they take an unexpected turn or head in another direction.
+- I've learned that football is a stupid sport for intelligent people because the simplest things are truly also the most difficult to get right.
+- I had Ibra at Milan, who every day would get angry about a misplaced pass, and I told him that if everyone was as talented as him, there would be no problems.
+- I don't really like all these tactical systems people talk about: 3-5-2, 4-3-3, and all that.
+- There can be no questioning Paulo Dybala's qualities.
+- The derby d'Italia is a very difficult match, five out of five on the scale.
+- The lower you go down the levels, the more players think they need to hang on to the ball to prove how talented they are, but that's not football.
+- We need to start from a presupposition: namely, that there is no 'better' football and no 'worse' kind of football, just different styles and cultures that belong to each country.
+- Youngsters are going to have peaks and troughs, as Alvaro Morata did, on their way to maturity.
+- When I stopped playing and became a coach, I realised that in the past, all the arguments that I had with my coaches were mainly focussed on the technical aspects, and probably that was the biggest signal that I had to have things done my way!
+- Life is like that: you need ups and downs for it to be interesting.
+- Tevez is an extraordinary striker. Not only does he score goals, but he also helps his teammates and the midfield, too.
+- Messi is a good stimulus for Cristiano.
+- You can try to challenge everything... but not age!
+- Every year, Juventus manage to build up a very competitive group of players with the aim of keep winning.
+- The VAR was introduced to reduce controversies, and instead, they have increased - possibly because we Italians like to stoke them.
+- I have felt like a 'juventino' since I set foot here. Here, you have 12 million supporters; everyone else has their team and then roots against us.
+- All Champions League games are difficult.
+- Ronaldinho and Robinho are two totally different players.
+- I like making players better and smarter.
+- I'm not scared of big stadiums. There are other risks in my profession, and I love taking risks.
+- I had an average career, but I was quite skilful.
+- Man-marking Messi is almost impossible.
+- Everyone needs the right partner. Mario Mandzukic is very helpful for Dybala and for Ronaldo.
+- Narcissism in moderate amounts is not harmful to health.
+- We cannot expect to win every match 3-0, as opponents won't just lie down and let us dominate.
+- Mandzukic has scored everywhere he has played. He has a lot of personality and plays at international level.
+- Even when I was on the football pitch as a teenager, I wanted to be the teacher.
+- CR7 is a model to all footballers.
+- Woe, to think about having success in your pocket.
+- I'm sorry for Italian football; there's no desire to improve Italian football.
+- We can't always assume that we'll score two or three goals.
+- Dybala's game is easier on the eye, but Pogba is extraordinary because he has physicality and technique.
+- Not every cloud has a silver lining.
+- Nobody should imagine that they could go to England and change the way that football is played there. Just as nobody should imagine that they could come to Italy and change the culture or the DNA of Italian football. Or even the DNA of the club where they work.
+- Salah? He's a good player.
+- Given the choice between Higuain and Kane, I would still pick Pipita as my number nine, even if Kane is a top-class striker.
+- I'd like to have a 15 million euro villa, but if I can't afford it, I have to look for an apartment that I like.
+- Work is important, but you also need to disconnect, to unplug at times, in order to be even more concentrated when you do work.
+- The strength of the club is fundamental to the successes of Juventus.
+- Even a side with great mental strength will have moments where they lose confidence.
+- If the opponents are really clammed up, you need to pass around them. If they leave gaps, you pass between the lines.
+- Life is like this: things come and go.
+- Playing in Milan is never easy because the San Siro always commands great performances.
+- In my view, technology should only be used on objective situations - offside, in or out of the box, over the line or not - but when it comes to subjective situations, people are never going to agree. That's sport.
+- Niang is very good in front of the goal, and he's also a quick learner. He is a versatile striker who can play both as a centre forward and as a second striker.
+- Football is not an exact science, but it is about chemistry: Ronaldo and Mandzukic, when they are together, have an excellent understanding.
+- Having a lot of attacking players on the field and a good balance at the back is the foundation of victory.
+- When you are in a big team, there's time when you can stay out.
+- There are matches you have to win, but when you realise that you cannot win, you have to make sure you don't lose.
+- I work every year with my players towards improving ourselves and growing in terms of the way we play. The psychological aspect and the management of human resources are also very important.
+- I have always been convinced of my qualities and never doubted what I'm capable of, even if a coach is judged by his results.
+- Ronaldo is a great professional. He truly cares about details. That's why he is always fit.
+- In football, everyone can make mistakes.
+- In Europe, matches are different because you play a lot on a one-on-one basis. There's less tactical importance in the Champions League. The value of the individual player makes the difference.
+- It is normal that when results are better, self-esteem grows, and improving things becomes more easier.
+- The Ballon d'Or nomination is a good achievement for Pogba.
+- I've always said that to win the Champions League, you need to reach a certain stage in good form and with good fitness levels.
+- In life, things do not always stay the same. There are certain alchemies that marry together at particular moments in particular places with particular people.
+- I had a few passionate discussions with my own coaches, but it wasn't for more playing time or anything like that. It was because, even then, I wanted to run the team my own way.
+- I never had any arguments with Pirlo.
+- The difference in economic potential between clubs in Italy, those in England, or the big two in Spain is very high.
+- It's going to be a pleasure to coach Cristiano Ronaldo. Certainly, he's one of the top players in the world next to Lionel Messi, and I'm looking forward to the privilege of coaching such a fantastic player.
+- If we want football to be a sport that is no longer a sport, then use VAR on every incident. However, if we get to March, where every point becomes decisive, then games can last three or four hours.
+- I always say that there are manufactured coaches and natural coaches. I am one of the natural ones. I do not have to sit there and watch videos for hours. I look at what I have to watch, and in a quarter of an hour, I understand what I can understand.
+- Juventus have a winning DNA.
+- Any side that wins 21 out of 22 rounds is clearly doing something extraordinary.
+- Different players have different characteristics.
+- We should all learn from Ronaldo, and I, too, have learned, because it's not everyone who gets to work with the best player in the world.
+- If you won every game, which is impossible, then life would be flat and dull.
+- I'm against all those people who say that there's still something to invent in football.
+- Playing in the Champions League ought to be a pleasure and a joy.
+- Juventus will never be like Real Madrid or Barcelona because its history and playing style speak for itself.
+- When you change 10 out of 22 outfield players, you need time and hard work.
+- You cannot win every game.
+- I prefer to go to the beach in the summer!
+- Any player over 40-50 games per season will have moments of fatigue, let alone a 22-year-old who has a lot to learn on how to control games and pace himself throughout 90 minutes.
+- I think a coach, like a business leader who has people under him, needs to know how to wait patiently for the results of the work.
+- I am very busy. I work hard all the time. But I also need to relax; I need to disconnect. That's why I like horse-racing, spending time with my friends. It helps me to recover energy.

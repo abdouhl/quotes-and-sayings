@@ -1,0 +1,106 @@
++++
+author = "Kiku Sharda"
+title = "Kiku Sharda Quotes"
+quotes_len = "100"
+description = "the best 100 Kiku Sharda Quotes"
++++
+- In future, if I get a chance to perform, I will go for hip hop, locking and popping. Indian is definitely not for me.
+- We are targeted when humor is not taken in the right spirit, but that's a part and parcel of this profession.
+- I have loved, adored and admired Irrfan Khan's work. Some of his movies are remarkable. So, working with him has been an honor and pleasure for me.
+- I am a God-fearing person. Ours is a religious family and I respect all religious gurus.
+- And even though I am overweight, I am not lethargic.
+- I think humor and protest can be subtle, instead of loud and going to the level of violence.
+- I am not going to point fingers at anyone and dissect why their shows didn't work.
+- As an actor, I am never scared of taking on a new project.
+- I've been in the industry for 13 years and my job is to make people laugh.
+- It's not about genre, I want to work where I enjoy myself.
+- I don't walk into a place, start cracking jokes and become the centre of attraction. You will always find me in a corner with one or two people, having personal conversations with a glass in my hand.
+- Once you grow up in a routine life, you start looking for funny moments from daily life. I don't know where did I get my sense of humor from but I used to joke on even small things, slowly things fall in place.
+- If given a chance, I would love step into Akshay Kumar's shoes. He has a lovely family and his mind is always in the correct place.
+- I am specially happy that so many children like what I do. If I had my way I'd only be doing my comic act on the Disney channel.
+- Weight has never been a deterrent in finding the right role.
+- Palak has its three to four signature moves. I cannot showcase just those on the 'Jhalak' stage since it's a hardcore dance show. The tasks cannot be taken lightly. All the contestants are judged technically.
+- I am a big fan of Johnny Lever.
+- I miss Sunil Grover. Such a fine talent Mr. Grover is. We have played so many characters together.
+- I was constantly shooting. Sometimes I would shoot through the night and in the morning go to my next shoot without any sleep or just two hours of sleep.
+- I love to observe children, the way they talk and express themselves. 'Talk to my hand' is something I heard my son and his friends say. Even when I was in the U.S. attending college, it used to be a favorite snub for comments that we didn't appreciate. So I incorporated it into the act. I never imagined it would become so popular.
+- If it works, good, if it doesn't, then move on, I will try something else. This is my style of humor and with time, I've understood that people like it and it is working.
+- We shouldn't have room for violence, we are peace-loving people, and we should stay in peace.
+- Years ago I played different female roles in 'Grand Indian Comedy Show,' but as it was not as popular show as 'TKSS' and 'CNWK,' it never got noticed.
+- Kapil has his friends circle whom he hangs around with and I have mine, but as co-stars I have immense respect for him.
+- I don't want people to remember me by my name. I'd rather feel honored if people will remember me by my characters.
+- With due respect to women, I would like to say that people should not try to focus much on their outer beauty. We can only gain stardom when we are confident from inside.
+- Life has changed since my kids. I love visiting gaming parlors and playing with them for hours on end.
+- Dancing will never be a burden for me, even if I have to work till late in the night.
+- I really like Akshay Kumar. He can be funny and weird while at the same time. His films are always interesting and meaningful.
+- In the past, even I have done shows that have wrapped up in three months.
+- Even if I have played female characters, nobody has ever teased my kids.
+- I have never learnt dancing, but I love dancing.
+- There are various factors that make a show, so if the shows of other actors did not work, it's not their fault. I don't think it is fair to take names or bring down someone because their show didn't do well.
+- Akbar and Birbal stories have an instant connect with people of all ages.
+- If you are cracking a joke on me and in counter cannot take a joke when I am cracking on you, then, you stay away from me.
+- For us, shooting for 'The Kapil Sharma Show' is like a get-together of a big family and is a very enjoyable process.
+- There's a certain amount of cuteness in being plump.
+- My character has got its own individuality after the 'Comedy Nights.' People recognize me as Palak. I'm quite happy that Palak has attained such an identity.
+- See, it's okay to do spoofs on a certain actors who you know will take it sportingly, like for example Chunky Pandey.
+- To me, every serial is equally important.
+- I am not at all justifying Kapil's abusive behavior. I am only trying to say that when you know the person is depressed, you are still publishing negative stories about him and trying to break him. Why are you instigating him when you know his mental state? It looks as though people have an agenda.
+- It used to be crazy as I would shoot till 5 A. M. for Kapil's show and then rush to the sets of 'Akbar Birbal' and then finish my dance practice.
+- I didn't want to do character roles because when you are doing comic characters, you only get character roles.
+- I really wish that 'Angrezi Medium' would have released a little earlier or little after - at least, we would have had a proper release. The movie was taken down after one day of release. It is such a beautiful film and Irrfan Khan hasn't done a film in a long time, given his health conditions.
+- I have never feared of being typecast as I tried to do different roles on television.
+- I am open to playing a woman again. I would like to explore lot of other things as well.
+- Being in comedy you don't get any chance to be bored. You have a fun-filled day and at the same time enjoy the work.
+- There are all kinds of humor and I have largely indulged in clean comedy.
+- If I weren't an actor, I would have been a bad actor because this is where I belong. This is my love and my passion.
+- To call doing films upgrade from TV wouldn't be right because TV is huge too.
+- At the end of the day people should remember that we are just trying to make people laugh. Some jokes work and some don't.
+- Which other actor has appeared in one-half of a dance show as a girl and in the second-half as a man?
+- I always spend a good amount of time with my family.
+- Psychologically it gets challenging at times to switch into a female character. But the moment I get into the look of Palak, I automatically get into the mood of her. My wife and parents have no problem with it. My wife has only told me not to enter the house in the Palak get-up after the shoot.
+- The character of Akbar, among other characters that I portray on TV, has consistently been the most loved by my fans.
+- I can't take so much of burden on my head, I am a happy-go-lucky guy, I don't take pressure.
+- I barely get four hours of sleep everyday. I am shooting non-stop for 'CNWK' and 'Akbar-Birbal.' But it's all worth it when people smile at me at traffic signals in warm recognition. I couldn't have asked for more.
+- I couldn't believe it the first time when I was a part of 'Angrezi Medium.'
+- What I like about films is that a story wraps up in three hours while on TV that is not the case.
+- I don't get much time to rehearse for dance everyday. At the end of the day, I get drained out. With a heavy body, it's difficult to manage but I am trying.
+- I have done my post graduation in Business Administration.
+- SRK is a gem of a person. He told me that he is a keen viewer of 'Comedy Nights with Kapil' and his family records those episodes which he misses during shooting schedules.
+- Criticism hardly makes any difference to me.
+- I have enjoyed all mediums; in fiction you are performing in front of a camera, there is no live audience.
+- I find TV shows easier to do than films.
+- I don't endorse sex comedies. Even in TV shows, there are many double meaning dialogues and I am not really comfortable doing that.
+- I am missing the process, shoots, audience, applause from them, my co-stars and everything related to 'TKSS.'
+- I had taken time off from 'F.I.R.' for three months. But its makers didn't like my absence.
+- Comedy comes with a bit of sarcasm, wit and edginess.
+- It is not easy to pull off the second season of any show.
+- Web will have space for comedy just as films and TV.
+- I am just an actor, I am given the script, the clothes, the get up.
+- I won't attempt something that could be potentially offensive; 80 per cent of comedy can happen without hurting anyone's sentiments. Only a few people can't take it in the right spirit.
+- On a daily basis, I interact with lot of new people and new ideas come to my head.
+- The apprehension whether people will like it or not also doesn't bother me much. I've always done my work with a gut feeling that this is what I would like to do and I've always enjoyed doing it.
+- I as an individual can always take a joke on me, big time, there's no doubt on that.
+- It was a fantastic journey on 'Jhalak.' I am passionate about dance and got to learn many new dance forms on the show.
+- Kapil Sharma is one of the most creative persons that we have in our industry.
+- I fit well in the comedy zone. A plump and chubby figure goes well with most onscreen characters... it adds more value to what I say.
+- Sometimes I wear a cap or keep my head down and walk fast, so that people don't recognize me.
+- When I was offered Angrezi Medium to do, my biggest reason for doing this film was Irrfan Khan. I loved the idea of working with him as I have watched all his films and have loved so many of them.
+- Any new work that you start with is exciting.
+- I would loved to be called an actor, and not comedian.
+- Every actor has the desire to do films, but I never had that approach.
+- I play board games with my sons and they are very interesting and I have discovered a few which I was not aware of.
+- In a live show, the reaction to our jokes is instant. You know immediately whether the joke is working or not.
+- I have been very lucky that I never got typecast while playing female characters.
+- I want to do clean comedy and make kids laugh.
+- I am extremely excited to play the character of Akbar once again on BIG Magic's 'Naya Akbar Birbal.' There is no better feeling than knowing that your character is so loved by the audience.
+- My cameo appearance in 'Happy New Year' doesn't mean I am seriously considering a shift to cinema, not at all.
+- I don't get to see my kids at home, so I invite them on the sets... time management has become a very big problem.
+- I have been doing comedy for the last 15 years but I don't have any qualms admitting that I have learnt a lot from Kapil Sharma. I respect his talent and have not seen a performer like him in my career.
+- I would love to make a film, because storytelling happens only in movies. I would explore relationships in my movies. Maybe, the journey of a child from a broken home, or a relationship between a single father and his kids.
+- It was after sometime that I convinced myself that TV shows run on talent, not people, and then used my talent to the fullest.
+- Fatness is invariable in my family.
+- There are all kinds of films being made but I feel watching a film in a theatre is quite a family experience and when you can't do that, what's the point?
+- I don't want to do anything where my day becomes boring.
+- Oh, I really miss Grover yaar. Sunil and I have known each other for long even before we started working together on 'Comedy Nights With Kapil' or 'TKSS' and our bonding and chemistry reflected on-screen when we worked together. We have partied a lot together.
+- I have performed so much on 'Comedy Night' that people won't have any doubt whether I can dance with a heavy body or not.
+- A lot of people tell me that on screen you're jumping and bouncing around with joy, but I take too much time to open up in newer surroundings.

@@ -1,0 +1,106 @@
++++
+author = "Kirron Kher"
+title = "Kirron Kher Quotes"
+quotes_len = "100"
+description = "the best 100 Kirron Kher Quotes"
++++
+- I wish I could act in films like Dev D' and A Wednesday.'
+- All people who are trying to say that only a sportsman should be appointed as an ambassador, I would like to differ from them. No need to think that only a sportsman can represent the country.
+- One thing is for sure - I won't give up doing India's Got Talent.' I enjoy being a judge on that.
+- A party's success lies in collective effort.
+- Some may say that I won the first MP elections as I am a celebrity. But, the second time, one's working style matters to attain victory.
+- We actors are also hard workers and give our best.
+- I am not the governor, administrator or chief minister, who can issue instructions to bring about changes. I can only advise.
+- Bollywood didn't know what to do with me. And I didn't know what to do with it, because I didn't want to do its kind of films.
+- 'Purukshetra' is the best thing that has happened in my life.
+- I don't know how to make tea.
+- No relative of mine has tried to pull favors in Chandigarh - got a job or even a license prepared, started a business, unlike others who did a lot for their families.
+- If we have a full-fledged film city here, it would save the directors from a lot of transportation costs and booking troubles. Further, it will boost Chandigarh's economy by creating huge employment as also will bring Chandigarh on national and global map as a preferred filming and shooting destination.
+- Chandigarh has tremendous untapped potential as a Film City to cater to the Punjabi and Bollywood film industry.
+- Working in films is much easier in comparison to television.
+- I've been very, very busy with my commitment to my constituency and to Parliament. So, I don't really have time to work in films.
+- If college cut-offs are above 90 per cent in a particular class, then where would mediocre students with 60 per cent or 70 per cent go? Students who secure 60-70 per cent marks are also intelligent, but they could not get admission in courses of their choice for scoring lower marks than the toppers.
+- It is not only in India but even in the west you have these crazy shows like Jerry Springer' where people come and abuse, they take off their clothes, do everything possible just to become famous and known.
+- I think it's great to be a mystery.
+- Never judge a woman by her clothes, and respect her profession.
+- Men feel they have a sense of power and entitlement over women.
+- I share the screen with much younger actresses but I never compete with them. I'm quite secure about my appearance.
+- Before Hum Tum,' I had never done comedy. I was scared.
+- Take Punjab 1984' or Sardari Begum' or Khamosh Pani,' the Punjabi mother I have played in films are all of a certain age and I have won accolades, something I did not get as a young actress perhaps.
+- You can't force people in the country to assume power.
+- I think Indian women look most glamorous yet dignified in Indian attire.
+- I felt extremely concerned for the people of Punjab during the 1984 riots and militancy days.
+- If I weren't an actor, I would be an IAS or IPS officer.
+- I have almost forgotten that I have a relationship with film industry as most of the time political meetings, attending Parliament and meeting people of my constituency has been consuming my time.
+- During the initial two years in Mumbai, it was lonely and awkward for me, till I made some friends in South Mumbai.
+- It is only the BJP that gave dignity to the film business by giving it industry status.
+- I was hurt when someone on television said that we film people live in an imaginary world and the sportsmen live in reality. I would like to tell them that we live very much in reality and the amount of hard work we do, I doubt anyone in this country can or in the world can do.
+- I'm fine with playing the protagonist's mother, mother-in-law or friend - as long as my role is well-written.
+- I am very proud of the fact that BJP is doing remarkably well everywhere.
+- Failure is a personal thing but it's better to experience it in the beginning itself because you learn to handle it.
+- Just as you shouldn't judge a book by its cover, don't judge people by their clothes.
+- Society needs youngsters with well-developed personalities and not just bookworms.
+- Hyderabad is one of the most important fashion and cultural cities in India, which brings together heritage and innovation.
+- People in Chandigarh should not hesitate and get vaccinated. We all should work together in the fight against coronavirus.
+- People in Chandigarh have too much time and they eat your head.
+- I'm the first Indian actress to shoot for a Pakistani film in Pakistan.
+- Just to brand somebody as actor and trivialize is wrong. I am running around in the heat, doing my work constantly.
+- My father settled in Chandigarh after his retirement.
+- I am very proud of Salman Khan.
+- It is really tough acting in a comic role.
+- I am not a typical wife. We are two friends who live together. We love each other, but I don't do the usual things that wives normally do for their husbands, like giving medicines on time, or making sure the clothes are ironed or dry-cleaned.
+- I am proud of the fact that the Punjabi film industry is growing.
+- I am shocked that an internationally renowned city like Chandigarh is facing problems of cleanliness and hygiene.
+- In fact, I started with TV before I did films.
+- There is no groupism or factions in the BJP. We are one.
+- The treatment meted out to women is the same everywhere.
+- One hidden talent is that I used to play badminton for India.
+- I started my career in 1994-95. Before that, I was with my family, traveling all over the world.
+- If the men in North do not mend their ways, then women will set them right.
+- Women have been given so many rights in BJP-ruled states.
+- People have been affected by the concept of one minute fame.' This is actually a problem with television. The whole world is getting crazy about coming on television for some reason or the other.
+- I never get into local politics and believe in giving a long rope to people.
+- I prefer shows like Purushkshetra' on TV, which highlight the values and problems of the society.
+- To entertain looks very flippant, but it is the hardest thing in the world.
+- Be it home or work place, women are the best managers across the globe.
+- My parents were from Punjab, in Pakistan. We had land there which were reallocated after partition. So I belong to that area which got divided and suffered.
+- Strong governance is very, very important.
+- I want to tell something to all girls. When there are already three men in an auto-rickshaw, you shouldn't take that ride.
+- Leaders of organizations with leftist ideologies should not be allowed to enter Panjab University.
+- Like Narendra Modi-Amit Shah's jodi in Delhi, Sanjay Tandon and I have a jodi in Chandigarh.
+- I appeal to the people to vote for BJP in 2019 as it will be your victory, the victory of the country and also the victory of facilities that you will be given.
+- I will not let anyone dig up and ruin the peace of Chandigarh to facilitate movement of people from Mohali and Panchkula.
+- I am not a politician. I contested to get Modi ji another seat.
+- I wanted to work for society, so instead of joining politics I joined an NGO.
+- Failure is a very personal thing and everybody goes through it very personally.
+- Politics is a dirty game.
+- Yes, I've lost close to 30 kilos. Nothing drastic. No crash diets.
+- Rumors are bound to go around. Listen to them from one ear, take it out the other.
+- After I was elected as an MP, there were many who used to criticize me, but I still stood. This I have learnt from Prime Minister Narendra Modi, who is used to being criticized severally from his days in Gujarat.
+- I have never said anything against any sangathan member.
+- Luckily getting to Chandigarh is no problem. It is only a three-hour drive from Delhi.
+- Educationists and teachers should think how they could play a role in making students spend time doing creative activities.
+- Capital punishment is an appropriate punishment for rape.
+- The last two years, ever since I became a Lok Sabhha member, I've been working round the clock. It's grueling work through the day.
+- Give girls and boys equal education for a better life but also train them to do their own chores.
+- Anyone who faces any kind of harassment should complain immediately so that a thorough investigation can happen.
+- I am not the usual film star who enters politics just for the heck of it.
+- If something substantial comes my way - a very meaty and major role - which I would love to do, then of course one can make time for that.
+- My favorite saying is, 'If you want to make god laugh, tell him about your plans.'
+- I want to do a black comedy with Homi Adajania and also want to work with Vishal Bhardwaj, Imtiaz Ali and Anurag Kashyap.
+- Anupam is very easy going person and he likes to live and let live. He doesn't get into my space and neither does he like it if someone gets into his space.
+- When you talk about films, it looks like another world.
+- I wish I had a wife who could manage things for me. Men are blessed that way. They have wives to look after their home.
+- Change in society starts from within a family.
+- I don't like to be addressed as Bhenji' but people love it.
+- I've never taken work just to be in the business.
+- The content on Pakistani TV is good; their shows are natural and real.
+- I was studying to get into the Foreign Services. I did my Masters from P.U.
+- There are innumerable television channels and papers, all very aggressive and not willing to take no for an answer.
+- Anupam and I started as friends. I remember, every time I went through rough times, emotionally rough times, Anupam would always be there. In fact, Anupam had this strange quality of pulling me out of depression and making me feel much better.
+- My life was taken up by road shows, election rallies and campaign speeches. I was clocking four to five hours of sleep every day.
+- We act in so many roles to entertain people and they get accustomed to it. So even if we do something for society in real life, they think it's for publicity and are not always ready to accept us in that role.
+- Here in TV one has to give 13-14 hours of your day. It makes you dead tired.
+- Anupam can make you feel good in any situation. His sense of humour and connection with people makes him special. We both are real people and have not picked up the airs of stardom.
+- In a very short time I have not only increased the age limit in the government service in Chandigarh from 25 to 37 years but also got approved the flyover at the Tribune Chowk and RUB at Mani Majra.
+- Being the daughter of an army officer, I am always punctual.

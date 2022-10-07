@@ -1,0 +1,120 @@
++++
+author = "John Ortberg"
+title = "John Ortberg Quotes"
+quotes_len = "114"
+description = "the best 114 John Ortberg Quotes"
++++
+- Gratitude is what we radiate when we experience grace, and the soul was made to run on grace the way a 747 runs on rocket fuel.
+- The single dynamic that helps people be most aware of God and most experiencing the fruit of the Spirit is gratitude.
+- The hurried can become unhurried. But it will not happen by trying alone, nor will it happen instantly. You will have to enter a life of training.
+- When it comes to sermon writing, generally there are two problems. Some preachers love the research stage but hate the writing, and they start writing too late. Others don't like doing research, so they move way too fast to the writing part.
+- Authentic spiritual authority is what puts you in touch with reality.
+- Jesus' life as a foot-washing servant would eventually lead to the adoption of humility as a widely admired virtue.
+- Opposition is an inevitable reality of pastoral life.
+- People with the strongest and healthiest sense of calling are not obsessed with their calling. They are preoccupied with the Caller.
+- We do not need answers or formulas to minister in crisis.
+- Prudence is not hesitation, procrastination, or moderation. It is not driving in the middle of the road. It is not the way of ambivalence, indecision, or safety.
+- Being deeply contented with God in my everyday life is a focused attitude. It is always available. It means practicing letting go of my obsession with how I'm doing. It means training myself to learn to actually be present with people, and seeking to love them.
+- 'Who Is This Man?' is about the impact of Jesus on human history. Most people - including most Christians - simply have no idea of the extent to which we live in a Jesus-impacted world.
+- God has entrusted us with his most precious treasure - people. He asks us to shepherd and mold them into strong disciples, with brave faith and good character.
+- Normally, if someone's legacy will outlast their life, it's apparent when they die. On the day when Alexander the Great, or Caesar Augustus, or Napoleon, or Socrates, or Muhammad died, their reputations were immense. When Jesus died, his tiny, failed movement appeared clearly at an end.
+- We call an obsession with having someone's approval 'co-dependency;' the Bible's word for it is idolatry. A country can be an idol. A family can be an idol.
+- From ancient times, the core idea of the soul is the soul is the capacity to integrate different functions into a single being or into a single person. The soul is what holds us all together: what connects our will and our minds and our bodies and connects us to God.
+- When I teach the formal curriculum, I have the chance to think about it ahead of time. I can rehearse it. I can illustrate it with self-deprecating humor and humble-sounding personal disclosure. I can try to make it comes out just right.
+- When someone is in crisis, don't start by teaching, leveraging, or explaining. Just be with.
+- To have my mind racing and my heart beating fast over glorious possibilities is very close to the summit of life experience for me.
+- Jesus had a universal concern for those who suffered that transcended the rules of the ancient world.
+- God has decided, for his own good reasons, that people are not transformed outside of community.
+- Far more books get written about how to get more people in your church than how to get the people already in your church to have more humility and sincere love.
+- The New Testament doesn't present Jesus as a single man to cover up his humanity. It presents him as a single man because... he was a single man.
+- Although the church has often been far too slow to follow his lead, Jesus' insistence that women, as well as men, bear the full image of God has had a way of sparking reform movements across the centuries.
+- We all want to feel spiritually vigorous, and we hurt when we don't. This pain is intensified for people who lead church ministries.
+- My wife is one of the most extroverted people I know. She could out-talk Oprah and Joyce Meyer simultaneously.
+- Tithing is like training wheels when it comes to giving. It's intended to help you get started, but not recommended for the Tour de France.
+- When the soul is understood and attended to, we can be liberated from hurry, preoccupation, unsatisfied desires, and chronic discontent.
+- 'Amusement' is appealing because we don't have to think; it spares us the fear and anxiety that might otherwise prey on our thoughts.
+- In my love-challenged condition, seeing a difficulty for someone else can leave me feeling a little more smug or superior-by-comparison.
+- My main job is to live with deep contentment, joy, and confidence in my everyday experience of life with God. Everything else is job number two.
+- Tithing is considerably less popular than words like generosity or sharing.
+- Some leaders are not intimidated by opposition; they actually thrive on it. It wakes them up. It energizes them. It calls them to battle. It causes them to mobilize their thoughts and energy.
+- I need an inspiration that is grounded in reality while thoroughly transcendent.
+- Evil exists. Evil is real. One of the hallmarks of evil is that it seeks to convince its victims that it exists 'out there.'
+- I hate how hard spiritual transformation is and how long it takes. I hate thinking about how many people have gone to church for decades and remain joyless or judgmental or bitter or superior.
+- I don't have a problem with delegation. I love to delegate. I am either lazy enough, or busy enough, or trusting enough, or congenial enough, that the notion leaving tasks in someone else's lap doesn't just sound wise to me, it sounds attractive.
+- Tithing is a bad ceiling but an excellent floor.
+- Pastors have historically understood their primary battle to be not the battle to build a big church, but the battle against the power of sin.
+- Politics, after all, is largely about power. And power goes to the core of our issues of control and narcissism and need to be right and tendency to divide the human race into 'us' vs. 'them.'
+- What influences our behavior, and what our level of responsibility is, are very complex issues. And anytime we try to make this simplistic, we don't serve people well.
+- I wrote 'Soul Keeping' because we are taught more about how to care for our cars than how to steward our souls. But you cannot have an impactful life with an impoverished soul.
+- People cheer the Bible, buy the Bible, give the Bible, own the Bible - they just don't actually read the Bible.
+- Jesus viewed his own destiny - to be glorified in and through death - as an expression of a kind of cosmic principle: the pathway to life runs through death.
+- Sin is, somehow, at the root of all human misery. Sin is what keeps us from God and from life. It is in the face of every battered woman, the cry of every neglected child, the despair of every addict, the death of every victim of every war.
+- Sometimes in churches somebody will discover a particular vein of spirituality and seek to recruit others into it, or assume a superior position because they have found certain techniques - but no one actually wants to become like them.
+- I have always heard that you need to give yourself a long time to unplug when you do a sabbatical. I unplugged so fast I was a little concerned that I was losing brain capacity.
+- Amusement is a way of boredom-avoidance through external stimulation that fails to exercise our minds. It's mere diversion.
+- I have given up the idea that there is an opposition-free church out there. But I have gained something else - an appreciation for the gift of opposition. When it comes, I learn something about my motives. When it comes, I get to test my courage.
+- Jesus is why women have traveled continents, spent decades learning a strange language so they could translate the Gospel, planting churches, caring for the sick, educating the illiterate, and marching for the oppressed.
+- A bad sermon is like a car wreck - everyone slows down to see what happened.
+- Actually, my character needs to be questioned. On a regular basis. By people who know and love me.
+- It strikes me that presidential campaigns can often bring out the worst as well as the best in us.
+- The day people around me stop questioning my character is the day my character begins to grow vulnerable.
+- Congregations shaped by the Scriptures generally have preachers who are shaped by the Scriptures.
+- For most of us, the great danger is not that we will renounce our faith. It is that we will become so distracted and rushed and preoccupied that we will settle for a mediocre version of it. We will just skim our lives instead of actually living them.
+- I know that those of us who go into church work are to regard ourselves as servants, are to offer our lives as a gift.
+- A simple way to address hidden curriculum issues is to spend time talking with staff and key leaders about their spiritual lives.
+- Sin is protean. It is a cancer that keeps mutating, and just when you think you have killed off one form, it turns out a deadlier strain yet is threatening your heart.
+- The only true and lasting inspiration for life is genuine love for God, and submitted gratitude that I get to be a part of the redemptive quest.
+- Spiritual formation is for everyone. Just as there is an 'outer you' that is being formed and shaped all the time, like it or not, by accident or on purpose, so there is an 'inner you.' You have a spirit. And it's constantly being shaped and tugged at: by what you hear and watch and say and read and think and experience.
+- This much I have learned: human beings come with very different sets of wiring, different interests, different temperaments, different learning styles, different gifts, different temptations. These differences are tremendously important in the spiritual formation of human beings.
+- The irony is that 'looking down on everybody else' is a violation of the law of love, which, according to Jesus, is the absolute essence of righteousness.
+- When preaching is done right, it can change lives. When it's done badly, my failure goes beyond the merely human.
+- Art is built on the deepest themes of human meaning: good and evil, beauty and ugliness, life and death, love and hate. No other story has incarnated those themes more than the story of Jesus.
+- Better to be a loving person without knowing how you got there, than an expert no one can stand to be around.
+- The human longings that are deep inside of us never go away. They exist across cultures; they exist throughout life. When people were first made, our deepest longing was to know and be known. And after the Fall, when we all got weird, it's still our deepest longing - but it's now also our deepest fear.
+- When people feel they're getting to speak into what's being preached, there is high built-in motivation to participate.
+- The toppling of idols - even respectable, admired, best-practice, fastest-growing idols - is always the road to liberation.
+- Real spiritual authority has to do with the truth of the actual words being spoken, and the spirit of the person behind the words. Really, authority is about truth: honest-living truth.
+- You can only love and be loved to the extent that you know and are known by somebody.
+- Churches need to figure out how they will address the spiritual lives of their staffs and leadership teams.
+- No one wants pain. Not even long-time, mature Christians who want to grow. We will always find ways to avoid pain. Pain itself is a bad thing.
+- At the heart of Christian faith is the story of Jesus' death and resurrection.
+- Those of us who preach the Scriptures, along with being nourished by it ourselves, have to figure out along with our congregations how we can incarnate the gospel in our community, or we will preach to a religious ghetto.
+- Churches can become places of cynicism, resistance, and pessimism.
+- I hate how spiritual formation gets positioned as an optional pursuit for a small special interest group within the church.
+- In the context of worship, amusement is a waste of time and a waste of life, and therefore a form of sin.
+- Skill at helping people grow spiritually, like skill at playing chess, depends on understanding and valuing differences.
+- The church is in the hope business. We, of all people, ought to be known most for our hope because our hope is founded on something deeper than human ability or wishful thinking.
+- Death is the prerequisite to resurrection, the new life God intends.
+- Learning something new is a fabulous way to be refreshed. When work can grind you down, something about learning a new activity thrills the soul. It reminds you that the world is bigger than your desk and your to-do list.
+- There are no clear boundary lines between what is physiological, what is psychological, and what is spiritual. Those are language domains that make sense and have integrity but overlap significantly.
+- Authority can be faked. That's why impersonating a police officer is a crime. Sometimes the outward appearances of authority can be deceiving.
+- Spiritual formation is for everyone. Just as there is an 'outer you' that is being formed and shaped all the time, like it or not, by accident or on purpose, so there is an 'inner you.' You have a spirit.
+- In community, we discover who we really are and how much transformation we still require. This is why I am irrevocably committed to small groups. Through them, we can accomplish our God-entrusted work to transform human beings.
+- One of the reasons I'm an interesting person to be married to is my intensely late-blooming self-awareness.
+- Universities such as Cambridge, Oxford, and Harvard all began as Jesus-inspired efforts to love God with all ones' mind.
+- There are usually multiple messages that could be preached from the same text.
+- The most important criterion is this: hire someone whose character and humility and attitude you would like to have reproduced in your church and in yourself.
+- Ghettos and barrios and abusive homes and trauma wards may produce scarred souls; they can cripple more human spirits than they strengthen.
+- Sloth is the failure to do what needs to be done when it needs to be done - like the kamikaze pilot who flew seventeen missions.
+- I am a political junkie. During a presidential campaign, I will often buy a couple of newspapers a day just to keep up.
+- As a preacher, my charge is to proclaim the message of the Scriptures. To help the people in my congregation become a people of the book. I love getting to do this.
+- I am struck by how quickly I am prone to judgmentalism.
+- I'm not sure ministry can ever have the urgency it requires if it is not aware of evil, both externally and internally.
+- Women are the first witnesses to the resurrection and pillars of the early church.
+- Nobody lives up to the norms that God had in mind when he first created human beings.
+- As a preacher who is fully human, and clearly not divine, I can't speak as Jesus did. But I do seek to speak truth that carries weight and authority. All of us who preach the gospel aspire to speak under the authority of Jesus.
+- Prudence is what makes someone a great commodities trader - the capacity to face reality squarely in the eye without allowing emotion or ego to get in the way. It's what is needed by every quarterback or battlefield general.
+- The question isn't if someone will sign up for spiritual formation; it's just who and what our spirits will be formed by.
+- Over time, grit is what separates fruitful lives from aimlessness.
+- The soul is both the most fragile and most resilient thing about you; a healthy soul is what holds you together when your world falls apart. Since you will carry your soul into eternity, it's worth checking up on it at least as often as your teeth.
+- Sometimes, an inability to believe in Satan reflects a larger inability to believe in a spiritual plane at all.
+- There are dozens of references to God in the Scriptures for every one to the figure of Satan. This reflects a sometimes forgotten theological truth that the devil is by no means God's counterpart. He is a creature, not the Creator.
+- A healthy soul is whole and integrated. It is connected to God. A person with a healthy soul is at peace with God, with himself, and with other people.
+- Prudence is foresight and far-sightedness. It's the ability to make immediate decisions on the basis of their longer-range effects.
+- As much as we complain about it, though, there's part of us that is drawn to a hurried life. It makes us feel important. It keeps the adrenaline pumping. It means I don't have to look too closely at my heart or life. It keeps us from feeling our loneliness.
+- Sin is very important to the soul because sin is what disintegrates the soul; it's what attacks the soul. Sin kind of is to the soul what cancer is to the body.
+- Both hope and pessimism are deeply contagious. And no one is more infectious than a leader.
+- Preaching a series allows you to go into greater depth in the text, and spending several weeks on one theme allows the teaching to be absorbed more thoroughly.
+- The church is in the hope business.
+- Love of learning led to monasteries, which became the cradle of academic guilds.
+- Prudence is not the same thing as caution. Caution is a helpful strategy when you're crossing a minefield; it's a disaster when you're in a gold rush.

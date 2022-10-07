@@ -1,0 +1,106 @@
++++
+author = "Jack Wilshere"
+title = "Jack Wilshere Quotes"
+quotes_len = "100"
+description = "the best 100 Jack Wilshere Quotes"
++++
+- I'm always in contact with my manager at Arsenal, who has been a big part of my career, and I'll always talk to him.
+- Sometimes a manager can only do so much, as in prepare a team, and then the team have to go out there and perform.
+- To be playing against people like Xavi and Iniesta is brilliant.
+- It's the same for any team... you have to keep your best players.
+- It's good to be around an English manager.
+- Sometimes it's been difficult to stay positive, especially after the injuries that I've had, which have been frustrating.
+- Some players have got their price, but, to be honest, that's not the way I look at the game.
+- I know the best way to recover and get the right amount of sleep.
+- If you look at the top midfielders in the past for England, like Lampard, Gerrard, and Scholes, they were always on the scoresheet.
+- Lionel Messi is on a different planet to anyone.
+- Sometimes when people play for their country, I think there is that little bit of fear and pressure.
+- The intensity of the Premier League is incredible. The levels of fitness you have to reach just to survive in it is absurd.
+- I went to Bournemouth and had a great time. The idea was just to prove to myself that I can still play at that level.
+- The aim every season is to challenge for the top four and try to win a trophy.
+- Being injured, coming back, playing a few games, trying to get your fitness back, getting injured again - you don't get a chance to prove what you can do.
+- I want to be wanted by Arsenal. I've grown up at Arsenal. I'm a homegrown player, and as long as Arsenal want me, then I'm happy.
+- We have got loyalty at Arsenal, and players have shown that in the past.
+- The criticism that Arsene gets is just a joke.
+- Owen Coyle was great to me.
+- Josh McEachran is a great player.
+- Look at the best dribblers in the world, Lionel Messi and Andres Iniesta, and the ball seems to stick to their foot, so I can work on that when I am dribbling.
+- When you go to the training ground day after day, there's times when you don't want to do it, especially when you see all the boys go out to training.
+- Now I've learned to enjoy my football while I can. Every time I'm on the pitch, I just enjoy it.
+- I've always loved representing my country, and it's something I've missed.
+- I'm not just a footballer; I'm a top athlete, and we have to be at the top of our game.
+- Loyalty is a big part of football, and it shows if you are a real man or not.
+- I'll take criticism. I know that's part and parcel of football. But when it's just reckless and aggressive, I don't listen.
+- When I was 18 or 19, I would come into training, and I'd be the last in and first out. I was one of those that took everything for granted, and I'm honest about that now.
+- I don't think one player can ever win a World Cup.
+- All I think about is playing at the highest level and in the top competitions so I can measure myself against the best in the world.
+- It doesn't 'hurt' me, hearing criticism from ex-players. It probably disappoints me a little bit more.
+- I'm probably the worst fantasy league player ever. I don't really score that often, and I get booked quite a lot as well - when you get booked, you lose points.
+- I don't think you can put into words the feelings you get playing week in and week out.
+- All of a sudden, when you're injured, you realise everything revolves around your core. It's crucial for balance and absorbing impact.
+- It's impossible for one player to play the whole year. I've learnt that myself, and you're always bound to get injuries.
+- I want to be Arsenal captain.
+- I think every manager is the same. Three days before the Premier League starts, every manager is selfish that way. They want the players fit and ready.
+- I am happy at Arsenal.
+- I've been in tournaments before when you've been away for a while, and you're not really playing, you're just training. Sometimes you can feel like you're not really part of it.
+- Playing with people like Cesc Fabregas makes it easy for you. He will talk to you and talk you through games.
+- I know my body well. I know the right foods to eat.
+- It's every kid's dream to represent their country at a World Cup.
+- I'm not really a defensive midfielder.
+- The best player I ever played with is probably Cesc Fabregas. I only got to play with him for a year before he went back to Barcelona, but I learned so much from him - the way he knew what he was going to do with the ball before he got it and his passing - and he scored goals.
+- It's easy to fit into a team like Arsenal.
+- We have loyalty at Arsenal, and players have shown that in the past.
+- I want Arsenal to want me. If they didn't want me, it would hurt.
+- Once I'm at the training ground, I'm focused, preparing for the next game.
+- If I'm on the bench in a Premier League game, I'm thinking, 'What can I do coming off the bench?'
+- Paolo Di Canio was my all-time hero.
+- I said, even when I was left out, 'I am an England fan, and I'll be supporting the boys.' It's in my blood; it's too hard not to.
+- I am a player who always wants to give more.
+- I know my body better. I know how to be more professional. I know how to get myself ready for the games, which is the most important thing.
+- I play the way I do because it's the Arsenal way.
+- When you are injured - and injured for a while - it is hard. You have to go to the training ground and watch everyone go out to play.
+- I work on my speed and strength every day, and I do a lot of work on my first five yards. For a footballer, that's really important.
+- I have had bad luck with injuries, but I can't keep saying I've been injured a lot.
+- I will never say no to my country.
+- The Arsenal fans are great; every week they are 60,000, and the away support is fantastic.
+- You need to be able to defend. It's massively important, and at Arsenal, we've sometimes been guilty of forgetting that.
+- Sometimes you have to shield, and sometimes you have to press.
+- I want to play first-team football.
+- As a player, if your attitude is questioned, it's horrible.
+- It is important to start winning international tournaments early and get that mentality into you. Then, hopefully, you can take it on to the world stage.
+- I like to play anywhere in the middle.
+- With Arsenal, I've been playing out wide, which is not me.
+- Obviously I want to win things, and I want to do it with Arsenal.
+- I definitely wouldn't go somewhere just because I'm a homegrown player. I'd want to be wanted by a club.
+- Nothing goes through your head when you're playing except who you are playing against and what you can do to affect the game.
+- To play in the Champions League is an experience a player of 33 may not have had in his whole career. To be doing that at 18... well, it's such a bonus.
+- I want to go to the World Cup and enjoy it.
+- No 10 is the job I want: in the middle of things, moving the ball forward.
+- I've had a bond with West Ham since growing up as a kid, going to Upton Park, looking up to the players.
+- I want to play in the Premier League, the Champions League, and I want to continue playing for England. If I'm going to do that, I have to play for my club and put in good performances for my club because there are other English midfielders who are doing that in the Premier League.
+- I haven't eaten junk food since I was 11, but I'm not teetotal: I have a drink maybe once a month.
+- My kids, since birth, have been dairy- and gluten-free.
+- I prefer playing in a 4-3-3.
+- It's difficult when you have a new baby but, at the same time, a nice distraction.
+- The only people who should play for England are English people.
+- My family have always been West Ham fans, so growing up, I used to go and watch them, and so I was a West Ham supporter.
+- It's a pleasure to play for England, and I will never say no.
+- If I went to Spain and lived there for five years, I'm not going to play for Spain. For me an English player should play for England, really.
+- You can help build momentum in training by keeping the pace and intensity high. Make things happen in training, and then you can transfer that onto the pitch.
+- Of course there's going to be expectations when you're playing well in the national team. But you just have to deal with that.
+- It's a dream to play for England, so if I'm selected, I'd look forward to playing. But it's down to the powers above me.
+- I'd say I was an attacking midfielder, and if you are going to be one of the best, you have to score goals and create them.
+- If you've lived in England for five years, for me, it doesn't make you English.
+- Football was a natural thing for me, and with no injuries or injury history that would stop me from training, I just enjoyed coming in every day and playing; then it was taken away from me.
+- My perfect formation would be 4-3-3 with one holding and then the two going forward. I would be one of the ones going forward.
+- When I was young at Arsenal, you take it for granted, playing all the time.
+- Certain things come naturally, and tackling wasn't one of them; I'd sometimes go a bit over the top when I was younger.
+- Football never stops, and that's why you need a big squad.
+- Teams want the best players. If the best players come through your academy, you can play.
+- To put on an England top is a dream.
+- To spend 17 months on the sidelines is tough for anyone, and it's hard to see everyone go out training and then to go and watch games at the Emirates Stadium.
+- I am willing to go abroad if the right opportunity comes up.
+- The fans at Upton Park are great.
+- I realise things aren't going to go my way every week. Of course they're not. But the main thing is to give your all and enjoy.
+- Players and people make mistakes.
+- If you don't believe in yourself, then who is going to believe in you?
