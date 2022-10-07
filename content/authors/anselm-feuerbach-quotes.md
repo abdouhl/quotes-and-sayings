@@ -1,8 +1,0 @@
-+++
-author = "Anselm Feuerbach"
-title = "Anselm Feuerbach Quotes"
-quotes_len = "2"
-description = "the best2 Anselm Feuerbach Quotes"
-+++
-- Theology is anthropology.
-- If someone gives you so-called good advice, do the opposite; you can be sure it will be the right thing nine out of 10 times.

@@ -1,8 +1,0 @@
-+++
-author = "Andre Derain"
-title = "Andre Derain Quotes"
-quotes_len = "2"
-description = "the best2 Andre Derain Quotes"
-+++
-- I do not innovate. I transmit.
-- The substance of painting is light.
