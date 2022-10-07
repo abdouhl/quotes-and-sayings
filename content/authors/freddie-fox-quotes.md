@@ -1,0 +1,74 @@
++++
+author = "Freddie Fox"
+title = "Freddie Fox Quotes"
+quotes_len = "68"
+description = "the best 68 Freddie Fox Quotes"
++++
+- I am a better cook now than I used to be.
+- There'll probably be moments in my life where it seems that people will want to camp out on my doorstep, and moments when no one wants to hire me and couldn't be less interested. I've been around the circus, and it'll come and go.
+- I have learned already that you have to work against people's perception as they want to box you in very quickly.
+- I've always wanted to work with Dad.
+- I don't really approach any part in any particular way. I tend to get an instinct on the way I want to do it, depending on that role.
+- I adore clothes. More importantly, I admire people who dress well.
+- I do want people to think of me as an actor, not just a posh actor who does posh parts.
+- My favourite film is 'Tootsie.' I suppose that's because it's very much about my industry and I love all the jokes, albeit a slightly bygone age of the 1980s, a world that I really understand.
+- I think as an actor you've got to try to preserve some of your mystery so that there's still an element of surprise about where characters come from.
+- Who's ready for anything when they're 21?
+- I don't think you necessarily fall in love with a sexuality, I think you fall in love with a person.
+- I'm a man of eclectic and wide and broad taste.
+- The joy of being a chameleon on stage is that you can be anything, and yet you're not any of those things as well.
+- Everybody who I've spoken to who was conscious when 'Queer as Folk' went out says it was a complete game-changer. It completely changed people's perception of young, gay men especially.
+- Costume is always the first layer of armour for going into battle in a new acting job.
+- I can neither change people's perceptions nor change my background, and nor would I wish to.
+- I want to prove that I can be a success without standing on the shoulders of my family.
+- Dad hates London.
+- I tried to work hard at school because I knew that my parents were paying a lot of money for it.
+- I know how lucky I am, and I am aware that I have to fight the perception that I am also a spoiled brat.
+- I love being on film sets even if I'm not acting in the film, and I'm fascinated by the work of the director of photography.
+- As actors, you live in doubt; that's one of the truths of the particular job.
+- I'm blessed and fortunate I met many people, like agents, who'd take a meeting with me because my mum or dad would ask if they'd see me.
+- I used to read 'Dennis' in the Beano when I went to have my hair cut.
+- All you ever want as an actor is to play psychologically complex, interesting characters and Jeremy Bamber is at the very least that.
+- I think each generation struggles with its own set of problems.
+- I was obsessive and made my parents take me to the hairdressers way more often than I needed to.
+- No one with a bad tie is getting my vote. Some Lib Dems wear the most shockingly awful ties.
+- At drama school we were encouraged to keep fit and healthy, but not to bulk out. We were told to stay lithe to allow our bodies to morph when we're playing various parts. Running is ideal for this, especially when I needed a lean look for the Channel 4 drama 'Cucumber.'
+- People want to see me as a posh square, so I'll play an East End drag queen or a young man with a cleft palate.
+- I wanted to be a director of photography for a while, because I'm fascinated by what they do. You're made to look good by them and you can learn so much from talking to them.
+- I'm not easily wound up, but overly cynical people irritate me.
+- I've been around actors all my life.
+- No, I'm not too worried about type casting.
+- If I keep doing films like 'The Riot Club' they're going to think I'm a posh git.
+- It would be silly for me to say I'll only ever love women. That would be crazy.
+- I'm an entertainer, that's my business, and yet you hope at some point in your career you will do something that will mean more to people.
+- People balk at the fact that I've played loads of gay characters. Maybe I have, but you know what? It doesn't matter.
+- As actors, we have the best job in the world, but occasionally it can be made difficult by ego and by not listening to each other and lack of communication.
+- The Dorset coast, where I spent my childhood, is a gorgeous place to run. I love to explore and revisit places like the cliffs at Kimmeridge Bay and the abandoned village of Tyneham.
+- On every job you learn, on every job you should be looking to learn and every decision you make on the jobs you take, they should always try in some way, even if not in a huge way, they should in some way stretch you.
+- My dad did a wonderful feat of memory and storytelling by taking T S Eliot's 'Four Quartets' on the road in a one-man show.
+- It's part of my job as an actor to look after myself. Your appearance is crucial.
+- I love the energy of Islington, the variety of things you can see, taste and buy, the number of young people around you all moving and bustling - yet it still feels like a village, a community.
+- I didn't really enter into the real world until I was probably at drama school.
+- Some people cannot stand up in front of people and talk, and I can - I think that's something you don't learn; you're born with it.
+- I am delighted to be working with Guy Ritchie on 'King Arthur,' who's been a boyhood hero of mine ever since 'Lock, Stock' and 'Snatch.'
+- That's why I wanted to be an actor - to be everybody. Through all those different people I can learn about myself.
+- I think it's dangerous being cynical because you close doors rather than open them.
+- I wouldn't wish to go 'I am this or I am tha'because at some time in my life, yes I've had girlfriends, but I might fall in love with a man.
+- I enjoyed throwing the toys out of the pram, although not in a petulant way.
+- I want to have a very definite style that people recognise as being 'Fred Fox.'
+- Dad's mother and aunt were actresses.
+- Most of the independent films I've been involved with all had European subsidy or co-production agreements.
+- Look, I certainly couldn't say that my unusual upbringing didn't lend itself to becoming an actor - of course it did. People want to see what Edward and Joanna's son can do.
+- I was brought up in a bubble to an extent.
+- My dad has never had a mobile phone or computer. And that was the way when I grew up, so I still take tech with a pinch of salt.
+- It gets me, physical comedy. There's nothing better than it.
+- I love a good suit, and when I see photographs of myself in a jacket that doesn't fit me quite right or the sleeves are too long, it drives me insane.
+- If I don't shave I look like a peach with fuzz on it - not a good look.
+- So often gay characters, particular those portrayed in an era where gayness was something of a taboo and a statement about 'who I am and no one's going to trample me down,' are more colourful and interesting - and for an actor, that's enticing.
+- Umm, I used to stink-bomb peoples' letterboxes on the weekends when their newspapers were delivered.
+- We're into a world where we're not talking about gay or straight or bisexual any more so much as we're talking about being transgender or identifying as a woman if you're a man.
+- When I first looked at 'Travesties,' I thought, 'I don't know what to make of the first page of this, let alone 80 pages.' But I just thought, 'Well, I'll go along for the audition because I love all the people involved.'
+- I was drawn to gay parts because of their scripts, what the roles offered.
+- I suppose what I look for most in a part, other than it being different than the part before, is: Does he interest me? Will I have fun getting to know him and, to a greater or lesser degree, physically embodying him?
+- Now, I don't think I'd particularly care if somebody criticised me for having got to a certain level of success because I'm Ed Fox's and Joanna David's son. I know that's not true.
+- My love of running developed when I got older. At school it filled me with dread and the idea of running around the sports pitches struck me with a nameless fear.

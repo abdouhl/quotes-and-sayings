@@ -1,0 +1,106 @@
++++
+author = "Beth Ostrosky Stern"
+title = "Beth Ostrosky Stern Quotes"
+quotes_len = "100"
+description = "the best 100 Beth Ostrosky Stern Quotes"
++++
+- I thought that I was a crazy pet owner, but now I realize I'm not so bad.
+- I'm the spokesperson for the North Shore Animal League America. So, I'd go on morning shows on their behalf. I also work closely with the Wildlife Rescue Center in the Hamptons.
+- When I moved to New York I started to do a lot of TV commercials. It just kind of naturally evolved from still photography to commercials.
+- Owners need to know, you can't play ball in this heat with your pet.
+- Everything about 'Kitten Bowl' has been so tremendous.
+- I like to position a cat tree in the window so the cats can look outside and feel the sunlight.
+- I am on a sugar-free diet. I used to be a sugar addict where I would eat gummy bears and candy when I lived in Europe.
+- A kitten will run then fall asleep. They're so unpredictable!
+- He has painted many roses for me. My walls are covered with Howard originals.
+- Pethood is hard.
+- Every time I pass a litter box I clean it.
+- My husband was like, 'Sure, we can adopt cats, but you know, I love my dog.' But I have to say he's just as in love with these cats as he is with Bianca the bulldog, and they've really enriched our lives to the point of just complete bliss.
+- What I love about the 'Kitten Bowl' is all of the participants, all of our 'players' are up for adoption.
+- We need to bring awareness to how great of a pet cats are.
+- My husband would talk about my volunteer work on his show, and people assumed I was this expert. On a daily basis, they would stop and ask me questions about their dogs.
+- People think I love only cats and dogs. I love all animals.
+- My fantasy would be to adopt a bulldog from bulldog rescue and a big old mutt from North Shore Animal Shelter.
+- I feel like cats need help.
+- Cats are so easy. I would definitely welcome more cats into the Stern household.
+- Howard and I have found that our Bulldog Bianca, and adopted cats Walter, Apple and Leon Bear, enrich our lives so much.
+- I was in a movie called 'Flirting With Disaster' with Ben Stiller. I realized that I am really not a good actor and not something I wanted to pursue.
+- Dog obesity is a big problem in this country.
+- My husband, Howard Stern, is very good at giving gifts.
+- Cats are generally clean. They take care of themselves.
+- There's something to be said for going to a shelter and checking out the adults first because you can really get to know the personalities of the animals. Whereas when you get a puppy or kitten, you don't really know what you're going to end up getting.
+- I've found my purpose in life, definitely.
+- I'm going to be 100 years old, hopefully still hosting the 'Kitten Bowl.'
+- Our family always rescued animals from local shelters or from the street or from someone who didn't want their animal. We always had a dog in our house. We usually had two cats. We had guinea pigs and little chicks and chickens.
+- It's fascinating to see how far people go to spoil their pets... It's beautiful and heartwarming. Some of it is really silly, but I think it's fantastic.
+- When you go into a person's house, and you smell that wash of cat smell, it's the human's fault, not the cat's. Cats want everything to be clean around them. They want where they live to be clean, they clean themselves, they want a clean litter box.
+- There was never a moment in my life that I remember not being a crazy animal lover!'
+- If I go to someone's house and I can see that they only want to meet me because of my husband, we know it's the wrong house.
+- I was able to attend a doggie wedding where the bride wore a custom made gown of taffeta and satin - the quality of the dress was nicer than a lot of the human weddings I've been to.
+- My husband and I live for our pets, or I can say that I do.
+- When I spend time at North Shore Animal League America, I always feel so sad for the cats, especially the kittens. Once they're at North Shore, they're safe and I know they're going to find homes, but it's that time in between that they're in cages and waiting to find homes that breaks my heart and I feel like their spirits are gone.
+- I love spreading the word and encouraging people to adopt from their local shelters. There are so many wonderful animals waiting for loving homes.
+- Howard is the greatest.
+- I'll pretty much eat anything that doesn't have sugar in it. And I'll eat carbs, believe me - I eat tons of pasta! In the morning I eat these low-carb, sugar-free breakfast bars, and for lunch I usually do a chopped salad, and I like natural sugars like fruit.
+- The first book was called 'Oh My Dog,' and it's kind of a whole huge resource book on when you go adopt a dog to the dog's final days.
+- I never planned on having children, that's never been a desire of mine.
+- My husband and I are trying to make cats cool and it's working.
+- Pets have made us better.
+- I hope to have a house filled with animals more than I ever hope to have a child of my own.
+- My work for, and with, animals is just so rewarding. It's the best part of my life. It really is.
+- I was always a dog person.
+- We decided we would have more animals before we would ever have a human baby.
+- Spoiled is when humans put their pet's comfort before their own.
+- My husband and I witnessed firsthand how love truly heals.
+- I never wanted to get married. I never thought that was in my cards. I always thought I was just going to be an independent woman my entire life. Hopefully having a partner but never getting married.
+- My husband and I adore our animals and are so passionate. They've given us so much love - they've given us so much.
+- If you don't have the energy or time to walk your dog, what I recommend is a doggie treadmill. It takes a little while to get the dogs accustomed to it and they are expensive, but if you're looking for a lavish gift for a dog that's fat, it's really great.
+- We go to bed at 8 o'clock at night, even on the weekend, just because that's our schedule.
+- At home, he's a 100-percent softie; that's who he is. I just blew his cover. When Howard has a really stressful day at work or he feels overwhelmed, it's funny, I point to the foster room. After 30 seconds of being there with these baby kittens or these special needs cats, it just changes your whole mood.
+- I am Pittsburgh proud, I root for the Steelers and I still have my Terrible Towel!
+- Kittens are the best therapy.
+- By running the N.Y.C. Marathon in 2008, I became a runner and I think that's what works the best for me and keeps my body the way I like it to be.
+- I am a Pittsburgh girl at heart.
+- I remember the senior class play I was in. I was also in the musical, although I can't sing at all, but I wanted to be a part of it. Then I was modeling in Pittsburgh, so being in front of the camera was something I enjoyed and benefited from. I made money growing up by modeling locally.
+- I truly believe in Claritin. I'm actually allergic to cats, and whenever my eyes get watery, I just pop a Claritin.
+- I love the cat-lady jokes.
+- Howard was actually the one who wanted to get married. From the second that he mentioned it, I was all in. I was so excited.
+- I work and I volunteer at North Shore Animal League, so I'm at a shelter environment every single week. And I see these senior pets sitting there looking, craning their necks looking outside of their cages waiting for their person to come back. So I always say check out the adult animals that are there first.
+- Through my Instagram, I'm always posting pictures of kitten fosters and if it inspires one person to go to his or her local shelter and adopt, it's worth it.
+- I don't have children, so I can focus on my mission to save helpless animals.
+- So often animals come into shelters where their owners have passed away. And they've been perfect pets for most of their lives. So there's an adult animal sitting in a cage that's completely trained, sleeps through the night, is past that puppy stage.
+- Everybody thinks, 'Oh, you're married to Howard Stern... You must be laughing all the time.' Yes, we are laughing all the time, but our lives together, it is not crazy.
+- I love my Howard. He's a great guy.
+- One thing about cats: They are extremely clean animals.
+- My mom, my dad, my two brothers - we're all animal lovers. I think we love animals more than most people.
+- I had two cats growing up that were indoor/outdoor and both of them died from being hit by a car. One of them, she didn't have an ID tag on, so someone just thought it was a stray cat I highly recommend to keep your cats indoors. Their lives end up a lot longer.
+- We keep our house very clean. Lint rollers and vacuum cleaners.
+- Anybody that knows me or Howard knows that wild is not a word that describes him. Maybe on the air, but not at home.
+- My husband is a big softy and he is so lovable. He is very much like my pets in that I love to cuddle him.
+- Cats thrive when they can walk around and sleep in a patch of sunlight.
+- I'm a cat person, I'm a dog person, I work in wildlife rescue.
+- I've always been an animal lover and have no human children, so my heart has been with helping animals.
+- I like gifts that provide a dual purpose.
+- It seemed silly to me I was getting all this recognition and attention for being with Howard. So I thought, 'I have this platform, what can I do with it?' Let's put forth my passion of animal rescue.
+- Howard really is romantic.
+- I have my animals, we have the greatest life and I don't see us having children - never say never - but I really don't see it.
+- Kittens are so messy and sometimes require several feedings a day.
+- I'll do some light weights once or twice a week, but I probably run 3 miles five days a week.
+- I do have a lot of lint rollers.
+- If I'm a crazy cat lady, so be it. I'm very proud.
+- I mean, let's take care of ourselves, and each other, and stay healthy because life is great.
+- These puppy mills are horrific. It's totally for-profit breeding. It's despicable.
+- My husband may be the King of All Media, but I'm the queen of the house.
+- I was born passionate about animals. It's in my blood!
+- What's so funny is people are like, 'Why do you just post pictures of cats?' I said, 'If you don't want to see cats that are up for adoption and my rescue work, do not follow me.'
+- We wake up at 5 A.M. every day whether Howard has to get up for his radio show or not.
+- I'm not scared of it... I feel that I am a cat lady, I'm a little bit crazy because I love them so much and I dedicate my life to them.
+- It's very clean in our house.
+- Having a pet only brings more love into a home and it's the greatest thing I've ever experienced.
+- The ultimate goal of fostering is to get kittens and cats adopted.
+- Our whole life revolves around our pets.
+- When cats scratch the furniture, it's only because they're trying to sharpen their claws, which means they get so long that they want to grind them down. So if you trim their claws routinely, it helps tremendously.
+- In every single one of my purses, even my little satin clutch and my tiny Chanel bag, I always carry a lint roller. I keep them in every drawer, in every desk and nightstand. I just buy those at the dollar store in bulk.
+- When you adopt an animal at a shelter you are saving two lives.
+- I've been really diligent about going and getting screenings and mammograms, and so when I got the scare I said, 'Thank God that I went!' You can't blow it off. It's very important.
+- My parents' firstborn was a rescued collie mix.

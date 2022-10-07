@@ -1,0 +1,19 @@
++++
+author = "Indra Devi"
+title = "Indra Devi Quotes"
+quotes_len = "13"
+description = "the best 13 Indra Devi Quotes"
++++
+- Yoga is a way to freedom. By its constant practice, we can free ourselves from fear, anguish and loneliness.
+- We've got our own daylight to get bad thoughts away, and we talk with that light - our star in our heart. We take away what's unimportant.
+- We must keep both our femininity and our strength.
+- I do not belong to any religion. Everything is between God and myself.
+- Freedom is living without chains.
+- Yoga means union, in all its significances and dimensions.
+- Laughter drives shouting away.
+- We women must listen to our inner voice. It is easier for women to do this as they are not afraid to say what they feel.
+- Women must not shout back when their husbands come home and shout at them for any reason.
+- Yoga is an art and science of living.
+- Men have to descend from their pedestal and learn how to be more broadminded and spiritual.
+- Like water which can clearly mirror the sky and the trees only so long as its surface is undisturbed, the mind can only reflect the true image of the Self when it is tranquil and wholly relaxed.
+- Tell your husbands any bad news when everything is calm, not just as they come through the door.

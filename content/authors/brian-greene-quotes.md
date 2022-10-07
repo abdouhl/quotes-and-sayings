@@ -1,0 +1,114 @@
++++
+author = "Brian Greene"
+title = "Brian Greene Quotes"
+quotes_len = "108"
+description = "the best 108 Brian Greene Quotes"
++++
+- I have long thought that anyone who does not regularly - or ever - gaze up and see the wonder and glory of a dark night sky filled with countless stars loses a sense of their fundamental connectedness to the universe.
+- I do feel strongly that string theory is our best hope for making progress at unifying gravity and quantum mechanics.
+- I can't stand clutter. I can't stand piles of stuff. And whenever I see it, I basically just throw the stuff away.
+- Writing for the stage is different from writing for a book. You want to write in a way that an actor has material to work with, writing in the first person not the third person, and pulling out the dramatic elements in a bigger way for a stage presentation.
+- Einstein's theory of relativity does a fantastic job for explaining big things. Quantum mechanics is fantastic for the other end of the spectrum - for small things.
+- Science is very good at answering the 'how' questions. 'How did the universe evolve to the form that we see?' But it is woefully inadequate in addressing the 'why' questions. 'Why is there a universe at all?' These are the meaning questions, which many people think religion is particularly good at dealing with.
+- I would say in one sentence my goal is to at least be part of the journey to find the unified theory that Einstein himself was really the first to look for.
+- My view is that science only has something to say about a very particular notion of God, which goes by the name of 'god of the gaps'.
+- Over the centuries, monumental upheavals in science have emerged time and again from following the leads set out by mathematics.
+- When general relativity was first put forward in 1915, the math was very unfamiliar to most physicists. Now we teach general relativity to advanced high school students.
+- The universe is incredibly wondrous, incredibly beautiful, and it fills me with a sense that there is some underlying explanation that we have yet to fully understand. If someone wants to place the word 'God' on those collections of words, it's OK with me.
+- If the theory turns out to be right, that will be tremendously thick and tasty icing on the cake.
+- Most scientists like to operate in the context of economy. If you don't need an explanatory principle, don't invoke it.
+- Falsifiability for a theory is great, but a theory can still be respectable even if it is not falsifiable, as long as it is verifiable.
+- As every parent knows, children begin life as uninhibited, unabashed explorers of the unknown. From the time we can walk and talk, we want to know what things are and how they work - we begin life as little scientists.
+- The boldness of asking deep questions may require unforeseen flexibility if we are to accept the answers.
+- Our eyes only see the big dimensions, but beyond those there are others that escape detection because they are so small.
+- String theory is the most developed theory with the capacity to unite general relativity and quantum mechanics in a consistent manner. I do believe the universe is consistent, and therefore I do believe that general relativity and quantum mechanics should be put together in a manner that makes sense.
+- My view is that you don't tell the universe what to do. The universe is how it is, and it's our job to figure it out.
+- Every moment is as real as every other. Every 'now,' when you say, 'This is the real moment,' is as real as every other 'now' - and therefore all the moments are just out there. Just as every location in space is out there, I think every moment in time is out there, too.
+- String theory envisions a multiverse in which our universe is one slice of bread in a big cosmic loaf. The other slices would be displaced from ours in some extra dimension of space.
+- Very much, string theory is simply a work in progress. What we are inching toward every day are predictions that within the realm of current technology we hope to test. It's not like we're working on a theory that is permanently beyond experiment. That would be philosophy.
+- I would say in one sentence my goal is to at least be part of the journey to find the unified theory that Einstein himself was really the first to look for. He didn't find it, but we think we're hot on the trail.
+- Supersymmetry is a theory which stipulates that for every known particle there should be a partner particle. For instance, the electron should be paired with a supersymmetric 'selectron,' quarks ought to have 'squark' partners, and so on.
+- You almost can't avoid having some version of the multiverse in your studies if you push deeply enough in the mathematical descriptions of the physical universe.
+- I've seen children's eyes light up when I tell them about black holes and the Big Bang.
+- My dad was a composer and a musician, but he never finished high school. His formal education was rather minimal from the standards of today's college graduates and Ph.D.'s, but he had a deep interest in questions of science and questions of the universe.
+- The bottom line is that time travel is allowed by the laws of physics.
+- There are many of us thinking of one version of parallel universe theory or another. If it's all a lot of nonsense, then it's a lot of wasted effort going into this far-out idea. But if this idea is correct, it is a fantastic upheaval in our understanding.
+- The absolute worst thing that you ever can do, in my opinion, in bringing science to the general public, is be condescending or judgmental. It is so opposite to the way science needs to be brought forth.
+- We are living through a remarkably privileged era, when certain deep truths about the cosmos are still within reach of the human spirit of exploration.
+- One of the wonders of science is that it is completely universal. It crosses national boundaries with total ease.
+- Sometimes attaining the deepest familiarity with a question is our best substitute for actually having the answer.
+- The central idea of string theory is quite straightforward. If you examine any piece of matter ever more finely, at first you'll find molecules, atoms, sub-atomic particles. Probe the smaller particles, you'll find something else, a tiny vibrating filament of energy, a little tiny vibrating string.
+- Before the discovery of quantum mechanics, the framework of physics was this: If you tell me how things are now, I can then use the laws of physics to calculate, and hence predict, how things will be later.
+- Art makes us human, music makes us human, and I deeply feel that science makes us human.
+- I love it when real science finds a home in a fictional setting, where you take some real core idea of science and weave it through a fictional narrative in order to bring it to life, the way stories can. That's my favorite thing.
+- There may be many Big Bangs that happened at various and far-flung locations, each creating its own swelling, spatial expanse, each creating a universe - our universe being the result of only one of those Big Bangs.
+- By dimension, we simply mean an independent direction in which, in principle, you can move; in which motion can take place. In an everyday world, we have left-right as one dimension; we have back-forth as a second one; and we have up-down as a third.
+- I like 'The Simpsons' quite a lot. I love the irreverent character of the whole show. It's great.
+- We can certainly go further than cats, but why should it be that our brains are somehow so suited to the universe that our brains will be able to understand the deepest workings?
+- It's hard to teach passionately about something that you don't have a passion for.
+- In the far, far future, essentially all matter will have returned to energy. But because of the enormous expansion of space, this energy will be spread so thinly that it will hardly ever convert back to even the lightest particles of matter. Instead, a faint mist of light will fall for eternity through an ever colder and quieter cosmos.
+- I may be a Jewish scientist, but I would be tickled silly if one day I were reincarnated as a Baptist preacher.
+- I think it's too fast to say that all sci-fi ultimately winds up having some place in science. On the other hand, imaginative minds working outside of science as storytellers certainly have come upon ideas that, with the passing decades, have either materialized of come close to materializing.
+- For me it's been very exciting to contribute to the public's understanding of how rich and wondrous science is.
+- We know that if supersymmetric particles exist, they must be very heavy; otherwise we would have spotted them by now.
+- The math of quantum mechanics and the math of general relativity, when they confront one another, they are ferocious antagonists and the equations don't work.
+- Nature's patterns sometimes reflect two intertwined features: fundamental physical laws and environmental influences. It's nature's version of nature versus nurture.
+- The melded nature of space and time is intimately woven with properties of light speed. The inviolable nature of the speed of light is actually, in Einstein's hands, talking about the inviolable nature of cause and effect.
+- String theory is not the only theory that can accommodate extra dimensions, but it certainly is the one that really demands and requires it.
+- The tantalizing discomfort of perplexity is what inspires otherwise ordinary men and women to extraordinary feats of ingenuity and creativity; nothing quite focuses the mind like dissonant details awaiting harmonious resolution.
+- One of the strangest features of string theory is that it requires more than the three spatial dimensions that we see directly in the world around us. That sounds like science fiction, but it is an indisputable outcome of the mathematics of string theory.
+- When we benefit from CT scanners, M.R.I. devices, pacemakers and arterial stents, we can immediately appreciate how science affects the quality of our lives.
+- The idea that there could be other universes out there is really one that stretches the mind in a great way.
+- Exploring the unknown requires tolerating uncertainty.
+- My emotional investment is in finding truth. If string theory is wrong, I'd like to have known that yesterday. But if we can show it today or tomorrow, fantastic.
+- There's no way that scientists can ever rule out religion, or even have anything significant to say about the abstract idea of a divine creator.
+- Science is the greatest of all adventure stories, one that's been unfolding for thousands of years as we have sought to understand ourselves and our surroundings.
+- Oftentimes, if you're talking to a seasoned interviewer who asks you a question, they may do a follow-up if they didn't quite get it. It's rare that they'll do a third or fourth or fifth or sixth follow-up, because there's an implicit, agreed-upon decorum that they move on. Kids don't necessarily move on if they don't get it.
+- There may have been many big bangs, one of which created our universe. The other bangs created other universes.
+- In my own research when I'm working with equations, I never feel like I really understand what I'm doing if I'm solely relying on the mathematics for my understanding. I need to have a visual picture in my mind. I'm constantly translating from the math to some intuitive mind's-eye picture.
+- I'd say many features of string theory don't mesh with what we observe in everyday life.
+- As scientists, we track down all promising leads, and there's reason to suspect that our universe may be one of many - a single bubble in a huge bubble bath of other universes.
+- My mom says: 'Why aren't you a doctor?' and I'm like, 'I am a doctor!' and she's all, 'No, I mean a real doctor.' She reads my books, but she says they give her a headache.
+- How can a speck of a universe be physically identical to the great expanse we view in the heavens above?
+- I think the appropriate response for a physicist is: 'I do not find the concept of God very interesting, because I cannot test it.'
+- Intelligence is the ability to take in information from the world and to find patterns in that information that allow you to organize your perceptions and understand the external world.
+- I enjoy reading blogs, but am not interested in having my spurious thoughts out there.
+- All mathematics is is a language that is well tuned, finely honed, to describe patterns; be it patterns in a star, which has five points that are regularly arranged, be it patterns in numbers like 2, 4, 6, 8, 10 that follow very regular progression.
+- Science is a way of life. Science is a perspective. Science is the process that takes us from confusion to understanding in a manner that's precise, predictive and reliable - a transformation, for those lucky enough to experience it, that is empowering and emotional.
+- We might be the holographic image of a two-dimensional structure.
+- I believe we owe our young an education that captures the exhilarating drama of science.
+- The real reason why general relativity is widely accepted is because it made predictions that were borne out by experimental observations.
+- When you buy a jacket, you pick the size to ensure it fits. Similarly, we live in a universe in which the amount of dark energy fits our biological make-up. If the amount of dark energy were substantially different from what we've measured, the environmental conditions would be inhospitable to our form of life.
+- What makes a Beethoven symphony spectacular, what makes a Brahms rhapsody spectacular is that the patterns are wondrous.
+- Sometimes nature guards her secrets with the unbreakable grip of physical law. Sometimes the true nature of reality beckons from just beyond the horizon.
+- I can assure you that no string theorist would be interested in working on string theory if it were somehow permanently beyond testability. That would no longer be doing science.
+- The number of e-mails and letters that I get from choreographers, from sculptors, from composers who are being inspired by science is huge.
+- There was a time when 'universe' meant 'all there is.' Everything. The whole shebang. The notion of more than one universe, more than one everything, would seemingly be a contradiction in terms.
+- To tell you the truth, I've never met anybody who can envision more than three dimensions. There are some who claim they can, and maybe they can; it's hard to say.
+- In any finite region of space, matter can only arrange itself in a finite number of configurations, just as a deck of cards can be arranged in only finitely many different orders. If you shuffle the deck infinitely many times, the card orderings must necessarily repeat.
+- For most people, the major hurdle in grasping modern insights into the nature of the universe is that these developments are usually phrased using mathematics.
+- I've had various experiences where I've been called by Hollywood studios to look at a script or comment on various scientific ideas that they're trying to inject into a story.
+- We're on this planet for the briefest of moments in cosmic terms, and I want to spend that time thinking about what I consider the deepest questions.
+- Physics grapples with the largest questions the universe presents. 'Where did the totality of reality come from?' 'Did time have a beginning?'
+- Black holes provide theoreticians with an important theoretical laboratory to test ideas. Conditions within a black hole are so extreme, that by analyzing aspects of black holes we see space and time in an exotic environment, one that has shed important, and sometimes perplexing, new light on their fundamental nature.
+- Many different planets are many different distances from their host star; we find ourselves at this distance because if we were closer or farther away, the temperature would be hotter or colder, eliminating liquid water, an essential ingredient for our survival.
+- Black holes, we all know, are these regions where if an object falls in, it can't get out, but the puzzle that many struggled with over the decades is, what happens to the information that an object contains when it falls into a black hole. Is it simply lost?
+- I believe the process of going from confusion to understanding is a precious, even emotional, experience that can be the foundation of self-confidence.
+- Science is a self-correcting discipline that can, in subsequent generations, show that previous ideas were not correct.
+- Physicists are more like avant-garde composers, willing to bend traditional rules... Mathematicians are more like classical composers.
+- Relativity challenges your basic intuitions that you've built up from everyday experience. It says your experience of time is not what you think it is, that time is malleable. Your experience of space is not what you think it is; it can stretch and shrink.
+- When you drive your car, E = mc2 is at work. As the engine burns gasoline to produce energy in the form of motion, it does so by converting some of the gasoline's mass into energy, in accord with Einstein's formula.
+- A unified theory would put us at the doorstep of a vast universe of things that we could finally explore with precision.
+- I think math is a hugely creative field, because there are some very well-defined operations that you have to work within. You are, in a sense, straightjacketed by the rules of the mathematics. But within that constrained environment, it's up to you what you do with the symbols.
+- No matter how hard you try to teach your cat general relativity, you're going to fail.
+- The main challenge that television presents is that I have a tendency to say things with a great deal of precision and accuracy. Often a description of that sort, which will work in a book because people can read it slowly - they can turn the pages back and so on - doesn't really work on TV because it interrupts the flow of the moving image.
+- String theory has the potential to show that all of the wondrous happenings in the universe - from the frantic dance of subatomic quarks to the stately waltz of orbiting binary stars; from the primordial fireball of the big bang to the majestic swirl of heavenly galaxies - are reflections of one, grand physical principle, one master equation.
+- Even when I wasn't doing much 'science for the public' stuff, I found that four or five hours of intense work in physics was all my brain could take on a given day.
+- I think the relationship between memory and time is a very deep and tricky one, to tell you the truth. I don't consider memory another sense. I do consider memory that which allows us to think that time flows.
+- Quantum mechanics broke the mold of the previous framework, classical mechanics, by establishing that the predictions of science are necessarily probabilistic.
+- The pinpoints of starlight we see with the naked eye are photons that have been streaming toward us for a few years or a few thousand.
+- There's a picture of my dorm room in the college yearbook as the most messy, most disgusting room on the Harvard campus, where I was an undergraduate.
+- The full name of string theory is really superstring theory. The 'super' stands for this feature called supersymmetry, which, without getting into any details, predicts that for every known particle in the world, there should be a partner particle, the so-called supersymmetric partner.
+- The funny thing is, I sometimes get the impression that some people outside of the field think that there's some element of security that we have in working on a theory that hasn't made any predictions that can be proven false. In a sense, we're working on something unfalsifiable.
+- The fact that I don't have any particular need for religion doesn't mean that I have a need to cast religion aside the way some of my colleagues do.
+- I wouldn't say that 'The Fabric of the Cosmos' is a book on cosmology. Cosmology certainly plays a big part, but the major theme is our ever-evolving understanding of space and time, and what it all means for our sense of reality.

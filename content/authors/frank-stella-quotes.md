@@ -1,0 +1,18 @@
++++
+author = "Frank Stella"
+title = "Frank Stella Quotes"
+quotes_len = "12"
+description = "the best 12 Frank Stella Quotes"
++++
+- One learns about painting by looking at and imitating other painters.
+- Architecture can't fully represent the chaos and turmoil that are part of the human personality, but you need to put some of that turmoil into the architecture, or it isn't real.
+- What you see is what you see.
+- A sculpture is just a painting cut out and stood up somewhere.
+- When I'm painting the picture, I'm really painting a picture. I may have a flat-footed technique, or something like that, but still, to me, the thrill, or the meat of the thing, is the actual painting. I don't get any thrill out of laying it out.
+- No art is any good unless you can feel how it's put together. By and large it's the eye, the hand and if it's any good, you feel the body. Most of the best stuff seems to be a complete gesture, the totality of the artist's body; you can really lean on it.
+- I don't like a lot of the stuff that goes on in the art world, but it's hard to be old and like what goes on around you.
+- I don't like to say I have given my life to art. I prefer to say art has given me my life.
+- Up until 35 I had a slightly skewed world view. I honestly believed everybody in the world wanted to make abstract paintings, and people only became lawyers and doctors and brokers and things because they couldn't make abstract paintings.
+- I was worried in the '80s that the best abstract painting had become obsessed with materiality, and painterly gestures and materiality were up against the wall.
+- But, after all, the aim of art is to create space - space that is not compromised by decoration or illustration, space within which the subjects of painting can live.
+- I want to make exalted art. A successful image has pictorial lift. I am looking for whatever is up there.

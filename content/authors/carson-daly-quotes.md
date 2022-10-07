@@ -1,0 +1,35 @@
++++
+author = "Carson Daly"
+title = "Carson Daly Quotes"
+quotes_len = "29"
+description = "the best 29 Carson Daly Quotes"
++++
+- If I could be lucky enough to just have radio as the base for the rest of my life, I could build off that. No matter how successful I become, I always look at radio as the only skill set I can really call on. I even know how to operate the boards.
+- The plate tectonics of media have shifted where NBC had to become a new media company from an old media company.
+- A good butcher is important to have. It's like a shrink.
+- You know, I'm cursed with morals. I was raised a certain way. I wish I wasn't. I wish I was raised by wolves.
+- Carson is an old family name, though my grandma used to watch Johnny all the time and was crazy about him.
+- I don't have a sidekick - no Ed McMahon. So when I go out there, I'm lonely. It's scary.
+- I'm developing a record company. I'm learning how to supervise music on a film.
+- I think long-lasting, healthy relationships are more important than the idea of marriage. At the root of every successful marriage is a strong partnership.
+- The one thing I learned the most about acting is it takes a tremendous amount of courage to go there and stand still. It takes courage and guts to step out of your mind frame and depict something.
+- The No. 1 question I get from everybody is, 'How did you make it?' I'm like, Don't worry about making it. There is no making it. Just be happy.
+- A friend of mine - a cameraman at MTV - lost a lot of weight from cycling, and I thought I'd try it, too, thinking whenever you look at a cyclist they all look super-skinny, so hey, why not? But then it turned into such a psychologically satisfying thing.
+- I do California casual a little bit better than really small European cut, tight apparel But I can rock some Gucci when I need to. I say this as I'm wearing Adidas sweatpants and a ten-year-old Chrome Hearts T-shirt.
+- I really like it that they promote from within.
+- I'm from California, but my father, who passed away when I was young, was from Newark. When I was kid, we would go back east and catch Yankees games. His side of the family are big Yankees fans. But, the real connection came in '97 when I moved to New York and became friends with the team.
+- I stumbled into this format for 'Last Call with Carson Daly' that I really like, inspired by cable and Dave Attell's 'Insomniac.' I love being out on the street.
+- I love 'Last Call.' It took me a little bit to figure out that I wasn't going to be that guy in a suit telling monologue jokes.
+- MTV was such a great training for me. I did live interviews with everyone from Michael Jackson to Madonna.
+- I hope 'The Voice' has a fifteen-year run, don't get me wrong. But I come from nothing, and maybe it's the Irish in me, but my attitude is always like, 'They'll figure me out soon.'
+- No one's on at my time but infomercials.
+- When I was a freshman in high school, I got a letterman jacket, which you'd think would be great stock. The jacket had the big S on it, for Santa Monica. But rather than having a football or a baseball on the S, I had a little nine iron. Girls thought it was a flute.
+- Men often think it's the bad boys who get the hot chicks. But I'm living proof that the good guys win.
+- It's hard to be a breakout show and stay on top. We're like the flagship show over here.
+- My girlfriend Siri is a food blogger, and we both love to entertain and eat. This is what happens when you're in your thirties: what was once a passion and real appetite for nightlife in New York City manifests itself into other things, like entertaining at home.
+- When reality television really hit, I just had a backlash towards reality. It seemed like a cheap way to make a product. And then when music reality and 'Idol hit,' I just didn't watch it, it seemed novelty. And of course the story of 'Idol,' this is one of the greatest stories in television history.
+- Maybe it's because One Direction was just on 'SNL,' or because I'm playing The Wanted on my Top 40 show, but in terms of boy bands, we're seeing this resurgence, and it's happening, whether you like it or not!
+- You have to change the set, stay ahead of the curve.
+- NBC's priorities are Jimmy Fallon and Jay Leno, and then there's me.
+- It's important for people to realize I don't want to be the It guy. I want to crawl before I walk. I want to learn about things before I jump into them.
+- It was really fun being in Tara's trailer, working on my lines. Tara is such an amazing actress. She's so good at what she does. I learned a lot from watching her.

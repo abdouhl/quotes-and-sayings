@@ -1,0 +1,29 @@
++++
+author = "Ludwig Quidde"
+title = "Ludwig Quidde Quotes"
+quotes_len = "23"
+description = "the best 23 Ludwig Quidde Quotes"
++++
+- Lightly armed nations can move toward war just as easily as those which are armed to the teeth, and they will do so if the usual causes of war are not removed.
+- We pacifists have not ceased to point to the grave danger of armaments and to insist on their curtailment.
+- When distrust exists between governments, when there is a danger of war, they will not be willing to disarm even when logic indicates that disarmament would not affect military security at all.
+- In life, particularly in public life, psychology is more powerful than logic.
+- The relationship of the two problems is rather the reverse. To a great extent disarmament is dependent on guarantees of peace. Security comes first and disarmament second.
+- Let us assume that the ideal were reached; let us imagine a state of international life in which the danger of war no longer exists. Then no one would dare to demand a penny for obviously completely superfluous armaments.
+- Limitation of armaments in itself is economically and financially important quite apart from security.
+- Thus, if armaments were curtailed without a secure peace and all countries disarmed proportionately, military security would have been in no way affected.
+- Among pacifists it was above all the English who always insisted on the importance of disarmament. They said that the man in the street would not understand the kind of pacifism that neglected to demand immediate restriction of armaments.
+- Disarmament or limitation of armaments, which depends on the progress made on security, also contributes to the maintenance of peace.
+- Armaments are necessary - or are maintained on the pretext of necessity - because of a real or an imagined danger of war.
+- The following year, after I had prepared my draft, the Conference of the Interparliamentary Union at The Hague decided to set up a special commission to study the problem seriously.
+- Every success in limiting armaments is a sign that the will to achieve mutual understanding exists, and every such success thus supports the fight for international law and order.
+- Great progress was made when arbitration treaties were concluded in which the contracting powers pledge in advance to submit all conflicts to an arbitration court, treaties which not only specify the composition of the court, but also its procedure.
+- The popular, and one may say naive, idea is that peace can be secured by disarmament and that disarmament must therefore precede the attainment of absolute security and lasting peace.
+- Even a total and universal disarmament does not guarantee the maintenance of peace.
+- It will be sufficient to point to the enormous burdens which armaments place on the economic, social, and intellectual resources of a nation, as well as on its budget and taxes.
+- The security of which we speak is to be attained by the development of international law through an international organization based on the principles of law and justice.
+- So long as peace is not attained by law (so argue the advocates of armaments) the military protection of a country must not be undermined, and until such is the case disarmament is impossible.
+- I am convinced that when the history of international law comes to be written centuries hence, it will be divided into two periods: the first being from the earliest times to the end of the nineteenth century, and the second beginning with the Hague Conference.
+- Some pacifists have carried the sound idea of the prime importance of security too far, to the point of declaring that any consideration of disarmament is superfluous and pointless as long as eternal peace has not been attained.
+- The present level of armaments could be taken as the starting point. It could be stipulated in an international treaty that these armaments should be simultaneously and uniformly reduced by a certain proportion in all countries.
+- Pacifist propaganda and the resolutions of the parliamentarians encouraged such treaties, and toward the end of the nineteenth century their number had increased considerably.

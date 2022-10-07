@@ -1,0 +1,105 @@
++++
+author = "Idina Menzel"
+title = "Idina Menzel Quotes"
+quotes_len = "99"
+description = "the best 99 Idina Menzel Quotes"
++++
+- For me, 'Rent' was all about coming out of myself, finding out who I was, learning the power I could have as a performer. And 'Wicked' was about harnessing all that strength.
+- Things happen for a reason, and in their own time.
+- I would love to work with Matt Damon.
+- I'm not great at multi-tasking, so when I do one thing... I like to do it 100%.
+- My biggest project right now is trying to be a really great mom and learning how to balance family and career. I'm just trying to spend as much time with my family as I can.
+- I don't think I ever really knew the right words to 'Hava Nagilah,' which isn't great for a Jewish singer.
+- As much as I appreciate people putting me in the category of these very acrobatic belters, I feel like my strength is my... interpretation and my truthfulness with songs, and I don't want young people to think it's all about the high notes that they have to hit.
+- We are never doing anyone any favors by withholding our gifts from the world. It's scary to be fierce, but you can't compromise that for fear of losing those around you.
+- My husband and I grew up with parents who supported our passion, and we're grateful to them for that. It really helps you find your identity when you're younger. It helps you become a really well-rounded person, the more you can show from different perspectives. The arts show us empathy, which is so important.
+- I think as women, the smarter and more powerful we are, the more it can be threatening and alienating to other people, more than with men. That's something we need to support each other with.
+- You can't be the vulnerable, transparent, raw person required to be an artist, and then cover that stuff up and meet the world with some kind of armor on. It just doesn't go.
+- I always like to sing barefoot.
+- Barbra Streisand, for one, is one of my idols. I've listened to her since I was a little kid - the first album I ever bought was 'A Star is Born' with Kris Kristofferson.
+- If I want to tuck my son into bed and read him a story, but that means I have to take a red-eye to get to a concert - which I would never think of doing otherwise - that's just the way it is. Even if I can't hit the note that night, I got to tuck my child in!
+- I can sing 'Happy Birthday' to you in twelve different places, but one of them is going to make you feel a certain thing, maybe it's a vulnerability, maybe an innocence, maybe another way is sexy and soulful or bluesy whatever it is, but with singers, exploring keys, I think, is important.
+- The first album I ever owned was 'A Star is Born.'
+- I love my husband very much. I knew it was real true love because I felt like I could be myself around that person. Your true, true innermost authentic self, the stuff you don't let anyone else see, if you can be that way with that person, I think that that's real love.
+- I think I hid my singing talent from a lot of my friends at school because I didn't want to alienate anyone. If everyone was singing along in the car to a Madonna song, I didn't join in because when we're younger we're afraid of sticking out or showing off, when in fact we should own those things that make us really unique.
+- I used to take 40 minutes to warm up before going on stage. If you want to spend time with your child as well as having a career, you have to get up there even if your head's a mess. It's made me more relaxed, and I'm having some of my best shows.
+- It's been a dream of mine to run my own summer camp. I went to one as a kid, and I put on productions, and got lots of confidence.
+- As I get older, I realize all I've done is sing and act and hone those skills.
+- When I lived in London when I did 'Wicked' there, everyone told me the audiences might be much more reserved, but I found it was completely the opposite. They jumped to their feet sooner, even more enthusiastically than the New York audiences did, and they were just as warm and as enthusiastic and supportive as New York.
+- The cool thing is that, unlike film, the theatre roles for women get better and better as you get older.
+- I started working professionally as soon as I could, doing weddings and things like that in high school, while everyone else was having keg parties. I just felt destined to do it and really committed and driven; it was something that just felt right all my life.
+- I've been singing since I was born. It's something I do everywhere I go. In the shower, walking down the street. I don't need any impetus to do it. I just sing.
+- My story is so boring: Long Island Jewish parents take their daughters to Broadway.
+- Performing live on stage is such a community, whether it's my musicians or a cast of a show that I'm in. And then when you're in the studio or on set, it's a much more solitary experience. Both can serve me at different times in my life. And when I go back and forth from one to the other, it helps me appreciate all of them much better.
+- I used to be someone that needed nine hours of sleep; otherwise, I didn't think I was going to sound good when I sang, and I was very disciplined and anal about my preparation. When you become a parent, there just isn't that time, you know?
+- I find that, maybe because I'm also a singer, I hear music in characters all the time, even if they don't sing. I hear what affects me in my heart.
+- I'm a decent tennis player. Good backhand.
+- I just enjoy being onstage and relating to the audience.
+- Usually I'm pretty myopic. It's hard for me to multi-task, so to speak. If I'm in a show and I'm creating a character, I'm just completely into that. It's really hard for me to do anything else like write music. I have to sort of shut down different sides of my head and just focus.
+- Growing up I studied classically and did lots of shows in school.
+- I'm constantly trying to work on the person that I am and work on my shortcomings, and I guess I want people to know that it's ok to be a work in progress, as long as you keep trying to figure it out. But that search and that discovery is what makes life kind of rich, and it's what makes life rich... period.
+- I will never leave the theater. My heart is there, and I love being on stage 8 times a week.
+- All performers get on stage because they need to feel love from an audience. I might appear confident, but those three seconds before I get out there, I'm a mess. But I have to take the risk; otherwise, I'd be miserable and would feel like I wasn't seeing through my personal destiny.
+- Motherhood has helped me to stop overanalyzing things. It's been liberating because I used to be somewhat neurotic. I attribute that to having something bigger than myself.
+- There are lots of things I'm acquainting myself with now to be a more well-rounded person.
+- I definitely use my music to kind of alleviate my stress and get me through specific moments in time where I'm just being really tough on myself.
+- I have a wide spectrum, a wide demographic. I have the young girls, I have the gay community, I have many regular theatergoers. I do feel a tremendous responsibility and pride to be a role model for some of these young people.
+- I've met so many of my idols, but the one person that has eluded me is Bono. But because he's done 'Spider-Man,' I keep thinking maybe, through a Broadway connection, somehow our paths will eventually merge.
+- I will never leave the theater. My heart is there and I love being on stage eight times a week.
+- Believe me, I don't take that lightly. To have struck gold twice with 'Rent' and 'Wicked.' I know it's rare and I'm very lucky to have that kind of phenomenon in my life. They're not just great shows, they're shows that resonate with young audiences.
+- 'Rent,' for me, was a significant time in my life because it was my first break. It was my first professional job. I also met my husband in that cast, Taye Diggs.
+- I know I'm known for singing some of those high notes, but that's really not what giving someone goosebumps is all about. It's about really trying to find what makes you unique.
+- I'd love to open a camp focusing on the arts accessible to kids from all income brackets.
+- The intensity of being in front of all these incredible musicians and tremendous conductors in these elaborate halls can be overwhelming.
+- I started singing weddings and bar mitzvahs at 15, lying about my age. It was a great discipline.
+- I always use my husband's cocoa butter stuff. He has amazing skin!
+- Who am I, if I'm not this singer with big high notes? I identify with my voice. But I'm more than just the acrobatics.
+- I tend to have a pattern of playing misunderstood characters.
+- I'm trying to focus on original material. That is what I've had my luck with.
+- I like to originate new roles and characters for musical theater.
+- I'm a mom - I'm lucky if I get to shower in the morning. Luckily, nail polish stays on my toes. I've been so bad on the upkeep, though.
+- The truth is I love musical theater and always have.
+- Nerves are good. They keep you alive.
+- I'd been a wedding singer through college, but after a few years of doing my best renditions of jazz standards to clinking glasses and the sound of forks on salad, I thought, 'Oh God, if this is all I do, I'll never be able to live with myself.'
+- I feel like I was born to do this... I started working professionally as soon as I could, doing weddings and things like that in high school, while everyone else was having keg parties. I just felt destined to do it and really committed and driven; it was something that just felt right all my life.
+- I made a good living for a teenager. And I had to learn all different kinds of music - jazz, swing, Motown, pop - and that inspired what kind of music I started to write.
+- You get to relive your childhood when you have a baby and you see these toys and these books you read when you were little - the innocence that you are able to maintain because you have to find that again in order to connect with your child keeps you in a special state of mind.
+- I think that if you're doing a new musical, you want to have the opportunity to experiment and try things without the whole city of critics looking over your shoulder.
+- Being a role model is about being true to myself.
+- The more success you get, you start to be harder on yourself or more afraid of the looking glass. You have to learn to build a thicker skin because people are paying more attention.
+- It's hard to absorb and to allow all that attention and accolades for 'Rent' because the rest of the country doesn't know who we are. Once I walk out of the door of 'Rent,' and I'm on the subway, it doesn't matter. It's an exaggerated sense of fame.
+- I would like to get another job in London or tour there. I miss my friends.
+- People have these incredible expectations. So instead of being inspired by, say, Joni Mitchell's music, I look at it and say to myself, 'I'm going to quit - why would I think of writing or performing after listening to that?'
+- That's what I love about songwriting - that you can write something about your own experiences and think it's completely specific to you, and then people can take away a completely different meaning for themselves. I really love that. I think you've been successful at writing a song when it has a larger life than yourself.
+- There has to be a balance between power and vulnerability. That's something I feel I have in my own life, something I struggle with and - on a good day - like about myself.
+- As a mom, I don't have much time for beauty.
+- Along with enough sleep and taking proper supplements, I steam - in my steam shower. I find it's very healing, more than just your typical 'tea and honey.'
+- They're always so serious, the orchestras, you know? It's always a fun contrast of that song and the genre of music. And me.
+- After 'Rent,' I tried to make a record, and it didn't work out, and it was the Broadway community that welcomed me back. It's where I feel the most understood, most at home.
+- It's the face and the body and the thing that we hide inside that can keep us from the world, but my voice is my voice.
+- My favorite thing of all time is a New York City weekend when there's a blizzard. Everything gets really quiet, and everyone goes to the movies and the park.
+- I wish I had read more and majored in literature rather than theatre. I think I would have been a better artist for it. I am trying to play catch-up now.
+- 'Frozen' definitely isn't about a man, but about the relationship between two sisters. At different times in our lives we find ourselves either more connected to or disconnected from the people in our family, and I think audiences will really be able to relate to that.
+- I pretty much have no life outside of the theatre. I go home every night, and I put the TV on, and I veg out and order food.
+- With young people, I always say, 'You're not doing anyone any favours by withholding your power.' As women, we do that a lot because we are afraid of being misunderstood or perceived as too strong. But the older I'm getting, the more I realise you have to let that go.
+- The sky in Texas is the most amazing sky in the whole country, I think, like you can see more sky in Texas than you can see anywhere else in the world.
+- I keep saying, the older I get, the younger my audience gets. Because 'Wicked' and 'Rent' and 'Glee,' each one was a young audience, so it's a great thing to have, so then you know that as they get older and have kids, they'll maybe still buy tickets to my shows when I'm 80 and in Vegas!
+- My younger sister had kids before I did, and managed to earn a master's degree while raising them as a single parent. Now she's a brilliant second-grade teacher. I'm in awe of her ability to juggle everything and still be a great mother.
+- That experience with 'Rent' went by so fast. I was younger. I didn't even really know what opening night was. And now I'm thinking back on the times I went to Broadway as a kid and the excitement I felt... And I'm realizing that I'm actually a part of that, so I'm learning to take it in, 'cause so often I shrug it away.
+- I don't quite know how to put it into words, but I feel for the audience that I have; I know them.
+- Everybody thinks it's going to be so glamorous, so cool, you're on 'Glee,' you know, a hit show or whatever.
+- A lot of my fans are young and hip and enjoy my pop album and know the lyrics to those songs as well, which is a real compliment to me.
+- I'm more comfortable revealing myself than hiding behind metaphors. I respond to artists who reveal something of themselves.
+- I would love to play 'Funny Girl' or 'Evita,' but I idolize the women who have played those parts. I don't know if there needs to be another version of those shows.
+- As an artist, you have to express yourself. I make no excuses for my versatility. I grew up singing classical arias, but I love rock n' roll and jazz standards.
+- Everything's always about being homogenized and following in a group. The people who stand out always have the most problems.
+- For me, 'Rent' was all about coming out of myself, finding out who I was, learning the power I could have as a performer.
+- For singers, I believe we can sing in a lot of keys. I know I have this big range, but the point is to find a key that emotionally connects people.
+- I sing in many different colors and, hopefully, they add up to a great performance that, after you leave the theater, makes you feel like I've really shared something of myself.
+- I love working with a cast and a group of people every day, which is different than recording because you're usually pretty isolated and alone. They serve as a good balance for each other.
+- I set the bar high because I don't want to do just any other show just to keep working. I want to do something special that means something to people and speaks to them. Those kinds of opportunities don't come along all the time!
+- I always like to sing barefoot, but when I first started doing these dates with the symphonies, I of course thought I should clean up my act, being a Jewish girl from Long Island with a little bit of a trucker mouth. So I wore a gown and some high heels.
+- I was once an extra in a Bruce Springsteen video where they did a live performance video at Tramps. I forget the name of the song.
+- The most successful people are so original.
+- I'm smart enough to know to work with smart people.
+- I have the potential to be very strong and powerful, sometimes angry, sometimes passionate. I also can be shy and withhold that because I am afraid. I don't want to freak anybody out with my passion... So I struggle with that all the time.

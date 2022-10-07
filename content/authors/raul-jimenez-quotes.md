@@ -1,0 +1,74 @@
++++
+author = "Raul Jimenez"
+title = "Raul Jimenez Quotes"
+quotes_len = "68"
+description = "the best 68 Raul Jimenez Quotes"
++++
+- My dream team? Whatever one that signs me would be incredible.
+- We always want to compare someone with someone else, whatever you do there will always be that comparison.
+- Every striker wants a teammate with his ability. Adama can cross from anywhere, so you have to be there at the right time to score.
+- You want to compete against the best players and that year at Atletico helped me a lot to become what I am now. It was difficult because it was the first time I was living alone but I think I adapted quickly to a new life.
+- I've shown some good skills and want to keep going and improving.
+- I'm learning new things every day and that's crucial as you always need to take advice from the best to keep growing as a player.
+- The little I knew of England was London, Newcastle. I knew very little about England and I didn't know anything about Wolverhampton.
+- I am very good at Wolves, but you always have to look for more, you have to keep fighting.
+- It was difficult at Atletico Madrid. It was my first experience in Europe when I went there and La Liga was hard.
+- Sometimes you win and sometimes you lose and you have to be happy with that.
+- I have played at the Nou Camp and the Bernabeu.
+- One day I woke up and Juventus wanted me, another Manchester United and what I know is that there were approaches made. But an agreement was never reached and nothing was close.
+- All the supporters who support me in Mexico now support the Wolves.
+- Some people are either going to love you or hate you but, yes, I think there are more people who love me!
+- Different strikers are happy when they score but you have to think about the team - the assist and movements which can give space for your team mates. You can never quit. It's teamwork.
+- I would have liked to have done more at Atletico. I was only there for a year.
+- With Wolves we are fighting for the Champions League, I am happy. and I am an important player for the fans and for the team.
+- My dream is to score in front of the Kop.
+- It's not easy trying to match the likes of Diego Forlan, Diego Costa and Radamel Falcao.
+- It was always a dream as a footballer to compete in the best leagues in the world and those leagues are here in Europe.
+- I was very happy to make my Liga debut.
+- I am always looking to improve.
+- I would never rule out returning to Spain. I have good memories, and I would like to go back at some point.
+- If I stay here at Wolves, I'd be very happy.
+- I am delighted to be part of a club as important as this one. I really want to help so that Benfica continues with its success and I'm very hopeful of playing well.
+- I will do everything to help the team.
+- I am fine, I do not close any doors, I am open to whatever comes but it does not stop me sleeping.
+- It is not the same being in China as being in Europe.
+- The Wolves fans make me feel like I'm at home and I really appreciate it.
+- With the national team I had to go to Newcastle, Wales, I knew a little about England, but Wolves and Birmingham I did not know anything.
+- When you score you can do whatever you want.
+- In Madrid I lived quietly and then Lisbon cost me more. Language was a subject and adaptation was slow, but getting to Wolverhampton was radical. It gave me peace of mind. There I can go as if nothing to make my life. People approach, with respect, to tell me that they are happy with me.
+- One needs to be of a mindset that to be champions of the world anyone can be beaten, and that's what we want, what we dream about.
+- You always have to keep doors open for everything but never lose your mind.
+- I have a lot of confidence in what I'm doing.
+- I think Wolves are getting the best out of me, and I'm giving Wolves my best football, but they are giving the best to me too.
+- I'm proud of being part of the Mexico attack, and I want to show who I am.
+- Football is something I've always dreamed of, it has always been my life.
+- There are things I need to improve upon and I know that's not easy because there are a lot of other players who want the same.
+- Big, historic football clubs have the ability to come back, even when everything seems lost. There is a strong inner belief within every player and also the fans.
+- I knew about teams from England, but I even asked where Wolverhampton played and they told me, 'Well, in Wolverhampton.' 'Oh, it's a city?'
+- It feels very good to be a Wolves player.
+- I have had penalties in finals so I have experience.
+- I would always like to be on the field.
+- It's good to be able to be the same no matter who you're playing, knowing what you're doing, having consistency.
+- Every day we can learn something that makes us better.
+- Wolves paid £30m for me, and if they sell me it'll surely be for more.
+- The truth is I would always like to play 90 minutes, do it in every game.
+- The Miracle of Istanbul was the most amazing game I'd ever seen - and long before the end I'd decided Liverpool would be my team.
+- The truth is I am very happy in Wolverhampton.
+- I spent three seasons at Benfica looking to be in the first eleven. Sometimes I got in and sometimes I didn't. Sometimes injuries denied me. Sometimes the strikers who were in my position, they were scoring and scoring so it was difficult to play.
+- I have the desire to play more to give the best of me.
+- Every time I score or assist I am proud of myself if I have helped the team to get a result.
+- You have to play every game like it's the last, like it was a final.
+- I learned that I had to be patient and I had work hard even if the opportunities were not there. I just had to keep working to find them.
+- I have fallen in love with Atletico, I am in that process. I want to make history with this club.
+- I want to try out La Liga once more, as I didn't get to play much the previous time.
+- In Mexico City, I lived the efforts of the Mexican capital and I was happy.
+- It's always disappointing to score, to be fighting all the game, to find a way to break them and then with a free-kick they equalise.
+- It was never a difficult decision to join Wolves.
+- I have to score goals and provide assists.
+- Whenever we go to the cinema in Mexico, we have to get taken in two minutes before the film starts. We sit in a little room and wait for everyone else to sit down, or it becomes very difficult. Then, afterwards, there are people outside waiting for me.
+- We have to show our best level in every game.
+- I want to train to win the confidence of the coach and my teammates so I can get good performances on the pitch.
+- We want to win every game.
+- I get messages all the time on Twitter and Instagram from people back home telling me that they have bought a Wolves shirt. It's amazing that it can happen.
+- We have to go to the pitch thinking we have to win.
+- I never quit. I always kept working and doing the things that I know with a smile on my face knowing that if my chance came I would be ready to take it.

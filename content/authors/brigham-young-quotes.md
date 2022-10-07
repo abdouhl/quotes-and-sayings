@@ -1,0 +1,31 @@
++++
+author = "Brigham Young"
+title = "Brigham Young Quotes"
+quotes_len = "25"
+description = "the best 25 Brigham Young Quotes"
++++
+- It is wise for us to forget our troubles, there are always new ones to replace them.
+- Never let a day pass that you will have cause to say, I will do better tomorrow.
+- If I had a choice of educating my daughters or my sons because of opportunity constraints, I would choose to educate my daughters.
+- Infringe upon the rights of no one. Borrow no tool but what you will return according to promise. Take no wood, nor anything else but what belongs to you - and if you find anything that is not your own, do not hide it away, but report it, that the owner may be found.
+- I don't care about my character here on earth. I don't care about what other people think or say about me, all I care about is my standing before the Lord.
+- Brethren, let us mind our own business - that is, the calling the Lord has called us to - to do everything we can to promote the good of the Cause of Truth, and never ask how big we are, or inquire who we are; but let it be, 'What can I do to build up the Kingdom of God upon the Earth?'
+- There is no knowledge, no light, no wisdom that you are in possession of, but what you have received it from some source.
+- Honest hearts produce honest actions.
+- In the adversity of our best friends we often find something that does not displease us.
+- Don't try to tear down other people's religion about their ears, Build up your own perfect structure of truth, and invite your listeners to enter in and enjoy its glories.
+- If the Devil can only make you think that you are abused or ill treated, and you begin to fret about it, and you give the Devil power over you - in the end, it is as bad as though you had done wrong yourself.
+- Silence may be golden, but can you think of a better way to entertain someone than to listen to him?
+- A good man, is a good man, whether in this church, or out of it.
+- I am a firm believer in slavery.
+- Any young man who is unmarried at the age of twenty one is a menace to the community.
+- Remember, a chip on the shoulder is a sure sign of wood higher up.
+- Education is the power to think clearly, the power to act well in the worlds work, and the power to appreciate life.
+- Nature is the glass reflecting God, as by the sea reflected is the sun, too glorious to be gazed on in his sphere.
+- Produce what you consume; draw from the native element the necessaries of life. Permit no vitiated taste to lead you into the indulgence of expensive luxuries, which can only be obtained by involving yourselves in debt.
+- We should never permit ourselves to do anything that we are not willing to see our children do.
+- True independence and freedom can only exist in doing what's right.
+- Love the giver more than the gift.
+- I want to live perfectly above the law, and make it my servant instead of my master.
+- The biggest labor problem is tomorrow.
+- I don't care whether the people believe me to be a prophet, seer, or revelator or not - I have been very profitable to this people, and I have seen a good many things, and I have revealed many things.

@@ -1,0 +1,20 @@
++++
+author = "Bill Forsyth"
+title = "Bill Forsyth Quotes"
+quotes_len = "14"
+description = "the best 14 Bill Forsyth Quotes"
++++
+- The studio system reminds me of the stock market.
+- I'd made these experimental films but I thought the major chore of a filmmaker was to relate to actors.
+- I don't really enjoy filming.
+- There are things that Scotsmen get and other people don't get in the dialogue. Scottish characters can be pinpointed by a phrase, targeted very quickly.
+- My two elder sisters married Englishmen and went abroad.
+- I'm not fond of any of my films in an intimate way, but Gregory's Girl would be number 4 on my list.
+- At the moment, my mother is the only one left in Glasgow, although it's certainly my home.
+- The movie business is very much like that: people in authority making purely emotional decisions instead of interesting rational ones.
+- I was quite surprised how easily people wanted to pigeonhole things I've done.
+- I went to the Glasgow Youth Theatre and they just let me in. But I was so shy that I was there for about six weeks without actually introducing myself.
+- Perhaps naively I thought people understand what humor was, that it was invented by the human race to cope with the dark areas of life, problems and terrors.
+- I didn't think Comfort and Joy was going to be a box-office smash.
+- It's easier for me to get three times the amount of money I really want.
+- It means that if they misunderstood Comfort and Joy, they misunderstood my other films.

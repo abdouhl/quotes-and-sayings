@@ -1,0 +1,68 @@
++++
+author = "Bryson Tiller"
+title = "Bryson Tiller Quotes"
+quotes_len = "62"
+description = "the best 62 Bryson Tiller Quotes"
++++
+- I like Kehlani a lot because she's on her grind; she does everything herself. She's writing her own music and, you know, putting all the vocals together, and she's just dope. She just reminds me a lot of me.
+- I just started mimicking what I heard and singing along to it.
+- I'm in R&B/Soul, and I feel like all my music is R&B driven. Even some of the songs that are more rap have an R&B feel, so I'm with that.
+- I started listening to The-Dream a lot. That's when I really got into writing songs. I like the way he put lyrics and makes his songs. So I was like, 'All right,' and I just started writing. That's when I started wanting to be a songwriter.
+- Everybody's family plays them music, and my grandma used to play a lot of old-school stuff, like Ron Isley and Gladys Knight. Earth, Wind & Fire is the one I started paying attention to. My uncle introduced me to R&B, like Dru Hill, 112 and all those dudes.
+- I want to inspire people to change the world. That's something that I feel that I'm meant to do here... really going to change the world. I asked God to make me immortal so I can do it.
+- I just wanna make music that people love. If they love the next project that I put out, 'Thank you' because that means that I can take care of my family.
+- My uncle introduced me to R&B, like Dru Hill, 112 and all those dudes. Eventually, he put me on Omarion's first album, and that was the first album that made me want to start singing.
+- Every time I go home, I look around, and it feels surreal. Like, I'm not living out of my car anymore, I don't have to ask people for money.
+- My little brother and grandma told me I could sing. I used to sing in church, too. Not like in the choir or anything, but for people around the church... on the church bus going home and Christmas plays.
+- I wore a uniform to school, so the white-on-white or black-on-black Air Force 1 Low was the simple sneaker to wear, but it was the standard.
+- Vine is where 'Don't' started popping off. A lot of famous Viners used the song, and that was crazy because I had never been a part of something like that. I drank champagne for the first time when it got 100,000 plays.
+- I like anime, but one of my favorite animes, and one of the most popular animes out there - Dragon Ball Z. That's the one that I watch the most. I don't watch all the crazy stuff like Bleach, One Piece.
+- Everybody always thinks you have to move out of the city and go where the music industry is, but it's possible in Louisville, and it's possible anywhere. You just have to believe.
+- I grew up with my little brother, and we were raised by my grandmother. I was an insider for real. I stayed in the house a lot, writing songs or playing video games, watching TV, or chilling with my girlfriend. It wasn't until 9th grade that I got into music. This guy in school heard me singing around the hallway to girls and stuff.
+- The other day, I woke up, and somebody sent me a screenshot, and it was Sylvester Stallone, Rambo himself. Tweeting my song. 'Rambo.' And I went absolutely nuts in my hotel. Like, I was jumping on the bed screaming.
+- You were cool if you had on a pair of Air Force 1s. It's still a staple for me while on tour.
+- One thing Drake is known for is putting out good, quality music. To acknowledge me and my music was all I needed to hear from anybody. Nobody could tell me anything after that.
+- Some people are really proud of me, and some don't like it. I don't really know what to tell those people. It's like people that don't know me or people that aren't even my friends saying I've changed. I have two friends - exactly two friends. It's like, how can someone that's not even my friend say I've changed?
+- I feel like I can do anything. There's nothing that I can't do. I couldn't make music once upon a time, you know what I mean? But I got in the studio every day, and I tried to get better.
+- 'Been That Way' is a song that Timbaland gave me. Actually, the beat is. And then he called me to come out there to Miami. I went out there to work with him, and he gave me two beats for my project. One was 'Sorry Not Sorry,' and the other one was 'Been That Way,' and I recorded both of them in my hotel.
+- Now I kind of have to watch where I go. I can't just wear whatever when I go out because somebody might want to take a picture. People are, like, taking pictures of me in my car when I'm driving. It's crazy. I kind of hate it sometimes.
+- Somebody who really inspired me to wanna start writing songs is The-Dream, so if The-Dream was to hit me up and be like, 'Yo you wanna do this?,' I'd be all for it. I would love that, actually.
+- I'm a low-key guy. So I like going to places and not being known. So it's weird when people are saying, 'Oh, it's you.'
+- I can't wait to see someone else from Louisville make a hit song 'cos that'd be dope. I can only imagine how J Cole would feel if somebody just came out of Fayetteville and started booming with some crazy records.
+- Sometimes my life is moving so fast that I forget what's going on. I'm just going with the pace or going with the flow. Like, I don't really stop and try to pay attention to things for too long.
+- I was working at Papa John's full-time. I had just quit my part-time job at UPS. I was there for two years.
+- I think the main thing was me having a daughter. I just knew that I had to be a man, so I grew up real quick. Then I started caring about my music more, and I feel like that was the main change between 'Killer Instinct' and 'TRAPSOUL'. I was just like, 'I need to take this more serious and watch the things I say'.
+- I used to cut school sometimes and record songs.
+- I read an article in Forbes entitled 'Six Ways To Achieve Any Goal,' and it really inspired me and helped me get to where I am today. Now everything is completely different - but I'm still not satisfied.
+- I listen to a lot of songs, and they aren't talking about anything. I don't connect with them. I'll listen to something like Musiq Soulchild's 'Just Friends,' and I'm like, 'Wow, I really feel what he's talking about.' That's how I want people to feel about my music.
+- It was right after I dropped the song 'Don't,' and it started to go viral a little bit. That's when I was like, 'Alright, I might have something here.' Actually, I wasn't even going to quit my job, but Timbaland called me - we have a mutual friend - and he was like, 'Yo man, you need to work in Miami.'
+- My grandma was so old-fashioned. She thought we were supposed to have homework every night. I would come home, and she would be like, 'Where's your homework?' and I'd be like, 'I don't have none.' She'd be like, 'I'ma call your teacher.'
+- I used to sing in church, too. Not like in the choir or anything, but for people around the church... on the church bus going home and Christmas plays.
+- I was in New York in 2014. It was still cold outside. I was sitting there working on 'Exchange' and 'Right My Wrongs' at the time, and a fan had commented on one of my songs called 'Let Em' Know' that was already on my SoundCloud and said, 'trapsoul movement.'
+- I never really wanted to be an artist. I just really wanted to write songs. But, of course, I can't get placement unless I demo the songs.
+- Whenever a dope artist comes out of nowhere, the first thing you do is try and compare it to stuff until you realise that that artist is just them, and eventually those comparisons will stop.
+- Whenever you fly into Louisville, you see a sign that says, 'It's Possible Here.' I remember my first time seeing it - I think I was coming home from the studio in L.A. - I was working on my debut album, and I just thought, 'Wow, it is possible here.'
+- I just want to make $100 million and retire.
+- I grew up with my little brother, and we were raised by my grandmother. I was an insider for real. I stayed in the house a lot, writing songs or playing video games, watching TV, or chilling with my girlfriend.
+- I'm from Louisville, Kentucky, and nobody gets out of there. So I'm like, how am I gonna get out of there? Nobody else can. So it took some time. The struggle made me realize I didn't really want to be 'normal' anymore.
+- You know how Beyonce has Sasha Fierce? That's how I am. When I go out onstage, I become a different person.
+- You would think, because I stayed to myself and I was shy, that I'd be a good student, but actually, I was a bad student. I was in detention a lot, mainly for cutting, being late to class. I was in tardy hall a lot. I hate the idea of homework. I don't get it.
+- I read an article in 'Forbes' entitled 'Six Ways To Achieve Any Goal,' and it really inspired me and helped me get to where I am today.
+- If there's three boxes that say 'Single', 'In a Relationship,' and the third one says 'Getting Money', I'd check the third one.
+- The Joker is my favorite villain of all time.
+- I released a song called 'Let Em Know' off SoundCloud, and some fan commented on it and was like, 'Trap soul movement,' and I was like, 'Man, that's dope. What is that?' And it just sounded like my music. That was the perfect word to describe my music, so I was just like, I'm going to call my project that.
+- Michael B. Jordan is actually cool. He's like the homie. I'm actually talking to him. He reached out to me a while ago and just showing love for the music after 'TRaPSOUL' dropped.
+- I grew up listening to T-Pain and The-Dream, and they were doing that thing, rapping and singing at the same time. That's where I get it from.
+- I always laugh when I listen to my old stuff. I was just trying way too much back then. Doing too many harmonies and too many runs and all the crazy stuff. Rapping all funny and animated.
+- Maybe I was just born with a little bit of vocals or natural talent, but I feel like I taught myself.
+- Maybe I was just born with a little bit of vocals or natural talent, but I feel like I taught myself. I just started taking vocal lessons to just work on my breathing, my vowels and stuff.
+- I can't just wear whatever when I go out because somebody might want to take a picture. People are, like, taking pictures of me in my car when I'm driving. It's crazy. I kind of hate it sometimes.
+- My idea of putting the city on is giving inspiration to others to want to put themselves on. You should never depend on someone else to put you on. I used to do that, and it didn't get me anywhere.
+- If I had to compare myself to another artist, I wouldn't. I feel like my lyrics are really strong. I'm good at painting pictures and telling picture stories.
+- I used to bottle up all of my emotions and never say anything. Even if something really made me mad, I'd be quiet.
+- One of my first purchases after I signed to RCA was a BMW. I was driving on the highway, and I heard 'Don't' come on. It was a real moment.
+- I'm trying to get better at singing. I just want to be great vocally on stage so I can give fans a real show, like Jazmine Sullivan does.
+- My favorite soul artist, I would have to say D'Angelo. That's R&B, soul. Trap artist, I would probably have to say...Young Thug.
+- Everybody was telling me I should just stand alone on my first project, and I started to see what they were saying.
+- People try to change up my method, but I'm gonna keep doing it the same way I've been doing it: going in the room by myself and making a song.
+- It wasn't until 9th grade that I got into music. This guy in school heard me singing around the hallway to girls and stuff. The girls liked it. One day, he was like, 'Come to my crib. I got a studio. Come and record a hook for me.' I recorded the hook on the 'Lovers & Friends' beat - Usher.

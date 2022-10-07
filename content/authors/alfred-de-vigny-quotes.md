@@ -1,0 +1,27 @@
++++
+author = "Alfred De Vigny"
+title = "Alfred De Vigny Quotes"
+quotes_len = "21"
+description = "the best 21 Alfred De Vigny Quotes"
++++
+- What it values most of all is the sum total of events and the advance of civilization, which carries individuals along with it; but, indifferent to details, it cares less to have them real than noble or, rather, grand and complete.
+- We live in an age of universal investigation, and of exploration of the sources of all movements.
+- On the day when man told the story of his life to man, history was born.
+- One might almost reckon mathematically that, having undergone the double composition of public opinion and of the author, their history reaches us at third hand and is thus separated by two stages from the original fact.
+- Art ought never to be considered except in its relations with its ideal beauty.
+- Do you not see with your own eyes the chrysalis fact assume by degrees the wings of fiction?
+- I think, then, that man, after having satisfied his first longing for facts, wanted something fuller - some grouping, some adaptation to his capacity and experience, of the links of this vast chain of events which his sight could not take in.
+- Of what use were the arts if they were only the reproduction and the imitation of life?
+- We shall find in our troubled hearts, where discord reigns, two needs which seem at variance, but which merge, as I think, in a common source - the love of the true, and the love of the fabulous.
+- The human mind, I believe, cares for the True only in the general character of an epoch.
+- From this, without doubt, sprang the fable. Man created it thus, because it was not given him to see more than himself and nature, which surrounds him; but he created it true with a truth all its own.
+- Just as we descend into our consciences to judge of actions which our minds can not weigh, can we not also search in ourselves for the feeling which gives birth to forms of thought, always vague and cloudy?
+- Of late years (perhaps as a result of our political changes) art has borrowed from history more than ever.
+- No writer, no matter how gifted, immortalizes himself unless he has crystallized into expressive and original phrase the eternal sentiments and yearnings of the human heart.
+- Of what use is the memory of facts, if not to serve as an example of good or of evil?
+- But it is the province of religion, of philosophy, of pure poetry only, to go beyond life, beyond time, into eternity.
+- Do you know that charming part of our country which has been called the garden of France - that spot where, amid verdant plains watered by wide streams, one inhales the purest air of heaven?
+- The acts of the human race on the world's stage have doubtless a coherent unity, but the meaning of the vast tragedy enacted will be visible only to the eye of God, until the end, which will reveal it perhaps to the last man.
+- France, for example, loves at the same time history and the drama, because the one explores the vast destinies of humanity, and the other the individual lot of man.
+- What is the use of theorizing as to wherein lies the charm that moves us?
+- The study of social progress is today not less needed in literature than is the analysis of the human heart.

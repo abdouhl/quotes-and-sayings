@@ -1,0 +1,13 @@
++++
+author = "Robert Nelson"
+title = "Robert Nelson Quotes"
+quotes_len = "7"
+description = "the best 7 Robert Nelson Quotes"
++++
+- Influenza is a serious disease. Kids die of influenza, both in Japan and the United States, and if you give a drug to people who are at risk of dying, there will be people who die who got the drug,... There is no signal the drug is doing it as opposed to the disease.
+- In the second and third debates the jacket has a generally padded shape across a large part of the entire back which tapers inward toward the spine in a downward direction.
+- Americans are making coffee a bigger part of their lives, expanding attitudes and behaviors that are driving new levels of consumption.
+- There was once a time when art history and film were basically the same medium, but art history is frozen in late-19th-century technology that has survived into the early 21st century.
+- In the first debate the bulges create the impression of a letter T with a small feature which appears similar to a wire under the jacket running upward from the right.
+- The visual information of art history is going to students seamlessly, without the enormous trouble those of us who are older had when we studied art history many years ago.
+- The only country where you see any positive movement within domestic consumption is Brazil, where you really do have a variety of coffees to make blends with.

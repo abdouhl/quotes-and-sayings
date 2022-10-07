@@ -1,0 +1,18 @@
++++
+author = "Lee Smith"
+title = "Lee Smith Quotes"
+quotes_len = "12"
+description = "the best 12 Lee Smith Quotes"
++++
+- I think what happens to young writers is that they use up every life experience that they have had up to that point for their first novel. Then you have to come up with something for the second novel, but you really don't have anything to say.
+- Certainly I was a very religious child, a deeply weird and very emotional child, an only child with lots of imaginary friends and a very active imagination. I loved Sunday school and Bible camp and all that. I had my own white Bible with Jesus' words printed in red in the text; I even spoke at youth revivals.
+- I had always dreamed of living in Chapel Hill. When I was a college student at Hollins University in Virginia, I came down to Chapel Hill for summer school and just loved it.
+- For many of us, especially women, the gap between what we want or need and what our society expects of us is wide indeed, and we spend out lives trying to negotiate it. Trying to balance work and family, responsibilities and desires, all that stuff. It is not easy.
+- I write about people in small towns; I don't write about people living in big cities. My kind of storytelling depends upon people that have time to talk to each other.
+- I like a book. I like to read for four hours at a stretch. I think very few are the young people who are even capable of reading for four hours at a stretch, because it's such a bizarre thing for them to do. I am mourning this.
+- I was raised in a little church, the Grundy Methodist Church, that was very straight-laced, but I had a friend whose mother spoke in tongues. I was just wild for this family. My own parents were older, and they were so over-protective. I just loved the 'letting go' that would happen when I went to church with my friend.
+- People are so busy positioning themselves before the screen and talking on the damn cellphones, communicating, that we're not reading, and in fact we're not really communicating, either. We're not talking to each other. There's just all these screens and wires and technology in between.
+- I think as the world changes, we have to keep up. We have to note what is happening, and I think writing has always had a powerful corrective influence and possibility. We have to write about what's good, and we also have to write about parts of our culture that are not good, that are not working out. I think it takes a new eye.
+- Born Virginia Marshall but nicknamed Gig, my mother was a home economics teacher who had come all the way across the whole state of Virginia, from her home on the Eastern Shore to our little Appalachian coal town to marry my daddy, Ernest Smith, whose family had lived in these mountains for generations.
+- I have always been interested in religion, especially in forms of ecstatic religion, where people are touched directly by the Spirit and go completely out of themselves.
+- I am so sorry to see the state of reading in such decline. I think it says something really scary and terrible about us as a culture. I think it does have to do with everyone's total global embrace of technology.

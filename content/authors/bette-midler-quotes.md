@@ -1,0 +1,41 @@
++++
+author = "Bette Midler"
+title = "Bette Midler Quotes"
+quotes_len = "35"
+description = "the best 35 Bette Midler Quotes"
++++
+- If sex is such a natural phenomenon, how come there are so many books on how to do it?
+- I mean, can I really create a full, three-dimensional character? I don't know anymore. I'm certainly going to try.
+- A lot of people have no access to beauty. When I was growing up, my mother had only a few pretty things to look at.
+- When I moved to New York City in 1965, I wanted to be in theater. I was following my Ethel Barrymore dream. But I was too young to be Ethel.
+- My husband calls it winging it - the way I just took what the studios gave me, didn't do my homework and avoided roles that would risk my image.
+- The worst part of success is to try finding someone who is happy for you.
+- I always try to balance the light with the heavy - a few tears of human spirit in with the sequins and the fringes.
+- I hope to keep entertaining in some way until I can't physically entertain any longer. It's what I was born to do, and I love this profession.
+- I bear no grudges. I have a mind that retains nothing.
+- My idea of superwoman is someone who scrubs her own floors.
+- Rap is poetry set to music. But to me it's like a jackhammer.
+- Education is my next big thing. When music and art were taken out of the schools, I went berserk!
+- I feel like a million tonight - but one at a time.
+- I had a hard-scrabble childhood with my parents. I have a lot of baggage. To come down to the footlights and accept the audience's affection inside a Broadway theater - that didn't come easily to me.
+- After thirty, a body has a mind of its own.
+- I wouldn't say I invented tacky, but I definitely brought it to its present high popularity.
+- I got so far away from what they told you in acting class: Do something different. Producers kept offering me the 'Sister Act' movie, but I said, 'My fans don't want to see me in a wimple.' I literally said, 'My fans don't want to see me in a wimple.'
+- I'm working my way toward divinity.
+- I'd make a wonderful Lady Macbeth. I'll wear a pair of platform shoes or something.
+- Writing a book is not as tough as it is to haul thirty-five people around the country and sweat like a horse five nights a week.
+- I never know how much of what I say is true.
+- I'd never done a straight play before, never, and it was very hard work - really, really hard work. It was dense, really wordy, and I was determined to learn every word of it - not just skip over bits and pieces.
+- I made a pact with myself a long time ago: Never watch anything stupider than you. It's helped me a lot.
+- I celebrate everyone's religious holidays. if it's good enough for the righteous, it's good enough for the self-righteous, I always say.
+- I learned to accept the audience's happiness for me, which is one of the hardest things for me to learn.
+- Cherish forever what makes you unique, 'cuz you're really a yawn if it goes.
+- When it's three o'clock in New York, it's still 1938 in London.
+- I try not to drink too much because when I'm drunk, I bite.
+- I married a German. Every night I dress up as Poland and he invades me.
+- I sometimes think I should go back to school to learn French and music, but who would have me?
+- As an actor, you're supposed to take jobs that will challenge you or force fans to see you in a different light. By the '90s, I wasn't really an actor anymore. I was someone who went on the road with these gigantic concerts.
+- I already have a Tony for my Broadway concert in '73. It's one of the most precious things I've won.
+- Through books and photographs, I saw a world that was not my own - and I realized that there was another world. That's why I'm concerned about education, because it helps our children see other worlds.
+- If I could be granted a wish, I'd shine in your eye like a jewel.
+- Group conformity scares the pants off me because it's so often a prelude to cruelty towards anyone who doesn't want to - or can't - join the Big Parade.

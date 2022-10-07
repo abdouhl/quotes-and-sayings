@@ -1,0 +1,49 @@
++++
+author = "Ian Rankin"
+title = "Ian Rankin Quotes"
+quotes_len = "43"
+description = "the best 43 Ian Rankin Quotes"
++++
+- I don't hang out with cops.
+- I wrote my first short story for a competition and won second prize. Another competition came up and I won first prize. The first story was published in a newspaper. The second went out on radio.
+- The great thing about America is I always come back with more books and more tip-offs of who to read. It's a country in love with crime fiction.
+- Being working class, my parents thought, 'Ian's going to uni, the first in the family,' and I'd do dentistry or accountancy. I was going to do accountancy; then I got a C in Economics and thought, 'Why am I doing this?' The only thing I was interested in was books and literature.
+- The most difficult part of any crime novel is the plotting. It all begins simply enough, but soon you're dealing with a multitude of linked characters, strands, themes and red herrings - and you need to try to control these unruly elements and weave them into a pattern.
+- I have a strong work ethic, yet I'm incredibly lazy as well. The problem with being a writer is that everything you do can be called research. Sitting in the pub is research. Reading the newspaper can be research.
+- When I was in my early 20s and still at uni, I won a short-story competition: £200 was the prize.
+- Punk gave you a kind of chutzpah, so even trying to be a writer, I just thought, 'Well, I'm going to send poems to 'Radio Times,' short stories to the 'Observer,' just have a go.
+- Right from the very beginning, I knew I wanted to write palpably Scottish fiction.
+- People aren't coming to me looking for political essays or polemic - they're looking for a rattling good story.
+- In real life, writers tend to be quite boring, but in our books, we're having exciting adventures all the time.
+- Why does any novelist keep writing long after they've made money? Because they've failed to write the perfect novel.
+- I still think most writers are just kids who refuse to grow up. We're still playing imaginary games, with our imaginary friends.
+- No matter how many awards you've won or how many sales you've got, come the next book it's still a blank sheet of paper and you're still panicking like hell that you've got nothing new to say.
+- My parents were working class and didn't have much money, so holidays tended to be two weeks in a caravan at St. Andrews or a B&B in Blackpool.
+- I would have loved to have been a rock n' roll star. But none of us was musical, and none of us had any instruments.
+- My first novel was turned down by half a dozen publishers. And even after having published five or six books, I wasn't making enough money to live on, and was beginning to think I'd have to give up the dream of being a full-time writer.
+- I used to think that: whenever I heard that someone had taken 10 years to write a novel, I'd think it must be a big, serious book. Now I think, 'No - it took you one year to write, and nine years to sit around eating Kit Kats.'
+- In 1991, I won the Chandler Fulbright Prize, which came with $20,000 and the stipulation of spending six months in the U.S.
+- Writers always think their greatest work is just ahead of them.
+- I don't have many friends. It's not because I'm a misanthrope. It's because I'm reserved. I'm self-contained. I get all my adventures in my head when I'm writing my books.
+- I wanted to be able to support myself without begging for handouts from the state. All of the writers I knew when I was a student were all getting grants from the Scottish Arts Council.
+- I'm not qualified for anything. I've had lots of little jobs, like picking grapes and being a tax man. I can't imagine not writing, because I've done it since I was five or six. Maybe I'd work in academia. That's always what the plan was.
+- I've always written. At the age of six or seven, I would get sheets of A4 paper and fold them in half, cut the edges to make a little eight-page booklet, break it up into squares and put in little stick men with little speech bubbles, and I'd have a spy story, a space story and a football story.
+- I think writers have to be proactive: they've got to use new technology and social media. Yes, it's hard to get noticed by traditional publishers, but there's a great deal of opportunity out there if you've got the right story.
+- I'm not Rebus. We're not the same. I don't even think he'd like me if we met. He'd think I was a wishy-washy liberal.
+- I am, of course, a frustrated rock star - I'd much rather be a rock star than a writer. Or own a record shop. Still, it's not a bad life, is it? You just sit at a computer and make stuff up.
+- I dunno whether it was to do with my parents - we were working-class - but it was important to me to be self-sufficient.
+- A lot of writers, especially crime writers, have an image that we think we're trying to keep up with. You've got to be seen as dark and slightly dangerous. But I'm not like that and I've realised that I don't need to put that on. People will buy the books whether they see a photo of you dressed in black or not.
+- I don't think I have one particular favourite writer. I have many whose works I will always buy or reread - Muriel Spark, Anthony Powell, Robert Louis Stevenson, Ruth Rendell, James Ellroy, William McIlvanney, Kate Atkinson, John Burnside, Louise Welsh, Iain Banks.
+- I took the first James Kelman novel, 'The Bus Conductor Hines', home to my dad. I thought, 'My dad will like this; it's written in Scots.' But my dad said: 'I can't read that.' He was reading James Bond and John le Carre. That was part of what attracted me to crime - the idea of getting a wide audience.
+- You need a great idea, but then you've got to carry it through. If you get it right, you're going to be a critical success. But not everyone who works hard gets it right, or has the success they deserve: there's an element of luck.
+- I grew up in a family that was working-class, which taught me to be careful with money.
+- I wrote 'Knots and Crosses,' the first of the Rebus books, not even realising that I was writing crime fiction.
+- I don't want the books to become PR exercises for the police; I want to have the freedom to write about cops who cross the line: bad cops.
+- I'm often asked how I write books, but I don't think my approach is suitable for everyone. If I walked into a creative writing class, all I could say to them was 'I tend to make it up as I go along.' I'm not sure that's brilliant advice.
+- When I'm writing, I won't know whodunnit until maybe two thirds of the way through. Until then, I know as little as my detective. I just make it up as I go along. It's nerve-wracking, actually. You'll be half through and not know your conclusion. You worry one of these days the ending won't come. I'll be left with only two-thirds of a novel.
+- At all times, think like a writer, and keep those antennae twitching - that way, you pick up new ideas.
+- My mother worked in a school canteen - then worked in the canteen of a chicken factory. Every Friday, the pay packet money would be allocated to cover bills.
+- I'm interested in Scotland now and then, how it's changed. I want to get the reader to think about that by thinking about something from the past. How has society changed, how has policing changed, have we changed philosophically, psychologically, culturally, spiritually?
+- I go to Canada at least every two years.
+- 'Jekyll and Hyde' I read in high school. I was expecting a Hollywood-type horror story and couldn't believe it when I got this very complex narrative from all these different points of view.
+- My father worked in a grocery store. When the grocery chain went into administration, he eventually got a job in the naval dockyard in an office preparing the charts for the boats and the submarines before they headed out.

@@ -1,0 +1,48 @@
++++
+author = "Christopher Morley"
+title = "Christopher Morley Quotes"
+quotes_len = "42"
+description = "the best 42 Christopher Morley Quotes"
++++
+- The trouble with wedlock is that there's not enough wed and too much lock.
+- I had a million questions to ask God: but when I met Him, they all fled my mind; and it didn't seem to matter.
+- My theology, briefly, is that the universe was dictated but not signed.
+- It is unfair to blame man too fiercely for being pugnacious; he learned the habit from Nature.
+- We call a child's mind 'small' simply by habit; perhaps it is larger than ours is, for it can take in almost anything without effort.
+- Only the sinner has the right to preach.
+- There is only one success - to be able to spend your life in your own way.
+- Man, an ingenious assembly of portable plumbing.
+- We've had bad luck with our kids - they've all grown up.
+- Humor is perhaps a sense of intellectual perspective: an awareness that some things are really important, others not; and that the two kinds are most oddly jumbled in everyday affairs.
+- God made man merely to hear some praise of what he'd done on those Five Days.
+- Act like you expect to get into the end zone.
+- From now until the end of time no one else will ever see life with my eyes, and I mean to make the best of my chance.
+- All cities are mad: but the madness is gallant. All cities are beautiful: but the beauty is grim.
+- The courage of the poet is to keep ajar the door that leads into madness.
+- Life is a foreign language; all men mispronounce it.
+- Beauty is ever to the lonely mind a shadow fleeting; she is never plain. She is a visitor who leaves behind the gift of grief, the souvenir of pain.
+- If you have to keep reminding yourself of a thing, perhaps it isn't so.
+- If we discovered that we only had five minutes left to say all that we wanted to say, every telephone booth would be occupied by people calling other people to stammer that they loved them.
+- High heels were invented by a woman who had been kissed on the forehead.
+- New York, the nation's thyroid gland.
+- Read, every day, something no one else is reading. Think, every day, something no one else is thinking. Do, every day, something no one else would be silly enough to do. It is bad for the mind to continually be part of unanimity.
+- Big shots are only little shots who keep shooting.
+- Words are a commodity in which there is never any slump.
+- Why do they put the Gideon bibles only in the bedrooms, where it's usually too late?
+- The misfortunes hardest to bear are these which never came.
+- No man is lonely eating spaghetti; it requires so much attention.
+- In every man's heart there is a secret nerve that answers to the vibrations of beauty.
+- A human being: an ingenious assembly of portable plumbing.
+- Dancing is a wonderful training for girls, it's the first way you learn to guess what a man is going to do before he does it.
+- The bicycle, the bicycle surely, should always be the vehicle of novelists and poets.
+- No one appreciates the very special genius of your conversation as the dog does.
+- Heavy hearts, like heavy clouds in the sky, are best relieved by the letting of a little water.
+- Lots of times you have to pretend to join a parade in which you're not really interested in order to get where you're going.
+- A man who has never made a woman angry is a failure in life.
+- People like to imagine that because all our mechanical equipment moves so much faster, that we are thinking faster, too.
+- There is only one rule for being a good talker - learn to listen.
+- When you sell a man a book, you don't sell him 12 ounces of paper and ink and glue - you sell him a whole new life.
+- The real purpose of books is to trap the mind into doing its own thinking.
+- All students can learn.
+- There are three ingredients in the good life: learning, earning and yearning.
+- The enemies of the future are always the very nicest people.

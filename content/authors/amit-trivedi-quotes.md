@@ -1,0 +1,77 @@
++++
+author = "Amit Trivedi"
+title = "Amit Trivedi Quotes"
+quotes_len = "71"
+description = "the best 71 Amit Trivedi Quotes"
++++
+- I share different relationships with all directors. I share a beautiful working relationship with Anurag Kashyap. Sriram Raghavan is such an inspiration and I have always wanted to work with them. I gel really well with filmmakers like these.
+- The amount of exposure you get in India as a musician in Bollywood is so much better than what one gets independently.
+- To play on top of a bus is something we've never done before - we did play on the Red Bull Tour Bus once in Bangalore last year, but it's always a one of a kind of experience to jump on the bus and sing.
+- Ultimately it's just music - whether I'm catering to the Bollywood audience or the indie audience. I just approach every type of music the way I am, and how my personality is.
+- I'm getting to compose music for diverse language films from all over the country.
+- The pressure is only from the producers and the labels. No composer, no singer would ever want to sing a remix.
+- I was listening to radio and it plays only Bollywood. This is something I hate about radio stations. There's so much other beautiful music out there.
+- Bollywood is such a space where you get to work with so many genres. Genres being pushed isn't the way of looking at it. In fact, I think Indie needs to be given a lot more focus or recognition.
+- When I compose for any film, I always work with the story in mind.
+- Yes, because as composers we are looking for textured voices, and often the singers we find are not trained to perform in a studio environment. So we need technology to doctor their voices to suit the format.
+- My music is born from instinct. I react to situations a script may provide while creating a song.
+- I am working on 'Bombay Velvet'. The music for it is jazz from the '60s.
+- There are almost no takers for independent musicians in India.
+- More than influences, my music is based on instincts. I make music to match the script and the world of the film.
+- I am always in my space and it's a happy space. It gets stressful at times, but that's a part and parcel of our job.
+- When I am composing in a studio, I cannot gauge what the audience feels. Sometimes, good songs don't get the recognition because the films fail. But when you are performing live, the reaction is immediate.
+- Once you connect to a film, things flow naturally. And there are times where you don't connect with a film. In these situations, you just have to see through it. We are professionals and just have to give our best at the given circumstances.
+- Ever since I started, I think Bollywood has gone through a lot of changes. Film producers now want to experiment with their movie's music and that's why you see many of them working with independent musicians.
+- I'm a huge fan of Chennai - the culture, the musicians, the audience... Language is not a barrier. It is all about the emotion in the music.
+- I love listening a lot and I listen to all sorts of songs, old and new. But the real inspiration has to come from within.
+- When I get out of the studio, I want to disconnect from music. I would rather spend time with my family or watch a movie. I cannot take any more music.
+- In the 1990s music was a beautiful collaborative process between the composer, lyricist and director. They would exchange ideas and magic used to happen.
+- I have been a total brat since my childhood. Because of me, my mother's day was over by afternoon as just managing me, she was exhausted.
+- After all, folk-fusion is my favourite genre.
+- So I prefer to do the entire music for a film. And when I'm doing the background score, I can weave the whole film together in terms of themes and songs for a good cinematic feel.
+- Yes, but Phantom Productions is my core team. It is like my family. And I love them.
+- I've been composing music for feature films since 2007. I've been creating music for films for 13 years and I totally enjoy and love doing that. However, I have a lot of music inside me which I want to share with you all in a different way.
+- In the West, film music is completely different and independent from their popular music. The two industries are separate and don't interfere much.
+- I go deep into the script and speak the language of the film, musically.
+- You have to adapt yourself to the changing times. There is no other way. You must keep up with what's happening around you. You afford to be complacent on that front at all. Otherwise you won't be relevant.
+- I play the keyboard, but I am fond of all wind instruments, the oboe in particular.
+- I love music, whoever makes it. Whoever makes great music in the entire world I am their fan because I love music so much. I am each and everybody's fan who is putting their music out there.
+- I have a very efficient team that takes care of my time. But yes it is very tough to do so many things. I am not there yet. I am still learning. It is a pleasure to do so many things. The challenge is to be good at everything.
+- I sign up whatever live shows I get simply because every gig is a chance to reach out directly to the audience. When it comes to gigs, I try mixing personal picks with what the audience demands.
+- I enjoy what I do. The only burden is the deadlines. Plus, composing background scores is a thankless job; it is not perceived as a significant thing.
+- For creators, especially for me as a composer, I am sure for singers also, it is sad. It is not exciting that we have to create something that someone else has already done before.
+- Sometimes, I record rough patches of tunes and take them to directors. They choose to retain my voice. Personally, I don't like my voice, and never want to record.
+- Lyrics is the face of any song. The combination of composition, lyrics and singing is what makes a song a song.
+- My mom and sisters liked to sing and we would jam at home very often. I would also jam a lot in college, where I formed a fusion band and played the keyboards.
+- Whenever I come to Ahmedabad, I feel as if I am at home. Amdavadis make the best audience and that inspires me to make beautiful music.
+- I am proud to say I'm a director's composer. People do method acting, I do method composing. I like to get into the skin of the character and go deep into the director's vision.
+- Whosoever has money has power. It's not about a label. If you have money tomorrow, you will be powerful.
+- From ad jingles, films, background scores, digital platforms to live concerts, I am open to all kinds of projects where I can showcase my talent.
+- I am thankful to all my fans and supporters out there for the overwhelming love and support. I just hope I continue to make music that is loved by everyone.
+- Music is a universal language and really an interesting way for a brand to expand their consumer horizon.
+- I love everything about Delhi, mostly the fact that people here never fail to react to music.
+- I see a parallel industry for independent music blooming alongside film music.
+- Live performances are exhilarating, especially when performing for a young crowd.
+- I don't watch TV. I don't listen to radio.
+- I have been a huge, huge fan of music ever since I was a kid. Anything to do with music inspires me.
+- I have seen both extremes; when there was no work, I was frustrated and now that I'm overworked, I feel the same. I'm looking for a balance now.
+- I have to be excited by a particular voice to consider it for a song. I am open to new voices. If I come across one that I like instinctively, then I would like to work with that singer.
+- It is so beautiful that when you watch the film, the marriage between the visuals, the music and the storytelling is seamless.
+- Indian classical music is charming and currently there are a wide range of musicians who bring great classical tunes to the Bollywood industry.
+- If the script doesn't excite me, there's no point working on the music.
+- My schedule usually keeps me busy. However, I love performing on stage and I try my best to take time out for live performances.
+- I'm very excited! To be sharing the stage of Katy Perry and Dua Lipa is an honour. I've watched Katy live and she's phenomenal to watch. A true performer!
+- In films, you have to follow the director's vision. Filmmaking is a director's medium. So everything happens as per the script and his vision.
+- The reason I went ahead with making the music for 'Bombay Velvet' was because I loved the script.
+- I don't feel insecure at all. There's nothing permanent here. One has to make the most of his/her talent.
+- About 25 years ago, when I was 15, I wrote a song called 'Indradhanush', which speaks about the seven colours, equating each with emotions that we as human beings experience.
+- But everything changed when I saw my son for the first time and today, I love my son, who is 18 months, the most in the world.
+- I do sometimes go back to my old songs. Some I feel very proud of. They make me wonder, 'How did I do this?'
+- But a lot of people think I am very expensive and I charge a lot of money, which is not the case. I am open to all kinds of experimentation and work. So, people should just approach without hesitating or thinking about money!
+- The only place where any artist feels liberated is doing independent music. I have had great experience making music for The Dewarists and Coke Studio. No actor, producer or label is telling me what to do with my music. I'm the boss. It is my life, my expression.
+- When I look back, I remember how being a part of Bollywood was never the plan.
+- My mother sang. But back in the day, it was looked down upon if the lady of the house wanted to sing in public. So, she couldn't pursue her musical aspirations.
+- Most films don't have a budget for a background score, but it is the toughest job to do. We work like donkeys. And usually we get only around a month to do a score.
+- I am a very ordinary singer who doesn't even do riyaz.
+- I don't have any background in the industry, nobody in my family or friends. So entering into the industry and dealing with the concept of being a Bollywood music composer was daunting initially.
+- When I stepped into Bollywood, I had my own way because I knew no other way. People see it as unique but it has more to do with my personality.

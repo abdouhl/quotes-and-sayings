@@ -1,0 +1,25 @@
++++
+author = "Laura Fraser"
+title = "Laura Fraser Quotes"
+quotes_len = "19"
+description = "the best 19 Laura Fraser Quotes"
++++
+- I think every mother feels that the best place for their child is with their mum, but you want things for yourself, too. So, you're either at work feeling guilty, or you are at home feeling frustrated.
+- Both of my parents had a change of career. My mum was a nurse, and now she's a college lecturer.
+- I've always been an actor, a lowly actor without power, so I've never been corrupted. I've never even directed.
+- I think I've played a lesbian about five times. The first one was with Helen Baxendale in a drama called 'The Investigator,' about the conditions lesbians had to live under in the army in Britain, which was based on a true story.
+- Even as a kid, I would always imagine horrible circumstances in which I would find myself in my head, and imagine how I would feel, and act it out a bit for myself, because I was a bit of a freak like that. I love doing things like that, and I get a real buzz from it afterwards.
+- I'm not a long-term member of the 'Breaking Bad' family.
+- I suppose I'd always been attracted to commitment-phobes because some part of me felt unlovable. It was a lot easier to fall for a guy who I knew, on some level, wouldn't fall in love with me. There was nothing to risk. The real risk would be to finally be vulnerable to love.
+- I expected it to be overwhelming and all-encompassing, but having a kid brings you into the world in a whole different way.
+- When I was 18, I couldn't wait to move away. I was like: 'If I ever have to come back here, I'll kill myself.' Glasgow seemed like failure and death to me back then, but not any more.
+- Traditionally I'm not a very good secret-keeper.
+- All the guys on 'Breaking Bad' are really gentle and gorgeous creatures.
+- I found it hard being a full-time mum and take my hat off to anyone who can do it.
+- It's mad what each generation vilifies. It's not necessarily to do with logic.
+- You don't put milk in chamomile tea - that's disgusting behavior! That's not right.
+- It does seem to produce more creative results when there are limitations. It's like in wartime with rations - people became more inventive with cooking.
+- It's a very strange experience being on set of 'Breaking Bad;' you never know what's coming next for your character. I feel like I don't even know if I'm going to live through the next scene I'm in. It's exciting to work on.
+- I still have a fear of theater. I don't know if I will manage that. I used to do it. I developed a bit of a phobia. It's not a real phobia. I can go in and watch.
+- I've been a jealous person myself. I've been distrustful, convinced that somebody's having an affair with somebody else. If you believe it in your head, everything looks like a lie. When you're looking for it, you always see it - even the change of expression in their face.
+- I have to admit I can be pretty high strung and tightly wound.

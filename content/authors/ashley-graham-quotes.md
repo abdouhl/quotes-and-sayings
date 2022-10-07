@@ -1,0 +1,105 @@
++++
+author = "Ashley Graham"
+title = "Ashley Graham Quotes"
+quotes_len = "99"
+description = "the best 99 Ashley Graham Quotes"
++++
+- I put myself out there, trying to prove that beauty is beyond size. It was risky, sure, but what I risked in terms of personal pride was nothing in comparison to what I was rewarded in terms of personal fulfillment.
+- I dated all the wrong men. I thought I could feel appreciated in my body through guys.
+- I want to be a better parent than I had. Even though my mom was absolutely amazing. Her and I are still best friends to this day. I think that the next generation should always be better and better.
+- For so long, I have been an outsider because of my size. And I think that fashion has always, in some way, catered to celebrities or to a thinner idealistic model.
+- We can't create change until we recognize and check our own actions.
+- I've always been a girl's girl, and I've always enjoyed my girl friends' relationships, so I want the girls who follow me to feel like we're besties.
+- People want to know that there's someone else out there that looks like them.
+- When I post a photo from a 'good angle,' I receive criticism for looking smaller and selling out. When I post photos showing my cellulite, stretch marks, and rolls, I'm accused of promoting obesity.
+- I tried every diet, from living on cabbage soup to fasting to Weight Watchers, and then came the frozen meals and the shakes. I realized that the more I took care of my body, eating what was good for me, then I felt happy and whole.
+- I really believe that parents need to know they are shaping the future of their children.
+- As a professional selfie taker, I know my angles. And I know how to look 20 lbs. heavier and 20 lbs. lighter. If Instagram wants to tell me I've lost 60 lbs. in one week, then damn, I look good.
+- A lot of who I am is connected to my size, and I am so happy with who I am.
+- I've had agents tell me, 'You're not gonna be on the cover of anything; you're a catalog girl.' I've had clients tell me, 'You're too fat, and we can't book you any more because you don't fit into the jeans.'
+- 'Sexy' is a state of mind, and it can come in all shapes and sizes. It is different for every person.
+- Does any woman really just come in and say, 'I'm a plus-size woman?' Maybe as a defense mechanism or maybe as a way to kind of cope with fitting into society but... I just think it's divisive.
+- I had to realize that if I didn't really love who I was, and if I couldn't appreciate this - my body - as my moneymaker, then I wasn't going to make any money.
+- I am more than my measurements. I'm not Ashley Graham just because I'm curvy.
+- I don't like to use the words 'real women,' honestly. I like to use the word 'woman.' And I say that because there are so many women out there who are naturally thin or are naturally curvy, and I think when we start putting a label on the type of woman, it gets misconstrued and starts to offend people.
+- This confidence is not something that happens overnight. I have been working on it for a long time. I look in the mirror and do affirmations: 'You are bold. You are brilliant. You are beautiful.' If my lower pooch is really popping out that day, I look at it and say, 'Pooch, you are cute!'
+- People will run up to me with tears in their eyes and say, 'You're Ashley Graham?' and I match their enthusiasm and respond, 'Yes, I am!' and all they say is, 'Thank you so much.'
+- What you see is what you get. I don't change who I am from public to private.
+- There are reasons to set boundaries for yourself, but there are also reasons to keep doors open.
+- There's something to be said about just being vulnerable. Every woman has gone through something in her life that has been an image issue, or it has been something where somebody told her she's not good enough. And every woman can relate to that.
+- To not see black or Latina women as famous in my industry is crazy! I have to talk about it.
+- I'm a confident woman with thick skin, and as a model in the public eye, I'm conditioned to accept criticism.
+- I used to be bound by people who placed limits on what they thought I could do. Through that, I learned that if you want something, you have to be the one to go out and do it. If you don't ask for something, you're not going to get it.
+- Do I sometimes wish I were thinner? God, in the old days, absolutely I did, but now I feel that to lose weight would be disloyal to myself.
+- I love blocking people. I'm not afraid to block anybody.
+- Curvy girls can pull off any look - it's what we do.
+- I'm giving curvy women a seat at a table that we've never been invited to before - a table with high-end fashion people who have never considered us beautiful.
+- I'm trying to change how women think about themselves.
+- It doesn't matter what size your hips are when you measure them. It's about, 'Do you feel good and healthy in those hips?'
+- I remember being told by my very first photographer that if I lost weight, and I was a skinny model, it would do wonders for my career. My mum got really defensive - 'I don't think we will be doing that, thank you so much, goodbye.'
+- Honestly, at the end of the day, what I want women to know is that beauty comes in all shapes and sizes. And that it should not define who you are.
+- My theory is that big underwear makes big girls look bigger.
+- This is the thing: I know I'm paving the way for the next generation of girls, and they're not going to have to do this. That's what I hope. I'll take the brunt work and just handle it, and then you guys can just sail right on through.
+- I remember thinking, 'If I don't love the woman that I look at in the mirror, I am never going to be successful.' That was the moment I had to start convincing myself to look in the mirror and start saying, 'I love you.'
+- One thing my mother did is that she never looked in the mirror and said, 'I'm so fat,'or 'I'm so ugly. I need to go on a diet.' Projecting that onto yourself is only going to make your daughter or son think that of themselves. Because they're a product of you.
+- I started dating at 16.
+- I was called the girl that was 'pretty for a big girl,' 'the fat model.'
+- I had so many agents tell me that at size 18, I would never work or work again. I heard, 'Go home and lose some weight.'
+- People called me 'cottage cheese thighs' all through school.
+- I think the word 'plus-sized' is so divisive to women.
+- I have been so blessed not only to talk about things that I want to talk about in my industry, but also to have a platform - and people want to hear about it.
+- The fashion industry might persist to label me as plus-sized, but I like to think of it as my-sized.
+- That's really truly what my message is - finding self love within yourself and not comparing yourself to others - because there's no such thing as perfection, because perfection doesn't exist.
+- I've lived the torment of the names. I've lived the torment of boyfriends breaking up with me because they were afraid I was going to be too fat later in life.
+- The sum total of what I learned about African American culture in school was Martin Luther King Jr., Rosa Parks, and the Underground Railroad. This was more than my mom knew; she didn't even see a black person in real life until she was 18 years old.
+- Social media has truly helped my career because it has given models a voice. And a voice is something that we want to see a change in the industry.
+- I always felt second best. I was never the prettiest, never the skinniest, never the fastest in my sports. Never the smartest, because I have dyslexia. Then, all of a sudden, people were like, 'You're gorgeous.' And I was like, 'What?'
+- People want to see themselves in the industry that, for so long, has ostracized girls of my size.
+- I think that when you use the word 'plus-size,' you're putting all these women in a category: 'You don't eat well.' 'You don't work out.' 'You could care less about your body.' 'You're insecure.' 'You have no confidence.'
+- The really hard moment was when my dad said, 'Honey, if an agent is telling you to lose weight, then maybe you should lose weight.' I was 15, standing in our living room, having a moment I will never forget. I never had a parent tell me to lose weight, and it hurt.
+- When I'm traveling out of the country, a lot of guys give me a high five, and then they're like, 'I love your work!'
+- I believe that we're all here for a purpose and that one of my biggest ones is to help people understand that they're beautiful.
+- I don't think guys judge curvy women as much as women do. It shocks me how catty some women can be. In my whole life, I only had one guy break up with me over weight.
+- A lot of bodybuilders have high BMIs. It's not an indication of your overall health. Like, why put more standards on women saying there's a maximum BMI? I just think we need to be healthy, and I am.
+- My mom is the most positive person. She has always had a smile on her face no matter what came her way. After seeing that, I'm not going to let a little cellulite get in the way of my happiness!
+- I work out not to lose weight but to maintain my good health. And anyway, if I did want to lose weight, it would be no one's decision but my own.
+- The fashion industry may persist to label me as 'plus-size,' but I like to think of it as 'my size.'
+- I always say, 'Be anxious for nothing,' because if this is my social media, if this is a platform for me to really get the word out and get my brand out, then why am I gonna be anxious about it?
+- My fans are incredible. Don't you dare talk bad about me on my Instagram, because my fans will come out, and they will eat you alive.
+- We need to work together to redefine the global image of beauty and continue to push for a more inclusive world.
+- What better time to write a memoir than the big 3-0?
+- I am just like any other woman, and I think I am the 'fattest woman alive' - but it is really about how you handle your situation.
+- There's no such thing as being perfect, and that doesn't just mean the perfect body.
+- I hit the beauty jackpot, I get it, but that's not enough: you've got to have more to have longevity in this business. It's always been, 'OK, so what can I do now?'
+- The beauty of being a curvier girl is that we're all shaped so differently.
+- As hard as it is, owning who you are and knowing what you want is the only sure path to affirmation... I want women to know they can get out of any situation if they return to their core source of strength: themselves.
+- People would do the sound of a truck backing up - beeeep, beeeep - as I was sitting down.
+- I'm being my real raw self, and that's what I always preach anyway. What you see is what you get.
+- Too fat, too thin, too loud, too quiet - I was never going to fit the standards others created for me. Instead of complying, I protested.
+- I really, truly believe beauty is beyond size.
+- As women gain weight, they start judging themselves. But who cares! Embrace what you have. Say, 'Belly, you might be poking out today, but I'm going to choose to love you and nurture you.'
+- Eventually, I joined a church. I didn't go there to find a boyfriend; I truly wasn't looking for anyone other than the person I wanted to be.
+- The runway isn't just about showing fashion, it's about gaining confidence. And I really believe that once you've got your confidence, you can wear anything, you can do anything.
+- My mom's parents were farmers, so every summer, my sisters and I would help out, hauling pipe and pulling maggots off the corn. We hated it, but it taught me the meaning of good hard work.
+- I wasn't put on the cover of 'Sports Illustrated' as a plus-size model; I was put on the cover of 'Sports Illustrated' as a model, as a rookie, as Ashley Graham.
+- I'm a woman of faith. And I really believe that if I say, 'God, this is what I want,' He says, 'I'll give you your desires, as long as they line up with My will.'
+- For 10 years, I'd been told I was always going to be a catalogue girl, never a cover girl. Well, I got with IMG and did five covers in a year, boom, boom, boom.
+- There are some days I feel fat. I'm not convinced there's going to be a moment where every woman in the world wakes up and feels like a million dollars. So, what I want to do is give women the tools that will help when those moments come up. Sometimes it can be as easy as telling yourself that you are beautiful.
+- Curvy models are becoming more and more vocal about the isolating nature of the term 'plus-size.' We are calling ourselves what we want to be called - women, with shapes that are our own.
+- Back in Nebraska, I was known as the fat model - the girl who was pretty for a big girl. My body, like my confidence, has been picked apart, manipulated, and controlled by others who didn't necessarily understand it.
+- 'A New Model' is saying that women should be confident in who they are and that they can be their own role models.
+- I felt free once I realized I was never going to fit the narrow mold society wanted me to fit in.
+- The biggest misconception is that the purpose of going to the gym is to change your body. We should be working out to be healthy.
+- Confidence starts at home, and something my mother never did was look in the mirror and say she was ugly or fat.
+- To some, I'm too curvy. To others, I'm too tall, too busty, too loud, and, now, too small - too much, but at the same time not enough.
+- My father was a master of the cutting insult.
+- I think women think I'm inspirational because I'm unapologetic. I have cellulite. I have back fat. I've got a thick stomach. But I work my body like I don't because I don't know any other body. I don't know how to feel thin. I just know how to feel like Ashley.
+- I think that no woman has to defend her body, and she should just live her truth. It should never be about the number size of her pants, and it should be about what you're doing in the world. What does her brain look like and not her hip size.
+- Words have power. The things that you say to yourself as a parent - the things that you say maybe even just one time to your children - they take it, and they take it into their real world and into their life and beyond.
+- Words have power, and if you are going to use your words negatively, then that is exactly what is going to happen in your life.
+- 'Sports Illustrated' decided to have curvy women not only in their magazine but on the cover of their magazine. Now, that means size diversity is here, and it's real, and it's not a trend.
+- I love my hourglass figure.
+- You can be sexy and feel good in your skin, no matter what size you are.
+- When you're given an 'SI' cover, and you take advantage of it, you can conquer the world. Look at Chrissy Teigen. Look at Tyra Banks. Look at Kathy Ireland.
+- Growing up, I had my mom to look up to; J. Lo and Marilyn Monroe were notable curvy women. But I didn't have anyone with cellulite or back fat telling me they didn't care.
+- I just don't live my life in a world where I am not feeling my best, and feeling my best is feeling sexy.

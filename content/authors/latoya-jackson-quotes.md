@@ -1,0 +1,32 @@
++++
+author = "Latoya Jackson"
+title = "Latoya Jackson Quotes"
+quotes_len = "26"
+description = "the best 26 Latoya Jackson Quotes"
++++
+- Black people were very angry with me for writing the book. A lot of people didn't believe me, or didn't want to believe me, and that used to really bother me. It was a very painful and difficult time.
+- When people are in love, I don't see anything wrong with it in the world. If they choose to live their lives and get married, why should we interfere? A lot of people don't agree with me, but that's how I feel.
+- Our marriage is strictly in name only. It has never been consummated.
+- This is the first time in my life I've ever been happy, not completely happy, but happier than I've ever been.
+- When I'm ready, I plan to adopt. I still believe in family.
+- This is a very big victory for Michael and we are all very proud that he has been completely and totally vindicated in court, as we were certain he would be.
+- I married him because he told me it was the only way he could protect me. If we were just manager and client, my family could do whatever they wanted to get me back, but if I was his wife, they couldn't.
+- I love songs that people can dance to and enjoy at the same time.
+- It was so strange. I knew that Josephine Baker had performed on the same stage but that night I felt it. Many of the same people who worked with Josephine Baker are still here. They know what they're doing. And that was a very comfortable feeling.
+- When I finally decided to do the show, I only had two weeks to learn the choreography and the songs in French.
+- I can honestly say that I am happier now than I have ever been. For the first time in my life I feel free.
+- I love my family and I miss them very much but I'm a new person now. I know a lot of people will not agree with what I've done, but it was right for me.
+- People had this image of the Jacksons as the perfect American family and I destroyed that image. But what people have to understand is writing that book was very healing for me.
+- J has told me about his past. I know what happened and why. But he is the one person who made me believe in my talent and whatever happened in the past, he's been a wonderful manager to me.
+- Michael and I talk at least every two weeks. He understands why I've done the things I have.
+- Listening to soft music and the sound of the ocean is quite relaxing to me.
+- I realize now I didn't really want to die. I just wanted to stop the hurt and pain.
+- The end of the trial and the 'not guilty' verdicts on all counts, clearing Michael of all charges, mean that he can now concentrate on the future and his art.
+- It is so difficult in the world for people to find love, true love.
+- I posed nude to show my parents they couldn't dictate to me any more - that I control my life.
+- I would love to have a rapper on one of my songs, like Ludacris, or the 'it's so hot in here' guy, Nelly.
+- I think the deepest problem is between my parents and me. I just don't know if it will ever be the same.
+- I'll never stop dreaming that one day we can be a real family, together, all of us laughing and talking, loving and understanding, not looking at the past but only to the future.
+- He will be beginning a brand new chapter in the Michael Jackson legend.
+- I am pleased to tell you that he is finally getting some rest and is regaining his appetite as well.
+- I can't say it's not painful being estranged from most of my family. I wish it could be otherwise.

@@ -1,0 +1,17 @@
++++
+author = "Cyrano De Bergerac"
+title = "Cyrano De Bergerac Quotes"
+quotes_len = "11"
+description = "the best 11 Cyrano De Bergerac Quotes"
++++
+- I may climb perhaps to no great heights, but I will climb alone.
+- This veridic nose arrives everywhere a quarter of an hour before its master. Ten shoemakers, good round fat ones too, go and sit down to work under it out of the rain.
+- A kiss is a rosy dot over the 'i' of loving.
+- We must believe then, that as from hence we see Saturn and Jupiter; if we were in either of the Two, we should discover a great many Worlds which we perceive not; and that the Universe extends so in infinitum.
+- The insufferable arrogance of human beings to think that Nature was made solely for their benefit, as if it was conceivable that the sun had been set afire merely to ripen men's apples and head their cabbages.
+- For an Apple is in it self a little Universe; the Seed, hotter than the other parts thereof, is its Sun, which diffuses about it self that natural Heat which preserves its Globe: And in the Onion, the Germ is the little Sun of that little World, which vivifies and nourishes the vegetative Salt of that little mass.
+- I planted my self in the middle of a great many Glasses full of Dew, tied fast about me, upon which the Sun so violently darted his Rays, that the Heat, which attracted them, as it does the thickest Clouds, carried me up so high, that at length I found my self above the middle Region of the Air.
+- A large nose is the mark of a witty, courteous, affable, generous and liberal man.
+- 'And for my part, Gentlemen,' said I, 'that I may put in for a share, and guess with the rest; not to amuse myself with those curious Notions wherewith you tickle and spur on slow-paced Time; I believe, that the Moon is a World like ours, to which this of ours serves likewise for a Moon.'
+- Prometheus heretofore went up to Heaven, and stole fire from thence. Have not I as much Boldness as he?
+- A pessimist is a man who tells the truth prematurely.

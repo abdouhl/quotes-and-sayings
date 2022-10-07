@@ -1,0 +1,87 @@
++++
+author = "Ludwig Mies Van Der Rohe"
+title = "Ludwig Mies Van Der Rohe Quotes"
+quotes_len = "81"
+description = "the best 81 Ludwig Mies Van Der Rohe Quotes"
++++
+- After my time in Holland, an inner battle ensued in which I tried to free myself from the influence of Schinkelesque classicism.
+- Each material has its specific characteristics which we must understand if we want to use it. This is no less true of steel and concrete.
+- When one looks at Nature through the glass walls of the Farnsworth House, it takes on a deeper significance than when one stands outside. More of Nature is thus expressed - it becomes part of a greater whole.
+- You can use up all the slums for new development. In all the cities of the world, there are large areas of these. Also, you can avoid the spread of these silly suburban houses. Chicago has thousands of them all over the place.
+- The architect must get to know the people who will live in the planned house. From their needs, the rest inevitably follows.
+- Architecture is always the will of the age conceived as space - nothing else. Until this simple truth is clearly recognized, the struggle over the foundation of a new architecture confident in its aims and powerful in its impact cannot be realized; until then, it is destined to remain a chaos of uncoordinated forces.
+- We made drawings the size of a whole quarter of a room ceiling, which we would then send on to the model makers. I did this every day for two years. Even now I can draw cartouches with my eyes closed.
+- In addition to the wishes of the client, the position, orientation, and size of the plot also play an important role in determining the final plan of the house. The 'where' and 'how' of the exterior then follows naturally from all of that.
+- Architecture is the will of an epoch translated into space. Living, Changing, New. Not yesterday, not tomorrow, only today can be given form. Only such architecture is creative.
+- Our utilitarian structures will mature into architecture only when, through their fulfillment of function, they become carriers of the will of the age.
+- I discovered by working with actual glass models that the important thing is the play of reflections and not the effect of light and shadow, as in ordinary buildings.
+- Means must be subsidiary to ends and to our desire for dignity and value.
+- Technology is far more than a method, it is a world in itself. As a method, it is superior in almost every respect. But only where it is left to itself, as in gigantic structures of engineering, there technology reveals its true nature.
+- It is a hopeless endeavor to make the form and content of earlier architectural epochs usable for our time; in this, even the strongest artistic talent must fail. We see repeatedly how the outstanding builders fail to achieve an effect because their work does not serve the will of the age.
+- Where can we find greater structural clarity than in the wooden buildings of old? Where else can we find such unity of material, construction and form? here, the wisdom of whole generations is stored.
+- A chair is a very difficult object. A skyscraper is almost easier. That is why Chippendale is famous.
+- Every How is carried by a What.
+- Nature, too, shall live its own life. We must beware not to disrupt it with the color of our houses and interior fittings. yet we should not attempt to bring nature, houses, and human beings together into a higher unity.
+- You cannot save wonderful towns. You can only save wonderful towns by building new ones.
+- Nothing can express the aim and meaning of our work better than the profound words of St. Augustine - 'Beauty is the splendor of Truth.'
+- You can teach students how to work; you can teach them technique - how to use reason; you can even give them a sense of proportions - of order. You can teach them general principles.
+- The idea of service leads to community.
+- It must be possible to solve the task of controlling nature and yet simultaneously create a new freedom.
+- The demands of the time for objectivity and functionality must be fulfilled. If that clearly happens, then the buildings of our day will convey the greatness of which the age is capable, and only a fool will maintain that they lack it.
+- If one limits to developing only the kitchen and bathroom as standardized rooms because of their installation, and then also decides to arrange the remaining living area with movable walls, I believe that any justified living requirements can be met.
+- The tendency of our time is wholly oriented toward the secular. The efforts of the mystics will remain episodes. Despite a deepening of our conceptions of life, we will build no cathedrals.
+- We should attempt to bring nature, houses, and human beings together in a higher unity.
+- Just as we acquaint ourselves with materials, and just as we must understand functions, we must become familiar with the psychological and spiritual factors of the day. No cultural activity is possible otherwise, for we are dependent on the spirit of our time.
+- Modern buildings of our time are so huge that one must group them. Often the space between these buildings is as important as the buildings themselves.
+- I thought a lot and I controlled my thoughts in my work - and I controlled my work through my thoughts.
+- When it becomes economically possible, building will become montage.
+- I especially remember that on All Souls Day, when so many people wanted new monuments for the graves, our whole family pitched in. I did the lettering on the stones, my brother did the carving, and my sisters put the finishing touches on them, the gold leaf and all that.
+- Most of our designs are developed long before there is a practical possibility of carrying them out. I do that on purpose and have done it all my life. I do it when I am interested in something.
+- Form as a goal always ends in formalism. For this striving is directed not towards an inside, but towards an outside. But only a living inside has a living outside.
+- I do not oppose form, but only form as a goal.
+- Architecture begins when you place two bricks carefully together.
+- What would life be like if everybody insisted you must have actually built such-and-such a thing by yourself? I'd be an old man and have nothing to show for the aging.
+- If there really is no new way to be found, we are not afraid to stick with the old one that we found previously. So, I do not make every building different.
+- Technology is rooted in the past. It dominates the present and tends into the future. It is a real historical movement - one of the great movements which shape and represent their epoch.
+- I hope you will understand that architecture has nothing to do with the inventions of forms. It is not a playground for children, young or old. Architecture is the real battleground of the spirit.
+- Architecture depends on its time. It is the crystallization of its inner structure, the slow unfolding of its form.
+- Never talk to a client about architecture. Talk to him about his children. That is simply good politics. he will not understand what you have to say about architecture most of the time.
+- We refuse to recognize problems of form, but only problems of building. Form is not the aim of our work, but only the result. Form, by itself, does not exist. Form as an aim is formalism; and that we reject.
+- We must understand the motives and forces of our time and analyze their structure from three points of view: the material, the functional, and the spiritual. We must make clear in what respects our epoch differs from others and in what respects it is similar.
+- I think that an industrial process is not like a rubber stamp. Everything has to be put together and, as such, should have its own expression.
+- Behrens had a great sense of the great form. that was his main interest; and that I certainly understood and learned from him.
+- The problem of architecture has always been the same throughout time. Its authentic quality is reached through its proportions, and the proportions cost nothing. In fact, most of them are proportions among things, not the things themselves. Art is almost always a question of proportions.
+- The building art is man's spatial dialogue with his environment and demonstrates how he asserts himself therein and how he masters it.
+- Education must lead us from the irresponsible opinion to true responsible judgment. It must lead us from chance and arbitrariness to rational clarity and intellectual order. Therefore, let us guide our students over the road of discipline from materials, through function, to creative work.
+- Architecture starts when you carefully put two bricks together. There it begins.
+- The building art is, in reality, always the spatial execution of spiritual decisions. It is bound to its times and manifests itself only in addressing vital tasks with the means of its times. A knowledge of the times, its tasks, and its means is the necessary precondition of work in the building art.
+- Create form out of the nature of the task with the means of our time. This is our work.
+- Simply by not owning three medium-sized castles in Tuscany I have saved enough money in the last forty years on insurance premiums alone to buy a medium-sized castle in Tuscany.
+- Cheese was the staple. Bread you brought from home. The Schnaps came later. At the end of the week when people got paid, that's when you got your Schnaps, lots of it, five Pfennige a shot.
+- It is much better to have just one idea, and if the idea is clear, then you can fight for it. That is how you can get things done.
+- The office building is a building for work, organization, lucidity and economy. Light, spacious working rooms, clearly arranged, undivided, only organized according to the pattern of the firm.
+- In 1912, when I was working in The Hague, I first saw a drawing by Louis Sullivan of one of his buildings. It interested me.
+- True education is concerned not only with practical goals but also with values. Our aims assure us of our material life, our values make possible our spiritual life.
+- We do not evaluate the result but the starting point of the creative process. Precisely, this shows whether the form was discovered by starting from life, or for its own sake. That is why I consider the creative process so essential. Life for us is the decisive factor.
+- Architecture is the will of an epoch translated into space.
+- It must be understood that every architecture is bound to its time and manifests itself only in vital tasks and through the materials of its age. It has never been otherwise.
+- 1926 was the most significant year. Looking back, it seems that it was not just a year in the sense of time. It was a year of great realisation or awareness. It seems to me that at certain times of the history of man, the understanding of certain situations ripens.
+- The unformed is not worse than the over-formed. The former is nothing; the latter is mere appearance. Real form presupposes real life.
+- Architecture depends on facts, but its real field of activity lies in the realm of the significance.
+- I see in industrialization the central problem of building in our time. If we succeed in carrying out this industrialization, the social, economic, technical, and also artistic problems will be readily solved.
+- Wherever technology reaches its real fulfillment, it transcends into architecture.
+- God is in the details.
+- I don't want to be interesting. I want to be good.
+- It is not possible to go forward while looking back.
+- It is no use working with other architects. What can they do? Who does what?
+- Reinforced concrete buildings are by nature skeletal buildings. No noodles nor armoured turrets. A construction of girders that carry the weight, and walls that carry no weight. That is to say, buildings consisting of skin and bones.
+- Industrialization of the building trade is a question of material. Hence the demand for a new building material is the first prerequisite.
+- It took me a long time to understand the relationship between ideas and between objective facts. But after I clearly understood this relationship, I didn't fool around with other wild ideas. That is one of the main reasons why I just make my scheme as simple as possible.
+- What finally is beauty? Certainly nothing that can be calculated or measured. It is always something imponderable, something that lies between things.
+- Generally, I think my work has so much influence because of its reasonableness.
+- Less is more.
+- Not yesterday, not tomorrow, only today can be given form. Only this architecture creates.
+- I really don't know the Chicago School. You see, I never walk. I always take taxis back and forth to work. I rarely see the city.
+- I do not think it is an advantage to build planned packaged houses. If you prefabricate a house completely, it becomes an unnecessary restriction.
+- It is not architectural achievement that makes the structures of earlier times seem to us so full of significance but the circumstance that antique temples, Roman basilicas, and even the cathedrals of the Middle Ages are not the works of single personalities but creations of entire epochs.
+- We have to know that life cannot be changed by us. It will be changed. But not by us. We can only guide the things that can cause physical change.

@@ -1,0 +1,13 @@
++++
+author = "Adam Kluger"
+title = "Adam Kluger Quotes"
+quotes_len = "7"
+description = "the best 7 Adam Kluger Quotes"
++++
+- The music industry's very laid back while I'm very, very aggressive.
+- I have an office full of product from brands trying to be in videos and an inbox full of songs from artists, but at the end of the day if the artist doesn't support the brand or it doesn't make sense for the song, then it will never work. What we do is try to pair them up so that both sides are happy.
+- 'Brand-Dropping' is the term that the Kluger Agency coined to describe discreetly advertising by product mentioning in song, and we feel we can make this the way of the future without jeopardizing any artist's creative outlet or typical style.
+- There is a strong demand for Michael Jackson's music and merchandise, and that will only increase as more material surfaces in the years following his death.
+- Pitbull is great with brands. Endorsements with hip-hop artists work because hip-hop artists typically set the most trends... It's every brand's goal to be seen in the mainstream, and hip-hop music has become mainstream music.
+- I attended a post-college program in L.A. for Music Business and Production. Took several courses involving Music Production, Arrangement, and Songwriting.
+- I initially wanted to work in the music industry more on the A&R side. While I was in school, I began working in the New Business department of an advertising firm, and very quickly I was responsible for roughly 70% of their business, so you could say I had a natural knack for the advertising world.

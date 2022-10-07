@@ -1,0 +1,106 @@
++++
+author = "Alex Zanardi"
+title = "Alex Zanardi Quotes"
+quotes_len = "100"
+description = "the best 100 Alex Zanardi Quotes"
++++
+- As far as talking, I'm a pretty competitive dude.
+- I'm no different from other drivers - my talent is in my brain, not in my right foot.
+- Once you put everything in the right perspective, even bad times can be an opportunity to refresh your appetite, your desire.
+- When I arrived in Champ Cars, which at the time used to be called Indy Cars and then got renamed CART and then renamed Champ Cars, I was racing against Jimmy Vasser, my team-mate, but more than him, I was racing against Michael Andretti, Emerson Fittapaldi, Al Unser Jr. - guys that had big names.
+- The first thought that will go through my mind in the morning when I open my eyes will be very much related to my current dreams, rather than to my past nightmares.
+- I lost my legs in a big crash and, of course, after that, there were times, not so much of darkness, but certainly times where it was very uncertain of what my future would hold.
+- It's not much different to Formula One where they are improving the cars constantly. The difference is every hand biker needs a different bike depending on their residual ability.
+- I haven't done any of the things I have done to inspire others, but I am sure that if I am watching my story from the outside I would be joining the club saying, 'Wow, that guy really gets you going.'
+- As a race car driver, I don't think I will drive forever, because it is not so much a question of being competitive, but of seeing the light at the end of the tunnel.
+- The accident for sure was one of the most important experiences of my life. During the course of my rehabilitation I had people who were exactly what I needed to be inspired.
+- I believe the perfect life is the right combination between great things, great success and stupid mistakes or failures.
+- I haven't wasted many opportunities that fate gave me.
+- After my crash I never doubted it would be hard but I would be lying to say this new life has been a surprise to me.
+- My heart stopped seven times and I had to be resuscitated seven times. It's incredible I'm still here so every day I feel happy to have a second chance but I'm sorry to say I didn't see any tunnel or any light at the end of it.
+- Vancouver is a street course in the true meaning of the word. There are a lot of places where you can lose the car and end up staying there at least for the session, or for the rest of the race.
+- The question I asked when I woke up was not how am I going to live without legs - but how am I going to do all the things I want to do without legs? There was no doubt that I was going to do them, I was just curious to find out how - but I knew I was going to find a way.
+- I'm a wild horse, to say the least, and with age, I haven't calmed down completely.
+- The important thing in life, not just in sports, is to be able to set a new target in front of you, which is very much related to the deck of cards you've got available.
+- You have to accept the fact that as long as you are alive, you have something to lose. Living is dangerous.
+- The memories are vague of the accident. I remember coming out of the pitlane with cruise control, letting it go and then losing control of the car. I remember my hands frantically operating the steering wheel trying to recover control of the car, then this big, big noise and nothing more.
+- You don't know how many times I fell just taking ridiculous small steps.
+- Daytona has some of the greatest fans in the world and many remember me from some of the things I've done in this wonderful country.
+- The trust the BMW family puts in me means a lot to me.
+- Portland is a permanent road course built in a beautiful state, which is for me a fantastic area for many reasons. The downside is that the weather is so unpredictable that it's not uncommon to start the race on the dry and end with the rain as it happened to me in 1996 when I won my first Champ Car race.
+- Everything you do tends to make you accomplish another step on the road to complete yourself.
+- The fact that I'm racing, yes, is important, it's my passion, but, it's not my life, racing.
+- Formula One is not sport. Formula One is only intense competition between teams where the competition is really the research, the technology.
+- I've certainly had many more opportunities than I deserved, but luckily enough I ended up making the right choices.
+- For me just the fact to be alive is sufficient motivation to want to improve my life quality.
+- Never say never, always try to see if there is an opportunity to go around the problem if you can't go across it.
+- When my son was just a kid, I remember him going for a running race at school and winning and coming to hug me. I realized my heart was absolutely full of joy, there was no space left.
+- I guess, when I go there in the centre, when I do my rehabilitation, I look at the people with only one leg and I actually envy them because I'd love to have one leg. I guess the ones that only have one leg, they envy the ones that they are only missing one leg below the knee, and on and on.
+- When you're young, not only do you not have any money, you don't think something can happen to you. I raced some races without insurance in the early days of my career. I didn't think about it at all.
+- I think you can learn from other people's mistakes and other people's strengths, and that is why I have always been watching, with particular attention, other drivers - and not only drivers at the top.
+- After I finished racing in the United States, I received a lot of criticism for being dangerous, a little bit stupid, insane, you name it.
+- If you train hard and work hard eventually you will gain results, and that is the real spirit of life.
+- The first time the doctors put on my prosthetic legs they made me much taller than I'd ever been. I then remember the doctor saying 'we need to shorten this man' and we all were in hysterics.
+- Proving to my friends, family, and the people that I love that they were wrong - that in spite of my age and my lack of experience, I could change sport and achieve something really special - gives me a lot of satisfaction.
+- My wife has always been positive. In the hospital my brother-in-law was trying to prepare her for the worst, but she said, 'Hold on, I don't want to hear that. He'll be all right. I'm going to ring BMW now and order a car with manual controls because the first thing he'll want to do when he leaves hospital is drive.' She knew her husband!
+- At the time I was asked if I would ever step back in a race car, but what was very important for me was to go into the bathroom and pee on my own, but I could not do that. I had to be helped. That was my number one priority.
+- As you approach the finish line, you go through a tunnel of people, all of them cheering and encouraging you. Then I heard the speaker say, 'Alessandro Zanardi, you are an Ironman!' It was something phenomenal, something amazing... I got very emotional at that point.
+- If I ever won the Indy 500, I can tell you that I wouldn't worry about my engine, that's for sure.
+- I finally returned to Lausitzring in 2003. The idea was to drive the 13 laps that I had been unable to complete because of the crash. I drove out and it was as if I was in the car the day before the accident.
+- Everything I do through the course of my life, every day I do it with my arms, and it means that by using this muscle so much I have changed gradually the state of my muscle, turning my muscle into red fibers.
+- I don't think of myself as Superman, but if a genie came up to me now and granted me a wish to take my legs back, for sure I would take them - but it would take some time to accept.
+- I will do something, time to time, with motor racing. But I'll never go back, I think, to drive full-time because I've lost that anger, that desire.
+- I got into hand-cycling to prove to myself that I could do it and get back into some form of competition, and now it's led to this. If someone had suggested a few years ago that I would be taking it to the Ironman, I would have asked them what they were smoking.
+- I enjoy being in the middle of my journey much more than being close to the end.
+- When you are in your twenties you just think the races are what matter the most. When you are in your forties you really appreciate what you do every day.
+- Vancouver has always been a place of mixed results for me. I've always been fast there, but I've never been able to collect the kind of result I could have.
+- Your trip in this life is very provisional, but the best thing you can do in your life to live in the right way is to take every day as a great opportunity to do what you can and when you're as lucky as I have been in life in getting so much attention and exposure, you learn that you can move mountains with a very small effort.
+- My accident was the result of incredible fate, with me spinning in a place I shouldn't have, with a car coming at a speed it shouldn't have, and hitting me with the sharpest and strongest thing that it has, which is the nose, in the most vulnerable part of the car, which is between the side part and the front wheel.
+- In para-cycling I am a veteran with Olympic medals now.
+- We all are limited in that none of us can fly and none of us can run faster than some animals, but we figure out a way to go to Tokyo if we have to, right? Or we run faster than an animal with a race car.
+- Having no legs doesn't mean you can't drive fast and I wasn't going to be happy scoring the odd point. I thought it was possible to win and went for it.
+- I am out to prove that there are no obstacles for the disabled.
+- Whether it is a small thing or big one, step-by-step you can make things happen.
+- When I returned to the Touring Car championship, I got the team to create a special brake pedal that I could use with my prosthetic leg.
+- When you find yourself in a certain situation you have to identify where you want to go and focus on what you can achieve on that given day.
+- I have a little bit of a big head.
+- My parents taught me that I could always improve on things.
+- I know that I am a lucky guy. I know that after an accident like the one I had, you know, only one guy out of a thousand can really go back home and still live. And I am that one. So I am totally aware of that.
+- I am very proud to become a BMW Brand Ambassador. BMW is like a second family, and over the past years we not only enjoyed great times together at the track, but we have also become close friends.
+- Everybody is calling me crazy because I want to do the Ironman. I'm not doing it to win it. I'm doing it to finish it. I'm racing myself, not a particular field or group of people.
+- When I first climbed into a go-kart, aged 13, I thought to myself: 'This is what I want to do with my life, and I want to drive F1.'
+- Obviously, my wife is very important, very important because in all this time she never watched me with that look that means 'I am sorry,' or that means 'poor you.'
+- I have always had a very smooth driving style. But when I started competing as a disabled driver, I had to take that even more to the extreme.
+- When you accomplish something that is very special, it will stay forever.
+- I shouldn't have survived that accident. Science didn't give me a single chance. I basically survived for about 50 minutes with less than one liter of blood. Science says that's simply impossible.
+- We all have expectations but sometimes the greatest thing is to be surprised with what happens and to find out that it is quite different from the way you imagined it.
+- That's what I admire the most of my mom, that's she's so tough.
+- In comparison to an able-bodied person, it's incredible, the amount of extra resistance I have, in comparison to an able body.
+- Losing my legs was one of the greatest opportunities of my life.
+- I feel gifted for having the opportunity to compete in Daytona.
+- I bump into a lot of people that have similar problems that I have but less titles or magazines than I have, and they just challenge their adversity with the same tenacity, with the same enthusiasm, with the same will to succeed because life is one and you've got to take advantage.
+- Whenever I have a drive or have a dream, I try to achieve it with what I have.
+- It's always good to let people know your emotions for them because love is what drives everything.
+- I said I preferred Daytona to LeMans if I were to race. LeMans is a great event, don't get me wrong, but here in the U.S. is where I turned my life around, where I have a lot of friends, where I feel have my greatest following - not in terms of quantity but of quality - of racing fans.
+- I would not be who I am if I were not putting pressure on me to up the level of my game further.
+- The U.S. is where I was given the greatest opportunity to turn my life from a very nice one to an exceptional one.
+- The perfect life is the combination of great moments and bad ones, and under that point of view, my life is fantastic, because I've certainly hit more than one bump.
+- Obviously my feelings for Portland are quite special because that's where I obtained one of my greatest career satisfactions; like the first love, you never forget the first win!
+- I feel very lucky, I feel my life is a never-ending privilege.
+- It would be completely wrong and arrogant of me to say that this is what I am, an inspiration to others. During the course of my recovery, I bumped into people with amazing stories, far more amazing than mine.
+- I have to give this comment about the American people - they are very good fans. But they are very protective. I think they would prefer it if their great stars are born in America. They are the ones that only stay in the hearts of the fans. And that's understandable.
+- You only recognize how good something is if you've been through the bad.
+- It makes me feel great when I'm driving and talking to my wife, and I look in the mirror, and my son is sleeping in the back.
+- It may look weird to an outsider to watch me jump out of the car basically walking on my arms. Of course, it's very easy for me.
+- I'm just a very curious guy who has a lot of possibility.
+- My never-say-never attitude has helped me a lot. That's why after a short period after the accident, I'm capable of doing almost everything on my own.
+- There are times I'm approaching turns with my right hand on the brake lever, I'm downshifting with my fingers, I'm controlling the throttle with my left hand and steering into the corner with only one hand on the wheel. I feel a bit like Jimi Hendrix: I play with both my hands.
+- First time you step on these new legs, it's bloody hard. It's painful on your pelvic bones. But every day I get more of a feel for where my feet are.
+- You have to let the car do the job and try to trust it, try to understand what you are doing, try to be smooth, and try to be incredibly smart to set the car up, because that is the most important part.
+- Today, I don't have any psychological scars, because I am a realist and an optimist. After all, I can't lose my legs twice.
+- It warms my heart, no doubt, to inspire people. In reality, people see in others what they want to see in themselves.
+- I try to, pardon the expression, stay with my feet on the ground.
+- Disabilities are a very relative condition, it is something that defines a situation, but if you can't jump over the problem then you can certainly go around it.
+- Of course, when I can get an Indy Car or Champ Car race on television, I never miss the opportunity.
+- The best thing I can do is keep advertising myself by winning races.
+- I certainly enjoy quite a few times the taste of the snow as I slam my face a few times in the snow trying to ski and trying impress people.

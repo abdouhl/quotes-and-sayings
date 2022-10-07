@@ -1,0 +1,101 @@
++++
+author = "Lili Reinhart"
+title = "Lili Reinhart Quotes"
+quotes_len = "95"
+description = "the best 95 Lili Reinhart Quotes"
++++
+- My mom would drive me from Cleveland to New York City and use my dad's hotel points for auditions. They were the most supportive parents that I could have. Without them, I wouldn't have gotten anywhere.
+- I have anxiety.
+- Some people say the things I do are annoying because I'm intentionally trying too hard to be relatable, but I'm really not.
+- I was always a performer kid - like, annoyingly so. I would put on shows for my family and direct my friends in little plays, and my little sister, I'd make up dances with her. But when I was 12, that was when I started taking it seriously, and my mom for some reason believed in me and helped me find an agent in Cleveland, which did nothing for me.
+- It's never really been my intention; I've never gone out of my way to be relatable to anyone. I just say what I want, and I'm pretty blunt about things.
+- I can't say I've watched 'Twin Peaks.' I feel like I wouldn't be comfortable doing so until after I'm done with 'Riverdale.'
+- I moved across the country when I was 16, so I left my high school and finished school online in order to pursue my acting more.
+- I journal a lot for nobody but myself. Just to get my thoughts out and to clear my mind. That's very therapeutic to me.
+- Going to Comic-Con was mind-blowing, seeing all these fans and all these people who know my name.
+- There came a point when I called my mom, and I was like, 'I need to come home. I'm not OK. I'm not good right now. My mental health isn't good.'
+- I'm the kind of person, if I don't like you, unfortunately you know that.
+- Taking ownership of your feelings is so vital to getting better.
+- High school was difficult for me because I was in the thick of dealing with my depression and anxiety.
+- I grew up one of three girls, and none of them were into comic books, so I wasn't exposed to that world.
+- I didn't learn about depression or anxiety at school. So when I had to go to my parents to say 'I need help, I need to go to therapy,' I felt like this weird, messed up kid. And I wasn't, but I felt that way.
+- People are going to criticize you no matter what, so I'm going to say whatever the hell I want to say.
+- Why aren't we talking about it in health classes in school? That's just as important as learning about physical health and nutrition. Why aren't we learning about our minds and our mental health and mental illnesses? I just think that it's something that very much needs to go hand in hand.
+- No one's forcing me or any other celebrity to take time out of their day to say 'Hi' to these fans or do these things. It's just something we do nine times out of 10 because we love and appreciate our fans.
+- I think, growing up, the female friendships that I saw on television were portrayed as catty and vicious.
+- It takes a good 35-40 minutes to do my iconic ponytail every day.
+- There's a definite rift in 'Riverdale.' There's a civil war between the Southside and the Northside. And Jughead being on the Southside and Betty's on the Northside, it becomes a bit of a 'Romeo and Juliet' situation.
+- I have a best friend in my life who I know is my soulmate.
+- I never had to do anything specific to craft my 'image.' I wanted people to know that I was a goofball, that I didn't take myself too seriously, and that I love what I do. On my Twitter and Instagram, whenever I can, I try and show myself. I'm not trying to be an Instagram model.
+- I've had social anxiety forever - I don't thrive in social or party settings.
+- Going back, I wish I could have been in the moment a little bit more. I can't change it, but hindsight definitely makes me appreciative of the moment now - even if it's hard, or exhausting, it's all a part of the experience.
+- I actually didn't go to prom. I didn't have the chance.
+- Yes, we as actors are so appreciative of our fans, but there comes a point where, if we've been working all day, we don't owe 100 percent of ourselves to anyone, and that shouldn't be expected.
+- School was a big source of anxiety for me. I hated school. I have social anxiety, and it developed when I was a kid. I had trouble going to birthday parties. It was always there. I begged my mom to let me be home-schooled at one point for a semester because I was so miserable at school.
+- I hate wearing too much makeup or caked-on foundation.
+- I suffer from depression and anxiety, and having a show and having a character that portrays a young woman who is dealing with that and the consequences of it - how it affects her friendships and her relationships with her mom and her sister - it's beautiful to see that.
+- I usually tape about 99 percent of my auditions at my house. I have a camera and record myself, and my mom reads the other lines off-camera. Then I send it to my agent and manager, and they send it to the casting director, and we see how it goes from there.
+- My everyday look is casual, and I try not to wear makeup if I don't have to. I'll cover a zit with a little concealer, but I don't wear foundation on a daily basis. I maybe fill in my eyebrows.
+- I have cystic acne, and sometimes when I have a breakout, it triggers me back to that time when I was a teen and I feel so self-conscious - like the whole world is looking at my bad skin. I've definitely not gone out of the house because of a breakout, which is horrible.
+- I feel like every time I tweeted something that was a little opinionated, or every time I posted something on Tumblr that seemed a little private, it's all of a sudden making news relationship-wise.
+- Everything I'm thinking in my head goes onto my face, so you can see right through me.
+- I don't think any one 'ship' - like a Bughead or a Barchie or Varchie fans - should give up hope at any time because you never know.
+- I just hope to keep doing film and TV and eventually Broadway. It's definitely what I want to do for the rest of my life.
+- I think I was 10 when I did my first community play, and then I started booking bigger roles in these plays, and people were telling me and my parents that I was talented. And I was like, 'Well, this is something I wanna do.'
+- It's just a matter of finding the styles, finding the fabrics, shapes, that accentuate your own body. You can't be altered, but the clothes can.
+- The world that we've created - of 'Riverdale,' and of this town, and of these characters - are so vastly developed. And we're diving so deep into them that fans are just really gonna die for it.
+- I've seen a therapist at different points in my life for different reasons.
+- I just love spending the day at the beach and then staying inside all night.
+- It's weird how much social media affects someone's career. Deals and jobs are sometimes based off how many followers you have, which is a little sad. I would rather that not be the case, but I understand that it's important.
+- Growing up, I watched a lot of TLC - I loved 'Four Weddings' and 'Hoarding: Buried Alive.' They're so binge-able.
+- I use an acne cleanser because I do get breakouts, especially when I'm filming, and I use a toner to kind of help keep my oil under control with oil.
+- I think it's refreshing that it's not called 'The Archie Show.' It's called 'Riverdale,' not 'Archie,' which is good.
+- I had had to quit a few jobs in North Carolina because of how anxious they made me.
+- The response from the beginning has been really, really wonderful and positive. People have always really responded to me talking about mental health.
+- I never had a huge circle of friends, so I really just tried to cherish and not take for granted the close friends I did have, who were really supportive and understanding.
+- When my skin is breaking out pretty bad, I try to leave it alone as much as I can. I don't want to pack on product after product, I think that makes it worse and kind of overwhelms your skin.
+- I really would like to be on Broadway someday.
+- I'm a picky eater, so, often, if I can't find something to eat at catering, I order pizza.
+- I'm always going to try to be as happy and grateful to fans, but I'm also just trying to live my life.
+- I definitely have had fights with best friends. Some of them have led to me and said friend not being friends anymore, but it always turned out to be for the better. I think if you fight with someone, and you can just never reconcile, that just goes to show that maybe you shouldn't have been friends in the first place.
+- Our Betty Cooper is still the girl next door - she literally lives next to Archie. And she's the blonde all-American girl; she's so sweet and forgiving, gives people the benefit of the doubt and second chances, wears her heart on her sleeve. But she's also incredibly broken on the inside, for many different reasons.
+- I take, like, two baths a day. Is that weird? I don't know.
+- It's always been something that I'm so able and willing to talk about that it's kind of foreign to me that people hide their depression and anxiety.
+- It's called a private life for a reason - it's mine, and it's special and sacred.
+- I order pizza a lot to set.
+- I never had had a large group of friends, so I often felt a little out of place and like I was in a different mindset from everyone else around me because I was so focused on my acting career.
+- When I get really passionate about something, the audition process is really strenuous and hard on me because I feel so much for the project, and I become so attached to it. It's hard. It's stressful because you want it so badly, and you're crafting this character that you're falling in love with.
+- People post things on Instagram that they know people are going to like.
+- Being a young woman in Hollywood is intimidating.
+- You don't need to ever justify the way you feel.
+- I am on medication - I've talked about that before - just to help my anxiety, so I'm not depressed all the time.
+- The first time I moved to L.A., I was there for five months, and my health got so bad because of how depressed I was.
+- When you meet your best friend in real life, or you meet your soulmate, you just know it, and you feel it.
+- I developed slight body dysmorphia - when I would break out, I couldn't look at myself in the mirror for a couple of months at a time. I remember doing my makeup before school in the dark, which is an awful idea, but it's because I didn't want to see myself in that bright light.
+- I like to escape to the beach and kind of ground myself whenever I can.
+- I grew up with a very small, select group of friends that I kept my whole life.
+- I use an acne cleanser. I've always had that St. Ives apricot scrub. But I have bad skin sometimes.
+- I'm not going to sit here and go to college for something that I don't care about.
+- With any teen show, there's going to be drama and heartache.
+- What you want, what feels good to you - it's all going to change with every partner you have.
+- I want to be relatable. I want people to know who I am, but that doesn't mean you get to know everything about me and my life. I think that there's a fine line.
+- I'm kind of a warrior for love, and I wear my heart on my sleeve.
+- Actors devote a lot of our time and energy to the work that we do, but there shouldn't come a sense of entitlement from fans that we owe them every second of our lives.
+- I love to apply my foundation with BeautyBlenders - I just think it gives the most natural kind of glow, but I've learned from being on set that you should use a damp BeautyBlender but that you should dampen it with rosewater. It just kind of brings your skin to life a little bit more.
+- Sometimes people will approach me on the street and ask me very personal questions about my dating life. Fans talk to me like they know me, and it's like, 'You don't know me. You know my character, but you really don't know me.'
+- I remember being in middle and high school and hearing Demi Lovato speak up about her mental illness, and that was comforting.
+- A man in a position of power over me used that said power to try and take advantage of me.
+- My relationships are between me and whomever I'm with, not between me and the world.
+- I was making myself a hotdog and pulling some curly fries out of the oven, and I got the call from manager, and she said, 'You got it. You're Betty Cooper.' It felt so unreal.
+- I'm not grateful for depression, but it honestly made me work harder and gave me the drive that I have to succeed and to make it work.
+- I really look up to Ashley Graham and how she promotes her body and flaunts it. She's beautiful and stunning, and I'm not going to say I love her body on Instagram and talk about it poorly in my personal life.
+- I wear sweatpants to set every day.
+- I think there's something about going on a hike and looking at a city view or looking at the ocean that brings you back to earth and kind of reminds you that your problems are quite small in retrospect.
+- I don't drink coffee, so I have been known to have a Coca Cola on set at 6:30 A.M. in order to wake myself up.
+- I have a sugar addiction - when I don't eat sugar, my body literally shakes. It's not something I'm proud of.
+- My parents just had faith in me, and thank God they did. They weren't stage parents in the slightest.
+- For teenage kids, they feel a pressure to sweep things under the rug because they feel like they're not important enough to have problems.
+- I remember growing up and seeing Vanessa Hudgens' Bongo campaign in magazines. I think I probably put a few of her posters on my wall, to be honest. I wore Bongo growing up, as did my older sister - I would get her hand-me-downs as well as my own new pieces when I went shopping.
+- I think people who are destined to be friends, that are best friends, that genuinely, truly are invested in each other as human beings - a fight won't separate you forever. I've definitely had fights with my best friend, but it has never made us sever ties.
+- I have money in my bank account. I have my own apartment. I have friends. I still go through and experience depression. You don't have to be ashamed of it.
+- Your feelings are validated by the fact that you're feeling them.

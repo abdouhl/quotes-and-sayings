@@ -1,0 +1,97 @@
++++
+author = "Craig Revel Horwood"
+title = "Craig Revel Horwood Quotes"
+quotes_len = "91"
+description = "the best 91 Craig Revel Horwood Quotes"
++++
+- Celebrity is worthless and useless, it takes away your privacy.
+- The Thorn Birds' by Colleen McCullough. I took it on a holiday to Greece and just fell in love with it.
+- I had long eyelashes and the other kids used to say I wore mascara.
+- Street dance resonates for teenagers. It's inclusive and brings in different audiences.
+- Strictly' is Saturday night fun. The pay's not amazing.
+- When you take on an acting or dancing role, you have to trust your director, and in some ways there is freedom in relinquishing control.
+- I was bisexual for a long time. I flitted between men and women quite a lot between the ages of 17 and 26.
+- If I have to do my tax online, the government should pay for my Internet hook-up, darling.
+- You are under great scrutiny when you are adopting, more so than natural parents. There are a lot of interviews, screenings etc.
+- I met Prince Harry at Westminster and I want him to be my new boyfriend, but unfortunately I don't think it is going to happen.
+- The colour of someone's skin doesn't explain anything.
+- Actors are very emotional, whereas sports people are used to criticism.
+- I like stuff like Joy Division and Verdi, and then some naff stuff.
+- I love my bike, a hybrid Matrix Express, which is fast, cheap, easy to park and good exercise.
+- I did not expect to become a celebrity or be known by the public at all.
+- Yes I've had my nose done.
+- I might be a celebrity but I've still got to have the dosh.
+- Anything people say about me I don't care. I really don't care. You read so much terrible stuff about yourself it sort of just ends up washing over.
+- Don't get me wrong, I really like being a judge on 'Strictly.' But my first love and passion is directing and choreography and I will be doing that until the day I die.
+- I was short and fat as a child.
+- My relationship with my dad was complex, especially when I came out. The years of verbal abuse, all of it drink-fuelled, were difficult. Later, though, he came to see me on stage in 'La Cage aux Folles' - one of his favourite shows - and loved it. Theatre won him over and he accepted me in the end.
+- With 'The X Factor' I think the audiences have lost faith and trust in it so that's its problem. You want to be watching something real and dynamic and something you can trust and believe in.
+- I've battled food issues since my late teens.
+- I grew up with 'Chess' and the music from the show.
+- Sometimes people need to think of themselves as lions or tigers. Even panthers.
+- I hated sport, but at 13, I went to an aerobics class and the teacher thought I had natural rhythm. She suggested formal dance classes, and that's when I finally found something I was really good at.
+- As a dancer, you go from one show to the next, and you never know where your next pound is coming from, and I think that's what makes me say yes to so many things, because there's always a fear that you won't have a job.
+- All my ex-boyfriends, bar one, are my best friends.
+- Ricky Whittle is fabulous.
+- I'm tongue in cheek, but very much to the point.
+- When I'm in a relationship I'm monogamous.
+- If I was to pretend my father didn't exist and I didn't have anything to remember him by, then it wouldn't be healthy.
+- I've got an iPod, of course. I'm all Mac'd up!
+- I was quite chubby, so when I started dancing professionally I had to work hard to stay slim.
+- X Factor' creates a Christmas single that puts money in other people's pockets. Whereas 'Strictly''s not out to do that, at all. That's why I stand up for it - it isn't car-crash television.
+- The problem is most people in the world can't take criticism.
+- I love getting in the kitchen because I don't get the chance when I'm staying in hotels and on the road.
+- I don't want a splashy magazine wedding with celebrities.
+- Freddie Mercury made a lot of sense to me even though I didn't understand the lyrics.
+- Strictly' is the most successful reality format in the world - it's in the 'Guinness Book of Records' - going to 38 countries. 'X Factor' hasn't done that.
+- For personality, you're not going to get better than Ricky Groves. He really goes for it.
+- I like working with directors I respect, who give me freedom but also give me a good base from which to work.
+- Lots of celebrities have had some sort of dance training, especially actors or singers - they have to have some movement skill and be trained physically.
+- I direct as many shows as I can fit in between 'Strictly Come Dancing' and other performance stuff.
+- Strictly' is nothing like 'Love Island'... absolutely not.
+- I like committed, one-on-one relationships. That's just who I am.
+- My signature dish is seafood lasagne - massive king prawns, smoked haddock, cod and a white sauce.
+- I play the Wicked Queen in 'Snow White.' I'm not typecast. It's terrible. I should be Prince Charming.
+- I chose when I was 30 to change my life entirely and become a director and sit in the dark and that's what I love doing.
+- Villains are far more interesting to play than nice people.
+- People tend to think when you're at the top, you need bashing down. It doesn't make any sense whatsoever.
+- Friendly Fires were dull, and I wouldn't really sit down and listen to Hot Chip.
+- Buying my new house in the country wasn't about showing off or being something I'm not, like Madonna when she turned into the country lass with her tweeds on.
+- I love my sporty but classic brown leather Picard satchel.
+- I once called EastEnders' Patsy Palmer 'a scrubber in a Puffa jacket who cries all the time' on 'Strictly.' She said I wasn't actually a dancer. That wasn't my finest moment.
+- I'm a lovely person, considerate and loving.
+- I'm a workaholic.
+- Discovering that my great-great-grandfather Harry was Australasian clog-dancing champion in 1871 was extraordinary.
+- The BBC don't pay what they pay in America or on ITV.
+- But 'Strictly' is meant to showcase people with talents in acting, singing, sports, journalism... not fame-seekers with no discernible talent.
+- I always say the most important thing is the ability to act, then sing, then dance - in that order.
+- My tights split while I was tap dancing in the West End in 1993.
+- Love Island' is for people who aren't celebrities, who've done nothing in their life and are trying to be someone and get something to be famous.
+- When I was opening my first bank account, the person at the counter thought I was a girl.
+- My ears are too big.
+- The X Factor' - I watch it because I'm always searching for talent to use in my musicals, so they do all the groundwork for me.
+- I feel as though I'm constantly defending myself. I'm up against challengers from the ballroom world, from the dance world, people on the couch who hate what I'm saying about their favourite celebrity. Then you're up against the press, who will always want to put you in a box.
+- If you really have a passion for something, you should follow it and listen to your inner voice.
+- I'm not saying the persona on 'Strictly' isn't me - it's just that the nurturing side, which is also a part of who I am, isn't what I'm there for. I'm there to judge and to give an honest opinion, even if it's not the opinion someone wants to hear.
+- How many dancers in their life get a job that will last 15 years? Not many.
+- My advice gets misconstrued as being mean.
+- I was bullied mercilessly through school for my weight problem.
+- There can be dramas in your life and you can get over them and become someone. You don't have to wallow in self-pity; you can actually use the experiences in your life to push yourself further and help others.
+- I always thought I needed the support of someone in a long-term relationship to make me whole.
+- I've learnt not to expect a lot from supermodels - we've had them on 'Strictly' before and they've been horrendous.
+- I believe in civil partnerships as it protects each partner. Whether I believe in marriage is a different thing.
+- I think women should be paid the same as men. That's for sure. But what would you say to a woman coming in after you've been in the job for 15 years when they've done absolutely nothing to earn it? I don't think that's right.
+- I like fresh, crisp, cool, plain white cotton sheets from Calvin Klein.
+- I'd adopt an older child, not a baby.
+- My wife Jane left me for another man. Then I fell in love with a bloke. I have been gay ever since.
+- It's important to me that people don't go spouting off about anything in your life.
+- I'm on Grindr, Scruff, Match.com. That's the way everyone meets these days, three of my friends have got married after meeting on Grindr.
+- I like telling people the truth.
+- I used to go to clubs and sing as myself but people weren't interested. And then I turned up as a woman and suddenly everyone was interested.
+- I like getting blotto at parties but I also like being sober and I hate the hangover.
+- I like laying by the pool but I do tend to get a bit bored after a couple of days chilling out.
+- What would people be surprised to know about me? That I love cooking and chopping wood for the heating system in my house.
+- Strictly' has evolved - there are such beautiful stories within each dance. We're not doing a ballroom and Latin competition, it's an entertainment show.
+- Sports men and women need hip replacements. It was all those years of classical ballet and forcing turn-outs. It can be quite detrimental to your body.
+- I go through the same trials and tribulations as anyone else.
+- I danced with Courtney Act, which was absolutely fantastic.

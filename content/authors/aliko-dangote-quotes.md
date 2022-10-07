@@ -1,0 +1,24 @@
++++
+author = "Aliko Dangote"
+title = "Aliko Dangote Quotes"
+quotes_len = "18"
+description = "the best 18 Aliko Dangote Quotes"
++++
+- If I had challenges in my company, I would not hesitate to sell assets to remain afloat, to get to the better times, because it doesn't make any sense for me to keep any assets and then suffocate the whole organization.
+- My great-grandfather was a kola nut trader and the richest man in West Africa at the time of his death. My father was a businessman and politician. I was actually raised by my grandfather.
+- I used to own two homes in Atlanta. But it was a lot of trouble. There are leaky roofs; you have to call people. It takes up too much time to own property everywhere. Now I stay at the St. Regis. I used to like cars a lot, too. I had 25 of them: Porsches, Ferraris.
+- I'm not in it for the money. No, no. I like to run a business that's successful... I'm a very creative person.
+- The most dangerous thing for an entrepreneur to do is to actually go into a business that he does not understand fully.
+- If you don't have ambition, you shouldn't be alive.
+- Where the assets of Facebook were hype, we have real assets.
+- My love for Arsenal dates back to when I went to watch them play with the then-largest shareholder David Dein. I developed a likeness for the team, and I have been a supporter of the team since then.
+- What I always say is that money doesn't have colour. It doesn't matter whether you are from Africa or anywhere in the world. The colour of money is the same.
+- I've run a very successful business, and I think I can also run a very successful team.
+- The number one thing that kills businesses in Africa is power - or the lack of power.
+- I always tried to move up the food chain. I started with cement and then moved into textiles and banking. When I was trading sugar, I added salt and flour so that then we could do pasta. And then I thought, why not make the bag for it, too? So, we started making packaging.
+- The gas, which is our main source of power, is priced in dollars.
+- If I have an idea, I can actualize it through our political leaders.
+- The people who were supposed to invest in refineries, who understand the market, are benefiting from there being no refineries because of the fuel import business.
+- I always make sure I hire people smarter than me.
+- Where the foreign exchange is not available, we are cutting down our operations. For example, we had a vegetable oil refinery; we have shut it down. We had a tomato-based processing plant; we have shut it down.
+- If bad and inexperienced politicians control power in Nigeria, my wealth may turn into poverty, and I am not ready to become a poor man.

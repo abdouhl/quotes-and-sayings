@@ -1,0 +1,24 @@
++++
+author = "Rachel Keller"
+title = "Rachel Keller Quotes"
+quotes_len = "18"
+description = "the best 18 Rachel Keller Quotes"
++++
+- I don't think that when I'm acting I feel like I lose myself to it, but that sense of losing, that sense of discomfort, well, I guess maybe that comes a bit! It's about redefining what 'uncomfortable' means for you.
+- It's like, you can know you want to live your life by being yourself, but how do you actually do that? That can be a whole lifelong journey.
+- I was the 'no one understands me' teenager. But I think truly I've realized now that I didn't understand a thing myself. So I just had some livin' to do.
+- When I look at my body, I'm like, 'I'm a lead of a TV show?' To have a man in the business say, 'Come along just as you are,' is really an incredible thing.
+- I want to do good stories, and I want to work with really interesting people. And if it's Noah Hawley forever, that's also amazing.
+- I was actually born in L.A. My sisters and I were playing in a parking lot, and my dad was like, 'Nah, nah, nah. Let's go give 'em some grass.'
+- You can't play having a mental disability. You have to play whatever that person's truth is without any judgement.
+- When I auditioned for 'Fargo,' there was something about it that I was hungry for because of how right it felt for me.
+- When you're building a show from the ground up, there are no answers or wrong move, because there's no bible.
+- I grew up with an abundance of things from our garden, so fried food was not enjoyable.
+- I must've been a bird in some previous lifetime. I feel like I'm called to flying - the convenience and the beauty of it. That feeling of soaring would be empowering.
+- I had a really lovely childhood, but I wasn't the easiest kid to live with.
+- My parents were really loving, open people to be around. I don't remember them ever telling me this profession is difficult. There was never, 'Uhhh, what else are you interested in?' They were just, 'Great. Done. Go for it.'
+- I'm from Minnesota. I like to be barefoot, running through the woods.
+- I think acting, for me, is about play. It's about time, and it's about feeling, like there's a story to tell and I can tell it through my body and my voice.
+- Young girls in particular aren't given a space to be messy and complicated and express themselves and experiment - they're told to be a little quieter and a little less than.
+- When I'm auditioning for something, if it's not me, I really hope the part doesn't go to me. You know what I mean? I don't want to be at the wrong place at the wrong time. If it's me, wonderful. If it's not me, there's space for all of us.
+- I want tragic and poetic forever! That's how I want to live every day.

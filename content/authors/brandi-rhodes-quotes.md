@@ -1,0 +1,80 @@
++++
+author = "Brandi Rhodes"
+title = "Brandi Rhodes Quotes"
+quotes_len = "74"
+description = "the best 74 Brandi Rhodes Quotes"
++++
+- People know I take good bikini pictures, but I also want them to get to know who I am.
+- I don't have great lashes. They are kind of stumpy and they won't do what I want them to. I don't want to wear falsies everyday, and I don't want to get eyelash extensions.
+- I think people are just going to be people, and racism is a thing. If people have an inclination to be racist then they are going to be, and there is not a whole lot that you can do about it.
+- I spent a lot of time wrestling at NXT. That was not seen because I was also an announcer. When you're an announcer, they try to protect you and make sure you don't get hurt or injured, or anything that would hinder you from your TV work.
+- I have been an athlete for much of my life starting at the age of 4.
+- When you come from the wrestling world, you are taught to do everything for yourself: market yourself, plan for yourself, design for yourself.
+- I love Anthropologie when it comes to accessories. They just have it all!
+- I'm true to myself, but I always have a soft spot for my husband no matter how nefarious I am.
+- It's an exciting thing to build a relationship with a talent that's outside of your comfort zone.
+- There is a difference between being a wrestler and being a pro wrestler.
+- Cody and I had a connection pretty quickly. We were engaged pretty quickly, but my moment where I knew this was definitely the person for me was when Cody asked me on a date to Halloween Horror Night at Universal Studios. Nobody had ever asked me on a date to Halloween Horror Night, and I had never been even though I am a horror fanatic.
+- I'm a believer in caring for your skin inside and out! A good way to do this is through vitamins.
+- I know that some of the ideas that I have are not always going to be seen as a good idea by everybody but, that's just life. We learn at some point that you don't always get your way.
+- It's interesting to see how a lot of people don't see the other side of the coin. Since they haven't been there. Someone might suggest your character say something that they'd never say. It doesn't occur to them that there are people who think differently about something, from another perspective.
+- Working on 'WAGS' is obviously very different than working on wrestling television. It's very different in the way that there is not nearly as much to do for 'WAGS.'
+- What I did sign was a tentative contract with Impact Wrestling when they were still Impact. That contract had a clause for me, because I was already working on some stuff in other areas of television. That clause basically said that if something else in television were to happen for me, they can't be uncooperative.
+- In the case of Sadie Gibbs, fans were going, 'Have you seen Sadie Gibbs?' I'm like, 'Who the hell is Sadie Gibbs?' I looked into her work, and went, 'Wow, this is why these people are so into her.' She's very talented.
+- Some people don't know why they have pride in something that they do.
+- It's kind of frustrating when you're watching something and you know what's real and then people are telling you no. Fans are very into the idea of good old-fashioned marriage. They don't like pretending when you're married that you're not.
+- What's not to like about a curling iron that does all the work itself?
+- Wrestling has always been on that edge of a cliff in many areas as far as what is politically correct and not.
+- I consider my path to be very different than anyone else's in wrestling and that's kind of something I pride myself in.
+- Often times, while filming 'WAGS Atlanta' with 3 male producers, we were told to dress 'WAGGY' for scenes, not realizing that WAG style isn't universal! WAG style can encompass a myriad of different looks.
+- As long as you keep in mind that what you're looking for is the best person, regardless of anything else, you're going to find the best of the best.
+- For many female wrestlers, the opportunity to fight for the title represents the crowning achievement of their careers.
+- Being on the road every week is not new to me.
+- I can identify with Riho because I was the talent that didn't speak the language in Japan. I'm very excited for the fans to kind of build a relationship with her because it's going to take work from both sides to understand one another.
+- I've always been a straight shooter and an open book. It's how I've chosen to live my life.
+- I'm not one to say I'm gonna do something and not do it.
+- Many times, I would be on live television and have no idea what the next match is, and I'd have no clue who was coming out next. The last person to know is always the announcer, and it's always your fault if you make a mistake - even if you didn't know. I was always on top of everything and never said the wrong name or the wrong town.
+- I love color, so it's rare to see me without at least a pop of a hot pink or bold red, even if it's just a lip color pop!
+- When I was very young, I didn't talk a lot. If an adult was speaking, I was listening. I think it was the moment I turned 18 when I was like, 'I'm an adult now and have opinions and things to say, so now it's time for people to listen to me.'
+- I'm a huge fan of MAC's sheer pressed powder because it feels virtually weightless. I can actually wear it to the gym and not clog my pores.
+- I honestly was supposed to always be a wrestler. I was never hired into any business as an announcer. That was just something I ended up falling into.
+- A lot of people think that if something doesn't happen right away with women or with a particular minority, they are overlooked and they're not important and that is so much not the case.
+- When Cody won the Ring of Honor title, I rushed out of my seats, tripped on the steps, and bruised my leg in front of a couple fans. I just didn't want to miss a moment with him. That is how much I care about my husband, I care so much I get clumsy.
+- Women are stepping up, they are performing, they are showing that we are athletes as well and we deserve the attention we are getting.
+- Impact has always had a focus on their Knockouts. Back when WWE was not so focused on their Divas, Impact was still focused on their Knockouts. They were actually the stronger women's division for a long time, and that was the place to watch a match more than a couple of minutes.
+- With Riho, she doesn't speak English. Is that something that's going to keep us from having her on our roster? No! She's incredible. She's got incredible heart, and very, very talented in that ring in many different ways.
+- I have spent my last few years training and aggressively becoming the best wrestler that I can and I will continue to do that but at the same time I've been in every major locker room of the professional wrestling world.
+- I hate when people talk about weekly wrestling shows that are lesser than pay-per-views. The fact is pay-per-views are longer, but the wrestling will be just as intense and exciting.
+- The one thing I like to do is challenge my body, so I just transition between a bunch of different workouts all the time.
+- There have been for myself at times in wrestling, times when I had to say, 'Hey, wait a minute, I'm not really comfortable with that' or, 'That doesn't work for me.'
+- I've never broken a bone, I've never even sprained anything, so to be overseas and have my clavicle broken in two places was a bang-up job done by me.
+- When you're an on-air broadcaster you have a personality to maintain. It's your job.
+- I had full rank scholarship to the University of Michigan, which anybody in the north will tell you, I don't know anyone that has had that at the University of Michigan, which tells you that I was a stand up student.
+- I remember my agent calling and saying 'this may be really weird, but would you have any interest in WWE?' I was like, 'isn't that wrestling? And the last time I saw a WWE match was in my women's studies class at the University of Michigan, and they picked it apart. But she implored me to watch, and instantly I was interested.
+- Pairing a sequin mini skirt with a velvet long sleeved bodysuit can never go wrong!
+- There's no rules that say you can't have a friend at ringside. The rules say the friend can't interfere.
+- I do think with wrestling as a whole, one of the tough things, especially for women, more for the black community is that a lot of the times it's hard to get attention or you're working in places where it's not being streamed.
+- All Elite really just wanted to provide an alternative for people who were looking for anything different, and what we offer is some of the best talent in the entire world - male and female.
+- I am a different type of female. I am not your typical wife of a successful man.
+- One of my favorite characters to watch growing up was Sensational Sherri.
+- It is a lot to learn, and unique, but it is commonplace here in Atlanta where the man takes care of things and the woman becomes a homemaker, and later on in the relationship, a mother, which isn't the things that I ever considered. I think Cody thought that I would want that for my life since he grew up in that, but that is just not me.
+- My basics for a daytime look are simple: powder, gloss, brows and lashes.
+- There are different styles of women's wrestling just like men's wrestling.
+- What All Elite Wrestling does is it just creates more opportunities for women.
+- Everything that I've done in wrestling and hopefully going forward in entertainment has always been unique and genuine to who I am.
+- Being a part of the Women of Honor championship tournament is historical.
+- I think in wrestling generally there is this good old boys' system. Where you always have a lot of men at the top and a lot of men making all the decisions.
+- You never want to hear that somebody didn't get to come to your show because they felt unwelcome or they felt like they wouldn't fit in - any of those things, it's a terrible precedent to set.
+- My first match was on television with no buffer, but I wouldn't have it any other way. I feel like I've learned faster than a lot of other people for that reason.
+- Personally, I'm a fan of valets and managers.
+- I know when someone is genuine, and I'm also a big believer in, if you aren't happy with something or you're not feeling passionate, God, you're not a tree, move. Go do something about it.
+- I don't think I've said more than hi to Kenny King ever. And I think that's in part because 'The Bachelor' is a much different type of show than something like 'WAGS.'
+- I was truly inspired by a lot of Sensational Sherri and Bobby Heenan's work.
+- For female wrestlers, it's always such a thin line, because every sport has its age limits, but when it comes to women, we seem to reach those age limits more quickly.
+- I grew up figure skating, and in figure skating there is only a handful of black people at the time figure skating with me.
+- I pretty much train every day.
+- I go to all the haunted houses that I can get my hands on, and I grew up in Michigan, where there are a lot of back-woodsy haunted attractions.
+- AEW is all about the bell to bell action. You're going to get more wrestling and less soapy backstage drama.
+- The 'AEW' women's championship will be the cornerstone of the women's division. The championship will be treated with the utmost respect and prestige. We hope to inspire future female wrestlers to dream of holding such a meaningful title.
+- I'm a big fan of working for things. If everything was handed to me, I wouldn't appreciate it.
+- So making the choice to be involved in the pro wrestling industry is always looked at as a short-lived choice, and there are very few and far in between opportunities to continue a career in wrestling if your time is up as a wrestler, as a female.

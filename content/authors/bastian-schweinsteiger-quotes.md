@@ -1,0 +1,69 @@
++++
+author = "Bastian Schweinsteiger"
+title = "Bastian Schweinsteiger Quotes"
+quotes_len = "63"
+description = "the best 63 Bastian Schweinsteiger Quotes"
++++
+- Rarely was a distinction deserves as the Oscar for best supporting actor, who went to the late Heath Ledger. His 'Joker' is really incredible.
+- The English have a special sense of humour. This I immediately experienced in the dressing room. As I walked with two plates while eating, suddenly a team-mate asked me, 'Basti, what time is it?' hoping I would automatically turn my hand to look at my watch. That's quite entertaining.
+- I wanted to play for United; I wanted to play at Old Trafford. It was always my goal.
+- I'm not really a negative thinker.
+- When our players come from somewhere else, they sometimes show happiness when the game is 0-0 or 1-1, but we were brought up in an environment where we have to win. We are not satisfied with 0-0 or 1-1. This is the mentality of Bayern Munich.
+- I will travel a lot after my career.
+- I was looking forward my whole career to once playing somewhere else to get the experience, and if I thought about moving to England, I always had Manchester United in my head.
+- There is fireworks before the game; there is the national anthem before the game, so that is a huge difference to how it is in Germany: like, after the warmup, you touch the ball 20 minutes later. So that is a little bit different. The league, for example, the MLS is quite a young league, actually, but it is developing.
+- First of all, I think it is not easy to win a title in the Premier League, as you have really good teams here.
+- I have won the most national titles as a German, so what should I do after that? Lay back and take it easy? That's not how I am.
+- The small teams are playing well. That's visible, and it has had an impact on German football.
+- My dream was always to play soccer.
+- I love this game. I love to find solutions, ideas. I always saw the potential of this league. Now that I'm here, I want to help.
+- American leagues - baseball, ice hockey, American football and basketball - you are the best. But in a global sport like soccer, you're not.
+- My wish would be to continue playing for Manchester United. I have no personal problems with Jos Mourinho. One thing is for sure: I'm not going to stop playing football. I still believe in my own ability. I could still help Man United if given the chance.
+- In Munich, we play to win.
+- I am sad to leave so many friends at Manchester United. But I am grateful to the club for allowing me the chance to take up the challenge at Chicago Fire.
+- Not everything is seen that happens on the pitch - the teammate in a good position, where it might get dangerous, how a situation develops.
+- The Premier League is a very strong league. Chelsea, Manchester City, Arsenal, and Liverpool all have a high quality. But those who know me also know that I always want to win titles. And I think that Manchester United are a club which can win titles.
+- I think I have a lot of experience, especially of the big matches, and that is an advantage always.
+- It's not like I can say, 'I have signed for three years; now we'll win three straight titles.'
+- I'm so happy that I was able to make it to 120 games for Germany; 175 games would have been possible. I've had many great moments, but particularly the way the fans supported me and the road to the final in Rio.
+- I never doubted my quality. Let me show my quality, and I will get results.
+- I remember when I came on the pitch the first time after a long time where I was not selected. It was a great reception; I remember that so well.
+- One player's influence in football is not as big as in other sports: it's 11 players vs. 11 players.
+- Roy Keane and Paul Scholes were unbelievable players. You cannot compare yourself to them. It is impossible. Scholes especially, I like him a lot, and I have a lot of respect for what he did for United.
+- I would love to win the Champions League once again. Winning big trophies like the Champions League or the World Cup is usually making people think, 'The players are not hungry any more.' Still, that's not what I feel.
+- I always want to play and help, especially when we're at the top of the league.
+- For me, it is very important to control a situation in defence. You can always score goals, but you have to add stability in the defence.
+- I'm happy with my own performance, but I can only be good if the team are good.
+- I am confident. My style of play is to control a game. You have to be smart in your brain and fast.
+- I love standing on the pitch too much to focus on anything else - if I want to be a coach or something.
+- The league is interesting because it's evident everyone can beat everyone. And sometimes things happen you just don't understand. This might be referee decisions or the running paths or passes of a teammate. It's different than in Europe, but you have to take things as they are.
+- I listen to myself, listen to my heart.
+- I love to have the ball. That's why I play soccer, and we have a great coach who has this kind of view, he sees everything, and I just want to help as much as I can, on the pitch and off the pitch.
+- There's a famous slogan here in the Bavarian dialect, and we use it inside Bayern Munich. We say, 'Mia san mia.' Literally, it is, 'We are we,' but it means, 'We are who we are.' That's not being very arrogant, but we are very confident about our ability to win the game. It is about a winning mentality.
+- I just want to play well, have the people in Chicago enjoy watching soccer. You have a very good baseball team, a very good ice hockey team, and a very good football team. Hopefully you'll have a very good soccer team.
+- I won't forget the supporters of United and also the team and the players.
+- Real Madrid is one of the biggest clubs in the world. In every city, they have supporters. I hope that the people in Chicago support us, especially since we have some players on the team.
+- I am a football player. I like to win. And I am used to winning - quite a lot.
+- I had a lot of pressure in my career: when you play at World Cup or Champions League final, there is pressure on your shoulders.
+- My wish is that soccer in the U.S. become on the same level like the Premier League, Spanish league, or the Bundesliga.
+- I'm sure players in Europe would like to play in MLS, but you maybe have to change some little things to make it more attractive for the players in Europe.
+- The Argentinians provoke and are always whingeing to the referee to try and change his opinion. It starts before the match. You see their body language, how they gesticulate, how they try to influence the referee. That is not part of the game. That is a lack of respect. It's their mentality and character, and we'll have to adjust.
+- I'm not a big planner; I decide by intuition.
+- I know most of Europe do not want to play against Bayern Munich.
+- Even when I was training alone, just me and one of United's fitness coaches, I loved going onto the field, doing sprints, being at the training ground.
+- I hope that everyone tries to help to increase the level of the MLS and also that American players like Pulisic are here and not in Europe. That should be the goal for America. I just try to help as much as I can.
+- I felt within myself that I needed to change what I was doing. I needed a new stimuli. So the interest from Manchester United was a perfect fit.
+- I have to thank the coach for looking after my fitness and allowing me to feel my way into the tournament.
+- I am more mature now and know how to deal with certain situations in football. It's not all about highs; there are also lows, but I can deal with it. Football is a hard business.
+- My absolute dream would be to play for Manchester United and help them reach the goals they have.
+- I am actually comfortable in every position in midfield. At Bayern Munich, I even played as a winger and sometimes a full-back, so I can play many different positions.
+- I'm always a positive person.
+- I want to help. I want to contribute myself to the club as much as I can.
+- I just want to help, first of all, the Chicago Fire to grow, to change the mentality to a winning team, and to reach the playoffs. That's my goal. But also to change the game style into a team which is able to control every opponent.
+- When you know how the coach ticks and how he wants to play football, it makes the decision easier. But for the main part, I came to England because of the club Manchester United.
+- I have to reserve special thanks to the United fans - whose support has been a very special part of my time in Manchester.
+- I see huge potential for the league and also for America.
+- In Manchester, you don't have proper tall buildings. Or in Munich.
+- I'm not one to think of burying my head in the sand - I've always been a positive person and still am now.
+- I was looking forward to playing soccer, playing more minutes on the pitch, and I didn't have the chance to play more minutes in Manchester. So I came here to the Chicago Fire.
+- It's incredibly difficult to make sure that everybody's happy.

@@ -1,0 +1,37 @@
++++
+author = "Lucas Papademos"
+title = "Lucas Papademos Quotes"
+quotes_len = "31"
+description = "the best 31 Lucas Papademos Quotes"
++++
+- I am confident that we can overcome this crisis, provided that we remain united in our effort to address our debt and competitiveness problems. And I think that the Greek people are united; it's important also that the political forces are united in line with the will of the Greek people.
+- I think it's often discussed that leaving the Euro is an option for Greece. I think this is really not an option.
+- Delays in granting of justice very often reduce the speed with which investment could be undertaken, discouraging investors.
+- I thank all of those deputies who supported the government and gave it a vote of confidence. I believe each of those votes represents a responsible decision to avoid placing our country's membership of the eurozone in danger.
+- Dealing with Greece's problems will be more difficult if Greece is not a member of the eurozone.
+- I take office during the most difficult moment in the country's recent history. The country can be saved - it's up to us. I think it is obvious for those who support this government to undertake the commitment and ensure that our country's euro membership is not endangered.
+- A very difficult year is ahead of us. We must continue our efforts with decisiveness, to stay in the euro, to make sure we do not waste the sacrifices and do not turn the crisis into an uncontrolled and disastrous bankruptcy.
+- The ECB's interventions in sovereign bond markets should not be perceived or interpreted as a 'freebie' for governments. They are temporary.
+- In the 20 years before Greece end up with the Euro, efforts to improve competitiveness through exchange rate and adjustments resulted only in temporary gains of competitiveness.
+- Our membership of the euro is a guarantee of monetary stability and creates the right conditions for sustainable growth. Our membership of the euro is the only choice.
+- Our eurozone partners have made it clear: The choice is between staying in or getting out of the eurozone.
+- I think the funds that have been pledged at Euro Summit, combined with the outcome of the private sector involvement process should be sufficient in order to support financially the Greek Economy.
+- We must all assume out responsibilities to take the country forward.
+- So it won't be a surprise when the Greek default actually happens and we expect it one way or the other to be relatively soon.
+- Greece could default on its debts and even exit currency bloc if it cannot deliver reforms.
+- I am not a politician but I have dedicated the biggest part of my professional life to economic policy both in Greece and Europe.
+- I think achieving a higher fiscal stability is also a very important condition for restoring an environment which is conducive to growth.
+- I think the gains to be achieved by a combination of reforms and labor market adjustments are going to be more permanent and will provide a basis for reducing unemployment and improving export performance, and sustaining growth, in a way that is more sound and permanent.
+- And judging what is appropriate or not appropriate for a country, I think it is important in particular in judging what is the appropriate economic policy framework, one should take into account the overall political environment and the institutional framework within which economic policy operates.
+- Our position in Europe is not negotiable. The Greek people will defend it by all means. But participation in the euro involves rules and obligations, which we must consistently meet. Greece belongs to Europe and Europe cannot be envisaged without Greece.
+- The new co-operation government will do the best it can to address the country's problems, and I believe that with the co-operation of all - and the new government stresses this - and the unity of all, we will achieve that.
+- I am personally convinced - and I think the Greek people share this belief in a fundamental way - that we can achieve fiscal consolidation more effectively and we can restore competitiveness in a more fundamental and permanent way within the euro area than outside.
+- The participation of our country in the eurozone is a guarantee for the country's monetary stability. It is a driver of financial prosperity.
+- The financial crisis in our country is not a passing storm. Given the size of the problems, our national effort will not be completed in 2012. It will take many years and will require the efforts and insistence of several governments.
+- Governments cannot assume or expect that the ECB will always facilitate their funding independently of the achievement of their fiscal and other policy objectives.
+- Greece is at a crucial crossroads. The choices that are made and the policies that are enforced will have a decisive impact on the wellbeing of Greeks. The way forward will not be easy but the problems can be solved, and will be solved, if there is unity, co-operation and consensus.
+- More cuts were needed to avoid exiting the eurozone.
+- I am convinced that the public, large majority of the Greek people, realize that policies pursued in the past and the market practices have to be changed, in order to improve the prospects of the Greek economy. So there is, I think, strong public support despite the increases in social tensions.
+- The government is determined to continue the process of fiscal consolidation and structural reform in order to secure sound public finances and improve the country's international competitiveness.
+- My job will not be easy but I am convinced the problems will be solved in a quicker and more efficient way if there is unity and consensus.
+- I think the facts reveal that the European partners have taken extraordinary measures to help Greece address its problems.

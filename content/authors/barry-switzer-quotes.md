@@ -1,0 +1,9 @@
++++
+author = "Barry Switzer"
+title = "Barry Switzer Quotes"
+quotes_len = "3"
+description = "the best 3 Barry Switzer Quotes"
++++
+- It was a horrible, terrible, atrocious, offensive football game.
+- It was like a heart transplant. We tried to implant college in him but his head rejected it.
+- Some people are born on third base and go through life thinking they hit a triple.

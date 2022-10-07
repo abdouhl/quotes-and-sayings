@@ -1,0 +1,45 @@
++++
+author = "Lynda Resnick"
+title = "Lynda Resnick Quotes"
+quotes_len = "39"
+description = "the best 39 Lynda Resnick Quotes"
++++
+- I like a hem below my knee even though I was blessed with fairly good gams.
+- I feel like everything I ever did in my life led me to the Franklin Mint.
+- Art is a critical component in a well-rounded education. Art is the level playing field - no matter how rich or poor, tall or short, pretty or ugly to the bone, if you can draw, you can find personal fulfillment and build self-confidence. Art is the highest achievement of mankind.
+- Never be afraid to ask when you don't understand. It sounds like a little thing, but awful things have happened, international incidents have flared, and markets have collapsed just because people couldn't make sense of what was being said. They didn't ask 'why?' because they thought it would make them look stupid.
+- I was trained as a fine artist. I went to a progressive public school in Pennsylvania that developed these talents, but I was never able to apply to a decent college because I had no math, no science - I was allowed to just paint all day and write.
+- When you wake up each morning, you can choose to be happy or choose to be sad. Unless some terrible catastrophe has occurred the night before, it is pretty much up to you. Tomorrow morning, when the sun shines through your window, choose to make it a happy day.
+- Learn to expect less from life and more from yourself. Accept the changes that life throws at you. Remember, your destiny is pretty much in your hands. So, as your mom may have told you, keep them clean.
+- Just as TurboTax simplified much of the tax process, so has the colossally scary legal process been reduced to a kinder, gentler series of mouse clicks and 'Continue' buttons by LegalZoom, the online leader that has become so prominent in its market that it's practically a generic.
+- I'm a closet Catholic. I love the iconography of the saints. There was a point in my life when I was going to convert to Catholicism, but I didn't want my grandmother spinning around in her grave like a rotisserie chicken.
+- The most common way to grow a business is by overseeing each and every aspect of the company - the 'ground up' method.
+- Most Fortune 500 companies began as small start-ups whose entrepreneurial founders slowly developed the infrastructure, hired the staff, sourced manufacturers or built their own factory, and created distribution, sales, and marketing plans.
+- Since the advent of the Internet - more recently compounded by blogging - everyone can be a published voice. Any cowardly, anonymous anger-monger can have an audience of thousands. That doesn't make them a journalist any more than my throwing an onion and a few carrots into a pot of boiling water makes me Julia Child.
+- You will learn more from your failures than your successes - so embrace those mistakes, as difficult as that sounds, and grow from them. When a project is successful, you're never really sure why, because so many elements come into play. However, when you fail, you always know why. That is how you learn and grow.
+- If art means as much to you as it does to me, or even if you're just exploring the art world for the first time, I invite you to turn off the boob tube, pry the Wii controllers from your kids' hands, and drag them to a museum.
+- When people affected by epilepsy are reluctant to expose their condition, the public remains in the dark about it - a tragic irony that has made patient care and raising funds for research more than challenging.
+- Any entrepreneur worth their salt knows that their brand is worthless if it doesn't somehow contribute to society or the overall good of the planet.
+- Epilepsy is a disease in the shadows. Patients are often reluctant to admit their condition - even to close family, friends or co-workers - because there's still a great deal of stigma and mystery surrounding the disease that plagued such historical figures as Julius Caesar, Edgar Allan Poe and Lewis Carroll.
+- As places of learning, schools have a responsibility to also educate on nutrition, which we all can agree is far more important than algebra, no matter what your third-period teacher claims.
+- The thinner a newspaper or magazine is - due to reduced revenue from advertising dollars - the less editorial content because of the standard ad-to-editorial ratio, and the less money there is to support investigative journalism.
+- The voice I've chosen to turn to is that of NPR. With a reputation for some of the finest journalism in the country, the nonprofit organization is renowned for its unbiased stance - to the point that it's been accused of being both conservative and liberal.
+- I remember when we first bought Teleflora, I made a very expensive mistake when I produced a brochure with the slogan, 'The way America sends love.' The bouquets and prices I pictured could not be duplicated by the florist - they were too expensive. I had relied on people I thought were in touch with the marketplace.
+- What is your Unique Selling Proposition? What makes you different than your competitors? Wrap your advertising message around that USP and communicate it in a clear and concise manner.
+- If you have a business website, make it stickier; redo the merchandising often and try new things until you hit the right homepage... then try and beat that. The most important audience drivers on the Internet are paid search and key word optimization. Concentrate on those. They are very inexpensive compared to banner advertising.
+- I can taste a meal and tell you every spice that's in there. I have taste buds like Betty Grable's legs - they should be insured with Lloyd's of London.
+- A pomegranate is filled with rubies when you open it up. Diamonds may be a girl's best friend - but not for me. I love rubies; they're great over necks, you know.
+- I believe that everyone collects. I think collecting is in our blood as humans.
+- My main issue is sustainability of the Earth, and protection of those animals and people who dwell here.
+- Whenever education budgets get tightened, art programs are the first to get cut. Like the enduring popularity of reality TV, this never ceases to amaze me.
+- Pomegranate juice has staying power. It's not a fad. Once people have tasted POM Wonderful, they say they are addicted - and it's a good addiction to have.
+- As a child, I was tortured because my mother was a brilliant seamstress who made most of my clothes. I was despised by the children at school because I looked like I was going to an opening every day. We weren't wealthy at all; we lived in a row house in Philadelphia.
+- We are very proud of the diverse talents within the Franklin Mint's own walls.
+- Your kids might feel more apt to try some art of their own after viewing contemporary works that are far less intimidating than those of the Old Masters.
+- The film 'Slumdog Millionaire' portrays the spirit you feel in India. For those who haven't been there, the film says it all.
+- The POM bottle is sublime, in a way. When you go into a supermarket, you hear that noise everywhere: 'Buy me! I'm going to save your life! I'm going to make you thin!' When you come to that POM bottle, it's like an oasis of calm.
+- I want POM Wonderful to be within arm's reach of everyone who wants it. That is the biggest service I can do.
+- The best thing about art is that it is the one luxury in life that can be enjoyed by everyone. And it lasts forever.
+- Some of the most innocuous inventions have proven earth-shattering, with reverberations felt around the planet. The Internet is the poster child for disruptive technology, but even such inventions as Amazon's Kindle and Apple's iPod have rocked their respective industries by changing how we entertain ourselves.
+- You don't have to be Pope Julius to have great art in your house.
+- Jackie Kennedy was the most appropriately dressed first lady we've ever had. You can see how lasting Jackie's style is.

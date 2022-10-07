@@ -1,0 +1,107 @@
++++
+author = "Chris Stapleton"
+title = "Chris Stapleton Quotes"
+quotes_len = "101"
+description = "the best 101 Chris Stapleton Quotes"
++++
+- I like to put something on and want to listen to it again once I get done listening to it, not feel like I need an ear break.
+- I don't know that my voice ever makes sense anywhere, necessarily. I would sing bluegrass music, and I don't fit in there; I would sing rock music, and I'm probably a little too hillbilly for that. And country, I'm too much rock n' roll for there sometimes.
+- I don't make records to win awards. I make records to make records and hopefully make the records as good as they can be.
+- Anybody who has ever played in bars has played 'Keep Your Hands to Yourself.' It's a monumental piece of rock & roll. It makes you feel exactly like rock & roll is supposed to make you feel.
+- If there's one kind of music that makes somebody happy, how is that a bad thing? And if there's another kind that makes somebody else happy, how is that a bad thing? I don't get why anybody cares about what they don't like so much.
+- It's such a strange marriage, a song and someone that sings it. When that works, it really works, and when it doesn't, it doesn't.
+- I didn't know they would pay you money to sit in a room and write songs for other people. I always thought that George Strait was singing a song, he made it up, and that was the end of it. But the instant I found that out, that that could be a job, I thought, 'That's the job for me. I gotta figure out how to do that.'
+- My earliest memories of music are probably my dad listening to a bunch of outlaw country, but also old R&B and Ray Charles, Aretha Franklin. But, you know, I had rock phases and liked more modern R&B acts. I've always listened to all kinds of music, and I like all kinds of music.
+- I grew up in eastern Kentucky, and we would sing in the churches, and there's lots of good mountain church singers out there. Like a lot of folks who turn out to be secular music artists, that's a lot of the training you put in, whether you know it or not.
+- I am always interested in making myself as uncomfortable as I can. Sometimes I ask myself, 'Can I stand onstage and sing this song and sell it?' Sometimes I can't. In a room, you get to pretend a little bit and step outside of yourself.
+- I don't think country music needs saving from anything.
+- I like songs that make me feel tough. Like 'Back in Black.' You want to hear it again and get in a fight.
+- I was writing waltzes at a time when the most popular thing was Shania Twain and the very pop edge of country. I didn't really know how to do much of that.
+- I think, at some point, all of us - I'm gonna speak personally, not for everybody else - you're gonna feel like a one-trick pony, and you might even be a one-trick pony. But at some point, if it's a really good trick, everybody's still gonna appreciate it.
+- I'm gonna keep making music that hopefully I think is good, and whatever comes out of that, that will be fine with me.
+- I always feel that if you're going to cover a song, you should make it your own and flip it on its head.
+- The first time you listen to someone else's interpretation of what you've created, it's a little unnerving. They'll change lyrics or something almost every time. That's them being an artist, and you appreciate it more over time.
+- I love music so much, and I love musicians - I love singers. It's fun. That's what music's supposed to be. Fun.
+- I think the path is different for everybody. Go after the doors that are open to you. That has always been my motto getting into the music business. Do the things that seem to be good opportunities and work hard at it. Try to make good decisions and be nice. Hopefully all of that will pay off at some point.
+- I can only be me. I have a hard time being a chameleon as a singer.
+- I'm only worried about what I'm doing or how I present music. I just try to do things I want to listen to, and I think that's what everybody else is try doing, too.
+- I had a beard way before it was fashionable.
+- I like things that don't sound particularly processed or mechanical or made by machines. I like music that contains human elements, with all their flaws. There's air in it, and you can hear a room of a bunch of guys playing. Those are the magic parts.
+- I think it's OK if somebody likes my music and likes Sam Hunt's music, too. And I think if we're both selling records, it's good for everybody. I think it allows other records to get made.
+- If you think about what everyone else will think, you forget to just make music.
+- I don't feel like songs should be hoarded. I don't feel like one's tainted if somebody else does it. That's the mark of artistry - take a song that's maybe even a really popular song and do it your own way. I think that's cool.
+- When you're writing with an artist or for an artist, you have to help them serve their vision. That's the cool part about writing songs. There are no rules.
+- I always tell people, 'The music's free. I get paid to travel.'
+- I'm always trying to do as many different things as I can, just so when one is not doing so hot, maybe the other is still there.
+- I get tired of people trying to dog out the radio for not playing this or that. There are lots of people who like what they play - otherwise, they wouldn't play it.
+- Everybody gets through a phase where it's, 'Ah, if I could just sound just like Vince Gill.' Then you figure out that you have your own voice, whether you like it or not, and that's what you should stick with.
+- You always hope for the best when you put something out and try to make the best music you can make, but you can't control what happens after that.
+- If I have a talent, it lies in the creative process.
+- Among my dad's generation, when you gave another man a pocketknife as a gift, it was a show of respect. I'll still give someone the knife out of my pocket.
+- I went to college a little bit, and that didn't work out, and I didn't finish. So, I would play in bars until I ran out of money, and then I'd get a real job.
+- At the end of the day, I just have to do what I do and let it be what it's gonna be.
+- For me, the more time you can take and the more care you can take with songs, the better off you're going to be.
+- I walked into a demo session one time, and a guy said, 'I'm thinking kind of like a Trace Adkins thing.' And I looked him right in the eye and said, 'Man, you've got the wrong guy. I'm gonna have to fire myself. You've got to hire somebody else.'
+- In the kind of fast-food world that we live in, where everything's so fast paced and it's, 'Look over here! Look over there,' we don't really take the time to sit down and enjoy music - or anything else, for that matter.
+- Whether you like modern incarnations of what country radio hits are, or you like what I'm doing, or you like something really off in folk, poetry Americana land, it's all just music, man. If you like one of them, great - go buy it.
+- I don't look at it as mainstream country versus outsider.
+- My favorite record of all time is Tom Petty's 'Wildflowers.' I hold it as the standard - in terms of sonics, sequencing, and songs. It shows that making a complete record is important, rather than just making a single.
+- I don't look at family and what I do for a living as separate things. They're all kind of one thing, and this is part of their life just like it's part of mine.
+- America's military allow the rest of us to do what we do.
+- My dad could hold a tune. He wasn't necessarily a singer, but he did love music, and he listened to it quite loud in the car.
+- I didn't have any expectations with 'Traveller' - I don't think anybody did. That's how I prefer the process to be.
+- I'm not going to ask musicians to sit there and pretend to play. It feels insulting to the musicians to me.
+- I was a car salesman, if you can believe it.
+- As long as people are buying music, it's good for everybody.
+- I just try to make the best music that I can. People are going to label it whatever they're going to label it.
+- I've always believed you should sing songs you can really put yourself into. I think the emotion you put into it is just as important as singing the notes.
+- I like places that have history in the sense of - you feel responsible to it.
+- My dad was a very straight arrow, prayed-at-every-meal kind of guy.
+- I grew up less than a mile from folks that lived in shacks with dirt floors. I certainly know that there are needs in this country. Not too far from your house, if you look around, people need to be helped.
+- I've always been in touring bands in some capacity.
+- I don't ever view myself as a straight country act, and I don't think the straight country acts view me as a straight country act, either - but I certainly belong to them.
+- I like the old days when, if I wrote a song and I recorded it, it didn't mean somebody else couldn't record it.
+- It is a really interesting to hear yourself on the radio. I've gotten to hear myself in different capacities. I've heard myself on Sirius XM on the bluegrass channels, and on WSM and other places.
+- I write the songs and hand it over to the world and see what happens. But the things that I've written for people that have been hits, I don't know that I would have directed them in the right path, but they definitely wound up on the right path.
+- I like more of the club mentality, where we're playing, and if we feel like we want to play a cover, we'll switch to that.
+- Country music is one of those places where we support each other and prop each other up.
+- If you go in RCA A, you'll realize that it's not just a Nashville thing. It's a studio that belongs to music.
+- I always like to write the songs, and they get turned loose into the world, and who knows what happens to them. That's the joy of being a songwriter. You get to hear what other people do, interpretation-wise.
+- I want the dude in the top row to feel like he's down there on the front row in a club.
+- College didn't stick, so I worked odd jobs, but I've always written songs and played music. I actually met a guy who was a songwriter, which I didn't realize was a real job.
+- It's a unique thing, and it's probably the thing I love most about songs and music - their ability to connect in a human way.
+- A lot of great bluegrass comes out of Kentucky. There's a lot of great music, like the Judds, Billy Ray Cyrus, Ricky Skaggs, and Keith Whitley. There's a lot of bluegrass intertwined with country music.
+- My wife has great taste in everything but men. The vast majority of the songs on my debut album, 'Traveller,' came from lists she made.
+- If I'm feeling like rock, we'll do some of that, and if I'm feeling some other way, we might do some of that. So, that's typically how I record and write and play music and anything else.
+- I'm always just looking to get back to the joy of playing music, and keeping it simple, as much as I can.
+- I can pass myself off as a 'Duck Dynasty' impersonator a lot.
+- Anyone who says it's so easy to write a country hit and that it's just a formula - well, try it sometime. If it was that easy, everybody would be doing it.
+- I never was a liner note junkie. I didn't know who produced records or there was such a thing as a straight songwriter. I always assumed that everybody that was singing a song wrote it or made it up.
+- I was born in Fayette County, over in Lexington, Kentucky, but I was raised most of my life in Paintsville.
+- I'm a fan of records. I'm a fan of listening to something cover to cover and not wanting to skip over anything.
+- Great musicians are great musicians, whether they're playing a trombone or an electric guitar or a xylophone.
+- We have that storytelling history in country and bluegrass and old time and folk music, blues - all those things that combine to make up the genre. It was probably storytelling before it was songwriting, as far as country music is concerned. It's fun to be a part of that and tip the hat to that. You know, and keep that tradition alive.
+- Anytime that another artist or a critic that is well-respected says something nice about you, you're always thankful and hope that you can live up to that.
+- I always just try to write the best songs that I can at any given time, and sometimes those songs are for me, and sometimes they're for other people. And that's to be evaluated after the fact.
+- We have a history in country music of writing about the darker side of things - maybe not as much in modern times, but there's a lot of cheating and self-deprecation. We sort it out in song, in country music, as a genre.
+- There are great songs out there, and if I love them, and I know them, I'm going to sing them just because that's what songs are for.
+- I like to put a record on and then listen to it again and then sit down and make my friends listen to it.
+- I was in a band called the SteelDrivers, and we just played hard in vans, hopping on airplanes, not knowing where you're at.
+- It's nice to see people invest in what you do as an artist and sing the songs back at you and feel something. You get to feel something more than what you were feeling when you made the record.
+- The show isn't about screens, and we don't have any video content or lasers or things blowing up. I want people to come to our show to listen. I want the show to be the music.
+- Music is not a game to me. I take it very seriously.
+- I'm a fan of polarization. If you make something that is palatable to everybody, it's like making vanilla ice cream, and I think we have enough of that.
+- It's man's work. My dad was gone at 4:30 in the morning and home at 8 at night, and he worked underground, and the last mine he worked in was 26 inches high in a lot of places. He liked the engineering of it - he liked the moving the earth and being able to extract something and put it back for reclamation. He enjoyed the whole process.
+- Everybody likes to listen to a song because it's fun, and nobody wants to sit around and listen to 'I-really-have-to-analyze-these-lyrics' songs all the time.
+- I like all kinds of music. But I would rather people stop caring about lines.
+- The curse of being a songwriter is that's you're always at work. I could look out the window right now and see something that would make me want to write.
+- I don't see myself as some kind of fightin'-the-good-fight guy. But I always feel like if you don't like one kind of music or the other, it's just not for you.
+- I'm not reinventing the wheel here. I'm not Chuck Berry or Bill Monroe. Guys like that are from outer space.
+- I'm not a hustler. I don't pitch songs. I don't ask people to write with me. It's not what I do.
+- I moved to Nashville to be a songwriter. I found out that was a job, that someone would pay you to sit in a room with a guitar and make up songs! It is the greatest job in the world. I wrote three or four songs a day. That's what I lived for.
+- Why would you want to dictate somebody else's taste or happiness? Music is supposed to be joyful and move people, and however that gets accomplished for different people, it's all good.
+- The goal is always just to write the best song that you can write. I mean, the process for writing a song is the process for writing a song. It's not something I look at it as something I need to do something different.
+- I used to spend my money on going to Tom Petty concerts.
+- I like to fish. I collect pocketknives. I inherited a nice collection from my father and grandfather.
+- I was in a bluegrass band. I made two records with a band called the SteelDrivers. They were nominated for two Grammys. I then I was in a rock band called the Junction Brothers; we made kind of '70s hard rock music.
+- Everybody's got a story on their beards. I guess it's just a way of finding common ground with people you otherwise might not know.

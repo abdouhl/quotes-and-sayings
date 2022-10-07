@@ -1,0 +1,25 @@
++++
+author = "Anne Hutchinson"
+title = "Anne Hutchinson Quotes"
+quotes_len = "19"
+description = "the best 19 Anne Hutchinson Quotes"
++++
+- The Lord judgeth not as man judgeth; better to be cast out of the church than to deny Christ.
+- Must not I then entertain the saints because I must keep my conscience.
+- In considering found that the papists did not deny him to be come in the flesh, nor we did not deny him - who then was antichrist? Was the Turk antichrist only?
+- But after he was pleased to reveal himself to me I did presently, like Abraham, run to Hagar. And after that he did let me see the atheism of my own heart, for which I begged of the Lord that it might not remain in my heart.
+- If you look upon the rule in Titus it is a rule to me. If you convince me that it is no rule I shall yield.
+- But now having seen him which is invisible I fear not what man can do unto me.
+- I am called here to answer before you, but I hear no things laid to my charge.
+- How did Abraham know that it was God that bid him offer his son, being a breach of the sixth commandment?
+- I conceive there lies a clear rule in Titus that the elder women should instruct the younger and then I must have a time wherein I must do it.
+- I do here speak it before the court. I look that the Lord should deliver me by his providence.
+- Will it please you to answer me this and to give me a rule for then I will willingly submit to any truth.
+- If any come to my house to be instructed in the ways of God what rule have I to put them away? Do you think it not lawful for me to teach women and why do you call me to teach the court?
+- One may preach a covenant of grace more clearly than another... But when they preach a covenant of works for salvation, that is not truth.
+- The Lord knows that I could not open scripture; he must by his prophetical office open it unto me. So after that being unsatisfied in the thing, the Lord was pleased to bring this scripture out of the Hebrews.
+- Neither do I think that I ever put any dishonour upon you.
+- For you see this scripture fulfilled this day and therefore I desire you as you tender the Lord and the church and commonwealth to consider and look what you do.
+- I have been guilty of wrong thinking.
+- As I understand it, laws, commands, rules and edicts are for those who have not the light which makres plain the pathway.
+- They thought that I did conceive there was a difference between them and Mr. Cotton... I might say they might preach a covenant of works as did the apostles, but to preach a covenant of works and to be under a covenant of works is another business.

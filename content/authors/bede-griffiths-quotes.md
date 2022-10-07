@@ -1,0 +1,15 @@
++++
+author = "Bede Griffiths"
+title = "Bede Griffiths Quotes"
+quotes_len = "9"
+description = "the best 9 Bede Griffiths Quotes"
++++
+- I suddenly saw that all the time it was not I who had been seeking God, but God who had been seeking me. I had made myself the centre of my own existence and had my back turned to God.
+- I am rediscovering the whole sexual dimension of life at the age of 86, really. And that also means discovering the feminine. So the whole of this dimension, which I had been seeking for a very long time, is now sort of opening itself up to me.
+- I think the Mother is gradually revealing itself to me and taking over. But it is not the Mother alone. It is the Mother and the Father, the male and the female, sort of gradually having their marriage.
+- You must be ready to give up everything, not only material attachments but also human attachments - father, mother, wife, children - everything that you have. But the one thing which you have to abandon unconditionally is your self.
+- I was being called to surrender the very citadel of my self. I was completely in the dark. I did not really know what repentance was or what I was required to repent of. It was indeed the turning point of my life.
+- The inspiration came suddenly again to surrender to the Mother. It was quite unexpected: And so somehow I made a surrender to the Mother. Then I had an experience of overwhelming love. Waves of love sort of flowed into me.
+- Obedience is detachment from the self. This is the most radical detachment of all. But what is the self? The self is the principle of reason and responsibility in us. It is the root of freedom, it is what makes us men.
+- God had brought me to my knees and made me acknowledge my own nothingness, and out of that knowledge I had been reborn. I was no longer the centre of my life and therefore I could see God in everything.
+- It is no longer a question of a Christian going about to convert others to the faith, but of each one being ready to listen to the other and so to grow together in mutual understanding.

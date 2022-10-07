@@ -1,0 +1,32 @@
++++
+author = "Finn Wittrock"
+title = "Finn Wittrock Quotes"
+quotes_len = "26"
+description = "the best 26 Finn Wittrock Quotes"
++++
+- So many actors started on soap operas. So yeah, I'd graduated Julliard and done some theater. I've done a few guest spots on TV but nothing that long-term. I did a little 'E.R.' back when it was on, and a pilot for 'Cold Case.'
+- Ryan Murphy, he basically tries to find something that's a pulse, a pressure point in our culture, and he grabs it, and he squeezes it. I think 'Freak Show' has a lot to do with the entertainment industry and the way we entertain ourselves: the objectification of people and the lengths we'll go for our own amusement.
+- Film and television are so piecemeal. You do one scene, and then you put it to bed, and then you do a scene that comes before. In a play, you have to go from beginning to end every night, and that's harder, but also more fulfilling in a way.
+- Writing is something I've always done on the side. I thought that no one would be interested, so I kept it to myself.
+- I found L.A. much less responsive to the name Juilliard than New York was. In New York, that name actually means something. People will look up from their desks when you walk in. In L.A. it's, 'Oh yeah, that's a music school. What do you play?'
+- I want to keep pushing my boundaries. One of the biggest things I learned from 'Unbroken' is that you can go a lot further than you think you can. We often underestimate our actual capabilities.
+- I think in some ways, acting and writing are the same. You're getting inside the skin of someone else; you're creating their language and their actions. As a writer, you have to see the whole picture and the structure, and you have to understand every character.
+- I started writing when I started acting professionally because, with acting, there's so much time when you're not working, and there's so much rejection and so little you have control of. Writing is something that you can do, and no one can tell you not to.
+- I played baseball growing up, second base, and then when I got to high school,it just didn't exist there.
+- I've learned 90 percent of what I know from watching and listening to actors. A good leading actor is the rock of the show. Their energy and their tone really sets the groundwork for how everything is going to work. I've been lucky to deal with stars who are very giving and generous.
+- I would love to do Shakespeare in New York.
+- I would love to play Henry IV, Henry V, and Hamlet.
+- I'm a klutz, through and through.
+- I caught the acting bug from my dad.
+- I'm usually late to the game on shows and watch them after they've aired. But I love 'House of Cards,' 'The Killing,' 'Orange Is the New Black,' loved 'True Detective,' and 'Arrested Development' when it was on. Also 'The Wire,' though I was way late to the game on that.
+- Soap operas are like boot camps for film actors, so I really learned a lot. It was a masterclass in working for camera. I made myself watch myself every day. I would sort of try and be objective about it and critique myself a little. There's a lot more skill set than people realize in soap operas. They shoot, like, 35 scenes a day.
+- In film, you're so much in the hands and at the mercy of the editor, so sometimes it's good to watch it just to see how it turns out - it can be so different than how you imagined it. But sometimes it's better to just let it go for your own sense of self worth.
+- I was playing a defensive guard in 'My All American' who is a really fast runner, so a lot of my training was running. I wasn't too worried about bulking up because he was supposed to be on the small side.
+- A lot of the stuff that's happening now, I can trace back to 'Death of a Salesman.' Francine Maisler, the casting director, saw 'Death of a Salesman' and called me in for 'Unbroken.' The casting director of 'Normal Heart' had seen 'Salesman' too. I look back on it now, and it's like one thing led to another; it was a chain reaction.
+- Doing theater anywhere, especially in L.A., is a constant uphill battle, and there's also the unsexy parts of the business that you're faced with, like getting money. It's a really great thing to do. You feel like you're really an artist when you're doing that and you're in a company of artists.
+- At first, before you meet her, you're like, 'I'm gonna meet Angelina Jolie! I'm talking to Angelina Jolie!' And then, within a matter of five minutes, you're like, 'Oh, I'm just talking to my director,' and it's just back to work. She really is all about the work. She's so surprisingly down-to-earth.
+- Sometimes you're watching a great film actor, and if you stand 10 feet away from them, you're like, 'God, they're terrible. They're not doing anything.' And then you see the close-up, and it's so nuanced, and so much expression is happening. They were acting for that camera and for no one else.
+- I have been thinking a lot about what we see in villains, how we relate to villains, and what it is about certain villains that we actually empathize with. Like Macbeth. We're not supposed to like a guy who kills the king and takes over, but there's something about him we're really fascinated by.
+- That's one of my real goals is to keep theater in my life.
+- There's monsters in all of us, but there's also vulnerability.
+- I went to an Arts High School, so everyone there was kind of anti-clique, though they still happened. I guess I was in the theatre-dork clique. Not to be confused with the musical-theatre-dork clique.

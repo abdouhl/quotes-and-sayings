@@ -1,0 +1,21 @@
++++
+author = "Crispin Glover"
+title = "Crispin Glover Quotes"
+quotes_len = "15"
+description = "the best 15 Crispin Glover Quotes"
++++
+- It's like, you can't have any fun, and if you do have fun, if you do your own thing, you're considered crazy and should be in a mental institution. Now, that's what I find creepy. I'm eccentric. I am not messed up.
+- Realism is always subjective in film. There's no such thing as cinema verite.
+- I still have a reputation as an eccentric. But the fact is that audiences probably mix up my roles with me as a person.
+- A good thing to live by is to go after what truly interests you.
+- I started out as an actor but now I act to fund my own productions. I've managed to separate my mindset.
+- The United States has it's own propaganda, but it's very effective because people don't realize that it's propaganda. And it's subtle, but it's actually a much stronger propaganda machine than the Nazis had but it's funded in a different way.
+- You would think, in an ideal world, that if you were in a really good film and did a really good job, whether it was a big film or not, you would get hired a lot; but that is not my experience.
+- As soon as anybody puts anything on film, it automatically has a point of view, and it's somebody else's point of view, and it's impossible for it to be yours.
+- I do like things that are not necessarily a reflection of what is considered the right thing by this culture. Somehow, promoting that status quo I find uninteresting.
+- People watch movies - and it's vague ideas, it's vague notions, but people pick up on these things, that they are supposed to think certain ways or that they're not supposed to think, basically, and they don't.
+- Realism is always subjective in film. There's no such thing as cinema verite. The only true cinema verite would be what Andy Warhol did with his film about the Empire State Building - eight hours or so from one angle, and even then it's not really cinema verite, because you aren't actually there.
+- I like to eat and the only thing I've ever been addicted to in my life is sugar.
+- I like getting older. When you're in your twenties you're really forging for your future. Things take shape later on.
+- But there's a difference between having artistic interests and being psychotic. That's more than a fine line of differentiation, and I do see that a bit too much.
+- Eccentric doesn't bother me. 'Eccentric' being a poetic interpretation of a mathematical term meaning something that doesn't follow the lines - that's okay.

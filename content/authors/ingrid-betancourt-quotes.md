@@ -1,0 +1,65 @@
++++
+author = "Ingrid Betancourt"
+title = "Ingrid Betancourt Quotes"
+quotes_len = "59"
+description = "the best 59 Ingrid Betancourt Quotes"
++++
+- The only thing I've settled in my mind is that I want to forgive, and forgiveness comes with forgetting.
+- The thing is that war is the opposite of negotiation. It's when you cannot negotiate, when you cannot talk, when you cannot reach agreements that then you have war.
+- It's easy when you have suffered to feel the link with what others have gone through.
+- I never say no to an ice cream.
+- I want to tell President Sarkozy - and through him, all the French people - that they were our support, our light.
+- You are a free woman, and then you become a prisoner, and you receive all kinds of orders. Sit here, stand there. That's it. You just, you don't have the possibility of even moving to take your bag without asking for permission.
+- I love Colombia's military. I love my country.
+- I carry the voices of all my family within me, and they were with me there in the jungle.
+- I owe everything to France.
+- I lived for nearly seven years with the awareness that death was my everyday companion.
+- Reconciliation is a decision that you take in your heart.
+- Reconciliation is a national decision that has to be debated and a consensus made among Colombians.
+- In the jungle, faith also became something very real; it helped me to understand what was happening to me and changed my questions.
+- You need tremendous spirituality to stop yourself falling into the abyss.
+- I was in chains all the time, 24 hours a day, for three years. I tried to wear those chains with dignity, even if I felt that it was unbearable.
+- In the jungle, every day is like the other. So you need to have a special discipline to make things different and to keep in your memory the dates and the days. And I think that's something that's very important when you are held hostage.
+- I had this belief that I couldn't just accept to be treated as an object. It was a problem of dignity.
+- Living in a jungle is not something easy; it's not something that you just adapt yourself to. And I think that in my case, I didn't want to adapt.
+- I didn't want to accept that people would forget me, that the government wouldn't do anything to negotiate our freedom. After a year, I came to understand that not only had one year passed, many more would come.
+- As a Colombian, the only way I can relate to my country is through suffering. I hope that my children and my grandchildren will relate to the beautiful country in a way that it is positive and loving.
+- I continue with the illusion of serving Colombia. Only God knows if it were to be from the presidency.
+- I continue to aspire to serve Colombia as president.
+- Like in every peace process, and especially in Colombia, there all kinds of problems that will come through. Not only is the process by itself very complicated but it has lots of underground complications.
+- We have to be aware of our fragilities as human beings - when we see cruelty, to understand that in certain conditions, we could be cruel, too.
+- You don't master your fear. You're not able to say, 'I'm not going to be scared.' But what you can do is say, 'OK, I'm very very scared, but I have to do this and this and this.'
+- We can't continue with a justice of vengeance. Peace will require us to accept a certain degree of impunity; it's inevitable.
+- After six years without seeing one, I love just seeing a smile - every smile I see gives me hope.
+- I didn't want to be a number. I didn't want to be an object.
+- Forgiveness is a very personal and intimate thing. Forgiveness is not something that you can speak for others because it includes not only your desire and will, your reflection and intellect, but also your emotions.
+- In captivity, one loses every way of acting over little details which satisfy the essentials of life. Everything has to be asked for: permission to go to the toilet, permission to ask a guard something, permission to talk to another hostage - to brush your teeth, use toilet paper, everything is a negotiation.
+- I think that the worst thing is realizing that mankind - that - that human beings can be so horrible to other human beings.
+- I was forbidden to talk to my fellow hostages.
+- I think that women are peacemakers by genetics, because we are the ones who stay at home and because we are the ones who suffer with the aftermath of war.
+- I am not irresponsible.
+- I studied political science at the Ecole de Sciences Politiques in Paris.
+- I have shed many tears of pain and indignation.
+- The voice of the Holy Father was like a light.
+- When you lose your freedom, you are alone with your emotions and reactions... you can see, for example, the bad reactions you have in front of others or the way you could be dismissive or harsh.
+- It's not easy to talk about things that are still hurting.
+- On one hand, it seems strange that a country that has suffered so much from violence and war would be debating if they want peace or not. But in Colombia, a part of society is deeply connected with the war as a means of making a living.
+- In Colombia, women are a huge factor for reconciliation. I have seen many strong women advocating for negotiations. I remember when the paramilitary were active, there were women close to the paramilitary asking for negotiations.
+- France is my home; you are my family. I am carrying all of you in my heart.
+- I called my party the Green Oxygen party because Colombians were choking.
+- At first, I didn't want to accept that I had been abducted. I kept thinking, 'Next week, I'll be freed.'
+- I have to forget in order to find peace in my soul and be able to forgive.
+- More than a victim, I am a survivor of a dehumanization process.
+- In a kidnapping, you leave behind a lot of your baggage, like arrogance and stubbornness.
+- During my captivity, I felt abandoned by everyone apart from my family and supporters, because there was no part of the political spectrum that would want me released.
+- When you have a chain around your neck, you have to keep your head down and try to accept your fate without succumbing entirely to humiliation, without forgetting who you are.
+- Sometimes you need other people to embody situations so that you can talk about things that for you are important. And I think that being able to hope for the future is what builds in us the strength to just get rid of things that, in the past, can hurt.
+- The relationship with time changes when you're captive.
+- I know that I have to give testimony about all the things I lived, but I need time.
+- I don't want to be submerged by depression.
+- I want to serve my country, but not necessarily in the political arena.
+- These years after my liberation were years of reconstruction, and I think I made the right decisions... I mean, I lost everything: my life; my father died; I didn't know anything about my children.
+- We're humans. Why always turn human attitude into political behaviours? I hate that.
+- You only can rest when have the truth, even when it's horrible.
+- In the free world, your days pass very quickly because you have so many things to do, and you're in control of your life.
+- A novel - it's also a way of attacking subjects that you cannot confront in the eye.

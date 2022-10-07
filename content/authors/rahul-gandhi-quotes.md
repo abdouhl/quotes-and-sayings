@@ -1,0 +1,31 @@
++++
+author = "Rahul Gandhi"
+title = "Rahul Gandhi Quotes"
+quotes_len = "25"
+description = "the best 25 Rahul Gandhi Quotes"
++++
+- The vision that we laid out in 2004 was designed, at best, for a 10-year period. And it was pretty clear that the vision that we laid out in 2004 by the time we arrived in 2010-11 was not working anymore.
+- What I saw when I was a child was my father who was a pilot, and because of circumstances was thrown into the political system, and all I saw when was small after my grandmother died was my father in constant - constant combat with the system in India, and then I saw him die, actually.
+- Hatred, anger, and violence can destroy us: the politics of polarization is dangerous.
+- It doesn't matter how much wisdom you have. If you don't have position, you have nothing. That's the tragedy of India.
+- I have an aim - I have a clear aim in my mind, and the aim is that I do not like what I see in Indian politics; it is something that is inside my heart.
+- I want the Congress to become an instrument for dialogue among the Indian people - all of us, from all corners of our great country, all religions, all ethnicities, all ages, genders and people - and for our dialogue to always be led by love and affection.
+- It is not important what Rahul Gandhi thinks, its important what a billion Indians think.
+- Business thrives with trust. Every single business transaction is based on trust. Trust is what you deal in. From trust emerges a safe and predictable environment.
+- I like the concept of 'Make in India'. But the orientation of 'Make in India' is slightly different than what I would. So, the orientation of Make in India is big business, and a lot of it is defence. My orientation of 'Make in India' would be small and medium businesses.
+- I am not averse to politics, but that does not mean that I am going to join politics.
+- There are people doing yoga in New York, dancing around; that's the power of India. You go to a nightclub somewhere in Spain and there's Amitabh Bachchan on the screen there, dancing around. That's the power of India. That's the power of Indian people.
+- A rising tide doesn't raise people who don't have a boat. We have to build the boat for them. We have to give them the basic infrastructure to rise with the tide.
+- Millions of Indians are brimming with energy.
+- Democracy is about non-arbitrary decisions. Democracy is about spreading decisions; it is not about destroying processes.
+- I believe that a politician needs to be with people.
+- What we see before us is a politics devoid of kindness and truth... today, politics is not being used in the service of the people: it is being used to crush them, not to lift them up.
+- The BJP is trying to spread fire and violence across the country, and there is only one force that can stop it - the workers of the Congress and its leaders.
+- I'm an opposition leader. But Mr Modi is also my prime minister. Mr Modi has certain skills. He's a very good communicator.
+- India absorbs things; India's not a divisive place.
+- For me, the Congress party is now my life, the people of India are my life, and I will fight for the people of India and for this party.
+- If I am incompetent, I am useless, the people of India will see that.
+- Demonetization crippled SMEs and has destroyed the unorganised sector, forcing workers to leave urban employment and go back to their villages looking for MNREGA work.
+- People looked up to us for our values and leadership. But today, they laugh as we are busy debating whether one of the seven wonders of the world, the Taj Mahal, was actually built by Indians.
+- We are all aware that corruption is pervasive. It operates at every level. The poor may carry its greatest burden, but it is an affliction that every Indian is desperate to be rid of.
+- Startup India is welcome for the economy, but it cannot be accompanied by 'Shut Up India' in society. What gives Startup India its strength is freedom of expression, thought, and dissent. You choke this, and you choke entrepreneurship.

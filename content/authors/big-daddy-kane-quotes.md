@@ -1,0 +1,106 @@
++++
+author = "Big Daddy Kane"
+title = "Big Daddy Kane Quotes"
+quotes_len = "100"
+description = "the best 100 Big Daddy Kane Quotes"
++++
+- You know for some strange reason I like to write the verse first. I mean I know the majority of people do the chorus first and when I think about it, I guess it does make more sense to do the chorus first, but I just like to write the verses first, I don't know why.
+- Early on I was a fan of Grandmaster Caz of the Cold Crush Brothers. I liked the way that he used a bunch of words to rhyme together in one line. And I picked up sarcasm by watching the older cats at the barbershop. They were just out there talking and saying slick lines to one another. I also got inspiration from Smokey Robinson.
+- R&B stations don't say 'We have old school artist Ronald Isley in the house.' They say 'We have the legendary Ronald Isley.' But if I come do an interview, they're gonna say 'We have old school rapper Big Daddy Kane in the house.' We belittle ourselves, our music and our culture. It's hard for a lot of legendary artists in hip-hop to overcome.
+- I believe that music is infinite.
+- Production-wise, 'Looks Like a Job For... ' is an incredible album. I think that the weak point of the album was really me.
+- White people moving into Brooklyn, I don't see anything wrong with that. I think that's fine and I think that's beautiful, but to hear about certain black people whose rent is getting hiked up so high and they're not able to get leases renewed. Now that I think is wrong.
+- Rakim is a great lyricist. To me, it was always beautiful to be compared to him.
+- I don't get too political in my music, because some people tend to get bored with the message: I say what's necessary and leave it at that. The books of Malcolm X go deeper than any song. But entertainers can be educators. Music touches the soul. Knowledge touches the mind. When you combine the two, you capture the whole.
+- I respect artists that know how to be artists, that know how to create their own lane and make people respect them for who they are and what they represent.
+- I totally understand, believe in, and support Black Lives Matter.
+- I always loved slow jams and wanted to make them, but didn't know how I could because I couldn't sing. Then Barry White made 'Love Serenade' in which all he did was talk the entire jam. I said, 'I can do that.'
+- A kid will be like, 'Yo, you're Big Daddy Kane. My father listens to you!' It kind of makes you feel like one of the Platters or Temptations or something. You feel like you're super-old. But then again on the flipside it's cool to see like someone that's two or three generations after you excited.
+- To me hip-hop is a culture and I became an MC to be recognized as a dope lyricist. That's what I wanted to be recognized as. So when I'm writing rhymes I always take it very seriously.
+- I've always called Puff like the greatest promotion person in this world - for himself and for his artists - better than anybody I've ever seen in my life.
+- I mean it's always good to document your history. 'Cos for some strange reason black history has a tendency of getting lost. So I think it's beautiful to have the ability to document it.
+- When somebody tells me, 'The Source magazine had you in the Top 5 emcees,' I'm like, 'Okay, that's cool.' The other four may not be who I consider dope emcees.
+- Prince of Darkness?' I don't know what the hell I was doing.
+- Yeah, if you go too far, like there's some rappers that use words that just be a little too out there, it makes it where someone doesn't really know what you're talking about and don't really have the time to sit and try to understand.
+- I was a Barry White fan.
+- If you're White then yes, you have White privilege. It's there for the taking if you choose to use it, you know, just keeping it 100.
+- If I hadn't gone on the road with Patti LaBelle, then I wouldn't have brought Jay-Z on the road with me. When I saw her leave the stage to change clothes and allow the background singers to keep the show going, I said, 'That's something I wanna do.' So in the middle of my show, I would leave the stage and Jay-Z would come out and rhyme.
+- I love hip-hop and I'd love to see it grow.
+- Ol' Dirty used to come out to Queens and spend the night at my crib a whole lot.
+- To me, fresh means you're in something new, something that looks real nice... and something put together creatively.
+- Whatever form of hip-hop you like, man, love it and keep it going. Keep it strong. Make sure it stays powerful.
+- Now if you call 'Ain't No Half-Steppin' ' or 'Raw' an old-school song, I agree with you. But if you call Big Daddy Kane an old-school artist, I disagree with you.
+- I like Ludacris; I think that he's a complete artist. I think that he makes great records; I think that he is a great lyricist and at the same time I think he knows how to have fun.
+- My song 'Smooth Operator,' I think that's a real simple, easy, sing-a-long kind of song. It's not too complicated.
+- I have my views, and I'm always willing to share them.
+- I got to meet and work with Barry White, Quincy Jones, Patti LaBelle, even.
+- When people in the street say, 'You're in my top five,' that means the world to me.
+- One of the smartest things I ever did was move to North Carolina.
+- I think that a lot of battle rappers have a difficult time making songs because they don't know how to do a song format. They're so stuck in that whole battle rap mentality that really all they want to do is just kick rhymes.
+- If you call 'Rapper's Delight' an old-school record, I agree with you. If you call Sugar Hill Gang old school, I agree with you. Not because they came out in '79 or '80, but because in 2002, that's still the way Hank and Mike rhyme.
+- You never hear a country-western station saying 'We have old school artist Willie Nelson in the house.' They say 'We have the legendary Willie Nelson.'
+- I watch a lot of the YouTube battles: Goodz, Loaded Lux, I'm into stuff like that.
+- What earns my respect is... I love great lyricists, artists that can create incredible rhymes or incredible songs. The same thing goes if you're a singer. I definitely respect that.
+- There's so many different styles, but with me I just chose battle rap because I mean, I felt like that was the way to get people to really respect me.
+- Rap songs don't always have to have a message. They can be done for pure entertainment or just to get a laugh.
+- I think that a lot of times you have artists that try to deliver a positive message.
+- My best album is probably my second one, It's a 'Big Daddy Thing.' I like a lot of the songs on there. It was put together... just the structure of the album was tight.
+- I went to this club in North Carolina and saw Sharon Jones and the Dap-Kings perform. Just looking at the demographics of the audience, I thought it was interesting. A few weeks later, I was at the same spot to see Talib Kweli perform. And 60-70 percent of the crowd were the same people.
+- Good rap records don't get too far, but rap records that are made for crossing over to white audiences do go a long way.
+- I love old school music, that's just always been my thing.
+- When I started working on my sophomore album, I'd seen more.
+- If you come on stage rocking the same LRG shirt and Ed Hardy jeans that two people in the crowd have on, then what makes you different than them?
+- I wanted to be different. I wanted to address everyone. I wanted to address the hood, but also the people that was getting money. I wanted to address the men and women, the kids and the adults.
+- I think that Kool Moe Dee birthed Rakim, Rakim birthed Nas.
+- There's rappers out there that don't even know how to rhyme. They take someone else's words and go with it. To each his own.
+- I think 'Long Live the Kane' was pretty much a real boxed-in mindset with me just doing what I represented in the hood.
+- My view is that I would love to see people united and loving one another, working with one another, supporting one another. I think that's a beautiful vision, so anybody trying to bring that about, I'm all for it. However, I would hate to see people pretending to unite people just for the sake of relocating them.
+- Once you appreciate an art form, you're open to everything.
+- When hip-hop was new and raw, it was all about being an MC. You wanted to be respected as a lyricist. But as the years passed and hip-hop became big business, hip-hop became like country, rock and pop. And so you now have people who write the songs for rappers.
+- Raleigh feels like home. It has before I even moved here. During the late '90s I just fell in love with this city.
+- I feel that in the music industry there are so many artists it's easy to be forgotten because it's so cluttered.
+- I don't want people to think that I'm bigger or better than anyone out there.
+- I was going to different neighborhoods around Brooklyn battling cats back in - this started in '82, so that's like eighth grade. Maybe 13, 14.
+- I want to be remembered as a combination of Malcolm X and Marvin Gaye, a strong black leader and a sexy entertainer.
+- I made songs in the late '90s and the early new millennium that didn't succeed very well, but songs that I made in the late '80s, early '90s, they stood the test of time. I respect those songs for keeping me relevant.
+- It's all about the family tree, there's a family tree. You know Melly Mel birthed KRS-One, KRS-One I think birthed Tupac.
+- It's the type of thing where, if you gonna battle somebody to prove your greatness, you wanna go to somebody that shares that same seat with you.
+- In a certain way, rap music is alternative.
+- I think that all lives matter, but I think that the reason we say Black Lives Matter is because, for some reason, it seems like there's a lot of people in America that don't realize that we want to be treated as equal as police treat a white person that gets pulled over.
+- I had fun working on films.
+- I have a lot of love for Long Island.
+- I have ultra-strong respect for women that respect themselves.
+- I always thought that was very important, to be able to deliver great lyrics and also put on a great performance, to have that type of visual where people would take to it, where they'd want to dress like you or have pictures of you hanging up on the wall.
+- I realized pretty much everything I did wrong with 'Long Live the Kane' and went right back in and did 'It's a Big Daddy Thing,' because now I had a more universal approach.
+- Actually, I was supposed to battle Rakim back in '89.
+- Shame is something that's man-made.
+- I love when big things happen for Brooklyn.
+- People were taking off $5,000 gold chains to wear little $10 leather medallions that represented peace because that's what Public Enemy was about.
+- It's like do White privilege exist? Absolutely. In the case of passing judgment, you have to make sure that you're passing judgement on the right person.
+- Think that I started taking emceeing very serious probably from the very beginning. Because I started as a battle rapper. It was something that I was doing hoping that I could hang with my older cousin.
+- I remember Luther Vandross had turned me on to Versace in 1990. I remember a girl ironing the jeans for me and she was, like, 'What the hell are these? What's Vercayce?'
+- He's definitely someone who helped mold and shape hip-hop with his music. I would put him in the category of James Brown, the Honeydrippers and Chic. He gave the B-boys and B-girls a track to dance to, but it would only be a DJ or an MC who knows who Billy Squier is.
+- Shyheim, I took him on the road with me on the Budweiser Superfest. He was like 15 years old, too young to be on a tour sponsored by a beer company.
+- Being acknowledged as one of the best is enough for me.
+- Rap is good for politics because when you make a rap record, you put good music on a track and people listen to you. It's easier than trying to preach.
+- Premo is one of those producers that I've always had a lot of respect for. I've always thought that he's just extremely talented. More importantly, he's one of those dudes that just sticks to his formula, like if it ain't broke, don't fix it.
+- I hope everybody out here is supporting hip-hop and trying to make it continue on.
+- When I came up with KRS-One and Rakim, everybody had to step their lyrical game up to build a fan base.
+- I knew how to be a voice for L.A., I knew how to be a voice for Detroit, I knew how to be a voice for London, I knew how to be a voice for Amsterdam.
+- Me personally, I think that when I take my time with something, it comes out a lot better, because I can really, really get my point across, and if I see that like, this might be a little too deep, I figure out a way to dumb it down so that everybody can understand where I'm going.
+- The Lifted Crew, I think that they're a great band that plays great soul music. They may have studied a lot of soul, but really, their heart and soul is in hip-hop.
+- I think that when it comes to emceeing that there's so many different approaches. You have your party rappers, which pretty much is where it all originated from. With DJ Hollywood, Lovebug Starski, Eddie Cheeba, and all those guys in the '70s. Basic party rap.
+- I just wanted to be the best MC. I wasn't about owning a Bentley. I wanted to be recognized as the illest MC.
+- Rakim is a great rapper, but, you know, he's not a battle rapper.
+- I'm used to being respected for what I do, and I've watched as my peers - Doug E. Fresh, MC Lyte - do the same thing and I remember the ones before me - LL, Run-DMC - how it was for them. I think we were able to achieve what we achieved because we watched the generation before us.
+- I was a big fan of Marvin Gaye, and when my parents were at work, I would get in front of the mirror, put my father's clothes on and pretend I was singing Marvin Gaye songs.
+- Life ain't a piece of cake for me.
+- The flow that I use, I really developed my rap style in the mid '80s based on Grandmaster Caz from the Cold Crush Brothers, from listening to him. That's like really who I pretty much patterned my style from and I just really took it to another level once I had the opportunity to get out amongst the world myself.
+- Me and Rakim were always clear that we were rivals.
+- I wasn't one of those artists where people throw my song and just dance to it. People actually listened to the lyrics.
+- After 'Long Live the Kane,' I toured the world as an entertainer seeing so much more. My mindstate was so much broader.
+- With New Edition it would get to the point where kids would have their New Edition posters; say like it was in a household of sisters. Each sister would have also have an individual poster of the member of New Edition that they liked. Now that's star power.
+- I'm just glad that people look at me as a legend.
+- Eminem is a major star. Em and JAY-Z have achieved things that I have never came close to achieving in my life. They are both major stars in Hip Hop. And to top it off, they are both very lyrical.
+- What can I say? I like breaking ground and exploring new things.
+- I just think it was because I was known as a lyricist that's what people only wanted to hear that from me. If you're an artist you have to expand, you have to grow.

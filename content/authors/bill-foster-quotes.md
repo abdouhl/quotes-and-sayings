@@ -1,0 +1,81 @@
++++
+author = "Bill Foster"
+title = "Bill Foster Quotes"
+quotes_len = "75"
+description = "the best 75 Bill Foster Quotes"
++++
+- Science has improved public health, taken us to the moon, and allowed us to understand the origins of our universe. It also has given us the tools to solve problems now instead of reacting to them after it is too late.
+- I don't want to do anything that capitalizes personally on the fact that I've been in public service.
+- I think the amount of love and trust on Capitol Hill is often in short supply, and having more dogs here would probably make this place work better and maybe in a more bipartisan manner.
+- Science, logic, and truth should not be partisan issues; they are the cornerstones of fields that have made the United States a leader in innovation and a better place for everyone to live.
+- I really believe in U.S. manufacturing and U.S. exports, but we have to have a level playing field.
+- Scientific discovery requires sustained funding for decades, and politicians can destroy it in a single budget cycle.
+- Measles may not spread as fast as erroneous sound bites and tweets, but they both have the potential to cause a great amount of damage.
+- My father was actually a chemist. He got a degree in chemistry from Stanford.
+- 'Too big to fail' is fine for restaurant chains. If Denny's fails, it's fine for this economy. You can always go down to the TGIFs. But that's not the same for large-scale investment companies.
+- Every person deserves to be treated fairly under the law.
+- Federal policies must understand the linkages between economic growth, social mobility, and a strong middle class.
+- Immigrants greatly contribute to our country's economic prosperity.
+- I am committed to standing up for the LGBTQ community and being a strong voice.
+- There's no way I can run a nonpartisan organization the same time I am running for Congress.
+- I am grateful for the sacrifices our veterans have made to defend our freedom and prosperity.
+- Alan Greenspan is going to go down in history as one of the worst Federal Reserve chairmen ever.
+- We have to get back to universities being more focused on education and more connected on what they educate students for to the jobs that actually exist.
+- Those in science perform research, have it reviewed by their peers, publish the results, and believe the answer should be obvious.
+- Lawmakers imagine they can be political heroes by voting for budgets that slash scientific research by 20 percent, but they inhibit our ability to respond to health crises.
+- People are people, regardless of who they love or what gender they relate to.
+- I grew up in a family that was always talking about politics.
+- I used to say I represented 33% of the strategic reserve of physicists in Congress.
+- My dad spent most of the '50s and early '60s actually acting as sort of an advance man for the Justice Department, as a civil rights lawyer. So it was actually reading his papers after he passed away a few years ago that first started me thinking about this... What fraction of your life do you spend in service to your fellow man?
+- Properly funding federal research at Argonne National Labs and Fermi National Accelerator Labs will also create jobs and directly benefit the Eleventh District.
+- As we face tough decisions in Washington, we must never forget our responsibility to protect Medicare and preserve it for future generations.
+- I support marriage equality and oppose legislation that defines marriage as only being between a man and a woman.
+- One of the fundamental scientific discoveries of the dog-human relationship is that when a dog looks into his master's eyes, you have a release of oxytocin - which is the trust hormone, the love hormone.
+- From a scientific point of view, it's hard for me to understand why someone in the Texas Panhandle should not have access to the same research funds that someone in the Oklahoma Panhandle can have.
+- The fight for a truly inclusive nation that embraces its diversity is not over and perhaps will never be.
+- The real question is whether the federal government should be in the business of redistributing wealth to equalize the economic status of every state, including states where not many people, for whatever reason, have chosen to live. That type of redistribution is a distortion of our economy.
+- If we choose to ignore science and refuse to fund important scientific research, we voluntarily cede our place as a world leader in innovation.
+- The decline of particle physics in the U.S. is really a symptom of the erratic and sometimes anti-scientific attitudes in Washington and the incompetence of Congress in managing science.
+- As a scientist and successful businessman, I understand that no one has a monopoly on good ideas.
+- Anyone concerned with the broken politics in Washington needs to look no further than Mitch McConnell's cynical manipulation of the rules and obstruction of the NLRB.
+- We should not chip away at the protections that have built the largest economy and the largest middle class in the world.
+- Veterans often need medical and psychological assistance, and often, for them, it is hard to ask for help, but we want them to know they are not alone.
+- I'm not opposed to the idea of helping regions that are struggling to get a reasonable fraction of federal research spending.
+- As we continue to work to pass comprehensive immigration reform, we must take action to stop these predators who are exploiting immigrants attempting to play by the rules.
+- The amount of subtle and beautiful physics that's necessary to make a smartphone work is enormous.
+- I support common-sense measures like universal background checks to prevent guns from falling into the hands of criminals and the dangerously mentally ill.
+- If we had created rules to automatically turn up the required down payment on a home when there's a housing bubble, or just say that the mortgage on a property cannot be larger than the value of the property three years ago, the amount of human misery that would've been avoided would've been enormous.
+- The National Endowment for the Arts distributes money to all 50 states, and they try to do their best to distribute to rural and suburban areas. It's one of the great things about the program. It raises the awareness of culture throughout the population.
+- I support the Affordable Care Act and believe we should take steps to further expand coverage and reduce costs.
+- I'm pushing - on a bipartisan basis, actually - to get federal support for the creation of high-quality textbooks that can be downloaded for free on the Internet.
+- There's a fundamental question that everyone has to answer: What fraction of your life do you spend in service to your fellow man? It's not something that science helps you answer at all. It's one of these questions like, Who are you gong to marry? Science doesn't really help you with the question.
+- As someone who started a small business from scratch, I know how important it is for families and for communities to have strong job creation.
+- When I first ran for Congress, I decided that I would not take pledges to vote for or against any issue. I believe the practice of taking pledges contributes to the worst of the partisan gridlock in Washington, preventing many members of Congress from even considering a reasonable compromise offered by the other side.
+- Scientists want to know the evidence behind a statement; they want reproducible tests and verifiable facts. There is a big difference in the thought process of a trial lawyer who is interested not in what's true but what he can convince a jury is true.
+- I believe we need a balanced, bipartisan approach to debt reduction that includes a combination of spending cuts, investments in economic growth, and simplification of the tax code that closes corporate loopholes that incentivize companies to ship jobs overseas.
+- As a businessman, I know that businesses need certainty.
+- I understand clearly as a freshman in Congress, you don't get to steer the bus.
+- The NLRB provides important protections to American workers.
+- The idea of ensuring that federal research dollars should be reasonably spread around is an arguably useful goal. But it should be done per person, not per state.
+- Spend a while listening to people in your district to make sure you understand how they are served well in government and how they could be served better.
+- The United States will always be a global leader, and we need to actively engage the international community to make sure all citizens of the world live freely and equally under their country's rule of law. We cannot, however, afford to fight other nations' wars interminably or stabilize their regions.
+- As a scientist, the starting point is always the facts of the matter, whereas often, in politics, the starting point is how does this play in the next election.
+- There is an almost universal experience in physicists, at least of my generation, which is home-made pyrotechnics.
+- It is important to remember the purpose of health care reform: to make sure Americans have access to quality, affordable health care - especially those individuals who were being denied by their insurance companies because they weren't profitable customers.
+- I often say that I inherited the family's recessive gene for adult-onset political activism.
+- When I see the sort of mindless tax cuts for the wealthy, cuts to education, I just think we've got it exactly backward in this country.
+- I was surprised that when you get into electoral politics how scientific the analysis was in the electorate. You can identify on a state-by-state or district-by-district basis fundamental building blocks that behave in different ways. I was impressed in general with the sophistication of polling.
+- In science, if you stand up and say something you know is not correct, that's career-ending. It used to be that way in politics, but not anymore.
+- America cannot become just a service and financial services economy, and to prevent that, there is no substitute for having people with successful, real-world manufacturing experience in Congress.
+- Whoever is running the country should not be in the pay of a foreign interest. The best way is to see tax returns.
+- If you're dealing with live nuclear material, and you do anything that disperses them, it is very hard to hide, even after a 24-day cleanup period, the fact that there was nuclear material in this facility.
+- There are a number of much less expensive alternatives to detaining immigrants than locking them up somewhere.
+- The freedoms and prosperity we enjoy in America are thanks to the brave men and women who have served in our armed forces.
+- We need to beef up STEM education.
+- We owe these heroes a great deal - it is our solemn responsibility to ensure that all veterans receive the care and respect they have earned.
+- I think when you provide something absolutely free, the potential of abuse exists. Getting an education without skin in the game is not good.
+- It's wonderful to see more of my colleagues recognizing the importance of investing in STEM education and scientific research and development.
+- One of the big concerns is the increasing disrespect for the scientific method and for policies that aren't based on facts and evidence.
+- Those who promote hatred, bigotry, and fear do not represent America and do not represent us.
+- I supported and voted for the public option in the version of the Affordable Care Act passed by the U.S. House. Had it been incorporated into the final version of the ACA, it would have done much to increase the competitiveness of ACA Exchange Marketplaces.
+- History has not looked kindly on us when we've prevented people fleeing violence from seeking refuge in this country.

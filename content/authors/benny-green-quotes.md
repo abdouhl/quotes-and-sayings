@@ -1,0 +1,29 @@
++++
+author = "Benny Green"
+title = "Benny Green Quotes"
+quotes_len = "23"
+description = "the best 23 Benny Green Quotes"
++++
+- Ray had so much love of life and the music. He had so much integrity. He treated the music with so much dignity and respect. I spent four and a half years as a sideman with Ray Brown's trio. Music was his life, more so than anyone I could mention.
+- Like Russell, I enjoy the fact that when I'm playing solo, if I want to do something completely spontaneous, I don't have to worry about how I'm going to cue the other musicians, or if it's something that's rehearsed.
+- The magic can happen in a studio. Special things can happen in a recording studio, even though it may seem like a clinical environment from the outside looking in.
+- Actually, I've had very little classical training, although I love listening to classical music very much.
+- A jazz musician is a juggler who uses harmonies instead of oranges.
+- The first time we performed as a duo, we had already been playing together in various situations.
+- Just to have that sense of family, it gives you something that you know you need to take care of for the rest of your life. People gave it to him, and he passed it on to us.
+- No, that's not it. The first time we met was at Fat Tuesday's. Benny was playing, this was, I think in 1989?
+- We have different personalities, but in a harmonious way, I'd say. Anyway, we were booked to play at the festival as a duo; and we decided we wouldn't have any rehearsal.
+- I'm glad you asked that question, because of any musical situation I've been in, the communication feels great here with Russell. He really pays close attention to what I'm doing because he cares.
+- The first jazz pianist I heard was Thelonious Monk. My father was listening to an album of his called 'Monk's Dream' almost every day from the time I was born.
+- He would catapult you forward, and that was his intention with the Jazz Messengers. He would take young people with a potential and help them develop a voice as a player and as a writer.
+- I think there's a natural chemistry between us as friends; and there's really no separation between the rapport that we feel when we're in conversation and when we're playing music, it's one in the same.
+- Any time I need to get a serious attitude adjustment, I put on one of their records, and there are examples there for all time to keep us honest and keep us reaching; they'll never be eclipsed.
+- I have similar feelings, actually. The intimacy of a club: you can see the people, you can almost feel them; you can't beat that. People will say things, and shout out, it's almost like they're up on the bandstand with you.
+- Just to be around that, to feel a part of it and be able to integrate the experience while I was with the Messengers, of going and playing gigs with other drummers, gave me the chance to realize that it was not just me that was making it happen.
+- We have fun, we listen to one another, we challenge one another, we trust one another. We're doing what we enjoy, and we're not just playing for each other, we're playing for the people.
+- I'm naturally going to react to that and he'll bring out elements in my musical character that were lying dormant, because I'm relating what he's playing.
+- I don't really have a lot of hobbies. I listen to a lot of spoken word. I get books on tape.
+- You know, there're no rules between Russell and I. We don't want to have to have to talk too much, because it's really precious, really special to play music.
+- Prior to that, I had associated this music with older people, like my father.
+- I didn't know when I was growing up that this was a very special program, that this wasn't going on in other parts of the country. Now I realize that I was lucky.
+- Art was carrying me a lot of the time. When you're accustomed to playing with Art, and you play with other drummers, it's as if the bottom dropped out.

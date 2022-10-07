@@ -1,0 +1,22 @@
++++
+author = "Robert Shapiro"
+title = "Robert Shapiro Quotes"
+quotes_len = "16"
+description = "the best 16 Robert Shapiro Quotes"
++++
+- I've always kept my word, and my clients have always kept their word.
+- Our constitutionally-based criminal justice system places a high value on protecting the innocent. Among its central tenets is the idea that it is better to let a guilty person go free than to convict someone without evidence beyond a reasonable doubt.
+- I have no better way of judging guilt or innocence than anyone else.
+- F. Lee Bailey had been an inspiration to me. It was my desire to have him behind the scenes, to rely on his great wisdom and his brainpower, but I did not feel he should be in the courtroom.
+- I was interested in getting courtroom experience. When I was a young lawyer, the only way I could get real courtroom experience was in the criminal law field.
+- During my undergraduate training at UCLA, I was studying finance and securities; my particular interest was with mutual funds. Wanting to get into a high position at some of the companies that were doing that, I knew that law would be useful.
+- Not only did we play the race card, we dealt it from the bottom of the deck.
+- I think that one of the motivating factors was in my last year of law school: we had a competition, and I won the competition; it was judged by several of the federal judges at the time. I got a tremendous amount of encouragement to pursue litigation from them at the time.
+- It's true that if you advise politicians on economic policy in the U.S. today, you spend your time in a cross between inquiry and combat. You are always on the periphery of harsh partisan warfare that has nothing to do with substance.
+- Criminal cases require strategy, and prosecutors should attempt to prove only what can be proved.
+- I believe there are certainly racial problems in this country, and I believe that peaceful solutions can help bring the races together.
+- In court, jurors are admonished by the judge at every recess not to discuss the case or form any opinions until the case is given to them for deliberations. Of course, there is no such limitation on the public.
+- The 5th Amendment guarantees that defendants can't face 'double jeopardy,' which means the government can't prosecute a person a second time for the same crime if the jury returns a verdict. Only if the jury doesn't reach a decision can prosecutors elect to retry the case.
+- To me, the Holocaust stands alone as the most horrible human event in modern civilization.
+- The Vietnam War was causing people to get drafted; I had received a deferment to finish my undergraduate education, and in order to continue to get a deferment, you had to go to graduate school.
+- I'm a lawyer who, on occasion, represents celebrities.

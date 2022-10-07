@@ -1,0 +1,17 @@
++++
+author = "Bailey Chase"
+title = "Bailey Chase Quotes"
+quotes_len = "11"
+description = "the best 11 Bailey Chase Quotes"
++++
+- I went to church as a kid, but it was as much a social thing as anything going to the youth group with the other kids and whatnot. It wasn't until I got out of college that I got on my own religious trip and started finding other things out there as well as philosophies. I've kinda been on my own spiritual path since then.
+- 'Saving Grace,' even though fictionally it was set in Oklahoma, we shot it right outside of L.A.
+- I prefer to do cable TV because it allows you the time to do other things. I definitely have an eye on doing more work in features and playing different characters, but I am also a big fan of going on vacation and playing golf and going to the beach.
+- 'Longmire' is more of a show about the characters, and you couldn't pay a bigger compliment than to want to know more about my character, or the characters on the show.
+- George Clooney had the web of celebrity from television and doing 'ER,' and he's able to parlay that into films. God willing, I'll be up there in a few years.
+- Once a Cubs fan, always a Cubs fan.
+- I was growing up with a single mom who'd be at work when I came home from school. So I'd just turn on the TV. I grew up watching old Clint Eastwood westerns. I adopted him as one of my male role models.
+- 'Damages' was cool. It brought me back to New York for a little while, so that was a lot of fun, and I was obviously very excited about the opportunity to work with Rose Byrne and Glenn Close. I'd been a fan of that show before I started working on it.
+- It was a great time to grow up in Chicago. It was the mid-'80s, and we had the '85 Bears and the Michael Jordan era.
+- I had grand visions of being in professional sports. But when reality set in, I went, 'Oh, OK. I'll just move to Hollywood and be an actor.' I didn't want to look back on my life and wonder, 'What if I had done this? Or I had done that?'
+- I live in Hollywood, California. It's absolutely nothing like Absaroka County, Wyoming. For me, it's a great escape and I really enjoy it.

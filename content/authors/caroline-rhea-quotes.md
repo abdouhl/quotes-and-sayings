@@ -1,0 +1,27 @@
++++
+author = "Caroline Rhea"
+title = "Caroline Rhea Quotes"
+quotes_len = "21"
+description = "the best 21 Caroline Rhea Quotes"
++++
+- I've got big feet, so filling someone else's big shoes doesn't scare me.
+- I'll be a host for life!
+- Being in therapy is great. I spend an hour just talking about myself. It's kinda like being the guy on a date.
+- I'm very impressed by St. Patrick's. Another deity to me is definitely Saks Fifth Avenue. Someone told me that when they go to Vermont, they feel like they're home. I'm that way at Saks.
+- I'm so into momminess.
+- Don't compare yourself with someone else's version of happy or thin. Accepting yourself burns the most calories.
+- Sitting next to Olivia Newton-John, I was like, 'Do not sing one song from Grease.' That's all I was telling my brain at all times: 'Do not sing Hopelessly Devoted. Don't do it.'
+- I was just the youngest in the family, and most in desperate need of attention.
+- I remember I was so crabby in my third trimester - I got gestational diabetes because I'd been acting like I was in a one-woman pie-eating contest.
+- Someone told me that when they go to Vermont, they feel like they're home. I'm that way at Saks.
+- I'd like a pop-up magazine with 45 articles on Russell Crowe. I'm like a teenager. I'd have 'Teen Beat' if I could, for grown-ups.
+- You can't get any braver than going on national television to be weighed.
+- I grew up thinking that if I wanted to go be prime minister, I could.
+- It's so easy to judge everybody and for some reason extra weight is the one thing everything feels OK to joke about.
+- I guess I feel like somebody flipped a switch, and the whole world is in Technicolor now.
+- I always wanted to film 'Biggest Loser' in Hawaii. We could call it, 'Come on I wanna weigh you.'
+- I am conversational - I just like to engage and talk about things.
+- Hello? Three words: Benicio Del Toro, which, incidentally, is Spanish for 'he wants me.' It is just ridiculous how hot he is. I feel the same way about Benicio as I did when I was a kid lusting after David Cassidy.
+- My daughter is exceptionally chatty. I'm not a braggy mother but she is gifted - with the personality of a Russian gymnastics coach.
+- As a kid, I always wanted to be Carol Burnett or Johnny Carson. I love to chat and entertain.
+- I always like to think I'm having a dinner party, and I'm the host, and the audience are my guests.

@@ -1,0 +1,93 @@
++++
+author = "Lech Walesa"
+title = "Lech Walesa Quotes"
+quotes_len = "87"
+description = "the best 87 Lech Walesa Quotes"
++++
+- We have travelled so far in our technical advancements that we are no longer located in our own countries.
+- You should go to the polls, organize yourself. But once lawmakers are chosen, they must be respected.
+- I hope to work harder than ever to help people around the world.
+- I have always been and will be an enemy of communism, but I love all people.
+- My youth passed at the time of the country's reconstruction from the ruins and ashes of the war in which my nation never bowed to the enemy paying the highest price in the struggle.
+- My country is in the grips of a major economic crisis. This is causing dramatic consequences for the very existence of Polish families. A permanent economic crisis in Poland may also have serious repercussions for Europe. Thus, Poland ought to be helped and deserves help.
+- I belong to a nation which over the past centuries has experienced many hardships and reverses. The world reacted with silence or with mere sympathy when Polish frontiers were crossed by invading armies and the sovereign state had to succumb to brutal force.
+- My character and personality is today and tomorrow; I do not work well remembering further back.
+- He who puts out his hand to stop the wheel of history will have his fingers crushed.
+- What until then seemed impossible to achieve has become a fact of life. We have won the right to association in trade unions independent from the authorities, founded and shaped by the working people themselves.
+- I want to light the lights of patriotism.
+- There is something of the warrior in me.
+- I don't have regrets I didn't spend more time with my family because I've lived my life to the full, and you can't look back in regret.
+- In myself I am nothing. It all comes from God and the Virgin Mary.
+- No minority should climb all over the majority.
+- The defense of our rights and our dignity, as well as efforts never to let ourselves to be overcome by the feeling of hatred - this is the road we have chosen.
+- I will talk and act, not on my knees, but with prudence.
+- Communism is a monopolistic system, economically and politically.
+- I decided to get to know my opponents and their arguments.
+- When I was fighting communism, there was rapid development of satellite television and cell phones, and communism, to survive, would have to block all these information devices.
+- Technology helped end communism by bringing in information from the outside.
+- I use many different gadgets connected with computers; I use PCs, laptops and a Palm Pilot. I also use the Internet to visit websites, especially within Polish-language Internet. I usually go to political discussion groups and sites - of course, as I use my real name, people never believe that they are chatting with me!
+- I made the right decisions, I set everything on the right course, the reforms are going in the right direction.
+- I'm lazy. But it's the lazy people who invented the wheel and the bicycle because they didn't like walking or carrying things.
+- Democracy is made up of three elements. One is whether the laws support pluralistic principles. The second is whether the people take advantage of these laws. The third element is whether the peoples' wallets are thick enough to benefit from this democracy.
+- I allowed myself to be taken in by the intellectuals. I believed too much in the Polish intellectuals and followed their advice.
+- Dictators and oppressors should continue to fear me because I will be here for a long time.
+- Authority must be respected and chosen wisely.
+- I don't like to look a man in the eye.
+- The hope of the nation which throughout the nineteenth century had not for a moment reconciled itself with the loss of independence, and fighting for its own freedom, fought at the same time for the freedom of other nations.
+- People are most important.
+- Let the veil of silence fall presently over what happened afterwards. Silence, too, can speak out.
+- I belong to the generation of workers who, born in the villages and hamlets of rural Poland, had the opportunity to acquire education and find employment in industry, becoming in the course conscious of their rights and importance in society.
+- Lying at the root of the social agreements of 1980 are the courage, sense of responsibility, and the solidarity of the working people. Both sides have then recognized that an accord must be reached if bloodshed is to be prevented.
+- My health is very much improved.
+- I can't imagine the right wing trying to unite without my participation.
+- The program of our movement stems from the fundamental moral laws and order.
+- Life creates new heroes, and new heroes always find it easiest to beat up on the previous heroes.
+- We shall not yield to violence. We shall not be deprived of union freedoms. We shall never agree with sending people to prison for their convictions.
+- I have a vision, and I know I'm right.
+- People always ask me, 'Lech, aren't you afraid of being killed?' And as an answer I shrug my shoulders.
+- The people in Poland had to deal with painful reforms.
+- I represent the concept that pluralism is essential, union pluralism. I made an oath about this.
+- One could always do more, faster and cleverer, but democracy has its own rhythm.
+- We were hoping Obama would reclaim moral leadership for America. That failed.
+- I am happy that Poland is returning to the road of pluralism and democracy.
+- The thing that lies at the foundation of positive change, the way I see it, is service to a fellow human being.
+- I got politics and economics moving and then others took over.
+- Our firm conviction that ours is a just cause and that we must find a peaceful way to attain our goals gave us the strength and the awareness of the limits beyond which we must not go.
+- This conviction brought me, in the summer of 1978, to the Free Trade Unions - formed by a group of courageous and dedicated people who came out in the defense of the workers' rights and dignity.
+- Poles finished communism, and Great Britain profited significantly from this.
+- The fall of the Berlin Wall makes for nice pictures. But it all started in the shipyards.
+- Up to the 20th century, we can say that this whole period was an Earth epoch, 'Earth' meaning the riches of the earth, simple physical work. That is why there were wars, the movement of frontiers, war over riches.
+- Our national history has so often filled us with bitterness and the feeling of helplessness.
+- When I recall my own path of life I cannot but speak of the violence, hatred and lies. A lesson drawn from such experiences, however, was that we can effectively oppose violence only if we ourselves do not resort to it.
+- We hold our heads high, despite the price we have paid, because freedom is priceless.
+- I cannot stand for more than half an hour in one place.
+- The sole and basic source of our strength is the solidarity of workers, peasants and the intelligentsia, the solidarity of the nation, the solidarity of people who seek to live in dignity, truth, and in harmony with their conscience.
+- I realize that the strivings of the Polish people gave rise, and still do so, to the feelings of understanding and solidarity all over the world.
+- My struggle led to the reunification of Germany and the creation of the state of Europe. We destroyed the borders; globalisation is on the horizon.
+- The supply of words in the world market is plentiful but the demand is falling. Let deeds follow words now.
+- I most sincerely wish that the world in which we live be free from the threat of a nuclear holocaust and from the ruinous arms race. It is my cherished desire that peace be not separated from freedom which is the right of every nation. This I desire and for this I pray.
+- I am overjoyed that I do not need a heart transplant at this time.
+- As a nation we have the right to decide our own affairs, to mould our own future. This does not pose any danger to anybody. Our nation is fully aware of the responsibility for its own fate in the complicated situation of the contemporary world.
+- Communism in Cuba will collapse sooner or later because you can't control the free flow of information. Communism prevents organizations from developing by stopping the flow of information. The system is based on police and listening devices and triggers the worst characteristics in humans.
+- My most ardent desire is that my country will recapture its historic opportunity for a peaceful evolution and that Poland will prove to the world that even the most complex situations can be solved by a dialogue and not by force.
+- After the war, Germany fully confessed to all its dirty tricks. It's necessary to is draw a line under the past, even if people did something evil. Until we do, wounds won't heal.
+- Obviously people want social calm, but if you do not let clever and ingenious people to participate, obviously there must be some dormant volcano that will erupt, sooner or later.
+- Communism is a monopolistic system, economically and politically. The system suppresses individual initiative, and the 21st century is all about individualism and freedom. The development of technology supported these directions.
+- I'm a man of faith. I only fear God, and my wife - sometimes.
+- It is hardly possible to build anything if frustration, bitterness and a mood of helplessness prevail.
+- For now, capitalism is working to produce more money but does not see the people. This problem is getting worse across the world.
+- I must tell you that the supply of words on the world market is plentiful, but the demand is falling.
+- We need to agree on common values for all religions as soon as possible, a kind of secular Ten Commandments on which we will build the world of tomorrow.
+- I risked my life.
+- The politicians always told us that the Cold War stand-off could only change by way of nuclear war. None of them believed that such systemic change was possible.
+- Tomorrow there will be no division to Europe and Asia. These are old concepts that would remain only on maps. Everything will be united. Companies will be united. It is a process of structures growing due to the technological progress.
+- Capitalism is in crisis.
+- Now is the era of intellect, information and the Internet.
+- I'm a fatalist.
+- I had my own battle tactics.
+- I believe that any violation of privacy is nothing good.
+- You have riches and freedom here but I feel no sense of faith or direction. You have so many computers, why don't you use them in the search for love?
+- I am no politician.
+- Communists are great capitalists, so there is no threat anymore.
+- I have more than 100 honorary Ph.D.s.
+- Freedom must be gained step by step, slowly. Freedom is a food which must be carefully administered when people are too hungry for it.

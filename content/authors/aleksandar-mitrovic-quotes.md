@@ -1,0 +1,69 @@
++++
+author = "Aleksandar Mitrovic"
+title = "Aleksandar Mitrovic Quotes"
+quotes_len = "63"
+description = "the best 63 Aleksandar Mitrovic Quotes"
++++
+- I want to play. I want to be on the pitch.
+- When I was on the bench, I worked harder.
+- Away from football, it is just family. I try to spend time with my kids - I have to spend a lot of time away, so every time I am at home, I like to spend time with them.
+- The Serbian people are very kind. Sometimes life is ruthless, and you have to show character. But come to Serbia and see how friendly everyone is; then you'll change your mind.
+- I am a typical No 9.
+- I like the gym; I need the gym.
+- My job is to score goals.
+- You want to score in every game and to fight hard.
+- I try to give everything I have, both in training and the games.
+- I had some problems in the past when I made some stupid mistakes and got some stupid cards, but I learned a lot from this, and I know now how to calm myself down.
+- Balotelli is not my role model. I like him as a player very much, and he is very talented. He could have been at the very top, but my style does not have anything with him.
+- At all big clubs, there is pressure. They all want to win and expect to win.
+- I was small until I was 15, then grew about 12 inches in a year and built up my strength in the gym.
+- I'm a typical No 9: always in the box, strong, good in the air.
+- Scoring will do a lot for my confidence.
+- Slavisa is a great manager. He has helped me so much. Throughout his career, he has done a really good job.
+- There are a lot of people who don't trust in me, so I just try to make them wrong.
+- I will always be a Newcastle United fan all my life.
+- That's the Serbian way. That's the way we approach things, especially in sport. We are a small country, but if we want something, we will fight for it. It's maybe part of the history of the country; it's just our mentality. We are small but strong.
+- Sometimes, you have tough times when you don't score goals, but the most important thing is to keep working hard.
+- Of course a striker wants to score as much as possible. It's nice scoring goals. Goals are like an addiction: when you score, you want to keep doing more and more.
+- I am a really nice, quiet guy.
+- It was really hard in Newcastle. It was one city, one club. Everybody there was really crazy about Newcastle.
+- My body is my weapon, and I have to keep it in shape; I need to feel strong.
+- I hope maybe one day I can be like Wayne Rooney. Maybe then some young players will be proud to play against me. That would be amazing.
+- I say that if the team play well and use me in the right way... the goals will come.
+- I want to show everybody that I can play in the best league in the world and score goals.
+- I don't like to lose, and all Serbians are pretty much the same.
+- That is my style of play, my strength: hold up, playing with my back to goal.
+- I try to do everything for my son so that, when he grows up, he can say that he was proud of his father.
+- Sometimes I score, sometimes I don't, so people are here to judge, but I know my qualities, and I try to give everything to win and help my team-mates.
+- Teams want fast players. That's not me. But I know my strengths.
+- I've been happy from the start at Newcastle. It has been my favourite club ever since I was small boy in Serbia.
+- My father tells me I would have been a criminal or a kick-boxer. But fatherhood has changed me - a lot.
+- Life's boring enough without always having the same hair.
+- Newcastle is in my heart, and even if I maybe go somewhere, Newcastle will be in my heart.
+- Sport is dirty if you want to win, but I am not a dirty player.
+- For sure, in Italy, the sun always shines.
+- If you ask any player, they will always say the same. They play to win.
+- I am not that fast and skilful. I am not Raheem Sterling, am I? So I know I have to use my strength and power in the box.
+- I'm always looking forward, and I try to continue to push myself and to do the best that I can.
+- Every goal is a nice goal, great feeling, but the most important thing is we grab the three points and give the fans a nice afternoon.
+- I want to show I can control my emotion and aggression and stay calm.
+- This is a club with a very big history, and the fans are a big part of that. There will be pressure here, for sure, but I like pressure. I also know about the famous players who have played for Newcastle United, like Alan Shearer, who is a hero of mine.
+- I try to learn every day and train as hard as I can.
+- I don't even like to lose when I'm playing video games with my brother, and when I do lose, I get really mad.
+- I play a good physical game.
+- To give the best I can, sometimes you will be brilliant or not.
+- I am always in the box, strong, good in the air, and, of course, I like getting stuck in. I play a physical game.
+- When I first signed for Newcastle, I was still a boy.
+- I am not bothered what people say. You have always different opinions.
+- Football saved me.
+- Of course many children are dreaming to play for Real Madrid, Barcelona, and Manchester United. I always just wanted to wear the jersey of Partizan, Newcastle, and Serbia.
+- I never say I want to score 15 or 20 goals.
+- I just want to win; it doesn't matter what it takes.
+- Competition is good.
+- I have followed Newcastle my whole life. I had two Newcastle shirts when I was little. It was unusual; most people choose a team like Manchester United or Barcelona, but for me, it has always been Newcastle.
+- When I play football, I try to win the game. That is part of me. That is who I am.
+- I could have gone down a very different path, but my parents would not let me give up football.
+- I've picked up a few scars during games.
+- Of course defenders will try to provoke me - that is their job.
+- It is always something special when you can talk with people from your country. It is always nice to hear advice in your own language.
+- I've always loved Newcastle. Even when you're watching their games on television, you can feel the passion of the crowd.

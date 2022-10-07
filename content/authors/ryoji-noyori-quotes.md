@@ -1,0 +1,15 @@
++++
+author = "Ryoji Noyori"
+title = "Ryoji Noyori Quotes"
+quotes_len = "9"
+description = "the best 9 Ryoji Noyori Quotes"
++++
+- Chiral receptor sites in the human body interact only with drug molecules having the proper absolute configuration, resulting in marked differences in the pharmacological activities of enantiomers.
+- I was a mere 29-year-old instructor at Kyoto, enjoying daily research work with some young students. Nothing had prepared me to be a professor at a major national university. Being too young and inexperienced to be a Full Professor, I was first appointed Associate Professor of Chemistry.
+- The structural difference between enantiomers can be serious with respect to the actions of synthetic drugs.
+- In 1957, at the age of 18, I entered Kyoto University, which was known to be the most active institution in the research of polymer chemistry.
+- Enantiomers often smell and taste differently.
+- Molecular chirality plays a key role in science and technology. In particular, life depends on molecular chirality in that many biological functions are inherently dissymmetric.
+- My father, Kaneki, was a gifted research director of a chemical company, and his profession strongly influenced the path of my life.
+- Except for a short period at the end of World War II, I attended an elementary school affiliated to Kobe University from ages six to twelve and then moved on to Nada Middle and High School from ages twelve to eighteen. I enjoyed many out-door activities in my youth.
+- RIKEN has attracted numerous outstanding scientists from inside and outside Japan, and these people have achieved creative and outstanding results.

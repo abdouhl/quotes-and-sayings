@@ -1,0 +1,21 @@
++++
+author = "Benny Cassette"
+title = "Benny Cassette Quotes"
+quotes_len = "15"
+description = "the best 15 Benny Cassette Quotes"
++++
+- I want musicians to be looked at as people that are not just doing one thing.
+- Are we all unhappy with our true selves, and likes and follows are what give us value?
+- The most beautiful thing in the world is my grandmother's apple pie.
+- Sometimes you can be with someone that you love, but you know it's not healthy for you. You stay with them because you can't stand the thought of them being with someone else. It kills you.
+- I want to touch on every form of art and be the best at it and be the biggest at it.
+- I want to just change how people look at music and artists.
+- I want to make music three-dimensional. I want to make a song also a painting, and a painting also a culinary experience.
+- As a teenager, there was a young girl in my neighborhood that I ended up falling for.
+- For me, great jazz records really feel like everyone in the room is playing together in a zone - and all the musicians are completely in sync with each other.
+- 'Sunrise Sunset' is about trying to get to a place where life is simple and not letting the stress and happenings in the world get in the way of your happiness.
+- What it would have felt like to fall in love and have nothing holding you back from being completely free.
+- I speak a little Italian and Spanish because of where I grew up. I also am well-versed in Angelino slang and corporate Euro-speak. I don't like gimmicks. The biggest gimmick of all is trying to fit in and be 'normal'. I will always be myself no matter what. Crazy is a compliment. Flashback.
+- 'Sunrise Sunset' is a letter I wrote to a girl I was once with who I really thought I was going to fall in love with. We tried to make it work but always had trouble maintaining a real relationship because we were both so caught up with work, life, and everything else that at the time seemed like it was the priority.
+- My favorite thing to do is to perform. It doesn't matter if people are watching or not because either way, I see 50,000 people when I close my eyes, and I will give a show for those thousands of people, regardless if you see them or not.
+- If we all dress alike, we might as well all work in cubicles.

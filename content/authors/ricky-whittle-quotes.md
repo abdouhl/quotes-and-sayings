@@ -1,0 +1,58 @@
++++
+author = "Ricky Whittle"
+title = "Ricky Whittle Quotes"
+quotes_len = "52"
+description = "the best 52 Ricky Whittle Quotes"
++++
+- I have always thought beach weddings are beautiful. A sunset ceremony with a beautiful sky, white drapes and fire lanterns.
+- I'm a great believer in the idea that if it's meant to be, it will be.
+- Even in 'Hollyoaks,' we were known as 'the black family' as opposed to just 'the new family.' But that's where we are in the world, I guess. It's getting better; everything's heading in the right direction, whether it be race, sex, gender.
+- I'd do whatever it takes to stay in California; maybe not L.A. because it's so crazy.
+- I'm a huge sun baby. As soon as the sun comes out, my smile gets bigger, so I'm constantly smiling in L.A. It's a fantastic place to be.
+- I want to act in films and TV drama, so that's where I'm aiming to be, and I'm not going to let anything distract me or turn my head until I get there.
+- I was something of a late bloomer.
+- Once people start to realise that colour is just that, it's just a colour, then things got a bit smoother.
+- My character in 'Hollyoaks' went through absolutely everything! There's not one emotion where I'm going to go, 'I don't know how to play this.'
+- They say that no one walks in L.A., and it's definitely true, and I'm embracing that.
+- I must have been 15 or 16 when I left Antrim Grammar, but I do remember having my first proper kiss when I lived there.
+- I actually spoke to one of the heads of a studio, and he said I confuse middle America. Basically, when they see a black person, they see athlete, they see rapper, or they see criminal or something like that. And then when they hear a British accent, they hear posh, so they hear lawyer or doctor.
+- The Ricky that the public see, whether it be on screen as a character, in public, or on social media, is very outgoing, and I'm a bit of a class clown. Then those who are closest to me know that I can be very sensitive. I can be quite insecure about myself.
+- I joined 'Hollyoaks' because in the long-term, I thought it's good money, it's good profile, and everything happens in soaps!
+- My little sister Debbie was born at Aldergrove, and my nan is from southern Ireland, so I do try and get over quite a bit.
+- We try and give as much diversity to our show as possible. That's something that's very strong in our show: there are so many strong female leads in 'The 100.'
+- No one remembers the runner-up!
+- I'm ambitious and I'm determined and I know where I'm going to be. It's not where I want to be, but where I'm going to be.
+- My friends said I was crazy, but L.A. is the hub of the industry. It's the epicenter of the business. If I wanted to get above the plateau that I had reached in the U.K., I had to make that move.
+- I'm just a big kid; I get excited. That's probably the one thing in life that I get really excited about is cars.
+- The best food I've had was actually in catering at 'Single Ladies.' It's insane. I can't live in Atlanta. In fact, even if I'm offered, I'm not sure I could come back for another six months, because I'll just be fat.
+- Blood must not have blood... I don't stand for anyone bullying bullies.
+- Growing up, at that time, I didn't want to be black because I was bullied, and I'd tell my mum that I wanted to be white like everyone else at school.
+- No one should ever suffer in silence. Bullies thrive in silence.
+- I love L.A. I love America; it's fantastic. The people are friendly, and everyone's always smiling. The sun is always shining. My only problem is choosing what color shorts to wear.
+- I think anyone is lying if they say they don't want to win.
+- I don't think anything can prepare you for the 'Strictly' experience. It really is insane. I mean, I played football, rugby, American football. I go to the gym. I like to think I'd be quite fit, and I don't have much fat on me to lose, and yet I still lost a stone and half and three inches off my waist.
+- My abs were my bread and butter in the U.K. - the calendars, the photoshoots, and all that came with it.
+- I've never liked my smile, you see. I should have had braces as a kid, but I was too proud and too vain. And I didn't want to be bullied at school.
+- I have an acting coach, a dialect coach, and just a great team around me.
+- With 'Strictly,' I am mentally and physically knackered: everything aches. I knew it would be hard, but I never thought it would be this tough.
+- You have to have chemistry - it's acting. I need to make people believe the rumba is about two people in love, and the tango is about passion.
+- First black Bond - that's my aim! That's the one!
+- I don't want to embarrass myself on TV!
+- Sometimes, when you've got a couple of females on the cast, you'll have a diva, or you'll have arguments. I've been on shows where girls haven't quite got on.
+- Keep watching 'The 100.' It's an incredible show, and that's my family.
+- I really have a new-found respect for dancers.
+- I remember 'Rain Man' with Tom Cruise and Dustin Hoffman with all the Lamborghinis being lifted off the tanker. I was obsessed with this car. Absolutely obsessed with this car. It was my dream, and to finally drive one and own one was incredible.
+- As actors, when you can't be in the room with the casting director or the producers, you put yourself on tape and send it off.
+- When you're living in L.A., you really do have to raise your game - you have to be the best 'you' possible.
+- As in all TV shows, and especially a show called 'Mistresses,' all is not going to be as it seems.
+- I believe it's my position as a partner to make the other feel secure. I'm very loving and very into my partners when I am with them. I just want them to feel safe.
+- My favourite compliment now is that people are talking about my acting, my craft - not my torso.
+- I'm a big fan of old, classic American musclecars like a Shelby GT or the '69 Dodge Charger, cars that inspired me through my childhood. They used to get me real excited when I was a kid. To own one and actually be able to drive them in America is a little of a dream.
+- We need to sort the kids out and educate them properly. After all, they are our future.
+- I've never used chat-up lines; I don't have the gift of the gab.
+- I'm more of a mimic. My accent tends to drift to where ever I am.
+- I'm not as stupid as some people think. I've got a degree in law.
+- If things are said maliciously, and they're meant to hurt, then that's the sort of thing we need to try and stamp out.
+- I'm very competitive, and I want to be known to do well.
+- When you're younger, you do take things personally.
+- I'm going to continue the dancing because it really was an inspiration; it changed my life.

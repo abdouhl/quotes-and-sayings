@@ -1,0 +1,22 @@
++++
+author = "Charles Eames"
+title = "Charles Eames Quotes"
+quotes_len = "16"
+description = "the best 16 Charles Eames Quotes"
++++
+- It makes me feel guilty that anybody should have such a good time doing what they are supposed to do.
+- The details are details. They make the product. The connections, the connections, the connections. It will in the end be these details that give the product its life.
+- Eventually everything connects - people, ideas, objects. The quality of the connections is the key to quality per se.
+- The real questions are: Does it solve a problem? Is it serviceable? How is it going to look in ten years?
+- We work because it's a chain reaction, each subject leads to the next.
+- Who ever said that pleasure wasn't functional?
+- Choose your corner, pick away at it carefully, intensely and to the best of your ability and that way you might change the world.
+- The details are not the details. They make the design.
+- Art resides in the quality of doing, process is not magic.
+- It is almost impossible to reconcile self expression with the creative act.
+- Ideas are cheap. Always be passionate about ideas and communicating those ideas and discoveries to others in the things you make.
+- Recognizing the need is the primary condition for design.
+- To whom does design address itself: to the greatest number, to the specialist of an enlightened matter, to a privileged social class? Design addresses itself to the need.
+- It is not easy to do something good, but it is extremely difficult to do something bad.
+- Design is a plan for arranging elements in such a way as best to accomplish a particular purpose.
+- In architecture the idea degenerated. Design allows a more direct and pleasurable route.

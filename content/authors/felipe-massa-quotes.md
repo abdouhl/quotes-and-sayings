@@ -1,0 +1,106 @@
++++
+author = "Felipe Massa"
+title = "Felipe Massa Quotes"
+quotes_len = "100"
+description = "the best 100 Felipe Massa Quotes"
++++
+- Just competing in the Brazilian GP is a dream for all Brazilian racing drivers. I remember sitting in the grandstands when I was a kid, watching Ayrton Senna, Nelson Piquet and even Rubens Barrichello. After that, to race there in Formula One is a feeling that is hard to explain.
+- I'd like to be remembered as an important component of the Ferrari team.
+- I'm not the kind of guy who will blame other people if things don't work out.
+- If I don't get a race deal then I expect to be a test driver for a top team.
+- These days it is not very easy to overtake in Formula One, the cars have great aerodynamic downforce. When you are behind a car, you lose downforce.
+- The worst feeling is when you don't have brakes, you cannot stop the car and you see that the wall is just coming in front of you. That's really a very scary moment.
+- Playing dirty has never been part of my game.
+- The Italians - they cannot talk without shaking the hands. And I am like that, I'm from Brazil as well.
+- There are a lot of good cars, good teams and good drivers.
+- The time I say that I am a number two driver, I will not race any more.
+- I'm very happy to be joining the Venturi Formula E Team and the Formula E championship, which has become a magnificent competition in such a short space of time.
+- We are not here for political reasons, we are here for sport, to fight for positions. That's the good thing about Formula One.
+- Everything can change pretty quickly in Formula One in two or three races.
+- Everything in life has a meaning. If something bad happens it's because you need to learn, to grow.
+- I think what makes things interesting in Formula E, and I really hope it happens with me, is that many drivers are able to win the race. Maybe many drivers can win the championship.
+- For sure people around me, they always say don't do ovals, we are not happy to see you doing that. I'm not saying I'm scared, I'm not scared to do ovals. But I never thought about it. I was not really planning to go to do Formula Indy.
+- Sometimes you don't see the result that you expect.
+- I feel competitive all the time I'm in the car.
+- I love watches, for sure. The watch I love the most is Richard Mille because it's part of something that started from zero.
+- If I don't drive then I am not the same person. Ever since I was a small boy this is my life.
+- When I got to Ferrari I learnt to be less aggressive, and how to set up the car for my driving style.
+- I'm pretty relaxed, trying to enjoy the races, trying to do the best I can in the car, trying to the give the best to the team, and that's the most important thing.
+- Positive things come out of even the most difficult times.
+- With all the traveling I'm doing, it's really important for me to be able to relax when I'm at home.
+- I don't think really we need to race in F1 just to risk your life, or to be in danger is nice for the people. I don't think it's really like that.
+- My goal is to be competitive, the best as I can give. My goal never changes in whole my career.
+- Sometimes in the difficult moments in you life you learn more, you grow up more.
+- Honestly, I think they need to work to improve the categories. If the driver goes from the go-kart to F3 one year and then to F1, why do we have GP3, GP2?
+- My year with Ferrari was of incredible value to me. I learned a lot about all the technical aspects of the car and also how to improve my work with the engineers.
+- I was always interested in maybe being in Formula E as I said many times when I was still racing in F1.
+- Everything for us as a driver is related to our working, on your work and how you feel. It helps how you feel, how happy you are; also for your private life.
+- It was always my dream to drive for Ferrari.
+- If you know how to set up the car, if you know how to work with the team, you know what you need to have a comfortable car to drive.
+- Maybe I am the driver who got the most close to the championship in history.
+- I already lived in Switzerland in 2002, and from this time I know that it's a very calm country. I really enjoy living there.
+- On the one hand, I set my goals high, but on the other I do not underestimate our competitors either, who are using all their resources to challenge us. However, I also see what a fantastic job Sauber is doing and the progress we are constantly making.
+- It's jewelry for men, so definitely it's very nice to have a good watch on your wrist.
+- We had many years with refueling in Formula 1 and we had a few problems, but not really very dangerous problems to be honest.
+- Sauber had a bad championship the year after they fired me and so if I had stayed it would have not been so good. Sometimes life does these things to you because it's the right thing. You think it's wrong, 'initially, but life proves different.
+- I want to find a team that can give me a competitive car to win many more races and challenge for the championship.
+- I don't see myself as a leader, I just feel that everything I say, people are listening and people are doing.
+- I have zero pressure, because I have nothing to lose.
+- I know I am lucky to be alive - but I will race again.
+- What I'm really trying to do is make karting important like it is. I mean, karting is our sport, this should be really important.
+- I was sure after the accident when in hospital in Hungary that I was not in the position not to lose any races.
+- I really believe that if you deserve something then one day you will get it.
+- When I entered Formula One in 2002 basically all I had was my talent, but now I also have the technical knowledge which enables me, together with my engineers, to fully exploit the potential of the car.
+- Since he sold his team, Eddie Jordan has had nothing to do with F1 except for what he says in the press!
+- It is important to work to get the good result. If you have that nothing else is important.
+- I am happy to start from zero, to create, to restart.
+- That's the only difference in Formula E from other championships - it's more unpredictable.
+- I want to keep having fun like I have done all my life.
+- I think that if you are well-accepted by the other drivers and respected it is important.
+- I talked to everyone. But I also did work with a professional psychologist, sporting psychologist. That was just the beginning. After that I was able to change the direction to think, the direction to work and I think it was like training I did.
+- I am proud to be part of Ferrari's history.
+- If you are a great guy with your competitors, with your colleagues, it is always good, even on the race track and off it.
+- There's no better place to be on the podium than here at Monza.
+- I always had a good relationship with all my team-mates in my career.
+- People always put me completely out of the game, and that's even nicer because nobody expects you to do a good job and then you do a better job than everybody thinks and it's nicer.
+- I'm very confident about being on the grid in Australia in 2003.
+- For sure working with Ferrari is a great pleasure. It's a great team, it's a great experience and it's a great dream as well to be there.
+- A lot of things happen in a difficult way inside Ferrari in terms of pressure.
+- I know how to lose and I know how to win.
+- Sometimes things don't happen in the way you want it to. But that's sport.
+- When you're talking about proper competition, I think Formula E has good competition.
+- Driving for Ferrari is completely different. Not in the way you work, the way of working is similar in whatever team you go - especially in the top teams. But it's different because it's like a religion.
+- That is something you can never explain, it is part of all sporting life. Anybody can have a bad day and they can have many good days.
+- I still wanted to race in Formula One, for a correct team, a nice team, one that is professional, where you would feel important. But there was no position for me to carry on, so I felt if that opportunity wasn't there, then it would be better for me to stop, and start thinking about doing different things.
+- Mercedes for me is the strongest team.
+- My son understands a lot and he's pushing me really hard. He always tells me 'you need to win, you need to be good.' He's happy to see that his father is racing and I think he understands step by step more about Formula One and he really likes it.
+- I always respect my team and my competitors. I never had problems with anybody.
+- I am not here really just to race. I am here to win. That's really my point.
+- When the media began reporting that I might return, I was touched by the response from so many fans who wanted to see me back in the sport. That was certainly a factor in the decision, so I'd like to thank the fans for their support. But, at the end of the day, when I received the call it was an offer I couldn't refuse. It was Williams!
+- My family is important to me. They have always been close to me during my career, victories and defeats, and the most difficult moments.
+- I will do everything I can always for my country.
+- Every day you are in the media for good or for bad and sometimes this is not helping the driver or the team to control the driver in the best way as well. But Ferrari is Ferrari and the biggest, most famous team in Formula One, so you have a lot more pressure there than at another team.
+- My dream is always to win the championship and I will keep fighting to achieve what I want.
+- My mother never watches the start of my races - because she fears for me.
+- When you're not winning it's easy to complain!
+- When you're at Ferrari, you know your team-mate will be strong.
+- My first year, I was really a kind of a wild guy. But I had a very difficult car to drive and I was very young. I think I was maybe too young to have started straight away.
+- A team that can build a stronger car, a stronger working environment. A team that has the possibility to create something, that would be interesting.
+- After your time passes at Ferrari, you may drive for another team, but you're always a Ferrari driver.
+- I don't want to be the king, 'I don't need that, I want to race even without the helmet, I am the king.' I am not like that. I just want to make things better for the drivers and for the safety.
+- My return is not about seeing Formula One as the best option, but is about seeing the role at Williams as the best option. I would not have returned for any other team.
+- I am not really a problem personality.
+- I enjoyed my first season with Sauber, for sure.
+- I have some old cars, but I have some modern cars as well. And I have some race cars, the cars that I race. I have some Ferraris.
+- I have zero frustration in my life and that's the way it is.
+- Ferrari is very political, at Ferrari everything is difficult. So if you win you have a lot of pressure and if you don't win you have even more.
+- I retired in Formula One and I think it was the right time, so I'm happy with my decision.
+- We always need to keep working to improve safety - not just the cars; the tracks and everything are very safe now.
+- If I had my accident maybe 10 years ago I wouldn't be here now. The technology we have now, the helmets, can save your life.
+- Many Formula One races last two hours, are really boring and nothing happens.
+- For me, my country is the most important thing.
+- I have a passion for racing, for competing and for fighting on the track.
+- When I woke up I didn't know why I was in hospital so I was asking 'Why am I here?' I was pulling all the tubes and my brother Eduardo tried to stop me so we had a fight. The accident was just so unlucky, but I know I am lucky to be alive.
+- The accident did not change my life, change the way I think, the way I work. For sure, it gave me even more experience. The biggest problem was my sight, I couldn't see with my left eye.
+- The people in the grandstand just want to see good driving, good overtaking. But inside the sport everything is about money and politics. It's stupid. And I'm not just talking about Formula One. It's every sport.
+- I'm a big supporter of safety.

@@ -1,0 +1,99 @@
++++
+author = "Lee Mack"
+title = "Lee Mack Quotes"
+quotes_len = "93"
+description = "the best 93 Lee Mack Quotes"
++++
+- I'm a huge fan of stuff like 'Planet Earth' and the American sitcom 'Everybody Loves Raymond.'
+- I don't look at comedy as a sliding scale of offensiveness.
+- When people say, 'I don't like laughter on a TV show', I think, 'How do you cope when you're watching a stand-up gig live?' - it's the same thing!
+- When I tell a joke, I don't think about who's listening to it. I tell the jokes I think are funny.
+- The default position now is that comedians do Twitter but I don't know why. Every bad story you see about a comedian has a connection to Twitter.
+- Everyone talks about the gags, but the most difficult thing is coming up with the stories. You have to learn to do that for sitcoms.
+- I was 38 when 'Not Going Out' began, and I was playing a 34-year-old who had a thing about his landlady.
+- My first recollection of performing was shortly after my parents split up, so the logical conclusion to draw is that that affected me.
+- Since 'The Office,' everyone has this idea that comedy is only good if it reflects the way people really speak. But that's nonsense - and it's a problem unique to comedy.
+- I remember being captivated by Steve Coogan and Eddie Izzard and wanting to do what they did. That generation of comedians was my main influence.
+- We have all said things that are offensive when taken out of context. You don't need to tell the public to be repelled. They will tell you they are repelled.
+- My kids would say I'm strict, but I don't think I am.
+- I feel that I'm a stand-up comedian more than anything else, that's my job.
+- I bought myself a juke box with my first bit of TV money and since then I don't think I've ever really gone mental.
+- I came to London with a girl. We lived together and split up very quickly. I was on my own in London so started going to comedy clubs.
+- I've tried everywhere, but my garden shed is the most effective place to write.
+- If I am old-fashioned, it's not a conscious decision. I just do material that I think is funny.
+- I have a very clear separation between my life and my work.
+- I use Wikipedia and eBay; I look for singles for my 1950s jukebox.
+- In TV, you get driven to work in a luxury car, and find flowers in your dressing room. Then suddenly you're on tour, drying your hair backstage on plastic curtains.
+- Cancun - the locals were fantastic, but it was full of the worst kind of Americans.
+- I hate all adverts for alcohol. They're evil. All of them.
+- If I was reading a book about a comedian, I wouldn't really care too much about their childhood.
+- Genuinely my big thing and the reason I'm in 'The Miser' is because I always ask myself one simple question when I'm offered anything: Will it get me nearer to being 'Doctor Who' or further away?
+- I used to tell people I was a comic and they'd be fascinated. Now all you get is: 'Oh yeah, my cousin Steve's a comic.'
+- It's funny, because when you tell people you've stopped drinking, there's an automatic reaction. People ask, 'Was it a lifestyle choice or were you waking up in a skip?'
+- There's nothing more damning in life than a child calmly and coldly saying, 'Are you aware that you're teaching me bad habits?'
+- It's always been my favourite show and I am on a mission to get on 'Doctor Who.'
+- Yes, if I wasn't a happily married man with three children, Emma Bunton would definitely be my hot-tub fantasy date.
+- Comics were always the lowest rung on the ladder, front of cloth at the Royal Variety Performance. What that means is you're only there so Take That can set up behind the curtains.
+- I'm not opposed to the consumption of alcohol. I'm opposed to my kids watching TV at seven o'clock and being told to bet and drink.
+- I've never been able to keep my finger on the pulse of fashion.
+- I love buying things I wouldn't normally buy, especially cigars.
+- It's much harder to have a BBC One sitcom than to have a tour of stand-up.
+- London's got less of a group identity because it's a melting pot and it's bigger. Whereas if you're from Glasgow or Newcastle or wherever, the group atmosphere is already there.
+- I'd been travelling in Romania. It was 1990, just after the revolution and you couldn't buy anything so we'd been eating basic food. We went to McDonald's and, I'm ashamed to say, it was wonderful. I hate McDonald's normally.
+- My great-grandfather was a variety hall comedian called Billy Mack.
+- There are probably about 50 comedians who would come to my 50th birthday party but I'm not sure how many of them would come to my funeral.
+- I've got quite a few friends in the comedy world as you meet a lot of people.
+- I would say about 90 per cent of drunken idiots in comedy clubs wear ties, particularly in London where I work most of the time.
+- For me, I wanted to write a book about getting into comedy. That's what I wanted to write.
+- Not Going Out' is what I'm most proud of.
+- Comedy was an easy choice for me because I didn't have a career.
+- Loads of blokes think they're funny, but it counts for nothing unless you get up and have a go.
+- I never have fixed subjects that I discuss on stage. I never go on with any particular subjects in mind.
+- I have to say I like Edinburgh, but I'm not a big fan of the Festival - I like it but I'm not a massive fan.
+- I'm on my own when I say this, but I'm one of the few people that think that 'Everybody Loves Raymond' is better than 'Seinfeld.'
+- We're all basically decent human beings so if 3,000 people are laughing at a joke then it's worth telling.
+- I've realised that my strength is writing around people.
+- Everyone told me that British sitcom was dead. Then I looked at 'Seinfeld' and 'Frasier' and thought, 'No it's not, it just needs more gags.'
+- When I was little, I used to get a comic - 'Cheeky Weekly' - which was a weekly comic whose main character was Cheeky. I used to get 'Roy of the Rovers,' too.
+- The truth is that I don't really understand the concept of having an old-fashioned sense of humour, because to me fashion is about clothes not comedy.
+- I think very simplistically.
+- I can remember weird things from way back, but not what I had for breakfast.
+- The best comedy you can ever have is when you're in the pub with your mates. You can never beat that. That's what I try to recreate in stand-up.
+- I can only write what I would be interested in.
+- Bobby Ball, who plays my dad in 'Not Going Out,' is very funny. He has a magical sense for comedy that nobody has been able to replicate.
+- When I was 24, I went back to the academic life and did a degree in film and television at Brunel University.
+- My wife and I have always thought it odd that, on social occasions, couples play the 'hot tub fantasy' game where you're allowed to pick a celebrity you'd like to share a hot tub with.
+- Don't get me wrong, I'm under no illusions, I've got a very old-school, mainstream leaning to the way I present my comedy because I actually like jokes and don't just do observational stuff.
+- Before Twitter, if comedians wrote what they had for lunch on a Post-it and put it through your letterbox you wouldn't find it acceptable - but now apparently it is on Twitter.
+- I do write a lot of stuff for my tours. I think I just want to give people their money's worth. They've paid to come and see jokes so I try to give them as many as I can.
+- I'm not a comedian who wants to spend far too long on stage.
+- Your voice determines people's perception probably more than your style or your jokes.
+- I could have done a night at the O2 in London, but I couldn't bring myself to do it. I'm not being big-headed, but for my act I can't be talking to an audience of 12,000 people. There's no intimacy.
+- My only ambition was to get to 50, and not regret not having had a crack at being a comic.
+- Telling lies is the easy bit, but telling the truth and pretending you are lying is hard.
+- I don't understand why you would want to watch someone giving birth.
+- I talk a lot when I'm nervous.
+- I really don't like reality television and the nonsense that comes with it.
+- I'm terrified of flying and have tried everything from prescription drugs to booze and herbal remedies. The only thing that works is Valium. I don't know why I'm so frightened - I think it's from seeing my mum freak out when I was young.
+- I'm like a goldfish. My memory is terrible.
+- My family were nothing but pleased when I told them I wanted to be a comedian.
+- I know comedians who go on weird day trips in order to have random experiences they can talk about. They'll go on their own to Thorpe Park waiting for something hilarious to happen. That's really sad.
+- Now and again I'll bump into people and say, 'I'm a big fan of yours. Would you like to be in my sitcom?' And they say, 'Oh yes,' but when it comes to the booking, they don't want to do it.
+- Going on stage is a performance, it's an act; you're playing a version of yourself. I don't give it a lot of thought. I clock on, I tell jokes, I clock off again.
+- Not Going Out' is a pretty neutral sitcom - to quote the 'Seinfeld' thing, it's not really about anything.
+- When I'm on tour I just ring up the theatres, book it and go on. You can pretty much go on tour when you want but you can't just make a telly show when you want.
+- When men sit around and talk, they are very competitive. One person will tell an anecdote and the next person will try to top that. When you get six women together, they share a lot more. They will be far more interested in what the other person has to say. The conservation is more interactive and less about individually showing off.
+- In British sitcoms, you can get five minutes of nothing before the story starts.
+- Neck-down comedy was no longer valid after the 1980s alternative comedy revolution. Everything became about the cerebral. And with that came positive things - it helped get rid of some of the sexism and homophobia - but it also meant a lot of physical comedy was lost.
+- I would make it illegal to walk into a comedy club with a tie on.
+- The problem isn't that there's not enough women in panel games. The problem is there's not enough women in comedy in general.
+- I suppose if your parents die in their 50s and you are approaching 50, you see that you are definitely not in the first half of your life any more.
+- Not Going Out's jokes were based on the American mentality in terms of how often the jokes appear.
+- I don't know how I've managed to reach the age of 45 as a professional comedian and not watched more 'Simpsons,' considering everyone says it's one of the best shows ever.
+- From the age of 14, I remember thinking I wanted to be a comedian. But that was like saying I wanted to be an astronaut. It felt like a million miles away, something I could never do, but would be great to.
+- I don't know the statistics, but I wouldn't be surprised to find out that a disproportionate number of comics come from broken homes.
+- If it's not a film in which Harrison Ford's wife is being kidnapped, I'm not interested; he's my hero.
+- Looking back at my school reports, I start off as quite a swotty kid, and then when I get to 12 or 13, my teachers start saying: 'Lee has started to joke around a lot in class.' After that, it's a steady graph of decline, with the jokes increasing and increasing.
+- But it's true, I was a sports organiser at Pontins - one of a series of terrible jobs I had before I started doing comedy full time.
+- The rules of comedy are, don't complain, it's a brilliant job. You complain, and you're seen as losing touch with reality.
+- I like Cornwall and particularly the Isle of Mull on the west coast of Scotland where I got married. It's absolutely beautiful.

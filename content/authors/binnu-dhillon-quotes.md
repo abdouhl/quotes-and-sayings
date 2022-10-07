@@ -1,0 +1,55 @@
++++
+author = "Binnu Dhillon"
+title = "Binnu Dhillon Quotes"
+quotes_len = "49"
+description = "the best 49 Binnu Dhillon Quotes"
++++
+- If you want to make good movies, one has to take a step to create these.
+- If Hollywood can make films on insects and make big money, why can't we make films on Punjabi culture?
+- It's the most difficult thing to make people laugh.
+- 'Band Vaaje' is all-in-all a comedy film. But all comic scenes are situational. The jokes are not just for the sake of punches. The film has proper story which we are sure that audiences will love.
+- We need to laugh and laugh loud because this is the only way to handle stress.
+- I love to do things for youngsters and nation.
+- And once you've been on stage, you can't stay away from it for long.
+- I liked the character very much and even in general roles like this entice me. I started my journey in Punjabi film industry with negative roles, and then gradually comic roles and situational comedy fell into my kitty.
+- I always try to give a message through my role.
+- Jaspal Bhatti saab was the one who uplifted the image of Sikhs on the national and international stage. There used to be a lot of satire on Sikhs earlier. A guy wearing a turban was portrayed as a joke, but since Bhatti saab entered cinema he changed the entire perspective and idiom of Sardar jokes.
+- Vote is a medium of change and a right one should not waste.
+- We have high hopes from 'Zakhmi.' People will definitely like the movie.
+- I have always aimed to produce work that you can watch with your family.
+- After working for a whole year without a break, I made Rs 80,000, and took a loan of 50,000 from my parents. I bought a car, and as luck would have it, it got stolen.
+- I am a jolly person. I love to laugh and make people laugh all the time.
+- I'd advise the youth to not get influenced or forced by their elders. They should have own political views and choices and the courage to pick the right leader.
+- No one writes for me exclusively, nor do lead roles come by that easily. 'Dulla Bhatti' was one, but I was so disappointed with the film.
+- I believe in giving myself up completely to the director and do what he wants me to.
+- Bollywod films run on the shoulders of its lead actors. The audience goes to watch the actors and talks about the story later. On the contrary, Punjabi films are now running on the shoulders of their stories and content, which is an achievement.
+- I am not a comedian, I am an actor, and what makes an actor brilliant is his versatility.
+- I have never believed in keeping bouncers. Even as an actor, I walk alone without star tantrums. My work and good deeds for the country will be my shield.
+- 'Vadhaiyan Ji Vadhaiyan' offers a fresh comic take.
+- Dev Kharaud is the biggest name in the action movie genre in Punjabi industry.
+- We are indulging in therapy involuntarily when we chose to laugh.
+- I act by observation.
+- The beauty of filmmaking in Punjabi industry is that we never control the fun happening on the set.
+- Being an actor, it's my responsibility to do something for society.
+- My own character as Gill Bhai is my favorite.
+- I've mostly played a villain in Punjabi films, but with 'Mitti Waajan Mardi,' I got to essay a comical villain, which the audience loved.
+- Even in comedy genre, one can treat the story differently every time.
+- But if you ask me personally, when I am doing a negative role it comes real easy to me. It gives me the opportunity of bringing in attitude and a lot of variation.
+- Such was his popularity that a film would sell only in his name. People would watch a particular film because it had Mehar Mittal in the cast.
+- Punjabi culture is very strong and we have thousand of stories, which can be turned into films to keep our generations rooted in the culture.
+- When you have a fanbase, you must use it to spread positive messages.
+- Now-a-days we are part of a really stressful society. But if you look at North Indian households, especially Punjab, making light of every situation is a part of everything here.
+- When we were kids, we didn't have the luxury to take decisions of our life as the right was reserved for our parents. There were a lot of insecurities, not necessarily towards how we look but otherwise as well.
+- Unlike singers, who can earn for years by singing one song, we artistes have to be on our toes all the time. If I write something funny or create a joke in the morning, there will be someone narrating my own joke to me the same evening.
+- The kind of films being made, that are called experimental, only happens when the industry is confident enough for them to work and I believe that soon we will see a 100 crore blockbuster Punjabi film.
+- When people see me in movies, they think it is easy to say punch-lines and make them laugh.
+- The more challenging the role, the better it is.
+- If you look at the success rate of Punjabi film industry, we stand strongly ahead of Bollywood even.
+- In a way yes, I do 3-4 films a year, and I have dialogues and punches that somewhere become similar, but in a stage play, everything is different.
+- Power will never take away my humbleness.
+- It's surreal. Here I was, a bhangra champion who had performed at an Indian festival in the U.K. and Germany, a television theatre actor who barely made Rs 1,000 a day working like a donkey all year round.
+- We often see discrimination on the basis of color and complexion in society.
+- The rising levels of production and content are prompting producers to take up unusual subjects.
+- I love theatre, but it is losing its value in Punjab. There are no funds or government back up.
+- I am very enthusiastic and positive about 'Bailaras' which is a maiden movie under my home production - Naughty Men Production.
+- I make sure not to do anything which can be insulting for women- something very common in Punjabi films.

@@ -1,0 +1,18 @@
++++
+author = "Bronte Campbell"
+title = "Bronte Campbell Quotes"
+quotes_len = "12"
+description = "the best 12 Bronte Campbell Quotes"
++++
+- I have a very pessimistic view that every win takes you closer to a loss because no-one in the world can keep on winning forever.
+- I think, for the benefit of our parents, the perfect night out would be when Cate and I touch the wall and we tie. This is what they dream - that we'll both win. Because then they don't have to pick a favourite child.
+- When we were very, very young, I was actually better than Cate was at swimming, and I was not very humble and thought I was the greatest thing ever and rubbed it in her face a bit, and then she started trying really hard and started beating me.
+- I love standing up behind the blocks, and I love that moment just before you dive in and it goes quiet, and you take a deep breath and you just dive, and then you try and win, but that moment just before I go, that's why I race.
+- I'm actually really good at vacuuming, and I don't even mind it so much. I hate dusting with a passion, and I am not a fan of tidying up, but vacuuming I can do. And mopping floors: I'm not bad at that, either.
+- I learnt my lessons very early on that it's probably a good thing to be humble in victory as well as defeat.
+- I collect rings from every country that I compete in, and I swap them around and wear different ones occasionally. I have about 10.
+- I was a crazy little seven-year-old. I used to get up an hour early to watch the big kids train. I thought, 'I must absorb their awesomeness.' That was my goal from when I was seven. I told my coach, 'I'm going to the Olympics.'
+- I normally fly under the radar, and I'm normally not the best in my family, even though I'm sort of second or third best in the world.
+- I think it's always a really stupid thing to base your achievement on someone else. I just want to base it on myself... do something that I can be proud of, and then I'll be happy.
+- It might sound stupid, but I don't enter a race to win - I enter a race because I love racing.
+- I have spent a very long time in Cate's shadow - she casts a pretty big one. I have always had the support of my family and coach, and they have always stressed we are completely different people and will achieve things in our own time. They stressed I would get my moment. I just had to be patient.

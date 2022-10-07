@@ -1,0 +1,26 @@
++++
+author = "Robert Musil"
+title = "Robert Musil Quotes"
+quotes_len = "20"
+description = "the best 20 Robert Musil Quotes"
++++
+- Only in the most unusual cases is it useful to determine whether a book is good or bad; for it is just as rare for it to be one or the other. It is usually both.
+- A particularly fine head on a man usually means that he is stupid; particularly deep philosophers are usually shallow thinkers; in literature, talents not much above the average are usually regarded by their contemporaries as geniuses.
+- All still lifes are actually paintings of the world on the sixth day of creation, when God and the world were alone together, without man!
+- Today I start a diary; it is against my usual habbits, but out of a clearly felt need.
+- Time, which runs through the world like an endless tinsel thread, seemed to pass through the centre of this room and through the centre of these people and suddenly to pause and petrify, stiff, still and glittering... and the objects in the room drew a little closer together.
+- Anything that endures over time sacrifices its ability to make an impression.
+- Don't you know that every perfect life would mean the end of art?
+- Progress would be wonderful - if only it would stop.
+- What is the use of good painting? We want a spell cast upon the optical part of our existence! We seldom really see the world, but when we do, we become as still as a picture.
+- On this thin, scarcely real and yet so perceptible sensation the whole world hung as on a faintly trembling axis, and this in turn rested on the two people in the room.
+- It is, all in all, a historic error to believe that the master makes the school; the students make it!
+- It will always be the same possibilities, in sum or on the average, that go on repeating themselves until a man comes along who does not value the actuality above idea. It is he who first gives the new possibilities their meaning, their direction, and he awakens them.
+- It is reality that awakens possibilities, and nothing would be more perverse than to deny it.
+- Life is to blame for everything.
+- Layer by layer art strips life bare.
+- The difference between a healthy person and one who is mentally ill is the fact that the healthy one has all the mental illnesses, and the mentally ill person has only one.
+- If there is a sense of reality, there must also be a sense of possibility.
+- The thoughts of my emotionally so disturbed days must be found again, shifted and developed further. Here and there something of the loose remarks I make must be used, but only when it finds my attention again.
+- The thought came to me that all one loves in art becomes beautiful. Beauty is nothing but the expression of the fact that something is being loved. Only thus could she be defined.
+- Philosophers are people who do violence, but have no army at their disposal, and so subjugate the world by locking it into a system.

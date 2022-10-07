@@ -1,0 +1,51 @@
++++
+author = "Brad Garrett"
+title = "Brad Garrett Quotes"
+quotes_len = "45"
+description = "the best 45 Brad Garrett Quotes"
++++
+- My whole life, I've been telling jokes.
+- Humor is healing.
+- Athletics are not my wheelhouse because sports were mean to this uncoordinated kid growing up, a 6-foot-2 14-year-old who never could do a layup.
+- Broadway was without doubt the hardest I ever worked in my life and the highest highs I've ever had as an actor. The unadulterated fear was on a level that was hard to explain.
+- I think as any artist you always want to grow; you always want to get better.
+- You can give a guy a funny line, but you can't make him say it funny.
+- I would probably be a teacher if I weren't a comedian.
+- I come from the world of improv; I love any show or any vehicle that gives me an opportunity to be in the moment.
+- I'm not big on game shows.
+- We don't take care of our teachers and our cops and our firemen. They should be at the top of our list.
+- I'm totally, totally into old Vegas.
+- I became a stand-up because that was my survival.
+- I've always wanted to play a coach in a movie, just to be the captain of anything in the pirate ship of my bathtub.
+- I think we love watching people that are flawed because we're all flawed.
+- I'm a large, bombastic type of windbag.
+- You have a bad day at the office, four people know. You suck in a movie, everyone knows.
+- There's not a day that goes by where I don't think, 'Oh, I'm a lucky pup.'
+- In standup, it's just you. You're your own writer, your own critic, your own director, and it's never the same. You really don't always have it down. Your continue to learn, you continue to risk, and I really love it.
+- It's fun to play people who are flawed.
+- Standup is really the only thing in the entertainment business that you do totally alone.
+- I don't think we're politically correct when we're private. I don't know what 'politically correct' means.
+- I was very, very large as a kid and never athletic, and my home life was a little upside down and I never felt comfortable.
+- I feel very, very grateful. I'm a lucky guy, you need a lot of luck, and then when the cameras roll, you have to have this group of writers, directors, and actors that just gel, and it seems to literally be happening more and more.
+- I love performing, and it's important that I do it at my own club, absolutely. It's good for me. It's good for business.
+- Men and women are like cats and dogs. I've learned more about myself from women. My comedy is based on this.
+- I'm the type of guy that feels pressure when I have to order dinner. I'm just that type of guy but that's my fuel. I work well with pressure.
+- I am so fascinated and taken by the Golden Knights.
+- I was a 6-foot-tall 13-year-old who couldn't play basketball. I moved around all the time as a kid, and at each new school, the coach would say, 'He's the great white hope' - but I couldn't play ball. So my thing was jokes and characters and making fun of myself and being the 6-foot-9 Jewish guy. That was my way into show business.
+- Sports were never my thing.
+- The night I won the Emmy, I probably cried for three hours on and off.
+- I think I'm better wired for television. I love variety as far as a project. I'm easily bored and the schedule of a television show, it just keeps you going.
+- People who are bipolar, they kind of latch onto things that are fanatical sometimes.
+- There is the real person I am, and there is the stage persona.
+- I'm out about my misogyny. Most men are misogynists, and most women are feminists. I work with a lot of women. They have their finger on the pulse of things. But women do things to other women that men would never do to other men.
+- It's all I have left in my life, caffeine and a poodle.
+- My act is a little raunchy. When people come to my club, I have to warn them it isn't Robert from 'Raymond.'
+- There's a black man inside of me just trying to make bail.
+- It's like whether you're in a huge movie or you've just recorded an incredible album you've got to do the next thing, and that's part of being an artist.
+- I believe it's a real tedious hostage negotiation to have a marriage be what it is.
+- I love strong women, not only in life but in craft.
+- You take away all the other luxuries in life, and if you can make someone smile and laugh, you have given the most special gift: happiness.
+- Actually, I have my own charity that I started that helps supplement families with terminal children.
+- I think you're born with a comedy gene, and you can't teach timing, and you can't teach satire, pathos.
+- I was a strange kid. I never really fit in; I was never comfortable in my own skin because I was a giant kid with no athletic ability.
+- But I believe that there are marriages where you can have your pool table and she can have her scrapbooking room or garden or whatever it is. But when everyone has what they want, it's not funny. There's no conflict.

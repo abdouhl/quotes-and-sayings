@@ -1,0 +1,147 @@
++++
+author = "Ruth Rendell"
+title = "Ruth Rendell Quotes"
+quotes_len = "141"
+description = "the best 141 Ruth Rendell Quotes"
++++
+- My mother had multiple sclerosis.
+- I was a child, and in 1942, I was evacuated to the Cotswolds with my mother, who was a teacher - she went with her school. I lived in one house in the village, and my mother was in the vicarage.
+- I always write about subjects which attract me because if I didn't, it would be awful, a failure.
+- I don't think the Barbara Vines are mysteries in any sense. The Barbara Vine is much more slowly paced. It is a much more in-depth, searching sort of book; it doesn't necessarily have a murder in it.
+- I don't exorcise anything with my writing. I'm sure people do, but I don't.
+- Crimes are more often committed out of fear than wickedness. People live frightened, desperate lives.
+- I do think that being a sort of celebrity and being well off does give me some responsibility.
+- I used to get an awful lot of letters, and they have almost all gone. I used to answer nearly all of them.
+- I love memory sticks. They seem to me to be magic.
+- I think that people who make a lot of money - and I do - should certainly give a considerable amount of it away.
+- If I've got to have a stroke or a heart attack, I'd rather have a heart attack. I don't think that's the only reason I campaign for the Stroke Association, but a stroke would be a terrible thing.
+- I never was religious, really, but I'm very interested in religion.
+- I don't think the world is a particularly pleasant place.
+- I don't find writing easy. That is because I do take great care; I rewrite a lot.
+- I don't mind being distracted. I don't want to sit there in utter silence and type. If the phone rings, I usually answer it, speak for a few minutes and return to writing, or go for a walk in and out of the rooms. I don't mind a break.
+- It doesn't matter what kind of book you write - you ought to write it well and with some kind of style and elegance.
+- People always tell me my books are so dark; I don't think they're particularly dark. I'm not like that. I'm quite a cheerful soul.
+- Violence is very much with us, and we like to see it. I doubt if you can change that, and I'm not sure you should want to. I have occasionally been very upset by something I was writing, but it's quite rare: I keep my writing very separate from my life.
+- I enjoy moving. I like to be in a new place. Settling down doesn't appeal to me much. I like the whole business of it. And I love the first night in the new place.
+- I believe the most important thing you can do in any kind of novel is to make your reader want to go on with it and want to know what happens next.
+- I agree with what Mark Twain said - we're all mad at night.
+- I can't sum up my books. They're all rather complicated. Sometimes I think they're too complicated. But that's the way I am. When I start to write a book, my head gets full of all kinds of detail.
+- The more you pander to what is, presumably, the taste of young people, the more you corrupt.
+- Why do we have to have violence, torture, brutality in crime dramas every time we turn on television? Any new crime drama is going to have, sooner or later, a lot of torture and nasty things that make people flinch. Lots of young people I know shrink and flinch from that kind of thing on television, so I think showing it is a mistake.
+- I don't make any notes, but I do know where to find things. Suppose I need to know where Wexford first talked about his love of the countryside or where he quotes Larkin or what was the beginning of his hatred of racism or where he first encountered domestic violence; I would be able to find it straight away.
+- I think we all fear appearing foolish in public. We don't want to be laughed at.
+- Haemophilia itself is bad enough. It is disabling day by day, even if far less incapacitating than in the 19th and early 20th centuries. But the added burden of life-threatening further illnesses from contaminated NHS blood is far worse.
+- I get very tired of violence in crime fiction. Maybe it is what life is like, but I don't want to do it in my books.
+- I don't think there is a fictional character who resembles me because fictional characters are not real!
+- We, people, are so very, very complicated that no matter how well drawn a fictional character is, they can't get anywhere near as complex as a real person.
+- While most of the things you've worried about have never happened, it's a different story with the things you haven't worried about. They are the ones that happen.
+- I didn't do any writing seriously until I was in my mid-twenties. But I've never really thought of myself as doing anything else. I've always wanted to write.
+- In judging other people's work, particularly short stories, I have noticed how novice writers tell the readers everything about their characters in the first paragraphs, disclose their motives, reveal their recent activities and their future intentions.
+- I never make notes; just a few small details when I'm writing, but nothing much. The plot is never written down. I will tell the story to myself, but I won't plan it. I'll speak the narrative in my head for a while.
+- I have had quite a lot of prizes, but I don't think it makes any difference to the ease or difficulty to the writing process.
+- People do sometimes ask me some really idiotic questions: 'Is your husband afraid of you putting arsenic in his food?' I replied that I have never written a book about poison, ever.
+- I have a soft spot for charities that help children.
+- I don't like the way young people write and talk about the old. I don't like their attitude, which, if they weren't young and therefore bright and vibrant, would be called outdated.
+- I don't find writing easy. That is because I do take great care: I rewrite a lot. If anything is sort of clumsy and not possible to read aloud to oneself, which I think one should do... it doesn't work.
+- My father had several strokes and heart attacks. I was with him when he died, and it was a horrible death. He had been a very articulate man, and to lose that, never to be able to speak properly and to be unable to move - he had always been a very vigorous man, so to be in a wheelchair and mumbling - was terrible.
+- I don't care for people who are given peerages who have paid for them. I think it happens, and I don't like that.
+- The treatment of patients with contaminated blood has been described as one of the most tragic episodes in the history of the NHS.
+- I - I love being told by people that they enjoy my books, and I think that's really very nice.
+- I always know when a novel is going to be a Barbara Vine one. In fact I believe that if I weren't to write it as Barbara Vine, I wouldn't be able to write it at all.
+- I started by writing short stories, but they weren't very good; I tried them on various magazines, and none of them was published. People were nicer then about turning you down, and so I didn't lose heart - I kept on writing and wrote a lot of books, one or two of which I finished, and others I didn't.
+- I call myself an agnostic. I'm open to change. I'm the same sort of person, although much less aggressive, as Richard Dawkins.
+- I am neurotic, but I live with it. I think most people are, anyway.
+- I don't want to be a fusty old lady writer.
+- I very much like writing about homosexual relations. I don't quite know why. Perhaps it's because I feel there's still so much to be said about them.
+- Many people have a profession or a job - most people do, I should think. And they do it. And that's what I did.
+- Some women lose their husbands, and their worlds change because their financial circumstances change. All I have in common with them is a grief.
+- I'm not much of a shoe person, but I love a pair by Bruno Magli that I've had for 10 years.
+- It sounds awful and sort of goody two-shoes, but I never eat between meals.
+- Old women especially are invisible. I have been to parties where no one knows who I am, so I am ignored until I introduce myself to someone picked at random. Immediately, word gets round, and I am surrounded by people who tell me they are my biggest fans.
+- I like to show what happens to people in the past and how it affects their present.
+- Both my parents had strokes. My father had several, but the last one was fatal. It's a horribly disabling bug, a stroke.
+- I'm a very bad Christian, but I am a Christian.
+- I think that all women, unless they are absolutely asleep, must be feminists up to a point.
+- I don't like slapdash careless prose, and if I saw myself doing it, I would give up writing altogether.
+- I think about death every day - what it would be like, why it would happen to me. It would be humiliating to be afraid.
+- Women's rights are more important than their ethnic rights.
+- I go to the House of Lords in the afternoon and try to walk halfway. I may be thinking about what I'm going to write. It's much more satisfying than sitting in a chair.
+- I think to be driven to want to kill must be such a terrible burden.
+- I'm not much of an eater.
+- People tell me the most extraordinary things. I've noticed it for years. Perhaps they know I won't be shocked. Or judgmental.
+- Suspense is my thing. I think I am able to make people want to keep turning pages. They want to know what happens. So I can do that.
+- Reading is becoming a kind of specialist activity, and that strikes terror into the heart of people who love reading.
+- I don't want to marry anybody, but I certainly wouldn't want to marry a bad novelist.
+- 'The Da Vinci Code' was pretty awful. A good idea disappointingly handled.
+- I really do literally put myself into a character's shoes.
+- I always know what I'm going to write before I sit down.
+- I'm concerned with the lost, the lonely, the shy. I think shyness is in some ways more widespread now than formerly. I used to be shy myself. Of course, you can't be me now and remain shy, but I remember very well what it felt like.
+- I've never met a murderer as far as I know. I would hate to.
+- It makes me actually quite angry to think about people writing about torture with a sort of relish. Horrible.
+- The knives of jealousy are honed on details.
+- I never write about a place I don't know.
+- The old detective story that's got a really complicated motive doesn't apply to mine.
+- I was imbued from a very early age with a sense of doom.
+- I don't mind being distracted.
+- You don't knock television, even if you don't always like what they make of your work. It makes all the difference between being an also-ran writer and very famous.
+- I'm very fond of Tennessee Williams' plays, and when my husband and I went to New Orleans in the late 1970s, we saw 'A Street Car Named Desire.'
+- I don't do pride. It seems to me to be a very unpleasant thing.
+- I write every morning. From about a quarter to nine to a quarter to one. It might be nine to one, or 8:30 to 12:30.
+- In 'The Blood Doctor,' I wrote about the history of haemophilia and the devastating effects of the disease at a time when there was no remedy.
+- I do write about obsession, but I don't think I have an obsession for writing. I'm not a compulsive writer. I like to watch obsession in other people, watch the way it makes them behave.
+- I went into a church and simply said, 'Goodbye.' It is the terrible unfairness of life. How could God allow cancer, poverty, the sheer unfairness of so many lives? That is the question which finishes it for me.
+- I'm a very rigorous person. I like to take exercise. People get mired in old age, they get bent and twisted, but I can stop that.
+- I have two quite large houses, and every cupboard and drawer is stuffed with books.
+- What I mind in modern society very much is the awful lack of grammar.
+- I've done the big 12-city tours, and I'm never going to do that again - never. I was younger then. It wears you out, you know.
+- I've had two proposals since I've been a widow. I am a wonderful catch, you know. I have a lot of money.
+- My mother was a Swede who grew up in Denmark. When I go there, I visit the street where she grew up and look at her house, which is still there, and the snowberry bush, from which she ate some berries and had to have her stomach pumped.
+- I often think what it was like not to have much money. I don't think it's good for people to be born into money and not know what it is never to have it.
+- I knew quite a lot about politics before I went to Parliament.
+- I'm a very bad Christian, but I am a Christian. I think that all women, unless they are absolutely asleep, must be feminists up to a point. And socialist, well yes, of course, it's not a fashionable word, but I am very much of the Left.
+- I'm careful about keeping myself fit and thin, or as thin as I can manage.
+- It's not necessary with your friends to discuss something you know you will disagree profoundly on.
+- The things I write about are completely removed from my own life, but people want to know the characters better.
+- People who have had a stroke and are recovering from it love being read to... especially by someone who is a good reader - it does help them to get better.
+- I think it says something that I have never had an obscene letter. A young man once attempted one, but it was so totally illiterate and hopeless that it made me laugh.
+- Some women say as they get older they're no longer noticed: they disappear. Men, for instance, don't see them. Nobody wants them. That doesn't happen to me because of who I am. Not because I'm any more scintillating company, but because I'm Ruth Rendell.
+- Wexford started off as a very conventional, tough cop and not a very original character because I had no idea I was writing a series, of course. I had no idea I'd created a series character.
+- As soon as I know it's about technological things or spies, I lose interest. I want to know what goes on in people's minds.
+- People are still being put into geriatric wards when they don't need it. They need treatment, not just being put into bed and fed.
+- I have an idea, and I have a perpetrator, and I write the book along those lines, and when I get to the last chapter, I change the perpetrator so that if I can deceive myself, I can deceive the reader.
+- I never carry a notebook while walking around London. I just pick those things up. I'm very good at quizzes.
+- Reading taught me how to write.
+- I get up just before six and come downstairs, put food out for the cats, and open the cat flap. Then I work out for 35 or 40 minutes - I have a very large bathroom with an elliptical cross-trainer and a bicycle.
+- My mother started to suffer from multiple sclerosis, but nobody knew what MS was then. My father didn't - and later he suffered a great deal of guilt over that. It was an awful business and very fraught.
+- Suspense is my thing. I think I am able to make people want to keep turning pages. They want to know what happens.
+- I don't have any dark desires. And I think most people don't. A few have dark desires and don't sublimate them.
+- I've never really been satisfied with a book. I always want it to be better.
+- I have a Kindle, but I don't like it very much. I like a book.
+- Nobody will go on being remembered for a very long time, unless you're Shakespeare or Milton. I have no hope of being remembered at all.
+- Everybody wants their fame. They long for it, and I think they don't much care how they get it - to attract attention to themselves.
+- There are some novelists who can get away with writing about sex - Philip Roth, Ian McEwan - but they are rare.
+- How could God allow cancer, poverty, the sheer unfairness of so many lives?
+- I don't expect the sun to be always shining, or even want that to happen.
+- 'The Chimney Sweeper's Boy' began differently from any previous book I'd written. It actually derives from a story a friend - the novel's dedicatee, Patrick Maher - told me.
+- My favourite book - 'The Good Soldier' by Ford Madox Ford, which I have read about 20 times - is different from my favourite author, who is Iris Murdoch. I find her books exciting and unputdownable. Her characters are so carefully studied and in-depth; I love that.
+- I just want to tell a good story, so I always ask myself, 'Are these people real to me?'
+- I always write about what interests me.
+- I am curious about people. I want to know their secrets... because I am the last person to whom I would tell a secret; people tell me their secrets.
+- I do think that being a sort of celebrity and being well off does give me some responsibility. I think that people who make a lot of money - and I do - should certainly give a considerable amount of it away.
+- It looks as if the NHS will gradually fade away, and we shall go back to a great deal of private medicine.
+- I don't feel that I wanted to spend my whole writing life - which is my life - writing detective stories.
+- I really am not affected by the tragic aspects of my books.
+- Ford Maddox Ford's 'The Good Soldier' is my favourite novel. I first read it in the 1950s and have read it about 20 times since. It's possibly the best-constructed book in the English language.
+- People want to marry me for companionship. No thanks! I've got my cats for that!
+- I think I must be the only grandmother in the world who was given an iPod by her grandsons. It has changed my life - I'd be lost without it.
+- It's absolutely essential to my life. I don't know what I would do if I didn't write.
+- I have never been a foodie and am seldom very hungry.
+- I don't know what I would do if I didn't write.
+- Where blackmail is involved, telling the police is always a good option.
+- I don't know that I am fascinated with crime. I'm fascinated with people and their characters and their obsessions and what they do. And these things lead to crime, but I'm much more fascinated in their minds.
+- I wouldn't be young again even if it were possible, but I am not going to pretend that growing old is all sweetness and light.
+- I don't think it's good for people to be born into money and not know what it is never to have it.
+- I try, and I think I succeed, in making my readers feel pity for my psychopaths, because I do.
+- I am interested in names and what they say; it is true. I like to look at the columns of baby names in the newspapers. But I don't run out of new ones for my characters.
+- Hugh Grant will always be associated with his scandal, and so will Max Mosley.
+- I don't choose my villains and heroes for political reasons.

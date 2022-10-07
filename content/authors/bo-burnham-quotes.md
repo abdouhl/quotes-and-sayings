@@ -1,0 +1,131 @@
++++
+author = "Bo Burnham"
+title = "Bo Burnham Quotes"
+quotes_len = "125"
+description = "the best 125 Bo Burnham Quotes"
++++
+- I don't mind having 16-year-old fans, but I hate just having 16-year-old fans. I want more diversity.
+- I've found nothing but support and generosity from older comics. I think comedians are a lot nicer than the stigma is, at least from my experience.
+- I feel lucky, where I'm not 'famous' famous. I'm not someone that everyone kind of knows for no reason. If people know who I am, they like me because if they didn't like me, they forgot about me.
+- I don't interact with people much.
+- Life, to me, doesn't feel like a straightforward story; it doesn't make sense for me to get up there and just tell a story. Life feels like what my show feels like: chaotic and strange and disconnected.
+- I don't really care about capitalizing on momentum.
+- I write about what I know: teenage dating, overly charged sexuality, all the things that make you uncomfortable.
+- I'm clearly doing what I want. I hope kids can see my act and feel like they can be slightly more comfortable in their own skin because I'm being so ridiculously comfortable in mine. I'm not that comfortable in my skin the moment I walk offstage. But I try to project that while I'm on it.
+- My success, literally, is your success figuratively.
+- I have no real want or need to be a movie star.
+- Please don't stick with me if I start sucking.
+- You got to take a deep breath and give up. The system is rigged against you.
+- I think because of the Internet I was able to study comedy from quite a young age and watch a lot of comedy.
+- The U.K. and Europe in general seem to be a lot more patient. The U.S. are expecting 'joke joke joke joke joke joke joke.' They don't actually sit and listen to you.
+- I think it would collapse my heart if I was super famous. I don't have the nerve for it, I'm too anxious. I don't know how you're not obsessed with how people perceive you, because they're real people, you know? You can convince yourself that they don't really know you, and that's true, but how can it not hurt your feelings?
+- For me, if you distill comedy down, it is surprise and the unexpected. That has to be it on its most base level, in any form.
+- I always loved bands who would try to change their sound radically album to album, experiment in one album and revert back in another.
+- There's a certain line between jokes and music and poetry that's a bit blurred in my mind.
+- Facebook became ubiquitous when I was 16, so I vaguely formed a sense of myself a little bit. I had kind of learned to think a little bit before the stuff was everywhere.
+- I don't worship comedy; at the end of the day, I don't fall to the altar of comedy unquestioningly.
+- I do weird things, and people watch.
+- I'm still a kid in his bedroom, writing songs and playing them.
+- I don't try to call myself a poet. But I know that my stuff is pretty literal, in that the themes are pretty simple and on the surface.
+- I'd love to write a song that someone else sings that can actually sing really well.
+- In high school, I worked eight hours a day just so I could get into the college of my dreams and say that I got in - and I never went.
+- I was definitely not the kid that just wanted to be famous for no reason whatsoever and then happened to find comedy. Fame and all that stuff have always been slightly terrifying to me, and it makes me very anxious.
+- I like to call everyone that I find slightly annoying a 'sociopath.'
+- You can give poor people this royal wedding to watch and make them feel good about themselves, or you can give them something useful like, I don't know... a toaster.
+- If a comic is himself, there'll be things he can't do - because he has to adhere to that persona.
+- Uncharted territory is a good place to be in.
+- It feels like we're always juggling many pieces of information at once or trying out many personas at once. It makes life slightly nonlinear.
+- The strength of comedy is I don't have to answer to anybody, but sometimes you want to learn from other people and see your ideas strengthen by other people.
+- I'm very left-brain.
+- If I had posted my first video a week later, I don't know if it would have spread like it did. That's why, with everything I do, I try to enjoy the making of it instead of worrying about the release and reception.
+- Basically, I don't like to tweet stuff about my life. I only like to tweet jokes.
+- Comedy is the one absolutely self-aware art form. Actually, hip-hop's another one, I suppose. Because in your songs you're talking about how good a hip-hop artist you are. It's like a painter painting a panting of himself painting a painting.
+- I chose to do comedy instead of going to college.
+- I don't want to put meaning on what I do because I don't know what it is.
+- The thing is, I always thought I could do stand-up, and so I just stayed focused on the belief that I could succeed.
+- I think the comedy clubs tend to homogenize the acts a little bit, because they force them to be palatable in way too many environments.
+- I'm just a giddy teenager who would like to break into show business any way I can.
+- I became good friends with Jack Whitehall. I think he's great, such a great dude, and really funny.
+- For me, the only value a celebrity has, or any artist or actor or anything, is the things that they make, you know?
+- The problem for us, as viewers, is that we want famous people who are passionate about the things they're famous for, because that makes them worthy of the attention. But I think many of those famous people just want to be famous.
+- I like to joke about being gay because it's something teenagers would never joke about.
+- My career was exploding at the same time that social media itself was expanding. But when my online videos were taking off, I didn't think, 'Oh, great! I'm going to be able to parlay this into a career!' I just wanted to be a comedian. I just wanted to perform live.
+- I'm not as incredibly prolific as Louis C. K., and I'm definitely not doing a completely brand-new hour probably by the beginning of the tour.
+- Your hard work and talent will not pay off.
+- I just look at Miley Cyrus, and I'm like, 'Great, you've doubled your audience. But you've also doubled the number of people that hate you, and doesn't that hurt?' It takes a crazy person not to be affected by that.
+- Comedy doesn't really matter that much; I know that. I treat it like an adult - I don't treat it like a child or a god, which some people do. This might just be in America, but 'stand-up comedy' is something very particular that I don't particularly relate to.
+- I'm grateful for every stupid mistake and dumb joke I tried to make.
+- A lot of my fans are really young and seem slightly unsure and nervous about things. Hopefully for young people watching my show, it comes away that I'm pretty weird up there.
+- I think comedy has a range, with multiple peaks in different areas. It's like trying to compare Beethoven and the Beatles. Sometimes I hear from people, 'I think you try too hard in your comedy.' And that's what I worry about.
+- I definitely like making music in the studio, but I never had it out to make a CD specifically.
+- I would say don't take advice from people like me who have gotten very lucky. We're very biased. You know, like Taylor Swift telling you to follow your dreams is like a lottery winner telling you, 'Liquidize your assets; buy Powerball tickets - it works!'
+- I like to inject a bit of production value and flair to comedy, or at least to my little corner of comedy.
+- All my fans saw me as some little kid who can't even afford new jeans in his room, so they'll support me. That'll work until I become a success.
+- I didn't want to bash young people. I don't want to bash a kid for dreaming or wanting something or being slightly ambitious - that's not the problem. The actual problem is with the culture surrounding him.
+- I fully embrace myself as a hypocrite.
+- Postmodern comedy doesn't work well with very old audiences, because it's making fun of the comedy they enjoy.
+- I misdirect the audience, so they have no idea where they are or who they're listening to.
+- If I was confronted with some 20-year-old American hotshot, I'd hate him.
+- I really like maths.
+- The strange thing was, when I was starting on YouTube, even the paradigm of YouTube and Internet sensation - or whatever - that didn't really exist. So I didn't even know that that was a thing.
+- I always wanted to be a comedian but never thought I'd be a musical comedian.
+- People look at me and go, 'He's only successful because he's got a bunch of 16-year-old girls at his back who don't understand comedy.' Well, they do. In any case, no one hates me more than I do; no one's more self-conscious about that than I am.
+- Comedy should be a source of positivity. I don't want to bully people, and I don't want people to come to my show to feel terrible about something. So I'm actually very open to having a conversation about what I should or shouldn't say.
+- Even in movies like 'Superbad,' they're all lovable kids.
+- I always think of myself as a comedy feeder type person, and that feeder lets themselves get out of your comfort zone as opposed to straight stand up; that feels like honing one skill, like honing one point of view.
+- The Internet is so crazy, and you're exposed to so many things. In an hour, you can really jump around.
+- Being famous is complete luck, and that's something you can't bank on.
+- I've come across people referring to themselves as 'Vine famous.' Some of them started out by putting up Vines just for fun, then all of a sudden they get a bunch of fans, and a week later their Vines are totally different. They become obsessed with how their videos will be perceived.
+- I love Tim Minchin, Bill Bailey, and Hans Teeuwen, and I'm trying to synthesise elements of theatre into my show a little bit more.
+- I just have a problem with youth culture.
+- Meta-comedy is everywhere and always seems so cold and to me is really kinda snarky.
+- There's tons of dudes - like David O'Doherty, Tim Key, and Alex Horne - I made a lot of friends with people who are really incredible comics.
+- I'm bored way too easily. I'm staring at screens half the day. I need to be overstimulated. And how will that express itself artistically?
+- At the time of 'Words, Words, Words,' I'm a 19-year-old getting up feeling like he's entitled to do comedy and tell you what he thinks of the world, so that's inherently a little bit ridiculous.
+- I know I'm probably digging for fresh fruit in the garbage, and as much as anyone, my attitude is, if stuff's sincere, it's gooey and boring and uninteresting. But it's no way to live.
+- I thought I had more of a European sense of humour than the average American comic.
+- With 'Words, Words, Words,' that show was me experimenting with something, and then there was a clear direction for me.
+- I think the love-hate is fundamental. Everyone hates reality television, and everyone's watching it. Everyone hates Facebook, and everyone is on it.
+- I'd much rather wait till my material is up to par, in my opinion, than rush it just so I can stay in the limelight a little longer.
+- I've always liked TV shows that have slightly unlikable leads, where you root for them in spite of a lot of things. I know it's not common with shows with young people; they have to be so likable. But, I mean, teenagers just generally aren't very likable. I know I wasn't as a teenager.
+- Most of my songs make fun of myself.
+- I have a pretty good math mind, so I can see patterns, but I don't have a great ear. It's like a tragedy - I can see so much more natural musical ability in so many other people.
+- I was doing theater in my high school, and I started writing sort of silly songs on the piano backstage in summer theater. I eventually put them online and started getting this little following.
+- 'Words, Words, Words' was very much its title. It's just words, words, words and trying to show that I can pack as much material into an hour as I possibly could word count-wise.
+- I've always liked the format of YouTube, sharing things for free, which is a nice exchange between people.
+- Everyone in my family is very supportive, and any mention of family in my show is just, in my idea, the funniest version of the family of the guy of who's performing.
+- I enjoy stand up so much because I take time off, and then I'll be excited to go back to it.
+- I'm left-brained, so I'm all about a mathematical approach to language. I've always been interested in that.
+- At one point when I was very young, when I was first starting out, I thought, 'Well, one day I'll be able to put all the music away and become a real comedian.' But then I realized there are amazing musical comedians out there, that musical comedy is probably something I'll always want to pursue.
+- The average person has one Fallopian tube.
+- When I see someone filming me, I don't usually think, 'No, man, don't put this up online!' I'd think, 'Hey man, you don't get to go to shows very often, put down the camera and enjoy it!' I love going to theatre and to shows so much.
+- I don't think I've had a job since I worked for my father's construction company.
+- I'd love to do something that doesn't have my stupid face in front of it. I feel like I've exhausted what I can do with my own face.
+- A few people know me, and the few people that do know me only know me because they dig my stuff.
+- I always wanted to be a comedian and actor.
+- I try and write satire that's well-intentioned. But those intentions have to be hidden. It can't be completely clear, and that's what makes it comedy.
+- I really don't like to tweet or Instagram anything about the people in my life just because I feel like I signed up for this, and I don't even know what this is yet. I do know that it could go anywhere, and I really don't want to sign other people in my life up for it without their permission or consent.
+- Once a week, I like to slip into a deep existential depression where I lose all my sense of oneness and self-worth.
+- Not enough comedy makes you feel something.
+- Music is really, really mathematical.
+- I just like to write and then perform.
+- I don't want you to think I'm better than people or that I know better than people.
+- I don't want to monitor my audience too closely, as that can really drive you crazy.
+- There's only one rule in stand-up, which is that you have to be funny. Yet 99 per cent of comics look and talk exactly the same.
+- I remember being superyoung, like nine or ten years old, and thinking, 'Man, I wonder what famous people eat for breakfast. They must have some special kind of cereal!' My mind was so warped by the idea of fame.
+- I have a show on MTV called 'Zach Stone Is Gonna Be Famous.' I think that's a secret to a vast majority of America.
+- Since I got an audience before I even had a comic voice, my material that really wasn't worthy of an audience somehow got it, slightly unfairly.
+- I'll stop when I think I'm not doing good stuff. I'll never exploit something just because people like it.
+- I've kind of stopped valuing laughter as the end-all measurement of what I'm doing.
+- For me, comedy is constantly presented as this fake casualness, like a guy just walked on stage going, 'This crazy thing happened to me the other day.' And he's in front of 3000 people, and he's acting like an everyman, and he's getting paid so much money.
+- 'what.' is bombastic introspection. It's large, colourful, and loud but hopefully intimate at the same time.
+- The unlimited amount of information that I have access to has also given me an unlimited threshold for how I need to be stimulated.
+- It's all about surprising people, and you're not surprising people if you're making them laugh every five seconds.
+- The quality of the work when I was 16... I've had my issues with it, but I've learned to forgive myself because I was 16 years old.
+- I think I wear my hypocrisy on my sleeve. I would never say I'm not a complete hypocrite.
+- At once I feel that comedy is this amazing sort of transcendent thing, and I'm also open to the fact that maybe it's just an evolutionary hiccup, something that upright apes do in their free time.
+- I really like The Beatles.
+- Don't worry, I'm hilarious.
+- I was being called a shock comic. I hated that. It's so cheap and stupid.
+- I like the idea of conceiving a show and putting on a show, and especially when I got to the place where I could play theaters.
+- I grew up listening to Steve Martin and Robin Williams, so I didn't ever intend to be a musical comedian. I sort of stumbled into it.

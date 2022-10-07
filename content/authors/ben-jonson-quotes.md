@@ -1,0 +1,38 @@
++++
+author = "Ben Jonson"
+title = "Ben Jonson Quotes"
+quotes_len = "32"
+description = "the best 32 Ben Jonson Quotes"
++++
+- Ambition makes more trusty slaves than need.
+- True happiness consists not in the multitude of friends, but in the worth and choice.
+- If you be sick, your own thoughts make you sick.
+- Neither do thou lust after that tawny weed tobacco.
+- Good men are the stars, the planets of the ages wherein they live, and illustrate the times.
+- I do honour the very flea of his dog.
+- There is no greater hell than to be a prisoner of fear.
+- Fortune, that favors fools.
+- He knows not his own strength that has not met adversity.
+- Weigh the meaning and look not at the words.
+- This is the very womb and bed of enormity.
+- O, for an engine, to keep back all clocks, or make the sun forget his motion!
+- Let them call it mischief: When it is past and prospered t'will be virtue.
+- In small proportions we just beauties see; And in short measures, life may perfect be.
+- Vice Is like a fury to the vicious mind, And turns delight itself to punishment.
+- To speak and to speak well, are two things. A fool may talk, but a wise man speaks.
+- Apes are apes, though clothed in scarlet.
+- 'Tis the common disease of all your musicians that they know no mean, to be entreated, either to begin or end.
+- Honor's a good brooch to wear in a man's hat at all times.
+- Drink to me only with thine eyes, And I will pledge with mine; Or leave a kiss but in the cup And I'll not look for wine.
+- They that know no evil will suspect none.
+- And though thou hadst small Latin, and less Greek.
+- They say Princes learn no art truly, but the art of horsemanship. The reason is, the brave beast is no flatterer. He will throw a prince as soon as his groom.
+- Ill fortune never crushed that man whom good fortune deceived not.
+- Success produces confidence; confidence relaxes industry, and negligence ruins the reputation which accuracy had raised.
+- He threatens many that hath injured one.
+- He that is taught only by himself has a fool for a master.
+- Talking and eloquence are not the same: to speak, and to speak well, are two things.
+- Art hath an enemy called Ignorance.
+- Talking is the disease of age.
+- A woman, the more curious she is about her face, is commonly the more careless about her house.
+- Language most shows a man, speak that I may see thee.

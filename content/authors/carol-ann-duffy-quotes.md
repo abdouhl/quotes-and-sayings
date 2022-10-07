@@ -1,0 +1,38 @@
++++
+author = "Carol Ann Duffy"
+title = "Carol Ann Duffy Quotes"
+quotes_len = "32"
+description = "the best 32 Carol Ann Duffy Quotes"
++++
+- I like to think that I'm a sort of poet for our times.
+- Auden said poetry makes nothing happen. But I wonder if the opposite could be true. It could make something happen.
+- I am always pleased to be asked to write a poem.
+- Edinburgh is my favourite city. We'll be doing a lot of children's theatre and galleries.
+- Poets deal in writing about feelings and trying to find the language and images for intense feelings.
+- The poem is a form of texting... it's the original text. It's a perfecting of a feeling in language - it's a way of saying more with less, just as texting is.
+- Every day is a gift with a child, no matter what problems you have.
+- You can find poetry in your everyday life, your memory, in what people say on the bus, in the news, or just what's in your heart.
+- I write in that space between Ella's childhood and mine. I know it all sounds a bit sinister.
+- I always say that I'll have a go and see whether the poem works and if it does, then fine.
+- The moment of inspiration can come from memory, or language, or the imagination, or experience - anything that makes an impression forcibly enough for language to form.
+- Poetry and prayer are very similar.
+- Between 9am and 3pm is when I work most intensely.
+- I always wanted a child. Being a mother is the central thing in my life.
+- I think the dangers are different now. Our abuse of the planet and our resources is an anxiety.
+- It's always good when women win things in fiction because it tends to be more male-dominated, unlike poetry, which is more equal.
+- The poem is the literary form of the 21st century. It's able to connect young people in a deep way to language... it's language as play.
+- I'll be left writing picture books and fairy tales.
+- I grew up in a bookless house - my parents didn't read poetry, so if I hadn't had the chance to experience it at school I'd never have experienced it. But I loved English, and I was very lucky in that I had inspirational English teachers, Miss Scriven and Mr. Walker, and they liked us to learn poems by heart, which I found I loved doing.
+- Having a child takes you back to all those parts of your own childhood that you had hidden away.
+- I still read Donne, particularly his love poems.
+- When you have a child, your previous life seems like someone else's. It's like living in a house and suddenly finding a room you didn't know was there, full of treasure and light.
+- I think poetry can help children deal with the other subjects on the curriculum by enabling them to see a subject in a new way.
+- If we think of what's up ahead, with climate change and wars over water, it's very frightening.
+- If I felt, in the event of a royal wedding, inspired to write about people coming together in marriage or civil partnership, I would just be grateful to have an idea for the poem. And if I didn't, I'd ignore it.
+- Christmas is taken very seriously in this household. I believe in Father Christmas, and there's no way I'd do anything to undermine that belief.
+- I still have a feeling that I haven't written the best that I can write. I think all poets must feel this: that there is constantly something new to be discovered in the language. It's like a thrilling encounter, and you can find things.
+- I have piles of poetry books in the bathroom, on the stairs, everywhere. The only way to write poetry is to read it.
+- My prose is turgid, it just hasn't got any energy.
+- I see the shape of the poem before I start writing, and the writing is just the process of arriving at the shape.
+- Like the sand and the oyster, it's a creative irritant. In each poem, I'm trying to reveal a truth, so it can't have a fictional beginning.
+- I write quite a lot of sonnets, and I think of them almost as prayers: short and memorable, something you can recite.

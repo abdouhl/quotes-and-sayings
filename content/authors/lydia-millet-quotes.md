@@ -1,0 +1,98 @@
++++
+author = "Lydia Millet"
+title = "Lydia Millet Quotes"
+quotes_len = "92"
+description = "the best 92 Lydia Millet Quotes"
++++
+- If the dinosaurs are any indication, there's a place in our pantheon for the extinct. My son has a blue plushy allosaurus he calls Spot-Spot, with whom he often sleeps.
+- When 'Watchmen' was published in 1986, the vast majority of comics readers deemed it a watershed in comics history. The 12-part serial comic book was widely acclaimed as a genius subversion of the superhero genre, and it did much to popularize comics to adults.
+- Indeed, the hype around 'Watchmen' is its curse. If you want to enjoy the comic for what it is, ignore the attributions of literariness and the novelistic pretensions with which some critics have imbued it. This isn't high culture, and it doesn't pretend to be. It's good, juicy pulp fiction with a little nuclear apocalypse thrown in.
+- 'Dept. of Speculation' contains numerous enviable lines.
+- I came to understand that a German nudist, in 1984, loved little more than to work on his or her tan.
+- Economic and health statistics, as well as police-violence statistics, shed light on the pressures on American Indian communities and individuals: Indian youths have the highest suicide rate of any United States ethnic group.
+- In October 2014, for the first time in almost three-quarters of a century, a gray wolf was seen loping along the forested North Rim of the Grand Canyon, in Arizona. She had walked hundreds of miles, probably from Wyoming or Idaho.
+- When it comes to American Indians, mainstream America suffers from willful blindness.
+- Fiction should be an ethically safe space, free of fancy ideas. It should be dedicated modestly to relationships or escapism or the needs of luscious voyeurs.
+- As soon as a regular guy like Bill Clinton becomes the president, he wears a mantle of greatness. He's the president.
+- I had hoped that going to Hiroshima would reveal something small, gritty, and precise to countervail the epic quality of historical accounts.
+- Without even knowing why, we believe that to learn how to be human - which we have many years to do, for human beings have longer childhoods than any other species, a feature that to biologists and philosophers alike is one of our race's distinguishing characteristics - children must be surrounded by animal imagery.
+- I like to amuse myself.
+- Marriage is like the romantic ideal, and yet the trappings around it and the culture about it are really the opposite of that.
+- Oil drilling and coal mining are killing endangered wildlife, polluting rivers, creating smog over wilderness areas and blocking wildlife corridors in America's most treasured landscapes.
+- In Hiroshima, bombed Aug. 6, 1945, no warning was given of the air attack, and thus no escape was possible for the mostly women, children and old people who fell victim.
+- If you're going to do a thing, do it fully so that no writing you give the world misrepresents you - so that nothing you put out there is like a sad regift you couldn't throw away and had to find a place for.
+- There is a lot of contradictions of mermaids as a symbol. I'm always interested in contradictions.
+- In Nagasaki, American planes did drop warning leaflets - but not till Aug. 10, a day after the city was bombed.
+- On climate change, we have only a handful of years to make massive changes, according to the scientists. The politicians have to act, and only the people can make them, because Royal Dutch Shell's not going to do it.
+- I think that young readers have very strong stomachs.
+- Do we seek delicate phraseology in politics or other forms of public life? We do not.
+- If Oak Flat were a Christian holy site or, for that matter, Jewish or Muslim, no senator who wished to remain in office would dare to sneak a backdoor deal for its destruction into a spending bill - no matter what mining-company profits or jobs might result. But this is Indian religion.
+- Most of my books have something to do with L.A.
+- Wyoming, home to Yellowstone National Park and the Grand Tetons, is also the country's largest coal producer and one of its largest gas drillers. Two-thirds of the state's gas-drilling rigs are on public lands in the increasingly industrialized Greater Green River Basin.
+- I advise, if you're stymied by a passage or paragraph or plot point - whether it's for an assignment from the outside world or one that comes only from within - get up from wherever you're sitting, walk outdoors, and do nothing but look at the sky for five minutes. Just stare at that thing. Then execute a small bow and go back in.
+- I love irony.
+- Both climate change and extinction are results of our tyranny over the nonhuman world and our domination of, and exploitation of, whole categories of each other - and those, in turn, are clearly linked to agriculture, the cattle-industrial complex, capitalism.
+- I think the best fiction is a form of psychological suspense, even though I don't really write in that idiom.
+- Pugs are creatures of habit.
+- Children depend mightily on animals for comfort, inspiration, imagination, and art. And parents have long recognized this.
+- I don't tend to picture my characters as actors and actresses.
+- It seems to me that the time for subtlety in our American life has passed.
+- I'm for any woman who loves sloths.
+- About half of all potential future global warming emissions from United States fossil fuels lie in oil, gas and coal buried beneath our public lands, controlled by the federal government and owned by the American people - and not yet leased to private industry for fuel extraction.
+- In December 2011, a wild gray wolf set foot in California, the first sighting in almost a century. He'd wandered in from Oregon, looking for a mate.
+- I'm not calculating enough in the way I approach writing.
+- Historically, grizzlies ranged from Alaska to Mexico, with at least 50,000 bears living in the western half of the contiguous United States. With European colonization, the bears were shot, poisoned, and trapped to the brink of extinction.
+- Domestic realism has dominated the American marketplace for decades now. It leeches into literary fiction, and I don't think it's that rich a vein.
+- No one bought my screenplays.
+- We read our children stories starring elephants and monkeys and bears to teach them about nobility, curiosity and courage, to warn them against selfishness and stubbornness.
+- Without elephants, Africa's landscape would be unrecognizable, yet these animals have fallen by the hundreds of thousands as a result of two enormous waves of poaching in this century - one in the 1970s and 1980s, the other, beginning around 2009, now underway.
+- I never seem to leave L.A., though I left L.A.
+- Snark describes a cynical position, and I'm not interested in that.
+- At 16, I was more resilient and easygoing than I am now.
+- You're lucky if people like your book, and the more people that like it, the luckier I feel.
+- More than two million years ago, mammoths and Asian elephants took different evolutionary paths - and around the same time, according to DNA research, so did their lumbering relatives in Africa.
+- The comic novels I did when I was in my 20s had a harder edge - less sympathy for people. Or a sympathy that was harder to detect: Characters' foibles and obsessive bents were unrelenting, like caricatures.
+- One man's holy is another woman's sublime.
+- If you're doing creative work, that work should never feel trivial - even if what you're doing is for hire or lightly intended. Even the mundane doesn't have to be trivial.
+- The grizzly bears that live in and around Yellowstone make up almost half the population in the lower 48 states, and now those bears are at risk.
+- Names and other proper nouns shouldn't distract from the language.
+- Everyone desires to laugh sometimes, and I want to make that available.
+- We were a Seuss family. As a child, I read almost all of his books, but the one I loved best was 'The Lorax.'
+- You need not fear my extinction. Fear my proliferation! I've already reproduced!
+- Most climate debates have focused on cutting the use of fossil fuels. But besides a few high-profile scuffles over fuel extraction in vulnerable wild places like the offshore Arctic, political leaders have ignored fossil fuel production as a necessary piece of climate strategy.
+- African elephants have long been thought of as a single species, but a critical mass of genetic studies now proves there are two.
+- Trophy hunters are not Everyman. These world-traveling endangered-species shooters are a far cry from the hunters who spend weekends in the American outback near their suburban or rural homes.
+- I can be pretty dense about my own basic needs, when my focus is getting through the many small tasks of a day's work and a day's caretaking.
+- L.A., for me, is a perfect microcosm of America - because it's so profligate, and so glamorous, and so anti-intellectual, finally.
+- The Safari Club International has worked the legal system hard to try to keep polar bears - threatened primarily by climate change, but also by hunting - on the list of creatures people can import as trophies after shooting.
+- I don't write the same book twice.
+- My motto is, if you love something, don't set it free. No matter how hard it struggles. That would be stupid.
+- The Free Body Culture gave me a gift I might never have received had I refused to play along. It left me with an acute sense of the absurd - one I still cherish - to be there among my fellow apes, awkward and less than half-willing, aiming and missing, leaping, landing and wincing.
+- I've always been interested in obsessive, insane people.
+- Within the macho-melodrama tropes of the superhero genre, it's fair to say 'Watchmen' stands out for its rich entertainment, its darkness, and its lurid pleasures. Its vividly drawn panels, moody colors and lush imagery make its popularity well-deserved, if disproportionate.
+- The male domination and chauvinism of the comics form is either being wittily lampooned in 'Watchmen' or handily perpetuated, depending on whom you ask.
+- Work-wise, I try not to repeat myself too often. And I have to love whatever I'm doing.
+- What makes 'The Lorax' such a powerful fable is partly its shamelessness. It pulls no punches; it wears its teacher heart on its sleeve.
+- It's a friendly act to write a lighthearted book.
+- I worry about the very pernicious way we elevate and separate ourselves from other beasts, the way we rationalize our comfort and ease, our worship of the self, as healthy. It's enticing, but with a terrible taint of evil.
+- For almost two centuries, American gray wolves, vilified in fact as well as fiction, were the victims of vicious government extermination programs. By the time the Endangered Species Act was passed in 1973, only a few hundred of these once-great predators were left in the lower 48 states.
+- If I can't find a way to love it, I let it go. Kind of the opposite of the popular homily.
+- In 1805, the explorers Meriwether Lewis and William Clark, making their way across the West, were warned by American Indian tribes of grizzly bears' awesome strength.
+- At writing workshops, they taught us to show, not tell - well, showing takes time.
+- Shouldn't the cascades of extinction and rapid planetary warming register in our literature?
+- I wanted to write about this tropical honeymoon in part because I had the most drastically terrible honeymoon.
+- There has to be space for play in literature. We all need some breathing room.
+- People who are obsessed amuse me.
+- After numerous generations of people dedicated to killing wolves on the North American continent, one generation devoted itself to letting wolves live.
+- We paint a slow picture. You can see the brushstrokes. We don't get to the point, and sometimes when we do, our readers don't notice, in fact. It's so couched in nuance, it can fly right over a person's head. 'What was that you said? I couldn't quite make it out.'
+- When I was 16, I went to Berlin - West Berlin, since at that time a wall still divided the city - to live for three months with a family on an exchange program.
+- I've seen a few wild grizzly bears, mostly in Alaska and British Columbia, and always from a distance. But each grizzly I've caught sight of was as fearsome and sublime as the last. You never get used to their raw power and massive bodies, or the mysterious intelligence in their dark, close-set eyes.
+- I have a king bed, one of those memory-foam mattresses that doesn't jiggle as you get in or out. Even if you cleaved it down the middle with a pickax, the thing wouldn't tremble. It's practically earthquake-proof.
+- The summer after I got divorced, my children asked to sleep in my bed again. It would be the first time we'd shared a bed since they were infants.
+- I wanted to go into the tropics and save animals - and write, of course.
+- The question of one versus two species of African elephants isn't about settling an arcane DNA argument; it's about life or death for these majestic, extraordinary creatures.
+- In the 1970s, Safari Club International asked the federal government to approve its import of 1,125 not-yet-killed trophies of 40 endangered species, including gorillas, orangutans and tigers, according to the Humane Society of the United States.
+- I used to try to write around the edges, but now I try to walk a more direct line.
+- I've always wondered: is there really any access to the White House?
+- I don't like names that are clever or made-up sounding.
+- People from the rest of the state tend to hate Phoenix, with that typical resentment of the boroughs and the towns for the big city.

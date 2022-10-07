@@ -1,0 +1,53 @@
++++
+author = "Rowan Atkinson"
+title = "Rowan Atkinson Quotes"
+quotes_len = "47"
+description = "the best 47 Rowan Atkinson Quotes"
++++
+- I'm not a collector. I don't like the toy cupboard syndrome that causes so many good cars to evaporate.
+- No, no, I was only funny on stage, really. I, I, think I was funny as a person toward my classmates when I was very young. You know, when I was a child, up to about the age of 12.
+- I have always worried about things more than I should.
+- I'm more critical of the films I make than anyone else.
+- When I was doing Bean more than I've done him in the last few years, I did strange things - like appearing on chat shows in character as Mr. Bean.
+- I'm very good at having time off. I tend to take whole years off - I had 1994 and 1997 off. I find it very easy; I just love pottering around doing normal things.
+- I have always regarded Mr. Bean as a timeless, ageless character, and I would rather he be remembered as a character mostly in his 30s and 40s.
+- You're about as useful as a one-legged man at an arse kicking contest.
+- It's a bit disconcerting being treated like Madonna.
+- To criticize a person for their race is manifestly irrational and ridiculous, but to criticize their religion, that is a right. That is a freedom.
+- I suddenly think the job of acting is a difficult one. It's not as flip, irrelevant and shallow a calling as I thought it was in the Eighties.
+- I want to express myself in a different way. I have a performing inclination.
+- Apart from the fact that your physical ability starts to decline, I also think someone in their fifties being childlike becomes a little sad. You've got to be careful.
+- I mean I can do it when I'm very relaxed, and with good friends, then I think I can be amusing.
+- I would return to the Blackadder character if the opportunity came up. I have no qualms about that at all.
+- In the modern media age we are rarely surprised by what we see. Whether it's on television or film or in the theatre, everything is so advertised, so trailed, that most entertainment is merely what you thought it was going to be like.
+- Of course, some would say if you have a performing inclination, then you should become a lawyer. That's a platform we use, or a priest. You know, anywhere you lecture and pontificate to people.
+- I like to juggle with one ball at a time. Then I put the ball down and do nothing for extended periods of time.
+- But generally speaking, I tend to be quiet and introspective.
+- Monty Python crowd; half of them came from Cambridge, and half of them came from Oxford. But, there seems to be this jewel, this sort of two headed tradition of doing comedy, of doing sketches, and that kind of thing.
+- I consider myself more of a visual comedian than a physical one.
+- People think because I can make them laugh on the stage, I'll be able to make them laugh in person. That isn't the case at all. I am essentially a rather quiet, dull person who just happens to be a performer.
+- Get that right, then- if you get the quality right, then the marketability or whatever; your ability to sell videos or your ability to earn money or whatever, will follow naturally. But try to be creatively lead rather than market lead. And that's important to me.
+- I don't much enjoy Back and Forth. I mean, I think it has its own particular qualities, but I think it's inferior to any of the half-hour ones we did.
+- We still have a tradition certainly in English television; it's faded a bit in the last five years, but we still have a tradition where the important thing is the quality and the challenging nature of the programming.
+- Mr. Bean is essentially a child trapped in the body of a man. All cultures identify with children in a similar way, so he has this bizarre global outreach.
+- In TV, and in particular in commercials, you don't really need to explain very much at all - you just say he's a spy and he's a little bit theatrical and overblown and smug and he's not very good at his job.
+- And what's interesting about him as a comic character is that the custard pie hardly ever ends up on his face.
+- Not so much in Canada, but certainly in the US, as I'm sure you know, money is all, and if they can get another 26 programs of the same thing even though it advances the culture or those actor's careers not at all it doesn't matter.
+- Mr. Bean is at his best when he is not using words, but I am equally at home in both verbal and nonverbal expression.
+- There is always that age-old thing about England and America being divided by a common language. You think that because we speak English and you speak English that you're bound to understand and like everything that we do. And of course you don't.
+- Nope, I don't enjoy work generally. Not because I'm lazy; it's just all so stressful and worrying.
+- I think the character does tend to suit an episodic thing, because what's fun about him is that he doesn't care about anyone else, and it's very difficult for a main character - a lead character - in a movie to not care about anybody else.
+- I think I have an inner confidence that my tastes are pretty simple, that what I find funny finds a wide audience. I'm not particularly intellectual or clever or minority-focused in my creative instincts. And I'm certainly not aware of suppressing more sophisticated ambitions.
+- The older you get, the more you realise how happenstance... has helped to determine your path through life.
+- I enjoy racing historic motorcars from the '50s and '60s. The seed of my interest was planted when I was about 12 years old and took over my mother's Morris Minor. I drove it around my father's farm. But my favorite car is still a McLaren F1, which I have had for 10 years.
+- I have to say that I've always believed perfectionism is more of a disease than a quality. I do try to go with the flow but I can't let go.
+- But, actually, so many of the clerics that I've met, particularly the Church of England clerics, are people of such extraordinary smugness and arrogance and conceitedness who are extraordinarily presumptuous about the significance of their position in society.
+- It's not easy to take a sit-com and turn it into a feature.
+- It's the difficulty we had with Mr. Bean, actually, when it went from TV to film. You certainly discover that you need to explain more about a character.
+- Marketing is what gets you noticed, and that side of it something - this side of it, if you like, doing interviews - is the side of it that I least enjoy, and yet is 50% of the project.
+- But I always feel that whatever I do, I could do better. I suppose it is perfectionism.
+- I feel as though the camera is almost a kind of voyeur in Mr. Bean's life, and you just watch this bizarre man going about his life in the way that he wants to.
+- And, we put a lot more value, or at least I personally put a lot more value, on the creative values and creative challenges of something than the commercial necessities.
+- Funny things tend not to happen to me. I am not a natural comic. I need to think about things a lot before I can be even remotely amusing.
+- Confronting a stadium audience, you can't see the whites of their eyes. It's just an amorphous mass of noise and, of course, you can't see the alleged billions watching at home either, so the degree to which you are intimidated is quite low.
+- The clear problem of the outlawing of insult is that too many things can be interpreted as such. Criticism, ridicule, sarcasm, merely stating an alternative point of view to the orthodoxy, can be interpreted as insult.

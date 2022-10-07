@@ -1,0 +1,32 @@
++++
+author = "Roland Martin"
+title = "Roland Martin Quotes"
+quotes_len = "26"
+description = "the best 26 Roland Martin Quotes"
++++
+- I type my sermon notes into my BlackBerry, then I upload my sermon notes to my blog, my Facebook page and some of the information to my Twitter account. That's 100,000 people I'm sharing the Gospel with by the virtue of typing it into my BlackBerry as opposed to writing it down. That is being efficient with my time.
+- Radio has always been a niche business. Cable television has always been a niche business. Magazines have always been a niche business.
+- If you are a Democrat, and you get less than 90% of the black vote, you are going to likely lose your election.
+- I think faith is vitally important to your day, your seconds in each day. Faith helps to get you through the day.
+- When you build your own brand, people will still return your phone calls regardless of the call letters or where you actually work, because they now know you and they trust you in what you have to say and what you're doing. That, to me, is the most important aspect when it comes to building your brand.
+- Even though we are a nation that's becoming a minority country, we still have this view where everything is seen through the prism of the dominant culture, which really means white.
+- The black vote is always important, and the reason is it serves as a tremendous base for the Democratic Party. On the national level, Democrats traditionally receive at least 90 percent of the black vote.
+- If you want to age a lot of years, become president.
+- My life has never been defined as Roland Martin, CNN; Roland Martin, TVOne; or Roland Martin, 'Tom Joyner Morning Show.' I'm appreciative of all of those platforms, but I've done all different things. I'm still Roland Martin.
+- I think it's important for people to always understand what is the context is in what is being said, because that obviously determines what folks are talking about.
+- We can change the direction of the country with our vote.
+- My audience expects cold, hard truth. They don't expect me to dance around it. They expect me to say it the way they think it. That's part of my brand. If I don't do that, then my audience goes, 'What's up? Is he sick or something? What's wrong with him?' The entity has a brand.
+- My voice is not going to be silenced by anybody.
+- I was never quiet when I worked at @cnn, when we did dumb stuff. You can't just take the check & stay quiet. Truth demands a voice: speak up.
+- I'm a fierce advocate for diversity. Always have been, always will be.
+- If companies are able to have multiple revenue streams and have their hands in multiple pools of money, then why shouldn't the people who actually work for those brands be able to do the exact same thing?
+- We need people who truly live their faith, represent their faith, speaking to the issues of faith through a faith prism as opposed to just having folks talking about faith when there is a crisis.
+- When I was in meditation, God began to speak to me, and God said, 'Roland, I have enough preachers. I need people where you are in your positions. When you are on radio, when you are on television, you speak into more people in the five minutes than some preachers speak to in an entire year.'
+- I found that quiet place in my home that is my place of refuge. I don't care if you got kids or if you are married. You got to find that one place that is your everybody-off-limit place: unless this place is on fire, or you need to go to the emergency room, don't disturb me. You can go to this place and cleanse, meditate, let God speak to you.
+- I read several books at one time.
+- Your life is not defined by the one place where you work.
+- There are some people that look at faith as a part of their life, and there are those like me that look at faith as the essence of their life. I look at all things through my faith.
+- I've lost jobs before; I've had contracts not renewed, and it didn't get me down. I didn't get upset; I just keep it moving. That has always been the case, and that will always be the case. You must look out for you.
+- When you put yourself out there, you're putting yourself in the position to make a mistake.
+- Everybody can adore you because you're on television, but at the end of the day, when you're no longer on TV, who's still there? It's family.
+- I can't talk about the education of black children if I ignored two of my nieces who were a couple of grade levels behind. I believe that charity begins at home, and I take seriously the role of a godfather to fill the gap when the parents aren't doing their job.

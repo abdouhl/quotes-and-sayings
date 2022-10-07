@@ -1,0 +1,39 @@
++++
+author = "Carter G. Woodson"
+title = "Carter G. Woodson Quotes"
+quotes_len = "33"
+description = "the best 33 Carter G. Woodson Quotes"
++++
+- In our so-called democracy we are accustomed to give the majority what they want rather than educate them to understand what is best for them.
+- When you control a man's thinking you do not have to worry about his actions.
+- If the Negro in the ghetto must eternally be fed by the hand that pushes him into the ghetto, he will never become strong enough to get out of the ghetto.
+- The large majority of the Negroes who have put on the finishing touches of our best colleges are all but worthless in the development of their people.
+- The strongest bank in the United States will last only so long as the people will have sufficient confidence in it to keep their money there.
+- If the white man wants to hold on to it, let him do so; but the Negro, so far as he is able, should develop and carry out a program of his own.
+- We do not show the Negro how to overcome segregation, but we teach him how to accept it as final and just.
+- The Negroes are facing the alternative of rising in the sphere of production to supply their proportion of the manufacturers and merchants or of going down to the graves of paupers.
+- I am ready to act, if I can find brave men to help me.
+- Let us banish fear.
+- The different ness of races, moreover, is no evidence of superiority or of inferiority. This merely indicates that each race has certain gifts which the others do not possess.
+- The mere imparting of information is not education.
+- And thus goes segregation which is the most far-reaching development in the history of the Negro since the enslavement of the race.
+- One can cite cases of Negroes who opposed emancipation and denounced the abolitionists.
+- They still have some money, and they have needs to supply. They must begin immediately to pool their earnings and organize industries to participate in supplying social and economic demands.
+- The author takes the position that the consumer pays the tax, and as such every individual of the social order should be given unlimited opportunity to make the most of himself.
+- If Liberia has failed, then, it is no evidence of the failure of the Negro in government. It is merely evidence of the failure of slavery.
+- Even schools for Negroes, then, are places where they must be convinced of their inferiority.
+- As another has well said, to handicap a student by teaching him that his black face is a curse and that his struggle to change his condition is hopeless is the worst sort of lynching.
+- This crusade is much more important than the anti- lynching movement, because there would be no lynching if it did not start in the schoolroom.
+- Negroes who have been so long inconvenienced and denied opportunities for development are naturally afraid of anything that sounds like discrimination.
+- The thought of' the inferiority of the Negro is drilled into him in almost every class he enters and in almost every book he studies.
+- I am a radical.
+- Those who have no record of what their forebears have accomplished lose the inspiration which comes from the teaching of biography and history.
+- In the long run, there is not much discrimination against superior talent.
+- I am not afraid of being sued by white businessmen. In fact, I should welcome such a law suit.
+- The so-called modern education, with all its defects, however, does others so much more good than it does the Negro, because it has been worked out in conformity to the needs of those who have enslaved and oppressed weaker peoples.
+- This assumption of Negro leadership in the ghetto, then, must not be confined to matters of religion, education, and social uplift; it must deal with such fundamental forces in life as make these things possible.
+- If a race has no history, if it has no worthwhile tradition, it becomes a negligible factor in the thought of the world, and it stands in danger of being exterminated.
+- In fact, the confidence of the people is worth more than money.
+- Our most widely known scholars have been trained in universities outside of the South.
+- If the Negroes are to remain forever removed from the producing atmosphere, and the present discrimination continues, there will be nothing left for them to do.
+- Negro banks, as a rule, have failed because the people, taught that their own pioneers in business cannot function in this sphere, withdrew their deposits.

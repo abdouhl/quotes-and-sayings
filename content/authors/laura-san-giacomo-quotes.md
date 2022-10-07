@@ -1,0 +1,19 @@
++++
+author = "Laura San Giacomo"
+title = "Laura San Giacomo Quotes"
+quotes_len = "13"
+description = "the best 13 Laura San Giacomo Quotes"
++++
+- We've all had those moments where we take a person for granted.
+- There are amazing schools and amazing educators that are doing a wonderful job. And then there are a lot of educators that are not prepared to deal with inclusive education. They haven't been trained. It's really quite lovely and easy when you understand how to do it.
+- Certainly situation comedy is harder than people who are good at it make it look, but it's fun to do something different.
+- The world is changing and the physical barriers are down now. It's time for the emotional barriers to go down. And what better place to start than school?
+- I knew that I wanted to be an actor. Then it became about whether acting wanted me. So, I gave it a shot. It hasn't worked out too bad, so far.
+- I'm a bit of a layman physics junkie. I don't really understand it, but I love trying to understand it.
+- I did theater at Carnegie, and in Pittsburgh and New York.
+- I went to college in Pittsburgh at Carnegie Mellon University... studied acting there. Then I went to New York for about five years. I moved out here about 10 years ago.
+- I have a son, Mason, who is disabled - cerebral palsy - and he does not walk independently, sit independently or speak. He uses a talking computer. I started becoming an advocate for him when he was 3 years old.
+- I am willing to lend that hand, I will continue to stay involved with my charities as long as they need me.
+- I believe in giving back.
+- For all of my fortune, there are many with misfortune that need a hand.
+- It's fun to get really intense and emotionally detailed and complicated.

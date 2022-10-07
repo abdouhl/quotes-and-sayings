@@ -1,0 +1,14 @@
++++
+author = "Barbara Lynn"
+title = "Barbara Lynn Quotes"
+quotes_len = "8"
+description = "the best 8 Barbara Lynn Quotes"
++++
+- I go on stage with what God gave me - and that's a natural high. I don't need nothing to perk me up. The audience picks me up enough. That's the total God's truth.
+- I tell my grandchildren - I've got seven of them - to go to college and get that degree first. I could have stayed in college and still recorded. Isn't that something? The kids of today are doing it.
+- In my relationship with a young guy I was going with in a band - his name was Sylvester, and I think he had another little girl on the side - I told him, 'If you lose me, you're going to lose a good thing.' And I went home and put that poem to music.
+- I really wish that I would have gone to college. Even my son, who's into rap himself, I tell him and tell his children, 'Go to college. Get that education - it is so important. Don't do like I did.' I had all this singing on my mind, and I just didn't have time for it.
+- I decided that playing piano was a little bit too common, you know what I mean?
+- You'd always see a lady or a little girl sitting at a piano. I decided I wanted to play something more unexpected, so that's when I got interested in learning to play the guitar.
+- I've gotta stick to my roots, and my roots are blues.
+- God has taken care of me, and mother dear has taken care of me, too. All my life.

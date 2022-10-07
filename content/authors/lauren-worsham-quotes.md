@@ -1,0 +1,17 @@
++++
+author = "Lauren Worsham"
+title = "Lauren Worsham Quotes"
+quotes_len = "11"
+description = "the best 11 Lauren Worsham Quotes"
++++
+- My brother sings. My brother is a singer-songwriter. His name is Parker Ainsworth. He changed his last name to his middle name.
+- Growing up, the dream was to be on Broadway. I always loved theater.
+- I was actually tone deaf until I had tumors in my ears - I had very small ear canals - removed. Once they fixed that, I was actually able to sing in a pleasant manner.
+- Austin is a big music town, so growing up, I had a lot of local heroes. Toni Price I was very, very into; she was one of the first people I tried to emulate. She's a local Austin blues artist. Marsha Paul I was also a very big fan of.
+- It really is like a disease. I just couldn't get away from the theater.
+- I was one of those kids who liked a lot of attention. I was always the kid in class who'd be telling jokes and getting in trouble. Theater was a natural way for me to channel that and also become a productive member of society.
+- I love rock and opera, and I love musical theater, and I don't want to lose any of that.
+- After 'Spelling Bee,' I started landing more jobs... I got 'Candide' at New York City Opera.
+- I played Jonathan Livingston Seagull in a musical version of 'Jonathan Livingston Seagull' in Austin, TX. It was pretty special.
+- Really, the impetus driving me is I've always sung, but I like to act, I like drama, I like text, which is why opera is something I've come late to, I'd say.
+- I only worked theater jobs, but they were all really silly when I first graduated. I was a line monitor at 'Spamalot,' which means I got there at 8 A.M. and told people how much the tickets were for standing room. I was an NYU Medical School fake patient, to teach doctors how to talk to patients.

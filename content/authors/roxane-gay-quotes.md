@@ -1,0 +1,99 @@
++++
+author = "Roxane Gay"
+title = "Roxane Gay Quotes"
+quotes_len = "93"
+description = "the best 93 Roxane Gay Quotes"
++++
+- Margaret Sanger didn't just introduce the idea of birth control into our culture at large, she freed women from indenture to their bodies.
+- Something outrageous, in the truest sense of the word, is always happening. On social networks, we're always voicing our reactions to these outrageous events. We read essays and 'think pieces' about these outrageous events. We comment on the commentary. We do this because we can.
+- If I am ever in the spotlight, I want to look good.
+- In truth, I don't care about making feminism more accessible to anyone.
+- It sometimes feels like the workplace is immune from social upheaval. We go to work and do the best we can, and at the end of the day, we return to our lives. We don't abandon who we are, however, when we begin and end our workday. Who we are shapes how we are perceived in the workplace and, in turn, how we perform in the workplace.
+- Day after day with them, I see more and more of my parents in me. I see where all my quirks come from. I see my future.
+- For celebrities, privacy is utterly nonexistent. You are asked intrusive questions about your personal life. You can be photographed at any moment.
+- Everyone else thinks I'm a nonfiction writer. I think it's because my nonfiction is easier to find. But I write both in equal measure. I love writing fiction because I can totally lose myself, and I get to make up the rules of the world that I'm writing.
+- It's disheartening that people think that Donald Sterling is the outlier and that he's the exception and not the rule.
+- I have never dreamed of being a princess. I have not longed for Prince Charming. I have and do long for something resembling a happily ever after. I am supposed to be above such flights of fantasy, but I am not. I am enamored of fairy tales.
+- I read too many romance novels during my formative years. I have a penchant for romantic comedies. I understand why 'Romeo and Juliet' came to such a pass.
+- If a woman wants to take her husband's name, that's her choice, and I still think she can be feminist while doing that.
+- In Haiti, beach bodies are simply bodies, and beach reads are simply books, because the beach is all around you.
+- Social media is something of a double-edged sword. At its best, social media offers unprecedented opportunities for marginalized people to speak and bring much needed attention to the issues they face. At its worst, social media also offers 'everyone' an unprecedented opportunity to share in collective outrage without reflection.
+- What worries me is that 'post-racial' America is not that different from the Americas that have preceded us, and it might not ever be.
+- We bear witness to the worst of human brutality, retweet what we have witnessed, and then we move on to the next atrocity. There is always more atrocity.
+- Maybe true love isn't out there for me, but I can sublimate my loneliness with the notion that true love is out there for someone.
+- I think it was really entering my 30s that I began to embrace feminism and call myself a feminist.
+- I support anything that broadens the message of gender equality and tempers the stigma of the feminist label. We run into trouble, though, when we celebrate celebrity feminism while avoiding the actual work of feminism.
+- I recognize that I'm human, and the older I get, the more I realize how fallible I am, how fallible we all are.
+- My parents have been married for 42 years. Their marriage has been - from what I can see - a happy one.
+- If I were ever to grace the pages of 'Vogue,' I would want my image retouched because the audience is so vast. There is great vulnerability in being exposed to that many judging eyes. I feel no small amount of guilt over this willingness to surrender my ideals.
+- After the Boston Marathon bombings, people shared grief and outrage on social media.
+- In Hollywood, a normal-size body is unruly.
+- We have cellphones and smartphones and iDevices and laptops and the ability to be perpetually connected. We never have to miss anything, significant or insignificant.
+- When advertisers ignore diversity, it is because they don't think the lives of others matter. There is not enough of a financial imperative for those lives to matter.
+- Florida is a strange place: hot, beautiful, ugly. I love it here, and how nothing makes sense but still, somehow, there is a rhythm.
+- Pink is my favourite colour. I used to say my favourite colour was black to be cool, but it is pink - all shades of pink. If I have an accessory, it is probably pink.
+- I'm sick of hearing, thinking and talking about Woody Allen. Nonetheless, the allegations against him continue to capture our national attention because so much of the story is strange and sordid.
+- I want to take the time to think through how I feel and why I feel. I don't want to feign expertise on matters I know nothing about for the purpose of offering someone else my immediate reaction for their consumption.
+- There is an odd assumption that compassion and care are finite or that critics can be everything to everyone - commenting on everything simply because they can. That's not what cultural criticism is.
+- We all have our vanities. The retouching magazines like 'Vogue' do is the professional version of the retouching we do when we, for example, apply Instagram filters to the pictures we take and share on our social networks.
+- It's so hard to write about countries like Haiti because there's truths behind the misperceptions people have. But there's so much more. There are multiple truths.
+- If you feel like it's hard to be friends with women, consider that maybe women aren't the problem. Maybe it's just you.
+- I try to understand faith and religion. I was raised by wonderful Catholic parents who were deeply faithful and taught us that God is a God of love.
+- It's an amusing idea to some, this feminism thing - this audacious notion that women should be able to move through the world as freely, and enjoy the same inalienable rights and bodily autonomy, as men. At least, that's the impression given when feminism and feminists are all too often the targets of lazy humor.
+- This is the real problem feminism faces. Too many people are willfully ignorant about what the word means and what the movement aims to achieve.
+- We were the only black family in my neighborhood for many years. Wherever we lived, we were often the only black family, and certainly the only Haitian family. But my parents were really great at providing a loving home where we could feel safe and secure.
+- I am failing as a woman. I am failing as a feminist. To freely accept the feminist label would not be fair to good feminists. If I am, indeed, a feminist, I am a rather bad one. I am a mess of contradictions.
+- I tend to write three to four hours a day, depending - oftentimes very late at night. When I write on Twitter, I do other things: I'm working, grading, or reading, and I'm procrastinating, and I'll pop on Twitter and be like, 'Hey, what's up? Yogurt's delicious.'
+- I have known beaches, but I have no particular fondness for them. I don't like sand in my crevices. I don't like sand at all. I don't enjoy all that sunshine and heat without the benefit of climate control.
+- We have to believe that we can hold different points of view without labeling each other bad feminists.
+- I am 39. I am single. I am a black woman. I have too many advanced degrees. Many a news story tells me finding true love is likely a hopeless proposition. Now is the time when I need to believe in fairy tales.
+- I think Lena Dunham is a very bright and very interesting writer, and what she's accomplished at such a young age absolutely impresses me.
+- I live in Indiana and teach at Purdue University, a wonderful school with some of the brightest students I have ever had the privilege of working with. My colleagues are powerful and intelligent and kind. The cost of living is low, the prairie is wide, and on clear nights, I can see all the stars in the sky above.
+- Feminism is just an idea. It's a philosophy. It's about the equality of women in all realms. It's not about man-hating. It's not about being humorless. We have to let go of these misconceptions that have plagued feminism for 40, 50 years.
+- It would be easy to assume that the open letter is a symptom of the Internet age. Such is not the case. In 1774, Benjamin Franklin wrote an open letter to the prime minister of Great Britain, Lord North - a satirical call for the imposition of martial law in the colonies.
+- The first amendment makes it clear that we are free to practice religion without government interference. The Constitution also establishes the separation of church and state so that the laws we live by our never guided by religious zeal.
+- No one is helped when cultural critics use their voices irresponsibly.
+- I think the world is ambivalent about feminism. So I can't blame college students. I think they're reflecting the greater culture's attitude toward feminism. So what I can do is, in ways that are appropriate, advocate for feminism and help the students learn what feminism is about.
+- There has been, and there will continue to be, vigorous discussions about race in America. I worry that little will come of these discussions because we aren't addressing what must be done to change the current racial climate.
+- When I was a child, my parents took my brothers and me to Port-au-Prince during the summer so we could get to know the country of our ancestors. Because Haiti is an island, the beach is everywhere. Haitians are particular, even snobby, about beaches.
+- I was in love with the idea of love, so I created elaborate fictions for my relationships - fictions that allowed me to believe that what any given paramour and I shared looked a lot like love.
+- We cannot sway extremists with rational thought or with our ideas of right and wrong.
+- Internet outrage can seem mindless, but it rarely is. To make that assumption is dismissive. There's something beneath the outrage - an unwillingness to be silent in the face of ignorance, hatred or injustice. Outrage may not always be productive, but it is far better than silence.
+- There are all kinds of people who continue to be largely ignored by advertisers, whose lives largely go unseen. They deserve their moment.
+- When I drive to work, I listen to thuggish rap at a very loud volume, even though the lyrics are degrading to women and offend me to my core. I am mortified by my music choices.
+- Definitely, there is a sense in my writing that people now know me in a personal way. And to an extent, that's true because I write about very personal things, and I use the personal often to contextualize some of these sociopolitical issues that we're dealing with. And to an extent, they're right. They know something about me.
+- Throughout any given season of 'The Bachelor,' the women exclaim that the experience is like a fairy tale. They suffer the machinations of reality television, pursuing - along with several other women, often inebriated - the promise of happily ever after.
+- I keep trying to imagine a universe in which too many public figures declaring themselves feminists would be a bad thing.
+- I would love for everyone to be a feminist, but I have to respect people's choices. If you don't want to be a feminist and don't want to claim feminism, that's entirely your right.
+- Want nothing but the best for your friends because when your friends are happy and successful, it's probably going to be easier for you to be happy.
+- Public intellectuals are often put in the position of having their words, no matter how off-the-cuff, treated as doctrine.
+- I reject the idea that when young women make choices with which we disagree, they are acting without autonomy.
+- I have never been married. I don't know if I will ever marry, though I hope to. When I am asked why I have not married, I explain that my parents have been happily married for 42 years. The bar feels so very high for that kind of commitment.
+- I don't want the whole of my writing or my intellectual energy given over to race because I have diverse interests.
+- I believe in the freedom of expression, unequivocally - though, as I have written before, I wish more people would understand that freedom of expression is not freedom from consequence.
+- I have a job I'm pretty good at. I am in charge of things. I am on committees. People respect me and take my counsel. I want to be strong and professional, but I resent how hard I have to work to be taken seriously, to receive a fraction of the consideration I might otherwise receive.
+- The open letter has always been an interesting rhetorical strategy - a way of delivering a pointed message to a specific individual or group while also reaching a wide audience.
+- I can consider not only great art, but the context in which that art has been created. I can consider the people who paid a price for that art to be created and whether or not I want to appreciate that art on their backs.
+- People don't want to think... I mean, they don't! They just want to say, 'Oh, okay, feminists are humorless man-haters,' and that's simply not the case. There are radical people and radical ideas in absolutely every movement, but that doesn't mean they define the ideals.
+- As I started to think about how I can claim feminism while also acknowledging my humanity and my imperfections, 'bad feminism' simply seemed like the best answer.
+- I love, but I am not entirely sure how to be loved: how to be seen and known for the utterly flawed woman I am. It demands surrender. It demands acknowledging that I am not perfect, but perhaps I deserve affection anyway.
+- The expansive anarchy of the Internet continues to lull us into believing that, because we can see something, that something should be seen. Because we can say something, there is something that must be said.
+- A lot of ink is given over to mythologizing female friendships as curious, fragile relationships that are always intensely fraught. Stop reading writing that encourages this mythology.
+- Long walks on the beach are the supposed holy grail of a romantic evening. The beach becomes a kind of utopia - the place where all our dreams come true.
+- That's what is always fascinating about racism - how it is allowed, if not encouraged, to flourish freely in public spaces, the way racism and bigotry are so often unquestioned.
+- You can't control the fact that you are born a white man or born into wealth. When people say, 'Check your privilege,' they're saying, 'Acknowledge how these factors helped you move through life.' They're not saying apologize for it.
+- If we look too closely at many historical figures, we won't like what we see.
+- Demands for solidarity can quickly turn into demands for groupthink, making it difficult to express nuance.
+- I am totally down with disagreement. I don't like Haterade, but disagreement is wonderful. When someone disagrees, we try to reach common ground. That's good.
+- Most open letters undoubtedly come from a good place, rising out of genuine outrage or concern or care. There is, admittedly, also a smugness to most open letters: a sense that we, as the writers of such letters, know better than those to whom the letters are addressed. We will impart our opinions to you, with or without your consent.
+- You cannot reason with people who don't recognize the humanity in all of us.
+- I think that everyone in one way or another has some sort of body issue. There's something about themselves physically that they're not happy with, that they're ashamed of, that they keep constantly trying to change.
+- I think there are a lot of rules for women. We have a lot of expectations and a lot of rules for women. So we're expected to march in a straight line, and when we don't, all hell breaks loose.
+- I cut an imposing figure. I am large, and I'm tall, and I have tattoos. I am actually really quiet and shy, but maybe people see me, and they don't want to step out of line, or equate disagreement with stepping out of line with a writer they like.
+- 2014 was a year of intense social upheaval. In truth, the same could be said for most every year. There is no standstill in a world filled with so many people, scrambling for so much.
+- I think one of the most important things we can do as feminists is acknowledge that, even though we have womanhood in common, we have to start to think about the ways in which we're different, how those differences affect us, and what kinds of needs we have based on our differences.
+- Love your friends' kids, even if you don't want or like children. Just do it.
+- Beyonce is not above critique. As a feminist herself, I hope Beyonce would welcome it.
+- Feminism is, I hope, a way to a better future for everyone who inhabits this world. Feminism should not be something that needs a seductive marketing campaign. The idea of women moving through the world as freely as men should sell itself.
+- Placing Margaret Sanger on the $20 bill will remind us of what she has done for women and our reproductive health and how the fight for reproductive freedom is an ongoing one.
+- Most of the serious disagreement I get comes through email or social media, where people are more comfortable.

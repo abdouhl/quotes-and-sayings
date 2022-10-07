@@ -1,0 +1,76 @@
++++
+author = "Robert Christgau"
+title = "Robert Christgau Quotes"
+quotes_len = "70"
+description = "the best 70 Robert Christgau Quotes"
++++
+- As a power listener who listens to music between 10 and 14 hours a day and who always has his earphones and MP3 player with him, convenience really means a lot to me.
+- In the worst of times, music is a promise that times are meant to be better.
+- My wife is more important to me than anything in the world - including music. She's a great editor and companion for all of my work and she's a great writer herself. If you live with somebody who's smart, they'll affect your thinking more than anything.
+- The most important single fact about pop music in the Nineties, is the number of hours made commercially available increased by an estimated factor of ten.
+- I don't think it's such a bad idea that people learn the same history in school. I think it tends to ground people and give them something to respond to and react against.
+- Certainly it's much more important for me to go to a good movie and spend a nice night with my wife than it is to listen to a specific piece of music.
+- One of the many things I hate about Donald Trump is that he embodies a kind of very popular popular culture that, as near as I'm able to perceive and stomach, is of no quality whatsoever.
+- When I grew up, there was a monoculture. Everybody listened to the same music on the radio. I miss monoculture. I think it's good for people to have a shared experience.
+- I'm not happy that death is approaching because I like being alive but I'm glad I've escaped the two-post-a-day economy of contemporary journalism. Good writing takes time.
+- I think Theodore Adorno was profoundly ignorant. I think even Adorno's fans think he was bad at understanding popular music. He thought it was all jazz.
+- My personal experience has been that in my free bohemian subculture, I'm not unique.
+- You know, criticism began as the province of amateurs, of wealthy men who liked the arts.
+- I don't like most world music because you need to know what the words are to really understand it.
+- Rock & roll fan that I am, Thelonious Monk is probably my favorite musical artist.
+- If rock criticism is to be a political calling, which has always been my angle, that's obviously not because it's a fountainhead of protest songs.
+- I review albums - really positive reviews - I know I'll never hear again, 'cause I'm just not going to have the time.
+- I found dozens of albums I loved every year of the early 70s and more in the late 70s and more still in the decades since, partly because I knew more about music by then and partly because there were more to choose from.
+- One way I judge music is whether it compels me to listen to it.
+- The idea is every time I go to a show, that night or the next morning I write it down in the gig log. Sometimes they're very scant, sometimes they're very long.
+- Anyway, you know, when Richard Meltzer said rock and roll died in '68, what he means is Jefferson Airplane were no longer his buddies, that's what he really means. He means it in a political way: that was when the artists and the audience found themselves on different levels.
+- I believe an editor's job is to help a writer sound like himself or herself.
+- I believe that writing on music is experienced inside your head, is not a physically present in the world, it has a different kind of authority and prominence and you absorb it differently.
+- My experience of what a loving relationship is like rings true with a lot of people I meet. I have a theory that the people you meet, one way you choose them, is their suitability for you in that particular matter. Attitudes toward friendship and marriage are in many cases closely aligned.
+- I like to say that I don't have the slightest doubt that Barack Obama read me in the early 80s. It's the kind of person he was!
+- The Village Voice gave me an outlet. They encouraged writers to publish idiosyncratic, intellectually ambitious journalism in voices that ranged from demonic to highfalutin. And they paid me well once the magazine was unionized. Getting paid is motivational.
+- I'm not a musician, I can't read music, but I came from a family of music fans. Not mad music fans, but people who like music. Both of my parents can play the piano. They were very good dancers, which I am not.
+- In fact, many rock critics look askance at explicitly political lyrics, which I think is pretty stupid, without denying that some political lyrics are also pretty stupid.
+- Every once in a while there's a day or two when I say, 'Gee, electric guitars, what an ugly sound.' But I'm a very enthusiastic person. For sure I'm an excitable, fun-loving person. I enjoy life.
+- I've always been a jazz fan, but I don't write much about jazz, because I don't have the chops. But it's really, really hard to write about improvised instrumental music when you don't have a good knowledge of harmony and can't identify rhythm signatures very easily either.
+- Believe me, I think if I stopped writing when I left The Voice I would have quite a legacy. But the fact of the matter was, it never occurred to me to stop.
+- As the editor at the Village Voice, I always tried to find writers of colour.
+- I love collections. I got into journalism with the idea that I'd be doing them.
+- I basically believe that all pop stars create personas and manipulate them. What we relate to are not their real selves; they are projections, which tend to shift in shape.
+- Ultimately, to insist that rock criticism be political is first to insist that the humans who make and enjoy music are embroiled in politics whether they like it or not - and whether they know it or not.
+- The idea with a collection is sort of to begin with a kind of bang.
+- Subject is very important. If you're going to write non-fiction the style means nothing or very little. The content justifies the effort you need to put into the writing itself.
+- I don't think that most of my peers in rock criticism are from the West Coast. I think most of them are from the East Coast.
+- Chuck Berry's 'Maybellene' hit the airwaves at about the time Alan Freed got to New York, and it was definitely a song I really loved and related to.
+- Forget good for you - art should be good to you.
+- I am one of the barbarians - I love rock and roll.
+- The first half of 'Book Reports' deals with the history of popular music and rock criticism. When I hooked all those historical pieces together, building on the minstrelsy piece, it became my history of popular music.
+- One meaningful distinction between high and popular culture, is that there's way more good popular culture - because its standards of quality are more forgiving, because sobriety isn't its default mode, because there's so damn much of it.
+- I am interested in the highbrow/lowbrow synthesis. My sensibility, I am proud to say, is middlebrow.
+- One of the things that's happened in the music I love over the past five, 10 years is that some people have gotten very old and continued to make music.
+- Even when I was working at The Village Voice, I only put in about 20 hours at the office.
+- You can only adjust to so much history in your life. I still have trouble texting.
+- Everything I know about Facebook makes me want to avoid it. Twitter has really improved my reading habits.
+- The Rock and Roll Hall of Fame is a canonizing institution. Jann Wenner has worked to make Rolling Stone the keeper of the canon since 1970. I don't like that, because he uses institutional power and he uses economic power to enforce those standards.
+- Because I've always been good at knowing what I thought and not reviewing prematurely and have gotten better at those things over the years, my flips are rarely that significant.
+- Prince had always told us he just wanted to get through this thing called life. But now that his own physical life has ended, his artistic life will continue.
+- I think I've had a certain amount of success at making phrases. I'm a good writer. But obviously, I'm incredibly flattered and pleased when people remember things that I say.
+- But I don't write a full capsule review of anything I haven't heard five times. It's usually closer to ten.
+- Every marriage is different, and it's impossible to understand your own marriage, really, much less anybody else's.
+- If you're intimate with a mind as powerful as that of Ellen Willis, it takes you a long time to separate yourself from her ideas. She had an extremely powerful mind.
+- I actually think I learned to write concisely working for an encyclopedia company in Chicago.
+- People believe that criticism should be objective, whatever that means, but I really don't understand what people mean by that. I guess if you're doing sonata-allegro procedure analysis, you can be objective for a page or two. But in pop? Really hard.
+- I don't see myself as having had an exceptional life. Yeah sure, I've had an interesting life, but I'm more interested in what's not exceptional about it.
+- I don't believe in pulling punches or being judicious, as the standard in literary criticism or academic musicology.
+- I'm slow on the uptake about things. I didn't understand that the first Wu Tang album was great when I first heard it.
+- Prince Rogers Nelson was the most gifted artist of the rock era. Not the greatest genius - just the most musical in the broadest sense.
+- My love of written language is every bit as great as my love for music.
+- Bonnie Raitt and Lynyrd Skynyrd were two people I went on the road with.
+- I'm not that Internet-savvy. I get by. But that's all. I don't have serious skills or any other stuff.
+- I don't have any thoughts on blogs, because I don't read them. I don't read them not out of any principle, but because there are only 24 hours in a day, and I like to read books.
+- I was never really a bohemian. I was a sloppy guy who liked cheap apartments and the arts, and who was very left-wing politically as the 60's progressed, though it took me a little while.
+- There's a musicologist named Peter van der Merwe whose theory is that the blues generates tune families, and that their similarity to each other is in fact part of the pleasure you take in them - rather than the differentiation in which Jerome Kern and George Gershwin indulged to great effect.
+- I don't know any celebrities. I know a lot of people that most people have never heard of.
+- If you wanna write non-fiction you have to be interested in the world.
+- Once people write criticism about something - and even in 1967 I was far from alone - they're assuming it's art, and art is supposed to last.
+- What helps change bad writing into mediocre writing is editing. Editing is in bad shape in print journalism, and is in virtually nonexistent shape in online journalism.

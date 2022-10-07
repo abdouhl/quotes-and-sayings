@@ -1,0 +1,45 @@
++++
+author = "Barbara Boxer"
+title = "Barbara Boxer Quotes"
+quotes_len = "39"
+description = "the best 39 Barbara Boxer Quotes"
++++
+- I would not run for president. I really like what I'm doing now. People say I'm giving them energy and hope.
+- President Bush in his inaugural address talked about bringing freedom to countries that don't have it. He didn't specify how.
+- Those who survived the San Francisco earthquake said, 'Thank God, I'm still alive.' But, of course, those who died, their lives will never be the same again.
+- I know from my constituency what is going on. Doctors that are told, begged, by mothers, 'Please don't write down that my child as asthma. Please lie and say it's bronchitis, because if you write down asthma, when my child turns 18 or 20 and has to get his or her own insurance, it will be a pre-existing condition.'
+- Our democracy is the centerpiece of who we are as a nation. And it is the fondest hope of all Americans that we can help bring democracy to every corner of the world.
+- It is in Saudi Arabia's best interest to allow women to fully participate in its society, and this includes the right to vote and run for office.
+- If you don't move to protect copyright, if you don't move to protect our children, it's not going to sit well.
+- If we turn our back on the people of this country who need to work for a living, we shouldn't be here, to be honest, because that has to be an essential part of what we do to protect the country, from the standpoint of defense, protect workers and make sure they have jobs.
+- The American people need to know the truth. The American people need to see the truth. In a democracy, letting the people know the truth is the essence of what it means to be free.
+- Look, all this is about is utilizing the rules of the Senate, using a majority of the senators, to make sure that we get health reform done. We cannot wait another day.
+- You know, I wish the world well. I want Iraq to have democracy and the Haitians to have democracy. I want the people of Afghanistan to thrive. Lord knows, we spend enough money there to help them. What about people at home? Isn't that our first responsibility?
+- We know no document is perfect, but when we amend the Constitution, it would be to expand rights, not to take away rights from decent, loyal Americans. This great Constitution of ours should never be used to make a group of Americans permanent second-class citizens.
+- I would love to see a march on Washington that says 'Save our Social Security'.
+- Could you say 'senator' instead of 'ma'am? It's just a thing. I worked so hard to get that title. I'd appreciate it.
+- Even if I have to stand alone, I will not be afraid to stand alone. I'm going to fight for you. I'm going to fight for what's right. I'm going to fight to hold people accountable.
+- For the sake of the troops, for the love of the troops, we must not add yet another casualty to this war. We must not let truth be a casualty of this war.
+- Law enforcement officers are never 'off duty.' They are dedicated public servants who are sworn to protect public safety at any time and place that the peace is threatened. They need all the help that they can get.
+- Iraq made commitments after the Gulf War to completely dismantle all weapons of mass destruction, and unfortunately, Iraq has not lived up to its agreement.
+- Americans have long recognized the need to protect our public lands and their vast resources.
+- I was a stock broker once. I think there is an absolute place for market investments. But they should never be the basis of one's retirement. They should be an additional piece on top of a basic, secure, guaranteed retirement benefit.
+- Tonight, you are hearing from the Democratic women of the Senate... We stand together on so many issues: economic prosperity, quality education for all, protecting a woman's right to choose.
+- We have the greatest hospitals, doctors, and medical technology in the world - we need to make them accessible to every American.
+- So when you go up against the Far Right you go up against the big financial special interests like the Halliburtons of the world, the big oil companies, the big energy companies who work so hard to rip us off.
+- More than anything, I think as our country matures, we recognize that women deserve to be treated with respect and dignity.
+- I think Democrats are right. We fight for the American dream, for the environment, for privacy rights, a woman's right to choose, a good public education system.
+- Since 1980, we've used reconciliation 22 times, and out of those times, Republicans used it 16 times. So, earth to my Republican friends, you can have your option but you cannot change these facts. They're in the Congressional Record.
+- Really, life is complicated enough without having a bunch of Senators deciding what we should do in the privacy of our own homes.
+- The White House has embarked on a mission to convince the people of our country that Social Security is in dire need of drastic change in order to save it for all workers.
+- To win the cause we all believe in, the spread of true democracy all over the world, we need to win by example, not just with speeches but by example; not just with military might but by gaining the respect of the world.
+- With so many of our fundamental rights hanging in the balance, it is not good enough to simply roll the dice, hoping a nominee has changed his past views. It's not good enough to think, 'This is the best we can expect from this president'.
+- We need to give the Iraqis a chance to build their own future. It should be in their hands. It must be in their hands. That is what democracy is all about. We can teach it, we can explain it, but they must want it enough to make it work for them.
+- When you take a stand out of deep conviction, people know. They may not even agree, but they ask, 'Do I want someone who is willing to take a hard stand and someone I can trust to do that when the chips are down?' They want that.
+- Medical professionals, not insurance company bureaucrats, should be making health care decisions.
+- Every citizen of this country should be guaranteed that their vote matters, that their vote is counted, and that in the voting booth, their vote has a much weight as that of any CEO, any member of Congress, or any President.
+- We have fought for social justice. We have fought for economic justice. We have fought for environmental justice. We have fought for criminal justice. Now we must add a new fight - the fight for electoral justice.
+- The Saudi government's denial of basic rights to women is not only wrong, it hurts Saudi Arabia's economic development, modernization and prosperity.
+- When service members are discharged, we should express our gratitude for their profound personal sacrifice, not hand them a bill for their hospital food.
+- We are all different. Yet we are all God's children. We are all united behind this country and the common cause of freedom, justice, fairness, and equality. That is what unites us.
+- I am sure that every one of my colleagues - Democrat, Republican, and Independent - agrees with that statement. That in the voting booth, every one is equal.

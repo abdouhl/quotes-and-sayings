@@ -1,0 +1,73 @@
++++
+author = "Barry Keoghan"
+title = "Barry Keoghan Quotes"
+quotes_len = "67"
+description = "the best 67 Barry Keoghan Quotes"
++++
+- To be honest, I still get awestruck when I meet my heroes and the people I admire. I think that's only natural.
+- I want stories where you either hate it or love it. I want to do movies like that, where it's not show and tell, where it's not, 'This is it, and now you reveal the ending, and that's that.'
+- Acting brings up a lot of the past. I use my memories, whether they're good or bad.
+- Sometimes a camera comes out and people freeze up a little, and I'm like that with normal cameras, but with a film camera, I feel different.
+- I want a happy family.
+- I can play younger. It's better to be playing younger because you've got that experience, and it's hard to play older when you're younger.
+- I want stories that tackle things.
+- Foster care was a big part of my life.
+- It's not often you get to sit in front of Nicole Kidman in your boxers with a big bowl of spaghetti.
+- I went to an open audition for 'Between the Canals,' and that was a big thing. I suddenly thought, 'Ah, yeah!' Then I started getting brought away to do roles. That's when I got taken seriously.
+- I started getting interested in the craft and watching old movies, and they're the ones that reach out to me the most - films like 'Cool Hand Luke' and 'On the Waterfront.' So I start watching all of these, and I was getting educated, and I started being interested in this acting thing, if that's what they call it.
+- I'm trying to keep a good record and do interesting movies with interesting filmmakers.
+- I do reach out to lads that I know who are my age: people like Charlie Plummer or Timothee Chalamet.
+- All I would say is it doesn't matter where you come from. Like, Jim Sheridan comes from the inner city, and he's one of the top ones, a top lad.
+- Dublin's a great place. It really is. It's a great place. And Ireland, especially, is a great place. I've realized that growing up more. I'm loving my country more as I'm getting older.
+- I have confidence. I don't know where I got it from.
+- My nanny took me in at 12 with my brother, who is a year younger than me. We're the closest brothers you'll ever meet.
+- I've been lucky to be educated by watching the old and the great movies, working with good filmmakers, and being educated on sets.
+- I don't think you ever really get used to it, do you? There's always another little level of shock in it and of being starstruck at the people you meet. And that's the beauty of it: you're always fascinated, because it's not a normal thing to do, is it, this acting game?
+- I've actually eaten in The Ivy in London. I love their shepherd's pie.
+- 'Intermission' was my favourite film.
+- My mother passed. She passed when I was 10 or 11.
+- It's very important for me to show younger kids that when opportunities are there, you have to jump on them.
+- I kick myself that I don't speak Irish. Ah, man, I'd love to. I am going to learn.
+- It is hard to keep your head sometimes. I just make sure I surround myself with good people.
+- This industry can take you in and spit you out. It's overwhelming. But I keep my feet on the ground, my Air Max on the gravel.
+- Acting is not a thing where I'm from. Finishing school is a big thing. Not a lot of people finish school.
+- One day, you're talking with Tom Hardy; the next day, you have Nicole Kidman kissing your feet. I never thought I'd be able to say that in my lifetime, Nicole Kidman kissing my feet. It's mad.
+- I'm a guy with simple tastes.
+- I want to produce. I want to direct. I want to be my own camera man. I want my own boxing club. I have it all written down. I want to do everything.
+- That's why I don't live in L.A. First of all, I don't have the money. But second, I want to stay grounded, to be surrounded by real people, to have my head on my shoulders instead of losing track of reality.
+- I recently was in the same room as Leonardo DiCaprio, and one of my favorite movies is 'Basketball Diaries.' That movie hits home for me in so many ways, and in that moment, I was like, 'I have to thank this dude.' So I did.
+- With this acting and this lifestyle, your privacy does get taken a little.
+- I just think the more you're in front of camera, the better: my main aim is just to tell the truth, be natural, and believe in what I'm doing, and hopefully that comes across as a rawness.
+- I've stayed friends with the boys I've known since I was 10.
+- I think I would've found myself in the arts somewhere along the lines. If you're creative, you find something, eventually.
+- After everything I've been through - the foster care, the losing my parents and stuff like that, I was never one to kind of go, 'I'm gonna just not try.' I used it all as ammunition.
+- It's a hard thing to find in people: to sit and just be present with someone, even for two minutes.
+- I want to play someone like Billy the Kid.
+- I hope I inspire younger ones. Whatever you're into - sports, whatever - just go and do something.
+- You kind of know what kind of reaction a Yorgos Lanthimos movie is going to get.
+- Boxing isn't a career. Acting is it for me. But they're both very therapeutic.
+- I look like a kid onscreen in most movies.
+- I grew up in Summerhill in Dublin's inner city, and I came across an open audition, and they were looking for inner city kids who had not acted. I signed up.
+- It's nice coming from Summerhill, because you don't come from having everything, and what you do get, you appreciate.
+- People can get lost in the movie star world. They can't check in with reality, whereas I live at home with me girl, surrounded by real people.
+- I did Christmas plays at school, but they banned me because I was messing about. And I was like, 'Ah, why?' Because I was getting attention, everyone was laughing at me and I was loving it, I thought, 'This feels good!'
+- All my foster homes were very good to me. But it's still not a very nice experience. It's only when you're older, you realise: we were on our own in there. As kids, you don't know what's happening. You're here. Then you're in the next house. But the families were all very good to us.
+- I was a mess-up in school, a big mess-up. I was into history and English, because there were always stories, like 'Dracula' and World War II. I've never read a book, though. Never.
+- I always believed that I could be one of the greatest actors of my generation.
+- Chris O'Dowd's a legend, isn't he? I like him.
+- I want to not settle for one thing. Because I come from a place where I have nothing to lose.
+- I wasn't stupid, or very smart. I didn't finish my education.
+- Where I'm from, you focus on finishing school. Even finishing college is seen as a stretch - you just get a job after school, and that's it.
+- I'm always wanting to do the impossible.
+- Every actor wants to show a good and deep range, so you look at all the elements here, and you make a conscious choice of where you want to go as a performer.
+- I want to get a wolf and an eagle.
+- Getting involved with 'Black 47' was like getting involved with 'Dunkirk' for me. I learned a lot. But 'Black 47' was my own history from my own country.
+- Boxing is something I'm very into.
+- Dior makes me look good, and I make Dior look good.
+- In any inner city, there's not a lot of opportunities, and you really have to dig out and chase what you want to do, 'cos it's not handed to you, so.
+- I thought I was going to be a footballer or a boxer or something like that - I was into sports.
+- Anyone dying is not easy, but certainly not a mother. Me and my brother, we stuck together. The foster families were good to me, and then my nanny took me in.
+- I'm always in touch with where I'm from.
+- Everyone wants to be Batman; I want to be Robin. I'll make Robin cool. Make him legit.
+- I'm good to women. I treat women with a lot of respect.
+- Where I'm from, to do acting is not heard of. Being one of the lads and all, you don't just go, 'Oh, I want to be an actor'. They'd laugh and joke about it.

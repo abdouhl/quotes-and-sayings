@@ -1,0 +1,64 @@
++++
+author = "Bette Davis"
+title = "Bette Davis Quotes"
+quotes_len = "58"
+description = "the best 58 Bette Davis Quotes"
++++
+- We movie stars all end up by ourselves. Who knows? Maybe we want to.
+- I will not retire while I've still got my legs and my make-up box.
+- I've lost my faith in science.
+- Locations are all tough, all miserable. I never left the sound stage for 18 years at Warners. We never went outside the studio, not even for big scenes.
+- I'd like to kiss ya, but I just washed my hair.
+- Sex is God's joke on human beings.
+- Life is a jest; and all things show it. I thought so once; but now I know it.
+- I will never be below the title.
+- That's me: an old kazoo with some sparklers.
+- I never did pal around with actresses. Their talk usually bored me to tears.
+- Wave after wave of love flooded the stage and washed over me, the beginning of the one great durable romance of my life.
+- It is my last wish to be burried sitting up.
+- Today everyone is a star - they're all billed as 'starring' or 'also starring'. In my day, we earned that recognition.
+- I was the Marlon Brando of my generation.
+- I went back to work because someone had to pay for the groceries.
+- Hollywood always wanted me to be pretty, but I fought for realism.
+- The only reason anyone goes to Broadway is because they can't get work in the movies.
+- I often think that a slightly exposed shoulder emerging from a long satin nightgown packs more sex than two naked bodies in bed.
+- Strong women only marry weak men.
+- I'd marry again if I found a man who had fifteen million dollars, would sign over half to me, and guarantee that he'd be dead within a year.
+- In this rat-race everybody's guilty till proved innocent!
+- I don't think of myself as a character actress - that's become a phrase which means you've had it.
+- I sent my flowers across the hall to Mrs Nixon but her husband remembered what a Democrat I am and sent them back.
+- I survived because I was tougher than anybody else.
+- There are new words now that excuse everybody. Give me the good old days of heroes and villains, the people you can bravo or hiss. There was a truth to them that all the slick credulity of today cannot touch.
+- I was never very interested in boys - and there were plenty of them - vying with one another to see how many famous women they would get into the hay.
+- Men become much more attractive when they start looking older. But it doesn't do much for women, though we do have an advantage: make-up.
+- I don't take the movies seriously, and anyone who does is in for a headache.
+- If you've never been hated by your child, you've never been a parent.
+- Everybody has a heart. Except some people.
+- To fulfill a dream, to be allowed to sweat over lonely labor, to be given a chance to create, is the meat and potatoes of life. The money is the gravy.
+- My passions were all gathered together like fingers that made a fist. Drive is considered aggression today; I knew it then as purpose.
+- In this business, until you're known as a monster you're not a star.
+- Old age is no place for sissies.
+- The key to life is accepting challenges. Once someone stops doing this, he's dead.
+- With the newspaper strike on, I wouldn't consider dying.
+- People often become actresses because of something they dislike about themselves: They pretend they are someone else.
+- Oh, don't let's ask for the moon. We've already got the stars.
+- A sure way to lose happiness, I found, is to want it at the expense of everything else.
+- Without wonder and insight, acting is just a trade. With it, it becomes creation.
+- I am doomed to an eternity of compulsive work. No set goal achieved satisfies. Success only breeds a new goal. The golden apple devoured has seeds. It is endless.
+- Gay Liberation? I ain't against it, it's just that there's nothing in it for me.
+- An affair now and then is good for a marriage. It adds spice, stops it from getting boring... I ought to know.
+- Acting should be bigger than life. Scripts should be bigger than life. It should all be bigger than life.
+- The best time I ever had with Joan Crawford was when I pushed her down the stairs in Whatever Happened to Baby Jane?
+- I've always liked men better than women.
+- This has always been a motto of mine: Attempt the impossible in order to improve your work.
+- Basically, I believe the world is a jungle, and if it's not a bit of a jungle in the home, a child cannot possibly be fit to enter the outside world.
+- Psychoanalysis. Almost went three times - almost. Then I decided what was peculiar about me was probably what made me successful. I've seen some very talented actors go into analysis and really lose it.
+- Brought up to respect the conventions, love had to end in marriage. I'm afraid it did.
+- I work to stay alive.
+- From the moment I was six I felt sexy. And let me tell you it was hell, sheer hell, waiting to do something about it.
+- Attempt the impossible in order to improve your work.
+- Good actors I've worked with all started out making faces in a mirror, and you keep making faces all your life.
+- I have often seen an actor laugh off the stage, but I don't remember ever having seen one weep.
+- To look back is to relax one's vigil.
+- I do not regret one professional enemy I have made. Any actor who doesn't dare to make an enemy should get out of the business.
+- I am just too much.

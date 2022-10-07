@@ -1,0 +1,26 @@
++++
+author = "Chris Gabrieli"
+title = "Chris Gabrieli Quotes"
+quotes_len = "20"
+description = "the best 20 Chris Gabrieli Quotes"
++++
+- Many expanded-time schools have generated extraordinary results. In some cases, they have completely closed the achievement gap, all while installing curricula with a richness rivaled only by elite private schools and those in the most upscale suburbs.
+- Here's a very simple, common sense idea - if you practice something more, you get better at it; if you can't complete everything you need to do, take more time.
+- I realized I didn't need to go to work every day. I could work for the pleasure and the challenge, not for the mortgage payment.
+- The Time to Succeed Coalition brings together an unprecedented group of leaders from education and business, communities and academia to say that it is time to strike the shackles of an outdated school calendar from our disadvantaged schools.
+- An actual understanding of our economy is that our economy most depends on our rate of innovation... It's not actually understood by most of the people running for office, but it's not in fact disputed.
+- I'm a growth-is-good Democrat.
+- Athletics and physical activity are important parts of youth development, in my experience and view.
+- I've spent enough time in the business community to know there are certain regulators who are very constructive in their approach - those who enforce the laws and who actually want to help you comply - and there are others who have a prosecutorial attitude.
+- Schools serving disadvantaged students need more time to help these students catch up and gain the core academic skills they will need to succeed in our economy and society.
+- Indeed, while so much in education reform can divide activists into warring camps, expanding learning time unites reformers around a shared vision of bringing excellence and breadth to our nation's most impoverished and struggling schools.
+- The Expanded Learning Time program is a voluntary one - only districts and schools that want to apply are in the program and supported by the state to pursue their plans.
+- You can't be entirely unguarded in politics. Even appearing to be unguarded is as much a facade as a reality.
+- There are very few people who have had as much public impact as I've already had... without being elected to public office in Massachusetts.
+- I do not believe you have to be an elected official to help 'change the world.' In fact, maybe it is easier from the outside.
+- I do think that a school day that matches the work day makes a lot of difference for working families, but the big driver of this effort is education. Period. We have a lot of students not gaining the skills they need, and it is pretty clear that school does not offer enough time to get that job done.
+- Every child should have time for arts, music, sports, drama, robotics, school newspapers and the like, not to mention recess and play.
+- I understand fully that jobs are created by the private sector, having been all my life in the private sector, but I don't buy the argument that the state has no role to play.
+- Small business is crucial. I think we talk so much about large businesses, they're well represented; they talk well for themselves. But most people work for small businesses; most wealth that stays in a community gets generated from them.
+- History shows that it's not smart for states to pay more to get jobs; you just get into the race to the bottom.
+- Time is a resource, much like money or autonomy, which can be invaluable or can be squandered.

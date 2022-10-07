@@ -1,0 +1,31 @@
++++
+author = "Bill Belichick"
+title = "Bill Belichick Quotes"
+quotes_len = "25"
+description = "the best 25 Bill Belichick Quotes"
++++
+- I love Annapolis. This is home.
+- Things happen so quickly. We don't have time for one person to tell everybody what to do. Everybody needs to know what to do in those situations.
+- I grew up watching my dad scout games live. They played on Saturday. Sometimes they wouldn't get the films until Monday. Sunday air shipping from wherever the college team was located - Starkville, Mississippi, or wherever the film was coming from. It took two days.
+- I think that's part of building your team is trying to anticipate where your team is going and to a certain extent where, especially defensively because you have to react to what they put on the field. Defensively you have to be able to defend those things.
+- As you know, I'm not on SnapFace and all that, so I don't really get those. I'm really just worried about getting our team ready to go.
+- To me, if you see a play that's just a bad play, it's just a missed call, I think, as a coach, you should be able to challenge that.
+- The more you and the organization can help take care of personal situations, the smoother the ship runs on the football end.
+- Bavaro's probably as tough of a - physically and mentally as tough a football player as I've ever coached. So, I would put him in the rare category there.
+- I can honestly say that I never 'enjoyed' our meetings, but the respect I have for Peyton Manning as a competitor was, and will likely remain, second to none.
+- Game management, game decisions, adjustments, seeing things during games - it's all important.
+- Every single player matters. Every single player can change the course of the game.
+- Ultimately, the team has to come first even though we all have individual goals and preferences.
+- It's not all about talent. It's about dependability, consistency, and being able to improve. If you work hard and you're coachable, and you understand what you need to do, you can improve.
+- A lot of performance is based on confidence, knowing what you're doing, and being familiar, and not thinking too much and trying to play at confident game speed.
+- There's no medals for trying. This isn't like eighth grade where everybody gets a trophy. We are in a professional sport, and it is competitive to win. That's what we do.
+- You go to the draft board and think, 'Here's a nose tackle. Who needs a nose tackle?' Well, eight teams in front of you need a nose tackle, and there's two nose tackles. It's something you have to figure out where you can get the players to play in your system.
+- You have to go with the person who you have the most confidence in, the most consistent. And if it doesn't work, it doesn't work, but I'm going down with that person.
+- I like what I am doing. I enjoy all parts of the game - the team building, training camp, game days, the excitement of Sunday... it beats working.
+- I think it's important for us, as a team, to know each other. Know our teammates and our coaches. To interact with them is more important than to be 'liked' by whoever on Chatrun.
+- If there is something that's your passion when you're young, do it. Let everything else take care of itself.
+- We don't talk about next year. We talk about today, and we talk about the next game. And that's all we can really control. The rest of it will take care of itself.
+- My job as a coach is to make good decisions. It's not to go out there and block or tackle.
+- What we can control is our performance and our execution, and that's what we're going to focus on.
+- I think your team evolves every year. The more you know about it, the better you can coach it.
+- If you're well-prepared, you know what you're doing, and you have an idea what the opponents can do - what their strengths and weaknesses are - once you get into the game, those adjustments will be - I won't say easy, but relatively easier and more manageable.

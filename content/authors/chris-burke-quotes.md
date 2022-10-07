@@ -1,0 +1,32 @@
++++
+author = "Chris Burke"
+title = "Chris Burke Quotes"
+quotes_len = "26"
+description = "the best 26 Chris Burke Quotes"
++++
+- Back in the early '40s, they used to call Down syndrome infants and babies 'mongoloids.' It's very hard for parents.
+- I could make a difference.
+- Back in those days, a parent looked at the disability and didn't see the ability. 'Life Goes On' showed that people with a disability can be included. Just give them a chance and let them learn. That's what the show was trying to teach.
+- Don't give up on the child. Give the child an education. Give them daily love.
+- It's real great to be known on TV. I had the opportunity to do something that I always wanted to do, and now I have done it.
+- I was like Gene Kelly, it was called singing in the rain. No seriously, I wasn't really born with a singing voice, but my friends Joe and John taught me how to sing.
+- To have my fan club. I am very proud of doing everything. I try to support my parents, friends and fans. I am also proud of my performing in the visual arts, and motion television.
+- I don't really have Down's syndrome; I just have a slight case of it.
+- I don't complain, say, 'I can't do this, I can't do that.' You don't do that with a big professional director. If you do that, you won't be able to do TV.
+- Larry Drake - I love his work... He plays a very disabled character like the role I'm playing.
+- Being a son, brother, uncle and brother-in-law is all I care about.
+- People still recognize me on the street. 'Are you really Corky?'
+- I want to be a professional. I want to be like my TV father, Bill Smitrovich. He's an easy, calm actor. I don't want to freak out.
+- Corky is an ordinary person who does extraordinary things. He is a true inspiration, but he doesn't know that he's an inspiration.
+- Having Down syndrome is like being born normal. I am just like you and you are just like me. We are all born in different ways, that is the way I can describe it. I have a normal life.
+- I have a motto on my bedroom wall: 'Obstacles are what you see when you take your eye off the goal.' Giving up is not my style. I just want to do something that's worthwhile.
+- I'm just like James Stewart, because I never studied to be an actor.
+- I don't like to be different; I would like to be the same.
+- I just want to be like other people that are normal.
+- I want to do theater and I am looking forward to doing more Television and Movies. I also want to direct some plays in theater workshops for people with disabilities.
+- Down syndrome kids can learn. Like Corky. That's the way I feel about it... For those kids who have Down syndrome, to give them a chance.
+- I want to be a professional.
+- I'd like to be the role model to teach other people who have Down's syndrome to be actors and actresses and to be themselves and not try to be a big shot.
+- It's not our disabilities, it's our abilities that count.
+- I would love to do different things, like behind-the-scenes work - just like Ron Howard!
+- Corky is the one who never gives up. I never gave up. He faces obstacles, and he couldn't always reach his goals. But he tries to reach his dreams.

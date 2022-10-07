@@ -1,0 +1,40 @@
++++
+author = "Ron Silver"
+title = "Ron Silver Quotes"
+quotes_len = "34"
+description = "the best 34 Ron Silver Quotes"
++++
+- It made me think about a whole area of human activity that was not really a concern to me before that, because I was involved in reading Chinese history, or languages, or whatever.
+- I think it's good to meet smart people and talk.
+- I've seen people with a tremendous amount of educational background in the field not turn out to be terribly good actors, and I've seen people with no education in the field turn out to be people that I admire quite a bit.
+- I think you have an obligation to be an optimist. Because if you're not, nothing will change.
+- I don't even like to use the word relationship. I don't know what it means.
+- For about the first ten years of my career, I wasn't terribly motivated.
+- I kind of have a dilettantish spirit about me.
+- I saw and I met a lot of people who were in the field. It also provided a context in which I came to respect what the actor did, because I saw how difficult it actually was to do.
+- Artists speak the truth to the public without fear of retribution or damage to their careers.
+- The twentieth century has exhibited a barbarism and lack of respect for human life on a massive scale just about unknown before.
+- I just don't get invited to the same dinner parties I used to like to go to.
+- I still think I'm going to do something else when I grow up.
+- Acting is not about knowing all this stuff; it's about character.
+- If I don't see my kids for six days, I start to get withdrawal pains.
+- I do believe all actors are smart.
+- Too often in the past, U.S. leaders have forced Israel to pay the price for American strategic interests in the Middle East - through concessions in the peace process as well as passivity in the face of Iraqi attacks.
+- Nothing gets a bigger laugh than when you refer to things like ethics or human rights.
+- I had no desire from an early age to be on the stage.
+- If you don't think you want to go on a train and read the paper every day and work from nine to six at night, there was something about the uncertainty when I was younger which was very attractive.
+- Anyone who devotes time and attention to what makes people tick, to me, is a smart person.
+- But why should I run for office and lose what little influence I have?
+- I kind of dwindled into acting.
+- I was immature the way I handled the business. I saw myself as a tribune of the people.
+- You have to think an awful lot about your motivations or people's behavioral intentions or what their body language can indicate or what's really going on or what makes people sometimes do, sometimes, the irrational things they do.
+- In Europe, people in the arts are considered part of the intelligentsia; they are considered part of the elite.
+- Involvement in public affairs is a legitimate use of celebrity.
+- Two, I actually learned a lot of things that served me very well when it came to repeating performances on stage, because it is a craft and you do need a technique for it.
+- Then I realized that to be really good at this requires a lot of energy and concentration and skill.
+- I can't talk about foreign policy like anyone who's spent their life reading and learning foreign policy. But as a citizen in a democracy, it's very important that I participate in that.
+- I'm a 9/11 Republican.
+- It's not like I'm the most famous person in the world.
+- I started getting jobs, and I thought it was going to be real easy.
+- But some actors I have met possess an intelligence that I can only dream of. It's about character, it's about behavior. They understand things about people that I simply don't see.
+- Nobody has a franchise on what is good.

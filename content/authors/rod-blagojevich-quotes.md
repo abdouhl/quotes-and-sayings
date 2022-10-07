@@ -1,0 +1,17 @@
++++
+author = "Rod Blagojevich"
+title = "Rod Blagojevich Quotes"
+quotes_len = "11"
+description = "the best 11 Rod Blagojevich Quotes"
++++
+- Our children's health and well-being are dependent on our commitment to promoting food access and good eating habits at home, at school and in the community.
+- Kids today are technologically sophisticated. In many families, they are far ahead of their parents.
+- Let's put aside the politics and trust the people. Let's embrace the unique opportunity we all have; take the heat and make the hard and difficult decisions, knowing that we're doing it to make things better for the people of Illinois.
+- Part of protecting our homeland means being less dependent on foreign countries for our energy.
+- One of the greatest challenges in collecting child support is that deadbeat dads move from job to job and state to state. it's hard to keep track of them.
+- Health care is not a privilege. It's a right. It's a right as fundamental as civil rights. It's a right as fundamental as giving every child a chance to get a public education.
+- A successful economic development strategy must focus on improving the skills of the area's workforce, reducing the cost of doing business and making available the resources business needs to compete and thrive in today's global economy.
+- Parents don't need government to raise their kids. That's their job. But government can help them protect their children from influences they may not want their kids exposed to.
+- Ask any woman and she'll tell you: health care for women is more expensive than it is for men. In fact, during their reproductive years, women spend 68% more on health care than men do.
+- I know each fund has its supporters, and that some will not want to see the surplus go to schools. But, in tough times, you have to set priorities. And our priority is education.
+- Whatever happened to a sense of idealism and embracing an idea that will help people and, in this case, children?

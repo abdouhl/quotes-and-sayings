@@ -1,0 +1,106 @@
++++
+author = "Robert Eggers"
+title = "Robert Eggers Quotes"
+quotes_len = "100"
+description = "the best 100 Robert Eggers Quotes"
++++
+- Conan the Barbarian,' 'Star Wars,' 'Mary Poppins' and 'The Wizard of Oz' were my earliest VHS obsessions.
+- The Wicked Witch of the West really scared me as a child.
+- If you're a part of this urban intelligentsia, you're not around animals all the time the way people were in the past. So animals become a part of the folklore.
+- The intention behind 'The Witch' was to be very restrained. I think that story, while it sometimes annoys me, needed to take itself incredibly seriously.
+- When 'The Lighthouse,' bizarrely, became the film that people wanted to greenlight, it was really clear that those were the only two people to play the roles. And I knew that they would want to do it.
+- This makes me sound like some new age, crystal-worshipping weirdo, but the woods behind my house really felt haunted by the past when I was a kid.
+- In a world where people believe in something, then it does exist.
+- If you could custom build new cinemas for every release of every movie, I think filmmakers would work in a lot of different aspect ratios.
+- I don't get a lot of writer's block, because it's all based on research. I just start looking through my notes, and I can write garbage for days - I mean, some of it ends up being good.
+- I was interested in dark subject matter for sure, including folklore, fairy tales, mythology, archetypal stories of people going into the bowels of the forest.
+- As a kid, picturing people who grew up in the reign of Queen Elizabeth I walking around in hose and latched shoes in the woods behind my house was an interesting atmospheric thing for me.
+- People return to the same things. Charles Dickens wrote the same story a million times - and 'A Christmas Carol.'
+- I grew up in New England, and the woods behind my house seemed haunted by New England's past.
+- I had these fashion history books that I really enjoyed looking at. I liked costumes and used to wear them to school until I got beat up for it.
+- The more you try to turn away from darkness, the more darkness is right against your back.
+- I mean, obviously it's exciting for me to see what 'The Revenant' is doing in the box office. That's very exciting.
+- I always wanted to do film. And I still love theater.
+- Haxan' is really cool. There are a lot of things about it that are just great.
+- I am not trying to be one of those sadistic, Kubrickian directors who is trying to make these tensions any worse or exploit them, but... the camera sees what the camera sees.
+- We grew up on Harold Pinter, Sam Shepard, Samuel Beckett. You're making something about men on the verge of a nervous breakdown, you're going to look to those guys.
+- I went to Salem as many Halloweens as I possibly could.
+- Honestly, I'm a snobby person.
+- There's a lot of cool stuff going on in independent film. But obviously, yeah - all the comic-book-franchise stuff is deeply boring. But these comic-book characters are the pagan pantheon of gods in today's contemporary culture. It's so important to so many people.
+- The Lighthouse' isn't scary. A few people have said it is, but I don't think it is.
+- I wrote a lot of scripts that were dark and fairy tale-like, but too strange.
+- I saw a picture of Max Schreck as Count Orlok in a book in my elementary school and I lost my mind.
+- You've got to love a movie where a witch is your nanny.
+- African Queen' is pretty darn great.
+- Certainly as a director you want to be working with people who are on the same page as you and that you can trust and get along with.
+- I enjoy the act of research. I'm researching as a means to an end, but I literally just enjoy reading about how people lived in the past and understanding it better.
+- Digging into the creation of the Puritan mind-set involved really trying to wrap my head around extreme Calvinism and what that's all about. I now understand predestination, and I had to read the Geneva Bible cover-to-cover and read the gospels quite a bit to get into that world.
+- The Lighthouse' couldn't have been made without this kind of freedom that is allowed to some filmmakers to be able to play around with genre. Jennifer Kent's 'Nightingale' is more horrific than any horror movie - but also, I don't think you could make that movie without this kind of freedom.
+- Honestly, if I could shoot everything in 1:33, I would.
+- Parajanov's love for the folk culture is quite infectious. The way that he loves everything on screen, I relate.
+- I'd love to do more theater.
+- As a second-time director you don't want to be working with someone who's a star that wants you to get down and kiss their feet.
+- If I'm going to make a genre film, it has to be personal and it has to be good.
+- When I was younger, I used to think it was kind of cool to abuse actors mentally, but I really disagree with that now.
+- Charles Dickens is a lot of fun to read but it's not obscure, and that's just fine.
+- The 'Friday the 13th' Jason movies were way too scary for me.
+- My office is just overflowing with books about witches and books about 17th-century animal husbandry and agricultural farm tools from the period.
+- I actually like 'The Shining' more than I like Kubrick, I think. The tension he sustains through the whole film is so great.
+- You can't train a goat. You can't. You can't. So I don't recommend making a movie with a goat in a major role to anyone.
+- I grew up doing a lot of theater - acting and making sets and costumes.
+- Three years into getting 'The Witch' financed, I was hanging out with my brother and he was like, 'I'm working on this script. It's a ghost story in a lighthouse.' I thought, 'Damn, that's a really good idea, I wish I'd had it.'
+- Star Wars to Jedi: The Making of a Saga' was huge for me. Seeing how all the creatures were made, looking inside Jabba The Hut, all of the maquettes lined up, building the world... 'This is a job?!' I was always avidly watching special features and behind the scenes stuff.
+- Bergman's my favorite filmmaker, if I had to choose.
+- I don't want to act like the witch trials all over New England were warranted, but when you live in a culture that believes something is real, it feels very real.
+- I certainly grew up in coastal New Hampshire, but I prefer to play in the woods than go to Hampton Beach or whatever.
+- What's so interesting to me about history is - what's interesting to anyone - is how humans are the same. Their belief systems were so different. They had different metaphysical truths than we do. And yet we're the same.
+- Being a wannabe auteur and my favorite filmmakers being part of the dead canon of European, Japanese art-house masters, I want to say that I don't want to care about genre and how it's limiting and all of that stuff.
+- Basically, I was always disappointed that the witches weren't real when we learned about the Salem witch trials.
+- I like finding things that are on the fringes and sort of half-forgotten, and to remind us of those things.
+- American audiences, a lot of people couldn't understand a word of 'The Witch.'
+- I definitely hope to create, to tell some stories on larger canvases, which does mean making something that is narratively more broad. But that's not a bad thing.
+- Witches were part of my imaginary childhood playground, so I wanted to make an archetypal fairytale about the mythic idea of what New England was to me as a kid.
+- Since the release of 'The Witch,' I'm actually much more warm towards bad horror movies than I was making 'The Witch.'
+- After I made my first short film that wasn't terrible, people were interested in potentially developing a feature with me. Every time I read a script, it was a bizarre, too-dark, genre-less thing that no one wanted to make.
+- To be honest with you, the forest resonates with me more, like instinctually, than the sea does.
+- I bow down to the altar of genre, because it allowed me to get 'The Witch' financed.
+- I don't like twists. I don't get much out of them. If you know two cars are about to run into each other, you don't walk away and say, 'Oh, I know what's going to happen.' You watch.
+- When we learned about Salem at school, the whole thing was confusing. Because the idea of the witch hunt is used as a symbol to describe people searching for something that's basically untrue, it cemented in my mind as a kid that witches weren't real.
+- For me, rehearsal is only about blocking and pacing; it's not about performance.
+- Nosferatu' has a very close, magical connection for me.
+- It's pretty easy to learn about lighthouses because there's a lot of lighthouse enthusiasts. Really, there's lots of books about it, and it's fairly easy to find lighthouse keepers' journals and logbooks.
+- What I love about research is when I'm having a bad day and I can't write, I'll just research some more, I'll learn some more and I'll have better command of the world of the film.
+- For better or for worse, my brother and I both have some Jungian leanings, so we're tempted to think that these bits and bobs of the past are knocking around in everyone's heads somehow to some degree, and they just need to be jiggled into the front of their head in the mind again.
+- I'm a big fan of silent cinema and I think that before I got into the canon of European arthouse cinema, the first interesting films I liked as a kid were German expressionist silent films.
+- Willem Dafoe is a huge hero of mine.
+- I think the thing that is most influential about 'Haxan' is the casting of the witches as just old women and the strength of that.
+- Murnau is neck to neck with Bergman as my favorite director. He's responsible for some of the best images in cinema of all time, from 'Nosferatu' to 'Faust' to 'Sunset.'
+- I still know the lyrics to pretty much any 'Mary Poppins' song.
+- So we didn't have any stars for 'The Witch.' A24 felt they needed something special for marketing, and they wanted to have the Satanic Temple endorse the film.
+- I've talked about this a lot, but 'The Witch' took four years to finance because there were certain compromises I wouldn't make.
+- I think I had my answers to the questions in 'The Witch,' and I had my answers to the questions in 'The Lighthouse;' I need those in order to write and direct them.
+- The Shining' is one of the few horror movies that I actually like and it actually scared me.
+- Folk tales, fairy tales, religion, the occult - these are the things I'm most passionate about, even more than cinema. And I'm very passionate about cinema.
+- Guillermo del Toro is able to invent his worlds. I would find the pressure of having to invent crippling.
+- I'm trying to communicate with other people about humanity and stuff, man!
+- The Witch' was very well planned, but 'The Lighthouse' was so much more so.
+- The Diary of Samuel Sewall,' 'The Diary of John Winthrop,' these are easy for anyone to get their hands on. This was really common stuff and there's tons of cases of demon possession.
+- In earlier cultures with pagan belief systems, light and dark were celebrated equally, people were around death a lot. In contemporary Western culture, we don't have that, and horror is a place you can be immersed in it.
+- Look, some days, you have to film a sequence in which the rain is pounding down on someone and you're just turning the camera on what's happening. And other days, you occasionally have to spray Robert Pattinson in the face with a firehose.
+- Certainly in Catholic countries, the peasantry have always found ways to integrate pagan things in a way that makes it a little bit easier just to be a human being.
+- Basically, I had a hard time getting anyone to want to make any of the features that I had written.
+- Cinemascope has become synonymous with 'epic,' and absolutely if you're shooting armies and certain kinds of vast landscapes, you do want that panoramic canvas to work on. But if you look at art history there's not a whole lot of epic paintings that are in that aspect ratio.
+- The Witch' was intended to be a horror movie.
+- Every actor demands different things. Every human being you come in contact with in your life, you have to deal with in slightly different ways.
+- I think where genre is limiting is that in the marketplace, you have to put things in a box to create expectations to make a profit, and that's where you run into trouble.
+- Ben Wheatley continues to be one of the most original voices in contemporary film.
+- I was totally shocked when Willem Dafoe's manager said that he wanted to have lunch with me.
+- Without sounding like a New Age crystal worshipper, you can feel something there, in these old dilapidated colonial farms and hidden graveyards in the middle of a pine forest. I certainly did as a kid.
+- Tons of folktales have to do with hares and witches. Basically, witches all over Europe turn into hares and are able to do malevolent things in the form of a hare. It goes back to the great god Pan. Pan is, if we're going to do archetypal projections, related to the Christian Satan, but as a child, Pan was wrapped in a hare's hide.
+- What's important to me about horror stories is to look at what's actually horrifying about humanity, instead of shining a flashlight on it and running away giggling.
+- I remember seeing re-releases of 'Snow White and the Seven Dwarfs' and 'Bambi' in the theater very young. They had huge impacts on me, particularly the dark aspects.
+- My brother and I grew up in a setting in the woods very much like 'The Witch' in southern New Hampshire, and then we would drive up north to Maine to settings like 'The Lighthouse' for vacations.
+- I would definitely agree that 'The Witch' doesn't leave much of anything to the imagination. There are some ambiguities about 'The Witch,' for sure, but all in all, it's pretty clear what's going on.
+- Witches were really scary to me as a kid.
+- The figure of the witch was interesting to me, because of the primal, archetypical witch nightmares I had, even as an adult. But as a kid, it started with Margaret Hamilton in 'The Wizard Of Oz' as this inescapable horror.
+- For some reason, no one wanted to give me money to make a movie written in early modern English that involved a lot of puritans praying - even if it did involve a witch.

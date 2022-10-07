@@ -1,0 +1,74 @@
++++
+author = "Frans Timmermans"
+title = "Frans Timmermans Quotes"
+quotes_len = "68"
+description = "the best 68 Frans Timmermans Quotes"
++++
+- The issue of migration has played a key role in all of our member states, wherever we are. Only we, as a European Union, can convince our citizens that we do have an answer to this - not deny migration, not pretend you can solve it by building fences and walls, not pretending we can solve it by letting everybody in.
+- Being part of the E.U. in Poland means that for the first time in a millennium, nobody disputes Poland's borders, and it brought a level of freedom that Poland has never known before.
+- If Europe does not understand that our sister continent, Africa, a stone's throw away, is going to face a demographic explosion, if there is no real economic and political restructuring, if we do not understand we have a collective responsibility for Africa, there is not a fence high enough to stop people coming to Europe.
+- The argument that won the Brexit campaign is the one that said take back control... which is another way of saying we want to control our destinies again. This is an existential issue for the whole of Europe, not just for the U.K., because this sentiment is not limited to the United Kingdom.
+- I want Europe to go forward, not backward.
+- Responsible politicians should never indulge in nostalgia - it is too much of a distraction at a time when a rapidly changing world throws up so many challenges, when we need to keep our wits about us.
+- The Treaty of Lisbon gave the European parliament a stronger role as co-legislator and the European Council its own president. Furthermore, the treaty introduced checks on subsidiarity - the concept that decisions should be taken as close as possible to the citizens - in an effort to cut back on unnecessary rules and regulations.
+- I believe many people - especially small- and medium-sized enterprises across the European Union - are disenchanted with Europe because we haven't delivered the goods.
+- The German car industry has a clear vision of the necessity of stability in the continent that goes beyond selling cars. For Germany, the economy is an instrument in a much wider issue of stability in continental Europe and overcoming the mistakes of the past.
+- There's a myth that in Arab countries, they all like Palestinians. They don't. On the contrary.
+- If you believe that through putting the judiciary under political control you can make it a better judiciary, you are wrong, and you are violating your own obligations under European treaties.
+- In a free Europe... the system of power lies on three pillars. These are democracy, rule of law, and human rights. It's impossible to use one against the other.
+- The main actors on the world stage are the size of continents, be they nation states or voluntary groupings of nation states such as the E.U. Nostalgia can help us ignore these harsh realities for a while, but it will not make them go away.
+- The European Union is not unbreakable; something that is breakable is extremely valuable.
+- I'm just one generation between someone who cheered when Germans were burning and someone who doesn't even know that there is a border. That's a miracle - really is a miracle - and it gets me really emotional.
+- The absolute low point for me in more than 30 years of professional life was the Brexit vote.
+- Is it not in human nature sometimes, based on the facts that you now know, to reconsider?
+- This is the game of those who deny climate change or who deny the need for sustainability. They say, 'They are going to take everything away from us. They are going to take our cars away from us. They are going to take our steaks from us. They are going to take all the things that make life nice away from us. So let's not go there.'
+- Respect for the rule of law is not optional; it's fundamental.
+- Whether they are Jewish, Muslim, Christian, or atheist, everybody has a place in this society.
+- If the E.U. is to survive... it is based on the fact that for every community that belongs in Europe, there is a place in Europe.
+- The U.K. is leaving the E.U. but not Europe.
+- If children knew what the effects are of using single-use plastic straws for drinking sodas or whatever, they might reconsider and use paper straws or no straws at all.
+- I think we have a political and moral duty to do everything within our power to maintain the Good Friday Agreement.
+- It is a duty for any government to uphold the rule of law, and this sometimes requires the proportionate use of force.
+- If you look at European societies since the financial crisis began in 2008, with very, very few exceptions, the differences between rich and poor have increased, and sometimes hugely.
+- For all its shortcomings, European co-operation and integration has created an understanding of shared destiny. We no longer point guns at each other; we fight it out at a conference table. And we will continue to do so when the U.K. is no longer a member state but, I hope, still a friend.
+- Given the amount of money circulating in the sport, European taxpayers and supporters are entitled to know how their clubs are being managed.
+- Our darkest angels in Europe are always somewhere under the surface.
+- Since when is politics consistent?
+- Nationalism makes us poor because its Siamese twin, protectionism, will destroy the internal market and disrupt international trade.
+- Nationalism makes us weak because its eternal seeking of enemies, its disdain of others, its need to feel superior makes cooperation with other nations to collectively guarantee our freedom and security much more difficult.
+- Plastic waste is undeniably a big issue, and Europeans need to act together to tackle this problem because plastic waste ends up in our air, our soil, our oceans, and in our food.
+- I think the E.U. means different things to different countries. In the U.K., traditionally, if you know anything about the U.K.'s history and its relationship with the E.U., it is about the common market; it's about being part of something that is good for jobs and growth.
+- I will do everything I can... to make sure that Poland sticks to a development that fosters the rule of law, democracy.
+- I find it unspeakably sad that the United Kingdom has voted to leave the European Union.
+- If there's no future for Jews in Europe, there's no future for Europe.
+- Is wellbeing only economic growth? Only salaries? Or is wellbeing also being able to breathe clean air and drink clean water?
+- The problem with UKIP and the extreme right - Mr. Le Pen, Wilders - they are really good at making an analysis of the problem. And they immediately go completely overboard in providing a solution that would never work and is morally completely unacceptable.
+- I am a huge fan of the Premier League, but do you think it will maintain its attractiveness if the Champions League is only an affair between English clubs and one or two others?
+- If you understand that we need a comprehensive approach to the migration issue, and only at European level, will this comprehensive approach be valuable and work. If we cannot convince our member states and citizens of that, then we will be in the same situation as the Dutch citizens were in 1581.
+- It has become routine for national politicians to blame Europe. When something works, they claim it as their success. When something doesn't work, then Europe is to blame.
+- For me, arguably, the European Parliament is the best-functioning European institution. They are extremely good at law-making; they're extremely good at finding compromise under pressure.
+- We need a tough approach to make justice prevail and, also, because sports should not be damaged by the violence of hooligans.
+- My parents married in 1959 and came to Amsterdam on honeymoon. That was a huge thing, event, for them. Now my children fly off for the weekend to Riga, Prague, or Barcelona.
+- How many millions of straws do we use every day across Europe? I would have people not use plastic straws any more.
+- Let's be clear: a nationalist is not a patriot.
+- I'm from Limburg, near the German border.
+- If you want to maintain the unique character of our sport in Europe, which is of great importance to millions of people, you need to be able to put associations in a position to protect the weaker clubs.
+- Public support will dwindle if the public thinks that free movement means undermining of social security systems... we need to get that right.
+- If the law does not give you what you want, you can oppose the law, you can work to change the law, but you cannot ignore the law. So it is fundamental that the constitutions of every one of our member states are upheld and respected.
+- As long as U.K. remains member of the E.U., it should respect the E.U. law.
+- Look at what the divisiveness of Brexit has done to the U.K.
+- While, of course, you cannot discriminate between nationals of member states, access to the labour market does not mean automatic access to social security systems.
+- Britain can get far better results if it engages with Europe than standing on the sidelines and saying that Europe should change.
+- The European Union should come up with a solid plan to help especially Poland and Slovakia make this transition away from coal.
+- Europeans distrust a Europe that overpromises and underdelivers.
+- Nationalism is like alcoholism: a short period of exaltation followed by a long period of headaches.
+- We need to wake up to idea that you cannot treat sport on equal terms with other parts of the economy.
+- If we put our policies in the right order, we have a sustainable society without lowering but even increasing our levels of wellbeing.
+- I think in Trump's view of the world, when the other person loses, he wins.
+- If nationalism makes us poor, weak, and morally insecure, how can it claim to be patriotic? I maintain that nationalists are unpatriotic.
+- What is the issue that has brought the European Union to the brink? The issue of migration.
+- Protectionism has never been an answer, will never be an answer. We need trade. We need trade agreements worldwide.
+- One of the principles upon which the E.U. is built is the separation of powers and the independence of the judiciary.
+- We need to be able to answer not yesterday's challenges but to tomorrow's challenges.
+- The Netherlands believes in a vigorous Europe with a commission that is independent and robust.
+- If we do not counter the argument that most radical nationlists use, which is, 'To protect is to be protectionist,' if we don't counter that argument, all of our economies will suffer.

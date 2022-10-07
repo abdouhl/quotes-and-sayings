@@ -1,0 +1,30 @@
++++
+author = "Benjamin N. Cardozo"
+title = "Benjamin N. Cardozo Quotes"
+quotes_len = "24"
+description = "the best 24 Benjamin N. Cardozo Quotes"
++++
+- I own that it is a good deal of a mystery to me how judges, of all persons in the world, should put their faith in dicta. A brief experience on the bench was enough to reveal to me all sorts of cracks and crevices and loopholes in my own opinions when picked up a few months after delivery and reread with due contrition.
+- The outstanding truths of life, the great and unquestioned phenomena of society, are not to be argued away as myths and vagaries when they do not fit within our little moulds. If necessary, we must remake the moulds.
+- A trustee is held to something stricter than the morals of the market place. Not honesty alone, but the punctilio of an honor the most sensitive, is then the standard of behavior.
+- To the question how one kind of labor can be measured against another, how the labor of the artisan can be measured against the labor of the artist, how the labor of the strong can be measured against the labor of the weak, the communists can give no answer.
+- There is in each of us a stream of tendency, whether you choose to call it philosophy or not, which gives coherence and direction to thought and action. Judges cannot escape that current any more than other mortals.
+- In law, as in every other branch of knowledge, the truths given by induction tend to form the premises for new deductions. The lawyers and the judges of successive generations do not repeat for themselves the process of verification any more than most of us repeat the demonstrations of the truths of astronomy or physics.
+- There are vogues and fashions in jurisprudence as in literature and art and dress.
+- I take judge-made law as one of the existing realities of life.
+- History or custom or social utility or some compelling sense of justice or sometimes perhaps a semi-intuitive apprehension of the pervading spirit of our law must come to the rescue of the anxious judge and tell him where to go.
+- The constant assumption runs throughout the law that the natural and spontaneous evolutions of habit fix the limits of right and wrong.
+- Prophecy, however honest, is generally a poor substitute for experience.
+- Method is much, technique is much, but inspiration is even more.
+- The risk to be perceived defines the duty to be obeyed.
+- Justice is not to be taken by storm. She is to be wooed by slow advances.
+- The rules and principles of case law have never been treated as final truths but as working hypotheses, continually retested in those great laboratories of the law, the courts of justice. Every new case is an experiment, and if the accepted rule which seems applicable yields a result which is felt to be unjust, the rule is reconsidered.
+- Law never is, but is always about to be.
+- The judge is not the knight-errant, roaming at will in pursuit of his own ideal of beauty or of goodness.
+- The prophet and the martyr do not see the hooting throng. Their eyes are fixed on the eternities.
+- Membership in the bar is a privilege burdened with conditions.
+- Freedom of expression is the matrix, the indispensable condition, of nearly every other form of freedom.
+- The Constitution overrides a statute, but a statute, if consistent with the Constitution, overrides the law of judges. In this sense, judge-made law is secondary and subordinate to the law that is made by legislators.
+- The work of deciding cases goes on every day in hundreds of courts throughout the land. Any judge, one might suppose, would find it easy to describe the process which he had followed a thousand times and more. Nothing could be farther from the truth.
+- There comes not seldom a crisis in the life of men, of nations, and of worlds, when the old forms seem ready to decay, and the old rules of action have lost their binding force. The evils of existing systems obscure the blessings that attend them, and, where reform is needed, the cry is raised for subversion.
+- Lawsuits are rare and catastrophic experiences for the vast majority of men, and even when the catastrophe ensues, the controversy relates most often not to the law, but to the facts. In countless litigations, the law Is so clear that judges have no discretion.

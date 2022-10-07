@@ -1,0 +1,15 @@
++++
+author = "Atticus Ross"
+title = "Atticus Ross Quotes"
+quotes_len = "9"
+description = "the best 9 Atticus Ross Quotes"
++++
+- My wife is a classically trained piano player, and she also orchestrates.
+- My wife and I were in a band and worked together on and off since we were 19 or 20.
+- Personally, I do the best work with people I'm closest with. I know what their tastes are, and they are similar to mine. That close personal relationship is what delivers the best work.
+- I like it when I go into a cinema and I'm not aware that I'm there; I'm totally involved in the film for two hours.
+- With 'Gone Girl,' I sat down, and suddenly the end credits were rolling; you just become so engrossed in it.
+- My brother, who's ten years younger than me, worked with me in the studio when he was very young. He's a guitar player and does programming as well. To have the working and personal relationship coincide has been very natural.
+- I love movies. And sometimes it will be a case where I don't notice music.
+- A scene gets cut a few frames here and there, but there's a cumulative effect to it, and then the music needs to be reworked. It's demanding, but when you see the improved cuts, it's always better.
+- For me, making music is a continuous learning experience, and I think that it feeds itself.

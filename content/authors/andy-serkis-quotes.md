@@ -1,0 +1,175 @@
++++
+author = "Andy Serkis"
+title = "Andy Serkis Quotes"
+quotes_len = "169"
+description = "the best 169 Andy Serkis Quotes"
++++
+- I think the actors in 'Greystoke' were amazing. They had a really good performance coach called Peter Elliott who's, of his time, one of the greatest simian performance coaches for actors.
+- I've been writing and wanting to direct for a long time.
+- J.J. Abrams is an all-time hero of mine, really lovely to be working with him.
+- Motion capture is exactly what it says: it's physical moves, whereas performance capture is the entire performance - including your facial performance. If you're doing, say, martial arts for a video game, that is motion capture. This is basically another way of recording an actor's performance: audio, facial and physical.
+- Did you happen to catch the film I did between 'Lord of the Rings' and 'Kong?' It was a nice little Jennifer Garner comedy, '13 Going on 30,' and I play her boss. In my big scene, I get to moonwalk - pretty well, I thought - to Michael Jackson.
+- I am a bit evangelical, I know, but performance-capture is still misunderstood.
+- Playing a character in a video game is different to other performances because your character can't lead the audience of players in one direction.
+- Originally when I went off to work on 'The Lord of The Rings' I got a call from my agent saying that I was just going to do a voice. But I couldn't really approach it like that. To get Gollum's voice I had to play the character.
+- I'd already started directing short films when we were doing 'Lord of the Rings,' then videogame projects.
+- Gorilla tourism is vital to Rwanda's economy: It's the third highest source of income.
+- We've never had nannies. We've had great grandparents, great support from family, and the kids have been on every set: they've seen me play Gollum, King Kong, Captain Haddock, the lot. They totally get it, and they want to go into the business. Ruby, my daughter, is very keen to become an actress.
+- Gollum was so interesting to me because he's morally ambivalent, and I love the notion of a quest that is to lose something. Not to gain, but to get rid of something.
+- Just being an ape is a workout.
+- The learning curve is 'The Hobbit' is being shot in 3D.
+- Great actors like Willem Dafoe and Ellen Page and Samuel L. Jackson will go and do a videogame, because they understand that storytelling isn't just necessarily about filmmaking.
+- Gollum is my picture of Dorian Gray. He will be with me for the rest of life, and I will grow to look more like him as I get older.
+- I have a road bike and a mountain bike, and I tend to use them both a lot. They help you keep your balance and your stamina.
+- It was a fairly happy childhood. My father was working away, and my mum brought up five kids all on her own.
+- I've always been a huge fan of Charles Lawton's performance in 'The Hunchback of Notre Dame,' so somewhere along the line, I've always wanted to play that character.
+- Acting is a sort of pressure cooker that allows the fizz to come out the top. God knows what I'd be like if I didn't have that.
+- I think my mum wanted me to join the army or something, or become a surveyor - something with good career prospects.
+- I love acting and certainly won't give it up, but it's part of a bigger canvas for me now.
+- When you have children, you realize that at the end, it's all about passing on, about handing down.
+- I want to link together ancient forms of storytelling and the future.
+- Any sort of role requires a certain amount of research and embodiment of the character and psychological investigation.
+- There's a huge gulf between people who can afford to go to drama school and those who can't.
+- When we, as humans, articulate, our tongues tend to hit the back of the teeth.
+- I've been on stage and been an actor for many years and used different mediums.
+- I have a company in the U.K., a performance-capture studio. We're looking to push the boundaries of performance-capture technology in film and video games, but also in live theater, using real-time performance capture with actors onstage, and combining that with holographic imagery.
+- My livelihood depends on the art of animators.
+- The whole chameleon thing about acting. That's why I'm moving towards directing - it's a much more healthy occupation.
+- I've been told that some guy wrote something like, 'Andy Serkis does everything, animators do nothing.' Of course I never in a million years said that, wouldn't ever say that. It's not within my understanding of filmmaking to ever say anything like that.
+- People find it hard to get their heads around nominating a computer-generated character, but every time you see Gollum on the screen, that's me who is acting up there - even if it is behind a mass of pixels - and it's my voice you hear.
+- 'Macbeth' is an amazing story.
+- Performance capture is a tool that young actors will need in the next 10, 20 years. It's on the increase, as you say. It's not going away.
+- I'd like to think that we strive in film and theatre to tell great stories, and I believe in the power of storytelling in our culture.
+- The art of transformation is a very important thing to me, and I always believe I can say something more truthful through characters that are further away from me.
+- You can't just come up with an idea for a game and stick the drama on top. It all has to be one driving thrust.
+- My natural bent is to have an overabundance of energy, and motion-capture essentializes your every breath, your every move. Seeing yourself through that mask, you realize how far you can pull back and make the performance even more powerful.
+- Thank God for Skype!
+- You could go so wrong with a 'Planet of the Apes' reboot; you could make it melodramatic, you could make it campy, you could fall into so many traps with it.
+- That's why I ended up going to Lancaster University, because they had a visual arts course, and in the first year it was like a broad visual arts course in sculpture, painting, graphics - all of that.
+- You don't really think about 3D when you're acting. As a director, you do.
+- In performance capture roles, it's not a committee of animators that author the role, it's the actor. I think that's a significant thing for people to understand.
+- I had to relearn how to ride a horse like an ape. I had to change how I jumped off and how I gripped them with my thighs and distribute my weight differently.
+- After 'Kong,' my knuckles have never recovered because I had to wear very heavy weights on my forearms and around my hips and ankles to get the sense of size and scale of the movement of the character... You are telling your body that you are these things and that you're feeling these thoughts and that you're experiencing these experiences.
+- I grew up with 'Star Wars' and was a massive fan of the original films.
+- What you can do with visual effects is enhance the look of the character, but the actual integrity of the emotional performance and the way the character's facial expressions work, that is what is going to be created on the day with other actors and the director.
+- Actors' performances in films are enhanced in a million different ways, down to the choice of camera shot by the director - whether it's in slow motion or whether it's quick cut - or... the choice of music behind the close-up or the costume that you're wearing or the makeup.
+- Britain has enormous amount of talent, as we've seen from the BAFTAs. It's all here, and it has to be allowed to flourish.
+- Mountaineering has always been a huge hobby of mine.
+- I guess I just tend to feel at home wherever I go.
+- I think that Gollum is really the character who is a very human character, and he's very flawed, like most humans are, and has good and bad sides.
+- I enjoy high-speed about-turns in thought.
+- Both my parents are Catholic and staunch believers. I'm not a Catholic now, but I still carry part of it with me.
+- Having done a lot of theater, I'm used to sustaining characters over long periods of time.
+- I remember kind of doing early acting and thinking, 'God, they don't paint behind the sets.' It's a bit of a shame, really - 'Oh, what's on the other side of this wall? Oh, you can see the plywood.' I was really disappointed. I just thought that these things were real, from watching things as a kid.
+- Gollum's never really gone too far away from me because he's indelibly kind of printed into my DNA now, I think.
+- For film and games, there is now a fantastic method of actors portraying characters which don't necessarily look like themselves. And yet you've still got the heart and soul of the performance.
+- Middle-earth is a universe I know very well.
+- There are parts of New Zealand that I absolutely fell in love with that I will miss going back to, but I kind of think that is the part that can continue and will continue on. I don't imagine I'll stop going back to New Zealand, because I feel part of the fabric there, really.
+- Not a day goes by where I'm not reminded of Gollum by some person in the street who asks me to do his voice or wants to talk to me about him. But because 'The Hobbit' has been talked about as a project for many years, I knew that at some point I'd have to reengage with him.
+- If you are not moved by the character, no amount of CGI will give you a performance that is emotionally engaging or devastating - what a live-action performance does.
+- I've done a lot of films that are purely live-action roles, and even if I hadn't come across performance capture as a technology, I think I'd always consider myself a sort of mercurial actor.
+- I think acting really helps as a director. It's just no question, because you totally understand the acting process.
+- I think when actors run away from their work that they're slightly crazy, really!
+- The great thing about performance capture is you can go off, and then, without changing costume, you can become another character.
+- J.J. Abrams and I met, and we just had this incredible kind of vibe between us.
+- I spent a lot of time on my own working out the physical vocabulary for how Gollum moved. As I say, I drew on a lot of Tolkein's descriptions of how he moves, but also the conceptual artist sketches.
+- I've always been really in touch with my primal instincts. In my profession, you have to be.
+- I would love to direct an 'Apes' movie. It would be in the spirit of where I'm going with my career - avatars played by actors to say something about the human condition.
+- You never really know why you become an actor: it's a visceral thing, an emotional thing.
+- As I started to research gorillas, I began to understand that they're all totally individual and idiosyncratic, and they have their own personalities.
+- Put it this way: If I had to go back to 1968 and wear the makeup that John Chambers made for the original 'Planet of the Apes' series, I think I would rather wear a unitard.
+- Recently I read that half the world or more has read 'The Lord of The Rings,' but then I found out that something like 75 per cent of the world knows the 'Tintin' books.
+- In 'Tintin,' it's like a live-action role. You're living and breathing and making decisions for that character from page 1 to page 120, the whole emotional arc. In an animated movie, it's a committee decision. There are 50 people creating that character. You're responsible for a small part.
+- I'm in the early stages of a film called 'Freezing Time' about Eadweard Muybridge, the Victorian photographer who was really the forefather of cinema. Digital animators still treat his images like the Bible. He was a very obsessed man.
+- Over the years, people have asked me, 'Do you think there should be a separate category for acting in the digital realm? Or hybrid sort of awards for digital characters?' and so on. And I've always really maintained that I don't believe so.
+- When you do animation - well, straightforward animation, although it's not straightforward - the voice for a character or something, they're always singular experiences, really.
+- When I played Gollum in 'Lord of the Rings,' if I was climbing up the side of a mountain, which I physically did, you know, I was on every single occasion swimming through streams, all of that, that wasn't captured. That was filmed on 35 millimeter, and for certain of those shots, it was rotoscoped and painted over.
+- More and more good actors are now transmigrating into the videogame space and playing roles there because it's where my generation of kids get stories from.
+- I think I spend most of my time not living in reality, actually.
+- Yeah, I mean, climbing's always been a massive hobby of mine up until, kind of, recent times when I've had family, but no, it's been a driving passion in my life and, uh, I've always wanted to climb the Matterhorn. It was the mountain that, sort of, inspired me to climb, as a youngster. So, it was great to be able to get to do it.
+- The thing is, I don't just take roles because they're performance capture.
+- Gollum is entirely based on the notion of addiction. The way that the ring pervades him, makes him craving, lustful, depletes him physically, psychologically and mentally.
+- I think parenting is very different now. We're totally governed by our children!
+- I expect at some point I'll probably want to go back on stage and do some theater, because I've not done theater in 10 years.
+- Games aren't going to go away. BAFTA's got a category for games as an art form. The Academy should think about that, too.
+- Our family were outsiders, and I've always had a sense of the outsider, the underdog, and a strong sense of justice towards people who are excluded.
+- In terms of animation, animators are actors as well. They are fantastic actors. They have to draw from how they feel emotionally about the beat of a scene that they're working on. They work collaboratively.
+- As long as you have the acting chops and the desire to get inside a character, you can play anything.
+- When I was in theater I was forever trying to inhabit a space which puts yourself under the microscope as an actor and your personality and your take on life, but actually through another portal of a character.
+- An actor finds things in the moment with a director and other actors that you don't have time to hand-draw or animate with a computer.
+- Gorillas are still wild creatures. That's made very clear when you observe them in nature. They charge and perform other displays that are terrifying by design. But they don't attack unless they feel threatened.
+- If you're in a motion-capture studio, you have spherical, reflective markers, which are picked up by cameras that emit infrared - it reflects it, and then the cameras pick up the data.
+- People used to say, 'Andy Serkis lent his movements to Gollum,' and now they say, 'Andy Serkis played Caesar.' That's a significant leap.
+- Certain gorillas are more evolved than certain human beings I know.
+- I understand why people went nuts for 'The Artist.' We use words so much, it's nice to be able to explore a different way of communication, to be able to express silently what someone - or something - is thinking or feeling.
+- Originally, I thought, 'Gollum's such a fantastic character, why are you doing him CG? Surely you need to be able to humanise him as much as possible - he's so full of pathos and real emotion.'
+- Looking back, when I was Gollum, I suppose I did break the mold to a certain extent. I'm proud, and very thrilled, to be a part of that.
+- I had a cat called Dizz, after Dizzy Gillespie.
+- I stayed in Baghdad every summer until I was 14. My dad's sister is still there, but many of my relatives have managed to get out. People forget that there are still people there who are not radicalized in any particular direction, trying to live normal lives in a very difficult situation.
+- I love the ability to transform because that, for me, is a liberation.
+- If James Franco's wearing a costume, and I'm wearing a motion capture suit, we don't act any differently with each other because of what we're wearing. We're embodying our roles.
+- You're watching your kids playing football, and you're not present. It's like the worst... it's horrible. I despise myself for it. I think it's a particularly male thing. Being present and in the moment with your kids is something a lot of men struggle with.
+- A lot of people have asked me to do answer phone messages for them.
+- I do love nature, but I don't suppose I'd spent more time in zoos as a child than anyone else!
+- Working with and collaborating with and for Peter Jackson was an incredible experience because he is such a phenomenal filmmaker.
+- What's fantastic is that there's a real growing appreciation for performance-capture technology as a tool for acting.
+- I'm a shockingly bad sleeper. In bed very late. Awake at the crack of dawn.
+- The wonderful thing about 48 fps is the integration of live action and CG elements; that is something I learned from 'The Hobbit.' We are so used to 24 fps and the romance of celluloid... but at 48 fps, you cannot deny the existence of these CG creations in the same time frame and space and environment as the live action.
+- I think Caesar is one of the most empathetic characters that I've played. I think that's the key to a successful leadership. Being able to keep your ears open at all times.
+- I believe that when people experience an event as a community, it can transcend and change people's lives.
+- I'm quite contrary. If people agree on something, I tend to gravitate the other way by my nature. I don't like to be told what to do. I think it goes back to school. I like to do things I want to do and I really don't like doing what I don't want to do.
+- I can get on with all different sorts of people, and I never feel homesick, particularly, or I've never felt kind of patriotic towards any one country.
+- What's wonderful about Tolkien and Shakespeare is that they show up your own individual microscope. They're so infinitely vast. You can reinterpret them in so many ways.
+- I think I'd like to be a lion tamer, actually. That - that would provide the most audience entertainment if something went really badly.
+- It has been great portraying Gollum, but it will be great to see my face on screen for a change.
+- I don't see a difference between playing a performance capture role and a live action role, they're just characters to me at the end of the day and I'm an actor who wants to explore those characters in fantastically written scripts. The only caveat is a good story is a good character.
+- I'm definitely moving more towards directing now.
+- When I'm working on the scripts or working with the other actors or rehearsing with the director, and when the director is cutting the movie, and we've shot the scene, the director is not looking at the visual effects.
+- My very, very first moment on set on 'Lord of the Rings' in 2000 was me in a lycra suit, six and a half thousand feet up on a mountain in New Zealand, standing in front of 250 crew who were all wondering what I was doing - myself included.
+- Gollum has a weak personality and isn't able to cope with the power of the ring.
+- If it was a great script and a great character, I would love to do a romantic comedy.
+- I had a body wax. It's the most painful thing I have ever done in my life. I had every single hair on my body pulled out, and I really bruised.
+- My take is that acting is acting. A performance is a performance. With performance capture, if you don't get the performance on the day, you can't enhance the performance.
+- In the same way 'Lord of the Rings' was an interpretation of the book, 'The Hobbit' is being treated the same way. It will be faithfully represented with a fresh interpretation.
+- And 'Sex & Drugs & Rock & Roll' was a very transitional film for me in that I was one of the producers and you know, came up with the idea with the writer and the producer, as well. But, it was a very collaborative event. You know, I really love working in that way.
+- 'How To Train your Dragon 2' is an amazing film. I think it's an extraordinary film. The animation in it is fantastic.
+- But I think there's something wonderful and extraordinary about climbing on your own and just that kind of relationship to the environment. I'm very addicted to the mountains. You know, so, I do like that solitude.
+- On 'The Avengers,' I've been working closely with Mark Ruffalo.
+- Performance capture, for me, is finding the essence of a performance.
+- You'll very rarely find that you can enhance a performance to give it a real emotional centre and truth... after the fact.
+- The reason that some motion-capture films don't work is if the scripts are not good, and the characters aren't engaging, then you don't believe in the journey, and you're not connected to it. It's not the technology's fault.
+- Climbing's always been a massive hobby of mine up until, kind of, recent times when I've had family, but no, it's been a driving passion in my life, and, uh, I've always wanted to climb the Matterhorn. It was the mountain that, sort of, inspired me to climb, as a youngster.
+- I do have anger management issues. Not clinical. Probably no more than most people.
+- If I hear someone say something, and they're 100 per cent about it, then it's almost inevitable that I'll take the opposite view. I guess I feel at odds with things like society. Absolutism is always a trigger for me.
+- My father was interested in justice, always working for people who needed to be supported.
+- Gorillas have a belch vocalization, which is sort of like, 'I'm OK, you're OK.' They do a pig grunt, which is reprimanding. They sing, they laugh, and they hoot, which grows into a chest-beating display.
+- Be magnificent. Life's short. Get out there. You can do it. Everyone can do it. Everyone.
+- I play saxophone, I play tenor sax.
+- My first job when I got my equity card was acting in 14 plays back-to-back. Playing that many roles, you look for ways of differentiating the characters physically, which goes hand in hand with understanding them psychologically.
+- I think I have a lot of internal energy, which does need to come out.
+- 'The Hobbit' was one of the first biggish books I ever read. I remember vividly the 'riddles in the dark' passage, and it meant a lot to me to finally get to play it after all these years.
+- Actors' performances do not stand alone in any film, live action or whatever.
+- I think there will always be a particular generation of actors who... think that they're going to be replaced by robots. But certainly the emerging actors... understand that that's part of the craft.
+- I'm a Mac user. I think it depends on how you were brought up, and I was introduced to Apple quite early. They're certainly the best for visual stuff and film-directing.
+- I've always thought of acting as a tool to change society. I watch a lot of actors and I see panic in their eyes because they don't know why they act and I know why I act. Whether I'm a good or a bad actor, I know why I do it.
+- I do listen to myself sometimes and think, 'Is my moral compass so easily swayed by the characters I play, or is it me growing as a human being?'
+- When I first did 'The Lord of the Rings,' I was acting on the set with the other actors, but then I had to go back and repeat the process on my own to do the physical capture on a motion capture stage.
+- I wanted to be a painter, really, when I was growing up as a kid. It was one thing that really took a grip on me.
+- If 'The Hobbit' happens - and there's reason to believe that it will - then I think I'm in with a chance! Gollum is very much part of 'The Hobbit,' after all.
+- Every age has its storytelling form, and video gaming is a huge part of our culture. You can ignore or embrace video games and imbue them with the best artistic quality. People are enthralled with video games in the same way as other people love the cinema or theatre.
+- People think, 'Oh, well how can 'The Hobbit,' which is one book, become three films?' But you can take one line from an appendice and it turns into a whole sequence.
+- As soon as you do it, actors realize there is no difference playing a performance-captured role or a live-action role.
+- I don't want to play a voice.
+- Gollum is Gollum - though in 'Lord of the Rings' he's 600 years old and in 'The Hobbit' he's 540, so he looks a little bit more handsome.
+- Performance capture is a technology, not a genre; it's just another way of recording an actor's performance.
+- Before I became an actor, I was a visual artist, and I've always hankered for the storytelling behind the camera.
+- My dad was working abroad, in Iraq, and he was a doctor. We used to go and visit him, in Baghdad, off and on. For the first ten years of my life, we used to go backwards and forwards to Baghdad, so that was quite amazing. I spent a lot of time traveling around the Middle East.
+- The fact of the matter is I have done so many parts.
+- Nowadays, there's no such thing as a stable job.
+- The fact of the matter is that an actor, if I'm playing a performance capture role and you're playing a live action role and we're having a scene together, there's no difference in our acting processes.
+- I never felt totally, 100%, patriotically English... I'd seen a lot of the world by an early age - sort of spent a lot of time traveling around Lebanon and I'd seen Babylon, and Damascus, and all sorts of places in the Middle East by the time I was ten. Then we'd return to Ruslip in West London... Done a fair bit of traveling really.
+- A lot of actors on film sets... very often they're not paying attention to the physical world around them. I think through studying art, I've always had that awareness and that's something that I've wanted to bring in to go beyond acting... As a form of expression, they are intrinsically linked.
+- People will come up to me and try and be secretive and say, 'Can you do the Gollum voice for me?' And I'm like, 'Are you kidding? It's 8:30 in the morning on the Victoria Line.'
+- For me, I've never drawn a distinction between live-action acting and performance-capture acting. It is purely a technology.
+- I think even back as far as 'Lord of the Rings,' there was always the chance that 'The Hobbit' would be made, even way back then. Of course at that point, Peter Jackson didn't probably think at that point that he'd be directing it.
+- Everybody thinks performance capture is about thrashing around and doing a lots of movement, but it's actually about being able to contain and think and be believed in a close-up, as much as anything else.

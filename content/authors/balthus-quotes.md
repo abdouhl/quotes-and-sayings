@@ -1,0 +1,16 @@
++++
+author = "Balthus"
+title = "Balthus Quotes"
+quotes_len = "10"
+description = "the best 10 Balthus Quotes"
++++
+- Painting is the passage from the chaos of the emotions to the order of the possible.
+- I always feel the desire to look for the extraordinary in ordinary things; to suggest, not to impose, to leave always a slight touch of mystery in my paintings.
+- I will always find even the worst paintings that attempt some kind of representation better than the best invented paintings.
+- The craft of painting has virtually disappeared. There is hardly anyone left who really possesses it. For evidence one has only to look at the painters of this century.
+- Painting is a language which cannot be replaced by another language. I don't know what to say about what I paint, really.
+- The best way to begin is to say: Balthus is a painter of whom nothing is known. And now let us have a look at his paintings.
+- I refuse to confide and don't like it when people write about art.
+- Painting is a source of endless pleasure, but also of great anguish.
+- One must always draw, draw with the eyes, when one cannot draw with a pencil.
+- Painting what I experience, translating what I feel, is like a great liberation. But it is also work, self-examination, consciousness, criticism, struggle.

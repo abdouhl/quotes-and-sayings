@@ -1,0 +1,19 @@
++++
+author = "Bonnie Jo Campbell"
+title = "Bonnie Jo Campbell Quotes"
+quotes_len = "13"
+description = "the best 13 Bonnie Jo Campbell Quotes"
++++
+- I enjoy shooting. Around where I live, it's something you do for entertainment once in a while, you go out and shoot targets.
+- I mostly write about the working poor. Somehow, they're not being written about much anymore. I'm very interested in people who are in a situation that needs a little puzzling out. The thing that gets me started on a story is a person in a tough situation.
+- I love writing about men. To get by in the world you have to know how men think. Not that all guys think alike, but women tend to think about more things at the same time, an overgeneralization, but I find it easier to make my male characters focus than I do my female characters.
+- When I was little, we lived on 8 acres and my mom had a horse. But when I was 7, my mom kicked my dad out, and then in order to feed us five kids, she got critters cheap or for free and raised them for food. We milked a cow, raised chickens, pigs and beef cattle. We heated our one-story house with wood and stayed cold all winter.
+- I read stories aloud at every stage. I listen to my writer friends when they kindly offer criticism. I listen to my husband when he tells me something doesn't seem right. I have my mother's boyfriend, Loring Janes, read to make sure I get everything right with the machines and guns.
+- I've worked behind counters serving food, and I've lived on the circus train, and I've led bicycle tours in Eastern Europe and the Balkans and Russia. I've been a key liner for a newspaper, I've done typesetting. Oh, all sorts of things.
+- I think by writing about a place with great specificity, you manage to make it universal.
+- A mathematical proof is beautiful, but when you're finished, it's really only about one thing. A story can be about many things.
+- For 'King Cole's American Salvage,' I rode around in the wrecker with a local driver and watched him deal with customers and hook up the cars. I watched the guy who tore apart the cars in the junkyard. I also wrote poems about those guys. I loved hanging around the yard.
+- Writing is so wrapped up in ego, but with math one is just trying to get it right, although you're often wrong. I think math helped me become a good critic of myself, come at writing a little less personally.
+- I always felt a weird obligation to be adventurous.
+- We have a shotgun we inherited from my father-in-law, a paranoid Englishman living in Texas. I have a .22 Marlin rifle, similar to the one Annie Oakley had, and my husband has a .357 Magnum pistol. All those are locked up tight, of course. We have a couple of pellet guns that get more use than the real guns.
+- I always know exactly where my stories take place, which gives me something certain so I can use my imagination for the other stuff. I worry though, who wants to keep reading stories about Kalamazoo?

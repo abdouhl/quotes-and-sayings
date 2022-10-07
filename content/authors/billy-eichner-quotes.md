@@ -1,0 +1,118 @@
++++
+author = "Billy Eichner"
+title = "Billy Eichner Quotes"
+quotes_len = "112"
+description = "the best 112 Billy Eichner Quotes"
++++
+- Usually, you'll have a show like the 'King of Queens,' and there'll be one really fat guy, but at least he has a beautiful wife - they balance it out.
+- I like good movies, and I love theater, and things that I grew up loving, I still love.
+- People come up to me all the time and say, 'I just found out about you!' Part of me is happy, and part of me is, like, Where the hell have you been?'
+- I'm on all the apps: Tinder, Grindr, Bumble, Scruff. I have no shame about that.
+- If a comedian has a strong following, and the branded segment feels different compared to what you typically do, people will know right away that it's not authentic to who you are as a comedian or performer. Brands need to keep that in mind.
+- We need to take a breath and find big ways and small ways to get active.
+- People saw 'Moonlight' because it was excellent.
+- You can't be a great comedian without having self-awareness about others or your own faults. You need a strong sense of self and view on the world. That's what great actors have, too.
+- If you really think you have something good, you can't take no for an answer. You've got to get in there and ignore the people who say no.
+- I don't think my voice has changed very much when it comes to things that I create. It's just my perspective, my point of view, and I guess that really hasn't changed very much. Luckily, it hasn't had to change in order for me to work.
+- I had about five years as a gay guy in New York after college before the whole Grindr explosion happened, where people were still going out to meet each other.
+- I am Jewish, but I love Christmas, as most Jews with any taste do, because Hanukkah is lame.
+- I came back to New York after college like any number of struggling performers, and you just find that niche where you can have some sort of impact. And for me that turned out to be comedy.
+- People going off on politics on Grindr is one of the stupidest things I've ever seen. That's an immediate sign to run in the other direction.
+- I like being in my New York bubble. It's the best bubble!
+- I don't mean to sound like a Pollyanna, but for me, New York is the ideal because of the diversity here. 'Billy on the Street' is really informed by that.
+- There is no way I will survive Mike Pence doing Carpool Karaoke. What song's he gonna sing? 'I Deported Your Grandmother?'
+- Society would be a lot better if people watched Hulu's original programming and not just 'Mozart in the Jungle,' which everyone is watching, apparently.
+- Saying gay people shouldn't be the punchline is basically saying don't make people the punch line, which I think is ridiculous. The whole point of comedy is, on some level, to make fun of ourselves and put everything into an absurdist context.
+- I think that I am working to remind myself that it's still my life... you have to enjoy yourself.
+- One of the first big agencies that represented me, my point person there - this was over 10 years ago, so it's no one who I work with now or have worked with recently - but he told me that I was too ambitious.
+- 'Billy on the Street' is a very exhausting show to do, as you can imagine, but it's worth it.
+- There are people who have huge YouTube followings - whose every post gets hundreds of thousands, if not millions, of hits. But I don't think that's having the same impact as someone who has a regular presence on television, or both.
+- I thought I was going to be like Kevin Spacey in college.
+- We have a whole art department on 'Billy on the Street.' We give away dioramas that we've made.
+- All that social media hyperbole is just so fake.
+- Probably the most common question I get is, 'Who's your dream guest?' That's kind of annoying because there isn't one.
+- I always turn to Wendy Williams when there's any type of ethical or moral crisis in our country.
+- I have this ongoing obsession with Meryl Streep.
+- I haven't done many commercials, and I'm very picky about it because it comes down to creative control.
+- I just love Stephen Colbert. He's a genius.
+- I did a live late-night talk show called 'Creation Nation' with friends of mine. I had a sidekick and a band, and I wrote the whole thing. And it had the form of a late-night talk show, but we did it on stage because no one was giving me a TV show at the time.
+- I thought it would be funny to go to my Korean dry cleaner and ask her about my head shot, as if it's the most important thing in the world, and as if it's something that everyone should weigh on because it's important to me.
+- I have a vivid memory of loving Keith Hernandez, the first baseman for the '86 Mets. I grew up in Queens, so when the Mets won the World Series that year, it was a big deal.
+- You have to have a sense of humor about all of it - the Emmys and politics and everything.
+- I don't want to do something that's watered down. I don't want to take what I'm known for and dilute it.
+- I grew up watching 'Saturday Night Live.'
+- I'm a very outside-the-box kind of guy.
+- When I was child, I was intoxicated by celebrities, showbiz and theatre, but from a child's perspective, where they seem far away.
+- I can be a bit of a nervous flyer.
+- 'Billy on the Street' is the hardest thing that I will ever do.
+- I would not have a career without Facebook and Twitter. That's the truth.
+- Our pop cultural likes and dislikes are still very segregated, and that is not true of 'Billy on the Street.'
+- I only scream if screaming is deserved.
+- I came out to my parents when I was a junior in college. And it was pretty fine. They were more concerned with why I wasn't dating anyone. But now I'm 36, and I still don't date anyone.
+- Anytime you're the creative force behind something and in front of the camera - we're not complaining, but it is an avalanche of work.
+- I was a terrible waiter.
+- Amy Poehler and I once ambushed people and made them sing Christmas carols with us.
+- I grew up in Queens, which is the most diverse borough: the rich and the poor and homeless and people of every sexual orientation and gender and age group. Everyone is saying we live in this bubble, and there's some truth to that. But I do not think it is healthy to all of a sudden invalidate the way we live in New York.
+- I did start out as an actor. I went to Northwestern; I did musicals. I did plays.
+- It's not enough for Hollywood to make a bunch of gay movies. That's obviously a big part of the equation, but then gay people have to show up for those movies.
+- Every actor-performer says this, and it sounds so irritating, but I'm not the most outgoing person.
+- Award shows are fun but completely arbitrary and absurd. And yet, I will watch every single one of them.
+- Facebook is weird. They have all of these seemingly random rules that I'm sure make sense to them, but don't make sense to me or any people.
+- I'm smart enough to know I shouldn't be behind the wheel.
+- I grew up in New York, so I had a lot of access to all kinds of movies, and I would handwrite reviews of them on loose-leaf paper.
+- Everyone's life experience is different.
+- 'Billy On The Street' has no doubt always been about the people we talk to. That being said, it thrills me that the show really has a dedicated following in the comedy world.
+- I just worship Madonna. As, like, a young gay kid growing up in the '80s and '90s... I was at the Blond Ambition tour with my parents vogue-ing up in the mezzanine at the Nassau Coliseum.
+- The mainstream needs Ellen DeGeneres and Rosie O'Donnell. The mainstream needs RuPaul.
+- I would never be a contestant on my own show. I would never speak to me, and I'd never sign the release.
+- I'm not a bro.
+- I think there's a fear once things start to blow up - as the people say - that if you stop for a second, it will all go away.
+- My father would read me Page Six instead of, like, kids' stories.
+- If you're faking it, people will know, and it's going to turn a lot of people off.
+- My favorite Tyler Perry movie? Ugh, how can you decide? For me, it's basically like: Kurosawa, Tyler Perry, Martin Scorsese, in that order.
+- It's always really funny to watch someone who really wants something who isn't getting it but who's desperate for it.
+- Society would be better off if Billy Eichner started getting more dramatic work.
+- It's been a very strange trajectory because I struggled for so many years. I mean, I was doing these videos, I was doing these live shows, I had a lot of fans in New York, the press would write about me, but I couldn't get a paying job, and so my father and I were really like a team.
+- Our new vice president, Mike Pence, is one of the most blatantly anti-LGBT politicians in the country, and most, if not all, of Trump's cabinet is anti LGBT equality as well.
+- Jim Carrey and Steve Carell did dramatic roles. I look up to them. You want a career like that.
+- I was very much an only child who was raised by the television and movies, and I grew up in New York. We weren't, like, rich people, but we were middle-class people and my parents supported this love I had for entertainment.
+- To me, what the 'Billy on the Street' persona is, is me as a 12-year-old.
+- I loved all awards shows growing up, but of course, the Oscars was the biggest one.
+- I do take for granted, probably, the fact that I grew up in New York City, one of the most liberal places on earth, with bleeding-heart, liberal parents who took me to see 'Rent' and Terrence McNally plays from a very young age.
+- I was obsessed with award shows and made charts and graphs and stuff when I was 7 years old. I found the entertainment business hilarious, ridiculous, and alluring - and my parents supported it, for better or worse.
+- 'Billy on the Street' is a persona. It's crafted; it has writers. It's a mixture of performance art and comedy.
+- It's one thing to hear that someone likes your show; it's a completely different thing to have them come take their time and film something with you on a sidewalk.
+- One thing that I love about 'Difficult People' is that Julie Klausner and our showrunner, Scott King, have written the lead character I play as a fully formed man.
+- All I wanted to do as a kid was go to the post-Oscar parties I was seeing on 'Entertainment Tonight.'
+- I think 'Billy on the Street' is a big show, but why do a show if you won't make it original and unique and powerful?
+- I loved 'Solid Gold!'
+- Even when I was struggling and had horrible day jobs and wanted to be successful but wasn't finding my way in, I knew what I had to do. I knew I had to keep working at it and keep putting material out there, even if no one was paying me for it.
+- I learned early on that 'Billy on the Street' is a great lesson in 'Don't judge a book by its cover.'
+- I've never even been invited to the GLAAD awards, to sit in the audience. I don't necessarily care, and I'm sure they will one day, and it will be fine, but I've never been invited to anything like that.
+- If you're pretty, you want to be ugly. If you're loud, you want to play quiet. You always want to challenge people's expectations.
+- Things pop out of people's mouths that you wouldn't expect them to say, so I've stopped trying to guess ahead of time who might be interesting to talk to.
+- The streets of New York are diverse, but when you go into a Broadway show, unless Denzel Washington is in it, or Fantasia's in it, it's a lot of old white people and gay men.
+- There are certain people you're allowed to pick apart and certain people you're not.
+- I grew up worshipping Pee-wee Herman.
+- No one puts higher expectations on themselves than I do.
+- You don't want to really pick on someone that you genuinely like. In terms of 'Billy on the Street,' there are certain actors - I don't care if they find out because I do feel that way. Though it's almost never about appearance or something out of their control. I pick on choices they've made or roles they've taken.
+- I always want to lead with comedy but hopefully be able to sneak my message through at the same time.
+- No one was asking me to be on TV. So I made my own late-night TV talk show.
+- I've actually enjoyed my time in L.A. more than a New Yorker is supposed to.
+- If I'm screaming at someone, it's because I think they're an idiot.
+- I took the Oscars very seriously as a child.
+- I would watch the Oscars and every award show with my parents. I would make lists of who was going to win. I'd be doing Oscar predictions months ahead of time, and not only for the Oscars, for the Grammys. This is just what excited me as a kid.
+- I did see one Tyler Perry movie in the theater. My friends and I went to see, I believe it was, 'Why Did I Get Married?'
+- I do not like not having Wi-Fi in general, but certainly not on a plane. I fall apart.
+- I was like a fat, sweaty kid growing up in Queens who just was plopped down in front of 'Entertainment Tonight' by my parents.
+- My mom had a heart attack, and it came out of nowhere - she was 54. My dad had leukemia for about 3 months. He was 80 when he passed. My dad had me later in life, and so he had leukemia and was alive for about 3 months between diagnosis and passing away.
+- The 'Billy On The Street' persona is truly inspired by who I was as a child - obviously not having an adult perspective on the world.
+- A lot of people in Hollywood, and everywhere pretty much, operate on fear. No one wants to get fired, so everyone's scared to take a chance. There's money involved, and there are careers and reputations on the line.
+- When I came out to my parents, I knew that they knew. My father was like, 'Are you sure?' I literally said, 'You took me to see Barbra Streisand at Madison Square Garden.'
+- If you're on TV, you can't complain, right? And I understand that, and it's true to a certain degree.
+- You grow older, you evolve.
+- We have to remain vigilant and loud and stay consistently engaged with our representatives and the political process every single day, on both a macro and micro level.
+- Entertainment, Hollywood, award shows - these are the things that really captivated me.
+- A lot of comics aren't their on-screen personas; Chris Rock isn't always ranting and raving. What I do is make myself this over-the-top character that people either find endearing or they think is a joke. Then I can do anything I want.
+- For some reasons, I have WWE wrestlers tweeting me all the time. Like, my biggest fans. Why they can connect with my love for Meryl Streep, I don't know.
+- There have been man-on-the-street interviews for years, but insulting people is not that funny to me.

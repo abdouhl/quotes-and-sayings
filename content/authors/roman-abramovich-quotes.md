@@ -1,0 +1,25 @@
++++
+author = "Roman Abramovich"
+title = "Roman Abramovich Quotes"
+quotes_len = "19"
+description = "the best 19 Roman Abramovich Quotes"
++++
+- I myself never make any notes. Usually, if I write something down, I can't read it afterwards.
+- I was never involved in arms trading. In the Russian Federation, arms trading is the prerogative of the state.
+- To tell the truth I cannot call my childhood bad. In your childhood you can't compare things: one eats carrots, one eats candy, both taste good. As a child you cannot tell the difference.
+- I never insisted that I was a good student.
+- Our friendship was based on my payouts. That wasn't a friendship when - as, for example, it's me, my friends, we are friends for many years, and it doesn't matter for me what the position is, where they work; we simply are friends. And with Mr. Berezovsky, our friendship was based on my payoffs.
+- I never aspired to be a public figure. I have always been interested primarily in real business and the development of business strategies.
+- It was impossible to operate in the aluminium business without krysha - very real physical protection.
+- I'm getting excited before every single game. The trophy at the end is less important than the process itself.
+- Money plays an important role in football, but it is not the dominating factor. When Chelsea play a Carling Cup game in a small city, and it could result in a draw - the excitement, the spirit, the atmosphere - that's the real beauty of football in England.
+- I really don't retain information - by the time I arrive wherever I'm going, I already forget what it is that I wanted to say.
+- In Moscow I feel most comfortable. I'm used to four different seasons; it's difficult for people in London to understand. People brought up in Russia like my kids want to play in the snow.
+- I never made any public statements. At least, I tried never to make any public statements.
+- But charity is a very complicated thing. It's important to find an area where you can really help and you can feel the results. Charity is not like feeding pigeons in the square. It is a process that requires professional management.
+- I live on a plane. I like to visit London. If I had to think where I could live if not Moscow, London would be my first choice, and second would be New York. In Moscow I feel most comfortable. I'm used to four different seasons; it's difficult for people in London to understand. People brought up in Russia like my kids want to play in the snow.
+- If I had to think where I could live if not Moscow, London would be my first choice and second would be New York.
+- After the situation with Kursk submarine, I started looking at Mr. Berezovsky in a completely different way. For me, it was a turning point in our relationship. I think that he took a completely dishonorable position.
+- In my personal opinion, Russia is no less democratic than it used to be. It is a democratic country. It is democratic enough.
+- When I started to make more or less serious money - for those times - then, of course, I wanted to show everyone that life is different: it's a new kind of life; we are earning this money. We wanted to pay taxes and live honestly.
+- It's a new endeavour for me. I've never run a territory. I've never talked publicly to people. I've got to try it just to see whether I like it.

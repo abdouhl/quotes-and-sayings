@@ -1,0 +1,129 @@
++++
+author = "Brigitte Bardot"
+title = "Brigitte Bardot Quotes"
+quotes_len = "123"
+description = "the best 123 Brigitte Bardot Quotes"
++++
+- I'm not an extremist, you know.
+- Do you have to have a reason for loving?
+- Percentages are why I am rich.
+- I knew I had to be the best at something, otherwise I would be nothing. I knew I wanted the world to know about Brigitte Bardot.
+- Swallows have disappeared, bees are dying out because of pesticides that should have been banned long ago - it's a scandal.
+- China once again disgusts the world, portraying the image of a cruel, perverted people devoid of any feelings towards animals.
+- I am astonished and surprised that someone could consider making a film about me without talking to me about it.
+- In a democracy one must have the right to express oneself and that's what I do, even if it displeases.
+- If I upset some notions and went against established rules, that wasn't part of what I wanted to do. It wasn't my goal.
+- The woman who made those movies, that's not me. She's someone else.
+- I never get hung up on the past - the memories are too negative.
+- I don't have the time or the desire to gaze at my navel.
+- I am leaving the town to the invaders: increasingly numerous, mediocre, dirty, badly behaved, shameless tourists.
+- I am all right when I work. I am not superficial and I am not ungrateful.
+- I only live in the world of animal protection. I speak only of that. I think only of that. I am obsessed.
+- I am greatly misunderstood by politically correct idiots.
+- If only every man who sees my films did not get the impression he can make love to me, I would be a lot happier.
+- What does it mean, being a woman?
+- Vadim changed my mind about acting. Vadim was the only man who was certain I had something special to offer.
+- We have abolished the death penalty for humans, so why should it continue for animals?
+- I'm too impatient.
+- Among Muslims, I think there are some who are very good and some hoodlums, like everywhere.
+- I am 30, but there are things about me that are still 15.
+- I have no private life at all. I am a hunted woman. I can't take a step without being questioned and surrounded.
+- I say what I think and I think what I say.
+- I am against marriage, and I don't give a fig for society.
+- I gave my beauty and my youth to men. I am going to give my wisdom and experience to animals.
+- I am typically French.
+- I am really not interested in the cinema. I loathed it when I started six years ago, and I don't enjoy it even now.
+- I was just a cheap little starlet hardly acting at all in a very mediocre film.
+- What could be more beautiful than a dear old lady growing wise with age? Every age can be enchanting, provided you live within it.
+- I don't see how a socialist government can tolerate hunting on horseback. The people who do this are snobs; they're very well-to-do.
+- Fur is only of use to the animal that wears it.
+- Fame had brought me so much unhappiness.
+- Only idiots refuse to change their minds.
+- I'm a girl from a good family who was very well brought up. One day I turned my back on it all and became a bohemian.
+- I absolutely loathe luxury. It is the one thing I cannot stand.
+- I live the life of a farmer. I don't see how I could wear Lagerfeld's designs while feeding my goats. I have respect for Lagerfeld as a man, but I would have so much more for him if he, in turn, respected animals. We do not live in the same world.
+- A film about my life? But I am not dead.
+- I adore my houses - they're my refuge - but I detest more and more Saint-Tropez where it's impossible to live: invaded by tourists, social evenings, all of which I avoid and which terrorises me.
+- Women get more unhappy the more they try to liberate themselves.
+- We must boycott fur coats as well as all the accessories.
+- I am shocking, impertinent and insolent that's how it is.
+- I regret nothing.
+- Vadim was both my teacher and my husband. I placed myself entirely in his hands.
+- They may call me a sinner, but I am at peace with myself.
+- The world today doesn't please me.
+- I can no longer walk. I can no longer swim. But I'm lucky when I see how animals suffer.
+- I'm not made to be a mother.
+- I never knowingly wanted to hurt anybody.
+- I am really not interested in the cinema.
+- I wasn't scandalous - I didn't want to be.
+- I never do anything by chance.
+- I wanted to be myself. Only myself.
+- It's the decomposition that gets me. You spend your whole life looking after your body. And then you rot away.
+- I am against the Islamisation of France.
+- Every age can be enchanting, provided you live within it.
+- Fur is not luxury: it is an industry of death and suffering.
+- I am not an actress. I can only play me - on and off the screen.
+- I have a gruff character.
+- I have to live with both my selves as best I may.
+- I am a native Frenchwoman and proud of it.
+- I can't do the same thing every night, the same gestures... it's like putting on dirty panties every day.
+- My mother wanted me to be friends only with children she considered socially suitable.
+- I mourn the fact that my beautiful country has deteriorated in every way.
+- Men are beasts and even beasts don't behave as they do.
+- It's better to be unfaithful than faithful without wanting to be.
+- I tried to make myself as pretty as possible and even then I thought I was ugly. I found it madly difficult to go out, to show myself.
+- I stopped making films to look after animals.
+- When I love, I do it without counting. I give myself entirely. And each time, it is the grand love of my life.
+- I know it's horrible to have to admit that, but I'm not adult enough to take care of a child.
+- I belong to no party, and I am militant for no one.
+- I leave before being left. I decide.
+- I only want to protect animals from barbarous, cruel, inhuman and backward rituals.
+- I was afraid of not living up to what people expected me to be.
+- I have been very happy, very rich, very beautiful, much adulated, very famous and very unhappy.
+- My private life became public.
+- Yes, I've often been threatened by hunters, by horsemeat butchers, and seal murderers... I am still alive!
+- I know very few Americans, though I like the way they think. They think big.
+- My soul is not my own any more. I cannot live like I want to. I am going to give up films.
+- My parents gave me a strict upbringing, which at times has caused me to suffer distress but today I am grateful to them for it.
+- I have not always loved wisely, but I was young.
+- Now, if there was one woman in the world who didn't need publicity, who always had too much publicity, it was me.
+- If I go to a restaurant, other people stare. The meal is ruined.
+- People are forever finding something wrong with you.
+- I don't think I was a good comedian.
+- I started out as a lousy actress and have remained one.
+- I never left France for Hollywood nor stashed my money in Switzerland.
+- We have to convince the people of Bucharest, who are dog lovers, to treat dogs like they treat their children and not just let them roam the streets.
+- I never had trouble saying what I have to say.
+- My wild and free side unsettled some, and unwedged others.
+- Have you ever heard of a good marriage growing in front of the cameras?
+- My country, France, my homeland, my land is again invaded by an overpopulation of foreigners, especially Muslims.
+- I really wanted to die at certain periods in my life.
+- Animals have never betrayed me. They are an easy prey, as I have been throughout my career. So we feel the same. I love them.
+- Films have never shown the kind of relationship that can exist between two women.
+- I have understood that the most important things are tenderness and kindness. I can't do without them.
+- I don't feel old or used up, and I don't have time to waste thinking about aging, because I live only for my cause.
+- My favourite animals are dogs.
+- James Stewart was so kind and considerate and had such personal integrity.
+- All of my causes, including the most radical, are motivated by the defense of animals.
+- I am not finding pregnancy much of a joy. I am afraid of childbirth, but I am afraid I can't find a way of avoiding it.
+- Politics disgusts me.
+- There is a certain dignity to being French.
+- No matter whether it's someone from the political left or right, we just need a voice to stand up and defend animal rights.
+- You can be barefoot and have worries.
+- Romania will not be able to evolve if it continues to take cruel decisions against sensitive creatures, which are under the protection of European law.
+- I have the courage of my convictions.
+- I would like, before I die, to see the changes I've always fought for being made. If not, my life will have been worth nothing.
+- People have already dirtied my name too much.
+- It is sad to grow old but nice to ripen.
+- I don't think when I make love.
+- Film-making was not at all what I had expected.
+- Nobody has any security in loving me.
+- I know what sin is.
+- I left a world in which I was a queen to enter one in which I'm a human being.
+- A photograph can be an instant of life captured for eternity that will never cease looking back at you.
+- Death was like love, a romantic escape.
+- French courts are backward and politically correct, which is the height of stupidity.
+- If this fame, which people call my lucky break, were to stop tomorrow, I shouldn't care.
+- As for being a little bunny that never says a word, that is truly the opposite of me.
+- It is better to be unfaithful than to be faithful without wanting to be.
+- I am no mother, and I won't be one.

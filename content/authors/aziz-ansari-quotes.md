@@ -1,0 +1,50 @@
++++
+author = "Aziz Ansari"
+title = "Aziz Ansari Quotes"
+quotes_len = "44"
+description = "the best 44 Aziz Ansari Quotes"
++++
+- One of the big things I miss about New York is not my friends so much; it's Shake Shack, the burger place. I miss Shake Shack.
+- I guess after college, I just got really into food. I also think going on the road doing stand-up makes you more into food. Because when you travel like that, one of the things to do is find really good places to eat.
+- Do It Under the Influence Yourself! That's what we're shooting for! Get drunk and make your dreams come true.
+- London seems to be a town with a lot of comedy fans and people that really enjoy stand-up.
+- Acting is a plum gig, and then animation is an even more plum gig.
+- I was a dishwasher at one of those Japanese places that cook on your table. Not too fun.
+- A lot of people my age think stand up sucks.
+- The most influential thing was the two Chris Rock specials that came out when I was in high school. I was obsessed with that stuff.
+- The whole idea of love is scary - so is being with someone for the rest of your life and being happy with them for the rest of your life. There's lots of research to suggest that, actually, love's not really that simple.
+- I'm kind of obsessed with food. I like to eat. When I tour, it's like, well, like a food tour as much as a comedy tour.
+- After you do a joke a few times, you have material that you know works. Although sometimes I have a joke that has worked a bunch of times, and then one night it'll flop.
+- Stand-up comedy is a raunchy profession.
+- What's cool about Twitter is that you can make a joke about something very of-the-moment or random that I wouldn't be able to joke about in stand-up.
+- Myself, Eric Wareheim, and Jason Woliner decided to start a Food Club where the three of us go to restaurants with a couple of other people. The three of us are the captains of the Food Club, so we have to wear the captains' hats.
+- Some comedians will tour and do these classic bits all the time. But now with YouTube and Comedy Central, people see your stuff, and they don't want to hear you do that again.
+- Like with 'Parks and Recreation,' it's so much fun because the people writing it are funny and they're open and you just go in there and have a good time. It's pretty much the easiest job I've ever had.
+- I'm so jealous of people who have crushes on people they go to school with or work with. That's such a blessing. You actually get to see them all the time and spend time with them.
+- I'm kind of obsessed with food. I like to eat.
+- With stand-up, it's more interesting to hear about people's failures than their successes.
+- I guess my music taste is pretty predictable: I like new indie rock stuff, older stuff.
+- Every time I've done comedy in, like, traditional comedy clubs, there's always these comedians that do really well with audiences but that the other comedians hate because they're just, you know, doing kind of cheap stuff like dancing around or doing, like, very kind of base sex humor a lot, and stuff like that.
+- I weirdly do consider myself an optimist about love.
+- I like the brand Band of Outsiders. Their suits are cut really slim, for smaller framed gentlemen.
+- Other than friends and family, my favorite things are New York and stand-up. I love doing comedy in New York - I can do way more stand-up here than in Los Angeles.
+- Being a rapper is about being cool, but being a comedian, you're not supposed to be the coolest guy.
+- Writing your own jokes, you just kind of keep working on something until you think it might work, and then you try it out and hope for the best.
+- Most single people I know, myself included, have a difficult time even meeting up with the people they like, be it busy schedules, texting games, or whatever.
+- Every single person, pretty much, is taught what they're supposed to do: go to school, get a job, find someone to love, get married, have kids, raise the kids, and then die. Nobody questions that. What if you want to do something different?
+- Even in my stand-up, there's a lot more positivity and enthusiasm rather than negative, I-hate-everything vibes.
+- I don't think you can describe your ideal girl. A big part of that is just meeting someone and really clicking with them and wanting to hang out with them all of the time.
+- I know my fan base is a smart group of people.
+- Why would anyone get married and have babies? That's the dumbest idea I've ever heard in my life. Or the scariest thing I've ever heard in my life.
+- After you do a joke a few times, you have material that you know works. Although sometimes I have a joke that has worked a bunch of times and then one night it'll flop. And that's when I really take a hard look at myself and say: 'Well, that crowd is obviously wrong. That crowd has absolutely no idea what it's talking about.'
+- Once you become a comedian, you accept that people are just going to yell stuff at you.
+- I was 18 when I started. I was hanging out with some friends and they asked if I had tried stand-up before. I hadn't, but I thought: 'What the hell?' So I went to an open mic night, and I liked it.
+- It's hard to really get that excited about movies. Think about it like this: how many good comedy movies come out a year? Maybe one or two? And then, in those movies, what are the chances that there's a character that I'm the best fit to play? It's really small!
+- It's the hardest thing to come up with an hour of material that can consistently keep people laughing.
+- You go to any Jay-Z concert, and he plays his hits. Comedians don't have hits. You have to have a whole brand-new hour. You have no hits to rely on. It's the hardest thing.
+- With stand-up, I can have an idea, go down the street to a comedy club and work on it, flesh it out, book a venue, people will come, then film it. I do all that myself; I never have to answer to anybody.
+- I'm always down to try a new burger, but Shake Shack is still my top. What makes them so special is for the bread they use Martin's potato rolls which is just the best hamburger buns ever.
+- When I tour, it's like, well, like a food tour as much as a comedy tour. I try to eat at all the weird places, the obscure barbecue joints, burger places. There are a few spots in L.A. that I'm obsessed with - one of them is the Taco Zone taco truck on Alvarado. There are secret off-menu items that are amazing.
+- For the majority of the time, I may as well have been just a really tan white kid. You know, I may as well have just been, like, a fat kid.
+- I'm the kind of person, if I see something, like a funny video, I want to share it. With Twitter and Tumblr you can do that on a mass scale, and people get to know your personality.
+- I have an amazing metabolism. I'm sure that'll be gone one day. But I like to exercise, too, so I don't think I'll ever get really fat.

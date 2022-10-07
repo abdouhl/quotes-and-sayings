@@ -1,0 +1,61 @@
++++
+author = "Lisa Haydon"
+title = "Lisa Haydon Quotes"
+quotes_len = "55"
+description = "the best 55 Lisa Haydon Quotes"
++++
+- In modelling, some girls have been working for the last 15 years and they are still in the same cycle of what they have been doing. It is too big a pool and I am not going to travel with the herd. I need to pave my own way.
+- I certainly do like to live life on my own terms. It would be great to live in a world where women get the respect and support that my family has given me to make my own choices.
+- Housefull 3' is not meant to be taken seriously, but is meant to be laughed at.
+- If you are hardworking, talented, reasonably charming or good looking and determined, you have a chance to make it. There are pros and cons on both sides. In the end, the hard working and persistent ones are the ones that get 'lucky' - whether in or out of film families.
+- I don't mind being good looking but that should not override all my other attributes.
+- I'll always do sunscreen in the morning, or a Vitamin C serum.
+- I always wanted to be independent. I worked at a few odd jobs as a teen and, when I was in my early 20s, I soon realised that I disliked unfair bosses. I knew I was disciplined and motivated, and that I would work best when I was self-employed.
+- I started acting because I was offered films, and I wanted to go to drama school and do the film because I'm the kind of girl that will do everything once.
+- I discovered yoga in Sydney during my 'chubby' phase at this school on the beach that taught ashtanga-hatha flow. I gradually moved towards ashtanga, going beyond the primary level, which is a feat in itself, and even did an internship as I thought I wanted to become a yoga teacher.
+- I do what I feel is right. If what I do and say doesn't harm anyone else, I don't care about what negative people say. I block and delete negativity.
+- I take a second sometimes to just remind myself there is no destination in motherhood.
+- I want to do roles that allow me to push my boundaries and provoke us to think differently.
+- I am basically a vegan but manage a balanced diet at all times.
+- All credit to my mother who, despite having to look after eight children, always made time for exercise. She'd work out to Jane Fonda and later Kathy Smith and Cindy Crawford in between managing us.
+- I would not suggest that people skip meals. Instead, compensate with eating in lesser portions.
+- While growing up in Australia I didn't watch many Bollywood films, but the ones I watched, I loved them, especially the songs and dancing. And Hrithik Roshan is my favourite because he is such a fabulous dancer.
+- Yes, I am passionate about my work but my success is meaningless without my loved ones, my family and my husband. They are my priority.
+- I think thrill covers many different areas of a person's life. I'm a thrill junkie for sure, I don't like doing the same things for a long time. Which is why, I like my work to be a mixed bag.
+- I am waiting for the right projects to come. I am in no hurry at all. After the blessing of being part of a great film, I want to make sure that whatever I do next capitalises on how amazing 'Queen' has been.
+- I want to do roles that provoke us to think differently or realise ourselves in a new light. Characters of women who have an interesting story to tell. I'd love to do a period film, an action film, a character study.
+- I eat what I want but I work out hard.
+- What is a good script without a good director or a good director without a good actor?
+- Feminism is just an overused term and people make too much noise about it for no reason.
+- When I am at work, I am at work and I rationalise that in my own head because I love my job and I am a working mom. And when I go home, I try to be the best mom I could possibly be and give them all my attention and time and focus.
+- You cannot draw happiness from things that may come and go. Career or anything should not become the be-all and end-all of life. It's important to keep a balance.
+- I've always said yes to films because I have liked the people I'm working with. I'm very emotional that way about what I do. I've never pursued acting very actively.
+- I had a different impression of motherhood. I was told it'll be tough but I realised that eventually it is what you make of it. When you see the love your child gives, giving up a few things doesn't feel like any sacrifice.
+- I care more about the directors that I get to work with as opposed to the actors.
+- For me, life is nothing without love... and family is the most important thing for me. Everything else is a bonus.
+- I only put soap on my face once a day, in the evening, and I'll add in a face mask or exfoliating product ever so often.
+- While growing up in Australia I didn't watch many Bollywood films, but the ones I watched, I loved them,especially the songs and dancing.
+- I think I was married to my husband in mind before it happened officially. When you fall in love, you make a commitment to each other. It's all about that.
+- I went through an awkward phase with my body and was often ragged for being too thin. I didn't understand then why people were being so unkind, but I used it to make myself mentally stronger.
+- I find romancing on screen very awkward, it's rehearsed love but that's not the reason I have not done it yet. If that comes my way, I will embrace it as part of my job.
+- I think these days when life is so busy and I'm juggling acting, modelling and my organic skincare line - Naked by Lisa Haydon - that I do only the work that I'm specifically passionate about and that may be in one of the many fashion weeks, but one must be choosy as well.
+- I'd like to be with a guy who's in touch with his feminine side. He should be a lover of art, music and culture. A guy with a sense of humour, openness and emotional maturity is a big turn-on.
+- I do not want to sign projects in which the depth and essence of my character takes second place and the focus is instead on my looks.
+- I wear what I feel most comfortable in. I love black and grey. I like colour as long as it's understated.
+- I love diamonds and sapphires.
+- One day I look forward to making dinner for my husband and children. I don't want to be a career feminist.
+- Designers have always fawned over my skin, especially Tarun Tahiliani. I've definitely felt accepted brown skin and all. But fair girls like Shivani Kapoor were as loved too.
+- I don't work out for a shoot or a movie. For me, it's a lifestyle. That one hour a day really pumps me up. I exercise because it makes me feel good... looking good as a result is an added bonus.
+- I don't like the word feminist. I don't think women trying to be men is feminism. I also don't believe in being outspoken for the sake of it, or just to prove a point.
+- Things can feel pretty extra after having a baby. A lot of it is probably hormones. Two under two and three kids in four years has been truly humbling.
+- I grew up watching Julia Roberts and Gwyneth Paltrow. I dreamed of working in the arts.
+- Acting can be very intimidating, because you are not in a scene alone, you have to be in sync with so many other people.
+- I don't see myself as a conventional or an unconventional actress. I am just an individual trying to carve a niche for myself that nobody else can fill.
+- Women have been given these bodies to produce children, and the spirit and tenderness to take care of people around us. It's fine to be an outspoken and working woman. I don't want to be a man.
+- I am quite comfortable doing a fashion shoot in a bikini. It's no big deal. But on the film's set, with a hundred people milling around, I got nervous.
+- Fashion is much more open minded to duskier skin, but I do not think they are prejudiced in any way to fair skin either.
+- I went to the Actors Centre in Australia, but I never thought that I'd move to India, let alone be in Bollywood.
+- Life has not changed much after marriage. I went straight back to work. But I guess changes come after having a baby, not after marriage, especially if you are married to the right person who understands your lifestyle and profession.
+- I've always maintained that I'd rather lead an interesting life than be a star.
+- I have a lovely bath tub that feels like my sanctuary. I fill it up with a lavender bubble bath, read a magazine and just chill out.
+- I've noticed though that people will always assume you are the character you last played. I guess it's a compliment to playing your character convincingly.

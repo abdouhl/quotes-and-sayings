@@ -1,0 +1,14 @@
++++
+author = "Bob Mould"
+title = "Bob Mould Quotes"
+quotes_len = "8"
+description = "the best 8 Bob Mould Quotes"
++++
+- You're surrounded by electronic music in New York. I mean New York is one of the few places in North America where electronic music is the prevalent form.
+- There's so many companies that are spending so much money on 17-year-olds... I can't compete with that. I'm not that guy anymore, they can't dress me up and roll me out there and make me look good. I am what I am!
+- When the business starts shaping the art, or the delivery of the art, then it's not right.
+- When I'm winning, winning, winning with a certain way why would I mess with that? When I realised there was lot to be gained from failing in some people's eyes, it made it all the more interesting!
+- I don't like the dislocation of being away for months at a time. It's not conducive to having a life.
+- How do I explain Neil Young? Great question! I explain Neil Young as, I would kill to see his acoustic shows.
+- I think also there was a lot of coming to terms with where I am in life, where I fit in as a gay man in America, and getting more comfortable with who I am.
+- The blues is something separate from what I do. They connect at certain spots, but blues is different. I wouldn't put it in with what my career has been. That would be a whole separate wing.

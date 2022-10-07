@@ -1,0 +1,67 @@
++++
+author = "Antony Beevor"
+title = "Antony Beevor Quotes"
+quotes_len = "61"
+description = "the best 61 Antony Beevor Quotes"
++++
+- I just write the sort of book that I would enjoy reading myself, a book that is both scholarly and recreates the experience of people at that time.
+- The blurring of fact and fiction has great commercial potential, which is bound to be corrupting in historical terms.
+- Without an understanding of history, we are politically, culturally and socially impoverished. If we sacrifice history to economic pressures or to budget cuts, we will lose a part of who we are.
+- I was planning to stay in the Army all my life, but I ended up being posted to a training camp in Wales and was so bored there, I wrote a novel.
+- When I started to write, I realised that you need a bit of both: the overall context as well as the individual's experience.
+- Every country has its own perspective on the Second World War. This is not surprising when experiences and memories are so different.
+- In the Iraq war, for instance, so much of the information is digitized and can easily be wiped out. That will make it very hard to write accurate histories. Also, there's a much greater opportunity for suppression of information before it can even be archived.
+- The great help of being in the Army is to understand why are the armies clever in what they describe as emotional intelligence, making soldiers come to terms with the death of comrades by certain rituals.
+- One has this image of the Soviet state and the Red Army as being extremely disciplined but in the first four months of 1945 their soldiers were completely out of control.
+- I just love the days when you come out of the archives with half a dozen excellent descriptions or poignant accounts of personal experiences.
+- I love 'Blackadder,' but history it certainly ain't.
+- I have come across both inspiring teachers of history and deplorable ones over the years, so one cannot generalise, except perhaps to observe that the profession seems to encourage anti-militarist sentiments.
+- I used to write in a room overlooking the valley from where I could see too much, whether checking the sheep and alpacas or seeing the trout rise on the lake.
+- I can't envisage stopping writing.
+- The temptation in any approaching crisis or conflict is, because people haven't got a clue what lies ahead, they're always searching into the past for some sort of pattern ... to galvanise the nation or their supporters and put themselves on a pedestal to sound Churchillian or Rooseveltian.
+- When I was a child I had something called Perthes' Disease which meant I was on crutches, so I was bullied at school and all that sort of stuff.
+- Restorers of paintings and pottery follow a code of conduct in their work to distinguish the original material from what they are adding later.
+- Alpacas are very endearing, and they all have very different personalities.
+- It is this compulsion to look backwards at a time of crisis because one's got no idea of what lies ahead. There is a notion of security that somehow it must resemble the past. It's never going to. Just because we muddled through in the past doesn't mean we can automatically muddle through in the future.
+- When my first novel was published, I went in great excitement round bookshops in central London to see if they had stocked it.
+- Historical truth and the marketing needs of the movie and television industry remain fundamentally incompatible.
+- When we dwell on the enormity of the Second World War and its victims, we try to absorb all those statistics of national and ethnic tragedy. But, as a result, there is a tendency to overlook the way the war changed even the survivors' lives in ways impossible to predict.
+- At a purely practical level, history is important because it provides the basic skills needed for students to go further in sociology, politics, international relations and economics. History is also an ideal discipline for almost all careers in the law, the civil service and the private sector.
+- I joined the Army in 1965 and served with the 11th Hussars, which I loved. The regiment was so relaxed - a salute was more like a friendly wave.
+- I am not someone who believes I am going to find a historical scoop.
+- I believe passionately in preemptive pessimism, especially before a book comes out. I expect the worst both from reviewers and sales, and then, with any luck, I may be proved wrong.
+- Of course history is easily manipulated - though that makes it even more important for us to know what actually happened.
+- There are one or two very good women military historians who use imagination, great study and research; they can put themselves in the boots of the soldier.
+- Teaching the history of the British Empire links in with that of the world: for better and for worse, the Empire made us what we are, forming our national identity. A country that does not understand its own history is unlikely to respect that of others.
+- I expect the worst both from reviewers and sales and then, with any luck, I may be proved wrong.
+- Some novelists want to give people in history a voice because they have been denied it in the past.
+- The British bombing of Caen beginning on D-Day in particular was stupid, counter-productive and above all very close to a war crime.
+- Politicians are often tempted to deploy history as a weapon against each other.
+- The duty of a historian is simply to understand and then convey that understanding, no more than that.
+- To begin impatiently is the worst mistake a writer can make.
+- At the beginning of June 1944, the war was reaching a climax. German troops had been brutalised by the savagery of the ongoing fighting in Russia, where the Red Army was secretly preparing its vast encirclement of the Germans' Army Group Centre.
+- Counter-knowledge covers the propagation of false legends and conspiracy theories often used for political purposes or fundamentalist religious propaganda.
+- School-leavers unfortunately will come away thinking the First World War consisted simply of 'going over the top' on the Western Front to slaughter in no-man's-land, when the conflict extended so much further, to the collapse of four empires and numerous civil wars.
+- It was only after five years in the army, when I was having to do a very boring job in a very boring place, that I thought: 'Why not try writing a novel?' partly out of youthful arrogance and partly because there had been a long line of writers in my mother's family.
+- The memory of the Second World War hangs over Europe, an inescapable and irresistible point of reference. Historical parallels are usually misleading and dangerous.
+- I think it's outrageous if a historian has a 'leading thought' because it means they will select their material according to their thesis.
+- The reason that 'Stalingrad' took off was because it emphasized the influence of history on the individual.
+- The majority of soldiers and officers of the Soviet Army and the allied armies treated the local population humanely.
+- What is terrifying is the ability, through mass brainwashing or propaganda, to change normal human instinct, which does not necessarily contain very much hatred.
+- In my library/study/barn, there is a Ping-Pong table on which I can pile working books and spread maps.
+- I feel slightly uneasy at the way historians are consulted as if history is going to repeat itself. It never does.
+- When I was younger I used to get my best writing done at night, but now it has to be during the day. I usually finish work at half past seven, then go back to the house to open a bottle of wine, have dinner, and then read or watch television.
+- It takes me three or four years to research and write each book and the individual stories stay with you for a long time afterwards.
+- I'm often reassured in a bizarre - perhaps perverse - way when I find in the archive stuff that contradicts what my assumptions have been. That's interesting and exciting.
+- The power of historical fiction for bad and for good can be immense in shaping consciousness of the past.
+- I get slightly obsessive about working in archives because you don't know what you're going to find. In fact, you don't know what you're looking for until you find it.
+- The greatest heroes of the Normandy battlefield were the unarmed medics, whom snipers often shot at despite their Red Cross armbands.
+- I was in Estonia when a professor asked me if I was aware that making any criticism of the Red Army during the war was now an imprisonable offence. I was quite shaken.
+- The vital thing for me is to integrate the history from above with the history from below because only in that way can you show the true consequences of the decisions of Hitler or Stalin or whomever on the ordinary civilians caught up in the battle.
+- A blend of fact and fiction has been used in various forms since the dawn of creative writing, starting with sagas and epic poems.
+- I read round the subject, I make a skeleton outline, and then I start work in the relevant archives. During the marshaling of the material, I copy the material from each archive file across to the relevant chapter in the skeleton outline.
+- If you smash a city when you're trying to capture it, you actually end up providing the perfect terrain for the defenders while blocking the access for your own armoured vehicles.
+- The great European dream was to diminish militant nationalism. We would all be happy Europeans together. But we are going to see the old monster of militant nationalism being awoken when people realise how little control their politicians have.
+- Entertainment history is now the main source of supposedly historical knowledge for more and more people, but 'histo-tainment' is superficial and lacks all context.
+- It is important to understand the continuing, confused fascination with the Second World War. For most of us, the great unspoken question is how would we have behaved in the face of danger and when forced to make major moral choices.
+- The punishment of shaving a woman's head had biblical origins. In Europe, the practice dated back to the Dark Ages with the Visigoths.

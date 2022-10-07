@@ -1,0 +1,27 @@
++++
+author = "Bobby Rahal"
+title = "Bobby Rahal Quotes"
+quotes_len = "21"
+description = "the best 21 Bobby Rahal Quotes"
++++
+- I'd seen people overstay their welcome and I didn't want that to happen at all.
+- Obviously it's critical that the three cars are able to contribute to the program. I think that certainly has given much of the reason as to why we did so well at Indy over the last several years.
+- I have never had problems sleeping the night before a race.
+- I don't want people to remember me going through the motions.
+- Competitiveness has been a big thing for me.
+- Today, the competition is considerably more intense.
+- You don't have to worry about whether the car is set up right or not, you know it is, and it's down to you. Ultimately, that's what every driver wants.
+- We ran three cars last year. Unfortunately, as time went on, we did have to let a few people go, which we regretted, but just because of the situation.
+- In 1982 when I showed up, the average age of the drivers in the series was something like 40, 41. The crowds were small. There was not much prize money. The competition wasn't very tight.
+- Being injured is something that happens in this sport. Anybody who gets into it understands that.
+- In racing, I wanted to be a winner and to be a winner, you have to be willing to roll the dice.
+- At this stage of the game, I am not sure what the hell is going to happen.
+- I guess it is the sense of personal satisfaction that racing gives you that I am probably going to miss, because in racing you get that feedback very quickly.
+- There's a tremendous number of the Daytona Prototypes.
+- My son is racing his first 24-hour this year with Porsche.
+- The place where I had so much success as a driver would be where I had my first win as a team owner.
+- We tried to create advantages. We were never complacent.
+- I am going to miss that time when you take that corner better than anybody else could have taken it on that lap or you do that great qualifying lap or you make that great pass or you bring a crippled car home.
+- The fans know that I have been giving it my all and that we had the good judgment to when to say when.
+- What's really hit me over the years is that you go to every race and see all the well-wishers, and you really feel like you are connected with people after all these years.
+- I'd rather try and fail than not try at all, as they say.

@@ -1,0 +1,93 @@
++++
+author = "B. B. King"
+title = "B. B. King Quotes"
+quotes_len = "87"
+description = "the best 87 B. B. King Quotes"
++++
+- I've been married twice. Most women would rather not be married to a traveling blues singer.
+- I developed in my head that I'm never any better than my last concert or the last time I played, so it's like an audition each time. You get nervous just before going onstage. I still have that, but I think it's more like concern. You're concerned about the people - like meeting your in-laws for the first time.
+- Everything I record, I just try to sound like me and come up with songs that suit what I do and then just go for it. I never know what the public's going to like, anyway.
+- I think of guitar players in terms of doctors: you have the doctor for your heart, the cardiologist, then one that works on your feet, your leg. But I believe George Benson is the one that plays all over. To me, he would be the M.D. of them all.
+- The beautiful thing about learning is nobody can take it away from you.
+- The minute I stop singing orally, I start to sing by playing Lucille.
+- I've seen myself on those lists of the 100 best guitarists, and if they think that I'm that good, thank them. Thank God for them. But I don't think so.
+- Cotton was a force of nature. There's a poetry to it, hoeing and growing cotton.
+- I like jazz, rock n' roll, some hip hop - I can't think of any music I don't like.
+- You've heard me call myself a bluesman and a blues singer. I call myself a blues singer, but you ain't never heard me call myself a blues guitar man. Well, that's because there's been so many can do it better'n I can, play the blues better'n me. I think a lot of them have told me things, taught me things.
+- If you want to be a good blues singer, people are going to be down on you, so dress like you're going to the bank to borrow money.
+- Blues is a tonic for whatever ails you. I could play the blues and then not be blue anymore.
+- I started to like blues, I guess, when I was about 6 or 7 years old. There was something about it, because nobody else played that kind of music.
+- I call myself a blues singer, but you ain't never heard me call myself a blues guitar man.
+- If T-Bone Walker had been a woman, I would have asked him to marry me. I'd never heard anything like that before: single-string blues played on an electric guitar.
+- I've put up with more humiliation than I care to remember.
+- I don't like anybody to be angry with me. I'd rather have friends.
+- I've said that playing the blues is like having to be black twice. Stevie Ray Vaughan missed on both counts, but I never noticed.
+- Back when we was in school in Mississippi, we had Little Black Sambo. That's what you learned: Anytime something was not good, or anytime something was bad in some kinda way, it had to be called black. Like, you had Black Monday, Black Friday, black sheep... Of course, everything else, all the good stuff, is white. White Christmas and such.
+- The problem is that a lot of the blues stations are late on Saturday night, and like a lot of people, I ain't no vampire!
+- My last divorce was in '68. What made it come to a head was a promise. See, I had promised her that the next year I wouldn't work as much. But then I got in trouble with the IRS, and I had to continue working just as much to pay the government. So she said I lied, which is something I never did.
+- I bought my first electric guitar when I moved to Memphis; a Gibson with a DeArmond pickup which I used with a small Gibson amplifier.
+- Everything I record, I just try to sound like me and come up with songs that suit what I do, and then just go for it.
+- I wanted to connect my guitar to human emotions.
+- I never wanted to be like other blues singers. I might like hearing them play, but I've never wanted to be anyone other than myself. There are a few people that I've wished I could play like, but when I tried, it didn't work.
+- I almost chopped my thumb off once. Just before I left home, I was about ten or eleven years old, and I was trying to open a bone. Can you imagine that? A bone! I was trying to get the marrow out of a bone, and I took the ax, and I went to chop it, and something slipped, and the ax went right down there and damn near cut it off.
+- The blues was like that problem child that you may have had in the family. You was a little bit ashamed to let anybody see him, but you loved him. You just didn't know how other people would take it.
+- I guess you can look at me, and tell I'm the old man. My name is BB King.
+- A lot of people believe what other people say.
+- I've been a loner all the time throughout my life... I haven't been the best father... Many times... my children have accused me of not giving them enough attention. And, frankly, I never have been good at handling that.
+- When I do eventually drop, I pray to God that it'll happen in one of three ways. Firstly, on stage or leaving the stage, then secondly in my sleep. And the third way? You'll have to figure that out for yourself!
+- I don't care for the music when they're talking bad about women because I think women are God's greatest gift to the planet - I just like music.
+- When we went into World War II, I was a tractor driver then. I drove tractors on the plantation. So when they start calling people my age, 18, up, I was one they called.
+- If you can't get your songs to people one way, you have to find another.
+- My mother was a very beautiful lady, I thought. She was very good to me. I guess - she died when I was nine and a half, but if she had lived, I probably wouldn't be trying to play guitar. She wanted me to be known, but as something else. Not a guitar player.
+- I tell my children now that they are older, 'If something happens to me... don't make no big fuss over me. Don't make no big expense on my funeral. Don't put any pressure on the rest of the family. I've loved everybody, and I hope they loved me. But don't create this big expense for the family.'
+- As for my band, well, my mentors were Duke Ellington, Benny Goodman, Jimmie Lunceford, and no one had a band more smartly dressed than Duke.
+- I have a nice car, a Mercedes. And then I have an old El Camino truck that I'm crazy about. I like to get in that truck and go up in the hills near where I live, in Vegas, and take my camera. That, to me, is Heaven, being out in nature, taking pictures of the wildlife.
+- Whenever I'm in Kansas City, I think back to all the jazz-blues greats who played the blues here - like Count Basie, Charlie Parker and Jay McShann. I watched those guys jam in different places and heard a lot of things - but I couldn't do what they did. They were too good.
+- If my fans want to do something for me when that time comes, I say, don't waste your money on me. Help the homeless. Help the needy... people who don't have no food... Instead of some big funeral, where they come from here and there and all over. Save it.
+- The blues was bleeding the same blood as me.
+- I was a singing disc jockey who heard every type of music there was - and loved it all.
+- My wife Martha used to call me Ol' Lemon Face because of my facial contortions when I play Lucille. I squeeze my eyes and open my mouth, raise my eyebrows, cock my head and God knows what else. I look like I'm in torture, when in truth, I'm in ecstasy. I don't do it for show. Every fiber of my being is tingling.
+- Touring a segregated America - forever being stopped and harassed by white cops hurt you most 'cos you don't realise the damage. You hold it in. You feel empty, like someone reached in and pulled out your guts. You feel hurt and dirty, less than a person.
+- I'm more careful about my hands than about what I eat and most anything else, because my hands have been my living. My hands have been able to help me learn. My hands have taken me around the world. So I'm very proud of my hands.
+- Jazz is the big brother of the blues. If a guy's playing blues like we play, he's in high school. When he starts playing jazz it's like going on to college, to a school of higher learning.
+- Growing up on the plantation there in Mississippi, I would work Monday through Saturday noon. I'd go to town on Saturday afternoons, sit on the street corner, and I'd sing and play.
+- 'She's Dynamite' was a 100 years ago, and I recorded that song because the company thought that it was a great song and it was hot. That was the beginning of rock n' roll, and I guess they thought it would be a BB King version of rock n' roll.
+- What don't I want to learn? I have how-to books, history, nature. Ain't nobody here saying, 'You'd better learn this.' But I still think I've got a head on my shoulders, and it pleases me.
+- Growing up, I was taught that a man has to defend his family. When the wolf is trying to get in, you gotta stand in the doorway.
+- I used to play - when I first started trying to be professional, I disk jockey from 1949 to 1955 in Memphis, Tennessee, and I was quite popular there as a disk jockey.
+- It seems like I always had to work harder than other people. Those nights when everybody else is asleep, and you sit in your room trying to play scales.
+- My dad died, I think, at 87. So I'll be lucky if I make 87. But in a lot of cases, the younger people live longer than their parents. And they know more. My dad used to tell me he ate the hog from his rooter to his tooter. So do I when I'm not trying to lose weight.
+- Nobody loves me but my mother, and she could be jivin', too.
+- When you don't have much money, you worry that they'll just put you in the ground someplace and your loved ones won't know where you are.
+- I tried to connect my singing voice to my guitar an' my guitar to my singing voice. Like the two was talking to one another.
+- Sometimes I just think that there are more things to be said to make the audience understand what I'm trying to do more. When I'm singing, I don't want you to just hear the melody. I want you to relive the story, because most of the songs have pretty good storytelling.
+- I don't try to just be a blues singer - I try to be an entertainer. That has kept me going.
+- I never met a woman I didn't like. I love 'em all, in their different ways.
+- I've always tried to defend the idea that the blues doesn't have to be sung by a person who comes from Mississippi, as I did.
+- I was a regular hand when I was 7. I picked cotton. I drove tractors. Children grew up not thinking that this is what they must do. We thought this was the thing to do to help your family.
+- In our local Baptist church, I sang in the choir and formed a gospel quartet. When our minister caught me messing with his guitar, he taught me three positions - one, four and five. After that, I taught myself to play.
+- When I was in the country and I was trying to play, nobody seemed to pay too much attention to me. People used to say, 'That's just that ole blues singer.'
+- Water from the white fountain didn't taste any better than from the black fountain.
+- I would sit on the street corners in my hometown of Indianola, Mississippi, and I would play. And, generally, I would start playing gospel songs. People would come by on the street - you live in Time Square, you know how they do it - they would bunch up. And they would always compliment me on gospel tunes, but they would tip me when I played blues.
+- I liked blues from the time my mother used to take me to church. I started to listen to gospel music, so I liked that. But I had an aunt at that time, my mother's aunt who bought records by people like Lonnie Johnson, Robert Johnson, Blind Lemon Jefferson, and a few others.
+- Do I love the road? Honestly? No - but it's how I earn my living. I also don't have the blues, like it's some kind of fever. The blues is my job. It's what I do.
+- I would sit on the street corners in my hometown of Indianola, Mississippi, and I would play. And, generally, I would start playing gospel songs.
+- I don't have a favorite song that I've written. But I do have a favorite song: 'Always on My Mind,' the Willie Nelson version. If I could sing it like he do, I would sing it every night. I like the story it tells.
+- There are so many sounds I still want to make, so many things I haven't yet done.
+- The way I feel today, as long as my health is good and I can handle myself well and people still come to my concerts, still buy my CDs, I'll keep playing until I feel like I can't.
+- If there was no ladies, I wouldn't wanna be on the planet. Ladies, friends, and music - without those three, I wouldn't wanna be here.
+- I'm trying to get people to see that we are our brother's keeper. Red, white, black, brown or yellow, rich or poor, we all have the blues.
+- I have not been a good father, but no father has loved his children more. Like my father, I decided the best thing I could do for my kids was work and provide. Fortunately, I've been able to do that. Unfortunately, my work was on the road, and that's meant a life of one-nighters.
+- Even now, at 82 years old, if I don't learn something every day, you know what I think? It's a day lost. Now, I don't practice every day. I just take the guitar, swear at it. But I should be swearing at myself. But I fool with music. I'm doing something musically all the time. And my ears are wide open for anything I can hear.
+- People all over the world have problems. And as long as people have problems, the blues can never die.
+- When people treat you mean, you dislike them for that, but not because of their person, who they are. I was born and raised in a segregated society, but when I left there, I had nobody I disliked other than the people that'd mistreated me, and that only lasted for as long as they were mistreating me.
+- I'm no good with chords. I'm horrible with chords.
+- I never use that word, retire.
+- Once in a while, the thumb that fits over the neck of the guitar kinda bothers me a little bit, but not that much yet. I figure in time I won't do much because of my age.
+- We all have idols. Play like anyone you care about but try to be yourself while you're doing so.
+- I don't think anybody steals anything; all of us borrow.
+- I was born on a plantation, and things weren't so good. We didn't have any money. I never thought of the word 'poor' 'til I got to be a man, but when you live in a house that you can always peek out of and see what kind of day it is, you're not doing so well. And your rest room is not inside the house.
+- I just wonder where I was when the talent was being given out, like George Benson, Kenny Burrell, Eric Clapton... oh, there's many more! I wouldn't want to be like them, you understand, but I'd like to be equal, if you will.
+- I don't feel that no big stone should be put over my head, saying he did this, he did that. Unless there's something that I really did do. I believe I'm just ordinary. And I'd like for people to think of me that way, as just a guy that tried. Wanted to be loved by other people because he loved people.
+- I didn't want to disrespect my parents, so I never played blues around the house. But I knew then, same as I know today, that I wasn't doing anything wrong. I think that before they died, they both felt very proud of me.
+- Everybody wants to go to Heaven, but no one wants to die to get there!

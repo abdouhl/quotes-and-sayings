@@ -1,0 +1,20 @@
++++
+author = "Louis Pasteur"
+title = "Louis Pasteur Quotes"
+quotes_len = "14"
+description = "the best 14 Louis Pasteur Quotes"
++++
+- It is surmounting difficulties that makes heroes.
+- Never will the doctrine of spontaneous generation recover from the mortal blow struck by this simple experiment.
+- Science knows no country, because knowledge belongs to humanity, and is the torch which illuminates the world.
+- The universe is asymmetric and I am persuaded that life, as it is known to us, is a direct result of the asymmetry of the universe or of its indirect consequences. The universe is asymmetric.
+- Fortune favors the prepared mind.
+- Do not let yourself be tainted with a barren skepticism.
+- One must work; one must work. I have done what I could.
+- There does not exist a category of science to which one can give the name applied science. There are science and the applications of science, bound together as the fruit of the tree which bears it.
+- Science is the highest personification of the nation because that nation will remain the first which carries the furthest the works of thought and intelligence.
+- The universe is asymmetric and I am persuaded that life, as it is known to us, is a direct result of the asymmetry of the universe or of its indirect consequences.
+- When I approach a child, he inspires in me two sentiments; tenderness for what he is, and respect for what he may become.
+- Science knows no country, because knowledge belongs to humanity, and is the torch which illuminates the world. Science is the highest personification of the nation because that nation will remain the first which carries the furthest the works of thought and intelligence.
+- There are no such things as applied sciences, only applications of science.
+- Let me tell you the secret that has led me to my goal. My strength lies solely in my tenacity.

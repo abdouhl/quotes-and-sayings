@@ -1,0 +1,106 @@
++++
+author = "Lil Yachty"
+title = "Lil Yachty Quotes"
+quotes_len = "100"
+description = "the best 100 Lil Yachty Quotes"
++++
+- Everybody's voice matters.
+- I didn't think I would work for Nautica. I never thought in my life I would have a Sprite deal, never in my life did I think I would have a Target deal, ever.
+- I'm half-and-half on school. I had fun in grade school, but when I went to college, it was the worst place I've ever been in my entire life.
+- I'm pretty normal. That's why I feel like I hope most teenagers can relate.
+- Not really a perfectionist, but everybody around me is.
+- I remember being in jail, like, 'Man, I'm not old enough.' And then I thought, 'I just turned 18.' I had just turned old enough to be in big people jail.
+- I always knew I was going to be something. I didn't know what.
+- I never freestyle. I always give a written verse cause I just don't wanna go out like that.
+- When I made 'Lil Boat,' my first mixtape, I didn't have a drop date, a due date. I didn't have critics rating on it; I was just making it. And then when I finished it, I dropped it at my own smoothness, at my own pace.
+- That's how things work: you be who you are, and then people like you. They gravitate.
+- I love Beyonce and Jay Z.
+- I'm not the best rapper; I'm not trying to be the best rapper.
+- One thing Kid Cudi did that I always wanted to do was the crop top, but I need to get in shape if I want to do that.
+- I feel like people just try and throw a shot at me just so I can respond.
+- My dad used to play that Paul McCartney song 'Let 'Em In.' That was dope.
+- I ask myself all the time, 'How do I always go viral?'
+- I'm promoting positivity. I'm promoting happiness and loving yourself and having fun. But it's not a joke.
+- I don't wear anything more than once most of the time. I try not to wear the same thing twice. I have too many clothes to wear the same thing twice.
+- I am honored to be chosen for this collaboration; I grew up watching Disney and using Beats headphones. Now I get to represent them both - it's unreal.
+- I always felt like I had something to prove. It's always been, 'I gotta show them that I can still rap. I gotta show them I can still make a hit or sell out a show.'
+- I enjoyed being a teenager.
+- I'm an emotional person. I'm not going to deny that. If I feel a certain way, I'll express it on the track.
+- I go to the studio every night.
+- I don't smoke. I don't drink. I don't do nothing, bro.
+- I want to say it's important that you vote, that you get out there.
+- They treat you as if you are a different kind of human or life form when you are a celebrity - as if we don't breathe the same air, or we don't bleed the same - and I hate that. I really hate that.
+- I rightfully respect Killer Mike a hundred percent. He knows my father; he's known my father for years.
+- I had braids before. They were real long, and they were black, but my mom made me cut them for the McDonald's job. Then, when I got the job, everybody had long braids and colored hair.
+- My No. 1 key with fans is, honestly, to stay connected with them. I think it's important to talk to the fans online and respond to their questions. You know, live streaming, playing video games.
+- I hate being alone. That's why I like being with my friends: we've got energy; we're social as hell.
+- I was in college and got arrested. It was a real scare for me/wake-up call/'Man, you better do something with your life 'cause you don't wanna be a bum' call. That's really why I took music serious.
+- I don't think men dress to look attractive; I think they dress to look cool.
+- Ain't nobody ever seen a picture of me with no gun. I have my guns for safety.
+- I don't eat fruit.
+- Most of my influences aren't rap. I love Coldplay.
+- Just do what you want to do, and who cares what people think. That's always been my thing.
+- My only verse I remember really working on was 'Mixtape,' and I took 45 minutes on that because I wanted it to be tight.
+- I'm not normally big on suits.
+- My dad did not play Biggie or Tupac, so I had never heard it.
+- I felt love on 'Lil Boat 2.' People say my first project, 'Lil Boat,' was my best project, but I didn't feel it because I was so new, and it took a minute to grow.
+- I don't listen to J. Cole, but I have nothing against J. Cole.
+- Lil Boat 2' people liked, but it was all rap. Some thought it was too much.
+- You have to understand that your music isn't for everybody; your job isn't to please everybody.
+- I've got songs that sample 'Mario Bros.,' 'Charlie Brown,' the 'Rugrats' theme, the music that plays when you turn on a Gamecube.
+- I was surrounded by a bunch of friends who made music, and at the time, I thought they were good. They used to tell me I was really bad, but it ended being up the opposite.
+- People used to always laugh at my hair, stuff like that.
+- If you got the talent and the drive, there are ways to get noticed.
+- Frank Ocean is super dope! He's like a ghost. He's, like, not really real. I didn't think he was real until I met him.
+- I don't hang out. I don't go to clubs, ever. I don't party.
+- When you come from living in a dorm room with no clothes, no girls, no cars, and then you go to having three cars, girls, and money, you can't help but be genuinely happy that things are moving in a positive direction.
+- My mother always taught me a lot of important life lessons, and she would always tell me how important it was to tip. We didn't have much money, so we would tip what we could. Now, it's at the point I'm financially stable. When I'm out eating, I hope I have the cash, but if I write it on the receipt, I'll leave a big tip.
+- There's no way I'm not gonna have a gun, 'cause you just never know what'll go down in Atlanta. But I'd rather be able to protect myself and have the right, and not have to think about the consequences if I'm just trying to protect myself.
+- I'm genuinely, near and dear, truly rich.
+- Me and Uzi aren't friends. We used to be cool. It's not beef; it's just competition. That's all it is. We're not friends.
+- People say I'm destroying hip-hop, and I'm like, there's so much hip-hop, and it's so popular, so I don't know why I have the power to destroy it.
+- People bashed Drake based off the fact that he didn't suffer. Who cares! Do you like the music or not?
+- I was performing in front of mirrors forever. Just jumping around my room at, like, three in the morning when everybody else was sleeping. So when it came time, I was so ready.
+- I used to have visions of being a star all the time, but I never knew I wanted to be a rapper.
+- I'm one of the biggest Kid Cudi fans of all time. He's very relatable.
+- I want to open a restaurant, and I want to start selling properties. I want to own some stock.
+- I like penny loafers.
+- I was always curious about, like, how does hot sauce work? Growing up I used to wonder, 'If I touched it, was it hot?'
+- I'm just fire.
+- I always hear I have the voice-over voice.
+- I used to have visions of flashing lights and red carpets.
+- I don't feed into negativity. I thankfully don't. That's just me.
+- I'm out here trying to promote positivity on a global scale.
+- I've never had beer. It smells so disgusting.
+- You look more like a legend when you accomplish a lot at a young age.
+- When I was young, I was crazy in the head on social media.
+- I was in a group called the Yacht Club, and they were all older than me. I was kind of the baby.
+- I am happy every day, because life is moving in a very positive way.
+- If you're a fan of me, then you know my friends, because I push them just as hard.
+- Any post I do on social media, any song, anything in general - I just try to promote positivity, because I felt like there's not enough positivity going around in the world.
+- When you're in the studio, you can't be like, 'I want to make music that everybody will like!' You have really understand your fan base, what they like, and that's what you do it for.
+- Hip-hop is not one thing!
+- I feel like Soulja Boy was one of the smartest when it came to connecting with your fans and taking that to another level.
+- I'm the outcast of the hip-hop game.
+- I want to help, and I wanna learn more about what's going on in the world. I just wanna be alert.
+- My dad got me an iMac, and I spent my whole childhood with my eyes glued to it. I was technically savvy and knew how to make it work for me.
+- I want to do movies.
+- I've always been a good person, but I wanna be, like, the best person.
+- I hate serious rap. It's boring.
+- I'm not influencing the youth in no bad way. I'm doing can drives at my shows.
+- It was a shock to everyone when I became a rapper. Huge shock to everyone. But I knew it all along. I just didn't want to tell anybody cause then it's like, What if it doesn't work?
+- I just want to be a better person to the community.
+- The old way of coming up in the game is over.
+- I'm not a rapper; I'm an artist. And I'm more than an artist. I'm a brand.
+- My mom and dad got divorced when I was, like, 8, and when I went to my dad's house on the weekend, he'd play a lot of music: Miles Davis, Radiohead, Thom Yorke, Elton John.
+- I feel like Soulja Boy was one of the smartest when it came to connecting with your fans and taking that to another level. That's how you get the real love. Someone will love you, but if they feel like they know you or they can relate to you, it's a real genuine, solid love, even when you're down.
+- Serious rap music puts me to sleep.
+- I'm not negative.
+- I used to wake up before school when my mom was already at work. That's where I first heard a lot of music, like All Time Low, Fall Out Boy, Miley Cyrus, Linkin Park.
+- My only goal is to impress my fans.
+- I did buy my mother a Range Rover and a new crib. It feels good to say that.
+- When I first started recording music, we would record in the closet with socks on the mic.
+- I'm like the youth's big brother now. I have to be that voice for them.
+- I'm like HBK. I'm like Shawn Michaels.
+- I don't really know how to describe how I got into music - it kind of just happened.
+- I'm 100 percent sunshine.

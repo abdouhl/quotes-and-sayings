@@ -1,0 +1,56 @@
++++
+author = "Rande Gerber"
+title = "Rande Gerber Quotes"
+quotes_len = "50"
+description = "the best 50 Rande Gerber Quotes"
++++
+- My mind starts to work creatively past 10 P.M. or 11 P.M. - all of a sudden there's silence and my head starts going.
+- Casa amigos means house of friends and that's how we work. We have lunch together every day; a couple of times a week we have drinks. There are no assigned desks - everyone just moves around. It's very social and creative.
+- I want to be unique and original and truthful.
+- Pour two parts mix and you throw in one part tequila, some Don Julio, which is my favorite, shake it up a couple times. There's a perfect margarita.
+- I play a little but also like to keep the guitars around for when friends come over.
+- We own a proprietary recipe for Casamigos Tequila that can't be duplicated.
+- Oh, the secret of a great club is all in the detail. When I walk into one of my bars, I have to have all my napkins a certain way and all the pourers in the bottles facing a certain way. It drives some people crazy, but I figure if I notice something's off, then other people will notice it, too.
+- When I interview someone, I want to find out about their life, get a sense of their personality, their passion. Maybe I'm hiring for a certain job, but even if your job is marketing, I'm going to ask you for your opinion on other things - taste this, what do you think of this bottle?
+- Studio 54 was the place you could never get into. Of course, the place you can't get into is the place everyone is trying to get into.
+- Around 16 I began going out with friends to the city. That's where the action was. We would go to this place on Times Square - real shifty - and get fake IDs made up.
+- I like to adapt to each city. I like to come up with a concept for each space I do. The vibe in L.A. is a little sexier than New York, so the colors are a little different.
+- My favorite website is The Daily Beast, and I also like 1stdibs.com, where I'll browse for great rugs or classic furniture.
+- There's nothing like driving a Corvette.
+- My wife is great at giving input for my projects. She's good at naming places, she has pretty good taste in music, and as a model, of course, she's excellent when it comes to lighting.
+- To me, it's important, always in life, to never wonder what would've happened if I only tried something.
+- I don't give my employees hours - some of them come in at 7 A.M., some at 10 A.M., some stay until 6 P.M. or midnight. They have that freedom to come and go as they wish, although they all put in more hours than your 9 to 5.
+- I have to be proud of what I'm doing. When I created Caliche, it was something I really wanted to drink and that I wanted my friends to think is the best.
+- I do have the most beautiful wife in the entire world.
+- I travel light, but always with three key things: Passport, cash and iPod. The latter is perhaps the most key - it keeps me going at the gym or on the plane; I listen to everything from rock to country to blues.
+- Wherever I travel, I always head for a drink at the hotel bar as soon as I arrive. Not only is it a great way to relax, but it's a fantastic way to feel the pulse of a city.
+- Nothing says the party is over more than when you run out of ice.
+- I had long, blond, wavy hair.
+- Our rum, Caliche - I call it Cali - is a blend of three-, four- and five-year rums: It took us about three years to find the perfect blend.
+- I've hired people I've met at parties and other events, and I've hired a lot of people right out of college. It's really based on personality as opposed to experience.
+- I love blues, mellow rock 'n' roll.
+- I wasn't a party boy.
+- Always be interested in what's happening with other people.
+- None of our bars smell like a bar at all - that's our number one rule - and we use certain scented candles and certain types of incense in order to give our bars a specific feel and ambiance.
+- We made Casamigos just for us to drink. Four years later when, you know, we're offered a billion dollars to sell the company, yeah, we were kind of shocked.
+- A lot of people go into the bar and nightclub business thinking: 'Hey, we can make money for a year or two, close and then open again,' but for me, it's always been a business and it's always been about longevity.
+- You'll get the maximum potential out of everyone on your team when you create harmony, when you treat each employee well.
+- When I was in the restaurant and bar business, I followed a rule, which was that the places that I opened were places that I wanted to go to.
+- I know what I know and I also know what I don't know, and I make sure I hire the right people who can teach me.
+- There are so many things I love about he. She's still a small town girl at heart. The most important thing to Cindy is her family and making sure that we're all happy. She's so low-key despite her high-profile position. She's someone who constantly gives back, who does so many things for so many people without asking for anything in return.
+- On weekends we try and stay around the house, have a BBQ, have friends over.
+- When I get dressed, I do wear Armani.
+- When we were younger, but still of legal drinking age, it would be things like Goldschlager or peppermint schnapps. Things like that are not something I ever enjoyed.
+- Real entertainers love to entertain.
+- It's nice to be able to have a conversation with someone and know there's nothing they can gain from me, nothing I'm looking for from them.
+- It's always nice to get fresh flowers.
+- Attention from the photographers is part of my life and I think the best thing is to learn to deal with it.
+- I'm usually up until around 1 A.M. or 2 A.M. I don't get much sleep - and I prefer it that way, writing notes and coming up with different ideas for two to three hours between 11 P.M. and 1 A.M. or 2 A.M.
+- I'd only been to Studio 54 a couple of times, when I was 16.
+- I was always a design junkie.
+- I thought I wanted to work in music production for a while. I worked for a film producer. Then I was given the opportunity to open a bar in New York. So, I was like, 'You know what, I'm going to give it a shot.'
+- I don't love mixed drinks.
+- My favorite hotels are anything Aman, because their properties are always so beautiful.
+- I don't want to be stuffing my face at a party - I just want to talk and socialize.
+- When times are good, people drink. When times are bad, people drink.
+- Big cubes, small cubes - it's all ice. I'm not that fancy.

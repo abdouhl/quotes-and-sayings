@@ -1,0 +1,52 @@
++++
+author = "Bernardo Silva"
+title = "Bernardo Silva Quotes"
+quotes_len = "46"
+description = "the best 46 Bernardo Silva Quotes"
++++
+- Of course I want to get even better. I will work as hard as I can to be able to help the team even more.
+- The intensity in the Premier League is a bit higher than most of the other leagues.
+- It's not easy to play, and I give every day 100 per cent to do my best and help the team.
+- To play against Cristiano and Messi, it is always complicated.
+- I am happy because I am helping the team and happy because I am playing well.
+- For me at 16 and 17 years old, I wasn't even playing for the academy teams. I hardly played in the starting XI for the Under 19s.
+- I've been fortunate to play with many great players, including Cristiano Ronaldo for Portugal.
+- As soon as I heard City wanted me to stay longer, my mind was made up. I love the club, the manager, the players, and the fans.
+- I was champion for Monaco and had planned a five-day vacation with my friends in Palma de Mallorca. On the second day, I get a phone call from Jorge Mendes with the news of the Manchester City proposal.
+- Of course Cristiano - what he has done over the last 15 years in football - is probably one of the best players ever in the history of football, so no comparison to him.
+- To be honest, I'm now at one of the best teams in the world. To be part of this club and to have this opportunity is great. I'm very happy to be part of Manchester City's team, and I look forward to trying to do my best to help the team reach their goals.
+- I've always tried to play for the team, not just for myself but for the whole team.
+- Obviously, when you win and keep winning, it's easier to maintain this atmosphere, but the atmosphere in the Man City dressing room is amazing.
+- When you are in the second position and you want to be champions, you are always under pressure.
+- When I was younger, I could never have imagined that me at 24 would have already won a league in Portugal, a league in France, a league in England, and playing for the national team.
+- Spain and England are the best, and of course I dream one day to be there.
+- It is good to have lots of games, as it means we are fighting for everything.
+- It is so boring when you have seven days without a game.
+- I am crazy about football.
+- It's an honour to extend my deal with Manchester City. This club offers everything a player needs to fulfil their ambitions, and there's nowhere else I want to be.
+- I'll try to be young mentally and physically as long as I can to play as many games as possible, but I know, at one point, it will start to be more difficult.
+- My dream when I was younger was always to be a Benfica player. So when I arrived on the first team to work with a coach that didn't count on me, who put me as a left back, of course I was a bit sad.
+- To be at Man City, to play alongside some of the best players, it is great. It was a dream that became true for me.
+- I am like all Portuguese people in that I admire Mourinho a lot.
+- I can play either in the centre or wide. I can do whatever the manager thinks is best for the team.
+- I am fine. I am young. I recover fast, so I am always available to try and do my best for the team.
+- The British people in the north are very friendly and treat me well on the streets. They have great respect and don't bother me.
+- When you are stronger, it helps. But ever since I have played football, I have been one of the smallest ones, and you have to try to compensate with other things because if you are faster or stronger, it helps you.
+- You cannot say no to a club like Man City. I did not think twice.
+- I try to be as fit as I can, eating well and sleeping well, because I know how intense it is here in the Premier League, especially when you play big games like Liverpool or Tottenham.
+- The style of football we play here excites me, and I am determined to win more silverware. City gives me the best chance of doing that.
+- City is a fantastic club. Not only the players but the manager and all the staff welcomed me in the best way possible. I would say it was the best decision I could ever have made.
+- All coaches have different ways of working.
+- That is what happens when you play in one of the best teams in the world: you have fantastic players in your position, and you have to work hard to try and play as many minutes as you can.
+- All the players want to play on the big stages - and I am no exception.
+- I finish the game, and sometimes I don't play very well, and my grandmother calls up to ask why I haven't played well. Instead of being criticised by Pep, it's my grandmother!
+- To be trained by Guardiola and learn from the best, you cannot say no.
+- You know when you arrive at one of the best clubs in the world it won't be easy to play.
+- I know how much football means in England. They love it. That's why it's great to be here.
+- When I was five, 10, 15 years old, I always dreamed of being in the best league in the world, playing with some of the best clubs.
+- I was a Benfica fan; I had played there for 12 years.
+- When I am not playing or training, I watch football all the time.
+- Of course London is a fantastic city, but I like Manchester.
+- The second season is always easier than the first one. When you change, it's always more difficult. You have to adapt to the way your team plays; you have to adapt to your team-mates, to the league, to the referees.
+- I tried to go to university, and I stayed there for one year, but I didn't do much there because I already had a contract with Benfica.
+- The weather is the worst. I lived many years in Lisbon and then went to Monaco, places that are similar in terms of weather and food. In Manchester, it's eight or nine months of cold, and that makes a difference, but apart from that, I'm really enjoying the city.

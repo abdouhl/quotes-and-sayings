@@ -1,0 +1,40 @@
++++
+author = "Fiona Barton"
+title = "Fiona Barton Quotes"
+quotes_len = "34"
+description = "the best 34 Fiona Barton Quotes"
++++
+- Mental health is something that I'm very interested in.
+- It was this fascination with hidden lives, I suspect, that led me to journalism; seeking to uncover the truth about people became a job.
+- Writing is not just about putting words on a page. Ideas have to cook first.
+- It's a wonderful experience to be reading a story and think you've got things all figured out, and then suddenly, it all goes upside-down on you.
+- I chose to write from different perspectives despite its complexity because it is what I have always done as a journalist.
+- The secrets of small towns have fascinated writers and readers since the first psychological thriller was penned.
+- When I first became a journalist, people said, 'Oh, that must be interesting.' They saw it as slightly glamorous, slightly edgy. They wanted to know more.
+- When you start writing fiction, you have to learn to invent, and it's very hard at the beginning to stop relying on facts and what you've heard.
+- I know I love a novel with an unreliable narrator, and I think many readers do as well.
+- It's amazing to me that journalists are held in such low esteem.
+- Garrison Keillor's 'Lake Wobegon' books create a world I can immerse myself in over and over. I love the deadpan humour, the warmth, and the wonderful characters in The Sidetrack Tap. I discovered them when I was about 30, starting with 'Leaving Home' and 'We Are Still Married,' and fell in love with the place and those flat Midwestern vowels.
+- Since reading 'Sophie's Choice,' I have been haunted by the agonizing idea of choosing between two children.
+- The righting of historic wrongs has chimed with something fundamental in me since I was a young reader. I love the forensic skills, the psychological insights, and the sheer bloody-mindedness of various detectives - professional or accidental - inching toward the truth of a long-buried secret.
+- A lot of people think journalists are criminals, and there are some who haven't helped us. But the media is essential for democratic society.
+- The emotions, responsibilities - and the pain - of motherhood are unique to each of us with children. Ask any woman, and she will have her own story to tell.
+- Yes, there are bad apples, but I do feel journalists do a good job, often in very difficult circumstances.
+- I can't think whether I've actually interviewed the widow of a crime suspect. Obviously, I've interviewed members of the families of people who've been accused of things.
+- Over the years, I've interviewed the victims, the guilty, the famous, the important, and the ordinary people affected by tragedy or good fortune. But strangely, it is not always the people in the spotlight that have stayed with me. It is often those on the periphery, the bit players in the drama, that continue to haunt.
+- When you think about it, psychological thrillers often involve extraordinary events happening to ordinary people.
+- For most of us, our protective lies or omissions are so insignificant that being found out would be only mildly embarrassing. But for some of us, our secret may threaten to destroy everything. And that is food and drink to a novelist.
+- Donna Tartt is a genius.
+- The imagination is such as powerful tool: suggestion is all you need. People fill in gaps.
+- When you are a journalist, you are always looking for the next story. It might come from a phone call from a contact or an unanswered question you spot in someone else's article.
+- The success of 'The Widow' meant there were expectations for the second book from the first word, and it has created a completely different writing experience. Not to say I haven't enjoyed writing 'The Child,' but I confess there were times when I felt as if I was wrenching it out of my body with bloodied fingernails!
+- It is a sad truth that apprenticeships fell out of favour in Britain in the Seventies and Eighties, when the manufacturing industries shed jobs and the construction industry went into decline.
+- Once you write a book, you hand it over to the readers, and it's their book then. They're so involved. They ask questions about details that I haven't even thought about.
+- For me, there has always been the irresistible lure of a secret.
+- Barbecue is to North Carolina as the hot dog is to New York.
+- As a journalist, your words are regularly read by lots of people, but they're not your words: they're someone else's. You're quoting people.
+- As a reporter, I spent a great deal of time in court. During brief breaks in testimony, I would often look at the spouse, usually the wife, of the accused. I began to wonder how listening to the details of a crime purportedly committed by your spouse would affect that person's view of her husband.
+- The unsaid is a powerful tool. It invites the reader into the narrative, filling in gaps, interpreting silences and half-finished sentences, and seeing the hidden fear in someone's eye.
+- We may like to pretend otherwise, but we all have thoughts we don't want anyone else to know, things we've done that would change the way people feel about us, or parts of our lives that we would rather forget.
+- As a journalist, I've been a professional watcher, picking up the body language and verbal tics that make us individuals and interesting to others.
+- I like my villains clever, deep, and driven by pure evil.

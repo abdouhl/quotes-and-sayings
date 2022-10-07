@@ -1,0 +1,15 @@
++++
+author = "Irwin Rose"
+title = "Irwin Rose Quotes"
+quotes_len = "9"
+description = "the best 9 Irwin Rose Quotes"
++++
+- Enzymologists usually study the initial rates of reactions measuring product formation as a function of substrate concentration or other variable. Cell biologists are more likely to want to know the effect of a change on the steady state behavior of a complex system.
+- We left my birthplace, Brooklyn, New York, in 1939 when I was 13. I enjoyed the ethnic variety and the interesting students in my public school, P.S. 134. The kids in my neighborhood were only competitive in games, although unfriendly gangs tended to define the limits of our neighborhood.
+- Initially, I thought problems on how the brain works to be the most interesting. But it was necessary to be practical and concentrate on less obscure matters when I entered Washington State College. Besides, there were no courses given in neurobiology.
+- Looking back on my 50-year eclectic journey in research, I am grateful that it has gone as well as it has, although still not clever enough to open the black box of enzyme structure.
+- I don't have any hobbies. You know, I'm very embarrassed when people ask me what are my hobbies; I don't have any hobbies. I mean, it's just enough to keep up with the things I'm trying to solve.
+- My Ph.D. thesis problem was to determine if the DNA content of rat tissues increased if there was B12 in the diet. This problem was suggested by my adviser based on the observation that thymine could replace vitamin B12 in a lactobacillus.
+- My interest in protein breakdown as a research problem began in l955 at about the time I joined the Biochemistry Department of Yale University. It was known that proteins break down intracellularly in the mature animal.
+- I floated around in the department of biochemistry and learned some interesting things, and then I began to... I never wanted to work with a mentor because I always wanted to have my own reputation and be free to do what I wanted to do. So I worked with the weakest people in the department. Don't make that public.
+- We moved from the East coast to the town of Spokane, Washington, when I was about 13 years old, and I did not adapt very well to the, to the style of the place, and I spent most of my time in the public library.

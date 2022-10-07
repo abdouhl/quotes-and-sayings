@@ -1,0 +1,105 @@
++++
+author = "Chris Smalling"
+title = "Chris Smalling Quotes"
+quotes_len = "99"
+description = "the best 99 Chris Smalling Quotes"
++++
+- Ultimately, what you're feeding yourself has a bearing on how you're going to perform.
+- It is nice to hear some positive words from the manager.
+- As players you need to have thick skin and we need to have belief that you will have bad days but it's about making sure you have more good days than bad.
+- You know that without the whole team working together, it's a very hard job for the defenders, so everyone plays a part.
+- All of us are professionals and no player wants not to play.
+- I like to get the ball down and play, but I can always get stuck in and hold my own.
+- Just to be able to be at a club like Manchester United for so long when I first joined, you never know how it's going to turn out.
+- I like Thai food, Jamaican stews with yam, pumpkin and sweet potato.
+- I guess football is a game of opinions.
+- Hopefully I can take my chances when I get them.
+- Whether it's the Premier League or the Champions League, I can showcase my abilities.
+- I think a lot of managers say that it starts from the front and us as defenders know it helps our job when the front two strikers put that pressure on. If they can do that it makes our job a lot easier.
+- Ultimately it's the simple things that make a difference.
+- It doesn't matter whether it's the 93rd minute, Giggsy is making his jinky, mazy little runs. You could forgive him for maybe not coming out training every day, because he's done so much in the game, but every day he's out there. He doesn't seem to need a rest.
+- To have a chance at a big club, if it goes well and the club is happy and I am happy, then I can definitely see a longer-term future in Italy.
+- I know from playing against Mata that he's a great player.
+- You can't have two or three games where you let your level drop.
+- I just have to make sure that, whenever an opportunity arises, I keep taking them.
+- You can put too much pressure on yourself. You can start forcing balls, maybe trying too hard. You make things too complicated.
+- When you come to Manchester United, in every transfer window - whether the team is doing well or badly - there are always players linked with the club because this club is always linked with the best players.
+- You do see very few English players going abroad and those that do are largely good players otherwise they wouldn't have gone, but I feel a lot of their downfall is in the language. On the pitch you can learn the different basics of 'left,' 'right' and 'behind you' but off the pitch you want to have that influence around the team.
+- If you would have told me that I'd be in a European final back when I was at Maidstone then I wouldn't have believed you.
+- A good pre-season is essential if you want to do well.
+- Football was always a dream, but a distant dream until when I was about to go to university. I'd had a couple of trials, but it wasn't a realistic dream, it was a kid's dream.
+- Fabio Capello has probably seen me play more games at centre-half but for him to have the faith in me to play in a different position is great for my confidence and I hope I did him justice.
+- I've always been a centre-half, to be honest.
+- As players we don't want to be sitting on the touchline or watching the games in the directors' box. That is no fun.
+- When you get the shirt and a position in the team, you don't want to give it up.
+- I want the supporters to know that we're always striving to improve.
+- I wish I knew in terms of more educated in food when I was younger. Because the importance of it not just in sport but in life too has helped me and I think it'll continue.
+- I knew when I did get a consistent run that I could go from height to height.
+- You can't rest on six months of good performances because as soon as you have a blip, there is always another player to take your place.
+- At home we try to plan what we cook in the week.
+- Van Gaal is receptive to other people's ideas.
+- My mum and brother are so proud of me.
+- Transfer speculation during the off-season does spur you on.
+- I had nothing to lose at my Fulham trial and I just gave it my all.
+- Even before I went vegan, in terms of cutting out red meat, my tendinitis and recovery after games was vastly improved.
+- I always hoped I'd get a chance to prove myself at the top level because I believed I could do it, but making your way up the football ladder is very tough.
+- I would have gone to Loughborough to study business management and was looking forward to that very much.
+- A lot of successful teams are based on having two or three solid partners that rarely change.
+- Football Beyond Borders is about learning, establishing new beliefs in an ability to succeed.
+- Everyone has their own traits but if you are being compared to players like Rio Ferdinand then you must be doing something well and hopefully I can keep that going.
+- You're never going to be bulletproof, but if you're feeding yourself good food and making sure you're eating the right supplements, I think you reduce the chances of getting any niggling injuries.
+- My wife is vegan and has been for a few years.
+- I just want to do my best.
+- I was born in London but, after my dad passed away, we moved to Kent for a fresh start.
+- I didn't see myself playing regularly at right-back for Manchester United or making my England debut in that position.
+- I understand that I am in an extremely privileged position and I am deeply thankful for that but, at the end of the day, we are all human.
+- It's hard to sit back and just go through your whole career, because everything's always moving so fast. But the odd milestone is always a nice moment, and when you look at the previous players to have hit those kind of milestones, it's nice to be in that company.
+- We have to take a greater stand against discrimination of all kinds.
+- I just try to do my best and try to be a part of the team.
+- I think every manager has that, the so-called hairdryer treatment when things need a little turnaround.
+- Nobody wants to train every day so the more games the better.
+- People might think it's all about getting up for a game but it's often the opposite.
+- I love a challenge and when a new centre-back comes in it makes you raise your game. You have to show more, you have to be more consistent.
+- I had the offer of places at Leicester and Loughborough to study financial economics.
+- We take more risks at United than the majority of teams but the manager wants us to play.
+- I think I've played a lot in the Premier League and now I can bring my qualities that I've learned to Italy, and that is something I am looking forward to.
+- I was playing regularly for United up to when I left.
+- My mum tried her best. Now I try to make her life as enjoyable as I can because she has done so much for my brother and me.
+- You just have to learn that you can't always go and win that ball and there are certain moments to do it.
+- I think the more games the better and I am always one that would rather play than train.
+- Throughout my career I have developed a thick skin against verbal abuse, justifying it as just 'part of the game' but the time has come for Twitter, Instagram and Facebook to consider regulating their channels, taking responsibility for protecting the mental health of users regardless of age, race, sex or income.
+- Obviously with a knee injury there are certain protocols that need to happen.
+- You learn that you can't take what's happened in the previous years for granted.
+- I am used to playing when I am fit.
+- It makes me very proud that a club like Manchester United have wanted me to be here as long as I have been.
+- I have a collage of pictures of my dad holding my brother and me. I look at that before every game just to remind me about having no fear or regrets and to go out and enjoy the moment, because I know how precious life is.
+- As a patron of a youth education charity it is my duty to use my platform as a voice for all, regardless of background.
+- Everyone becomes a lot more focused when you come towards the critical stages of the season.
+- Anyone who wants to be a centre-half would have to say that John Terry is a role model. Every centre-half in the game would agree with that. It is the way he leads the team and the way he reads the game.
+- I liked Thierry Henry. I watched Arsenal so much on TV.
+- I think racism is unacceptable and should not be stood for. It is not an issue just in Italy, it is around the world.
+- At cricket, I was mainly a bowler and tried to bat. I hit the odd four or six and then got out! In athletics, I was mainly triple jump and 200m.
+- You work every day technically, physically but so much is in the mind. Look at when players go on big scoring runs, then stop scoring. It's not that they are any different physically, it's very often mental, confidence, concentration.
+- Even before I joined Manchester United, I knew of Wazza as a hard worker.
+- With United the spotlight is always on and there's always going to be that pressure, no matter what the game is.
+- You can have so many different demands; trying to please the fans, pleasing the manager, please yourself.
+- When you've got the experienced players around you who've won countless trophies and titles between them, you want to rise to them.
+- I think Serie A has always been a goal of mine to play in one day, because as a defender if you get the chance to experience Serie A you want to do it.
+- It's nice when you can have that battle on the pitch and then there's respect after the game because, ultimately, you are just trying to do your best.
+- When we're winning or losing, when we're doing warm-ups or even when I'm walking down the street, there are United fans talking to me. I think that's something we all love.
+- A manager has to have all different sides covered.
+- I've had many setbacks.
+- Playing in the Manchester derby definitely helped me.
+- I quite like being aggressive and horrible which gives you more confidence to dictate over strikers and to make them feel they have had a frustrating game when they've walked off the pitch, feeling very down.
+- As I've got older I've become a lot more conscious of my diet and making sure I was getting all the right things.
+- Ultimately it's your club form that decides whether you play at a World Cup because there aren't many England games throughout the season.
+- I didn't know too many people in life, not just in sports but in life, that were vegan, so it was something that I had to educate myself on fully before I could, one, do it myself, and, two, talk to others about it.
+- All you can do is let your football do the talking.
+- Of course you want to be playing in the summer.
+- It is nice to hear yourself being compared to great players.
+- I liked business studies and economics at school and it followed on from there.
+- The FA Cup is notoriously unpredictable.
+- When you have come from the bottom and worked your way to the top, you are more grateful.
+- If they want to kick the ball up in the air, I will challenge all day long.
+- There are lots of aspects to work on my game, which the coaches do with me every day.
+- When someone like Lukaku gets you in the position where he's holding you off it is key to try and nick it in front of him.

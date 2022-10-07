@@ -1,0 +1,18 @@
++++
+author = "Robin Yount"
+title = "Robin Yount Quotes"
+quotes_len = "12"
+description = "the best 12 Robin Yount Quotes"
++++
+- I was also lucky to play for an owner, Bud Selig, who truly cared about his players. He'd call me into his office once in a while when he knew things weren't going so well. And it's funny. Every time I left there I always felt like something good was about to happen.
+- I was also very lucky to be a teammate of two of the greatest players to have ever played the game. I learned very early on by playing for Frank Robinson and with Henry Aaron that even the greatest players in the game were just one of the guys.
+- I had dreams of catching the ball for the final out in the World Series and being mobbed by my teammates. Well, I guess all my dreams didn't come true.
+- My brother Larry. He taught me how hard work and dedication to the game was the only way to make it. He's taken care of all my business activities for me and my family for many years, and I thank him for that.
+- My high school coach was Ray O'Conner. He has coached a lot of players that have signed professional contracts, and many of those have gone on to play in the major leagues.
+- I never faced a pitcher with better stuff than Nolan Ryan.
+- You know over 20 years I played for a number of managers and dozens of coaches. I don't know any of them that I didn't learn something from to help make me a better player.
+- You know no one ever accomplishes something like this without a lot of help from good people along the way. And this is certainly true in my case, and I would like to thank some of those people.
+- And George Brett. I think most people know that George and I have become pretty good friends over the years.
+- You know raising a family in the lifestyle of a professional athlete can be very difficult.
+- But what I'd really like to tell you is I never dreamed of being in the Hall of Fame. Standing here with all these great players was beyond any of my dreams.
+- You know, when I was a young boy I used to play baseball in my back yard or in the street with my brothers or the neighborhood kids. We used broken bats and plastic golf balls and played for hours and hours.

@@ -1,0 +1,98 @@
++++
+author = "Randeep Hooda"
+title = "Randeep Hooda Quotes"
+quotes_len = "92"
+description = "the best 92 Randeep Hooda Quotes"
++++
+- Theatre is great, but we don't live in an idealistic world, and we have to pay our bills.
+- February days are a marketing gimmick; love happens every day.
+- I never think about what others are doing. I do a film for myself, not others.
+- The hero is changing in Bollywood, and I approach a hero's role like a character by focusing on its weaknesses. I feel the weaknesses of a character make them more alive, relatable, and human.
+- In 2010, I sold my car, a Toyota Majester, for just a lakh-and-a-half to be able to feed my horses. It continues to be like a hole, where I put all my money.
+- If you have life's experiences with you, nothing can stop you from being a competent actor.
+- You can't say the public likes generic characters. Give others a chance, go for a more rooted and honest characterisation, take some risk, and then let the public choose.
+- As human beings, we are all flawed. And just like there is a good side, there is also a bad side waiting to find its way out.
+- Success is a high, but the way up is hard, and you have to give your all.
+- I have made a promise to myself that I will have no limitations as an actor. I have realised I have to pay attention to the commercials or the business aspect of cinema, but deep inside, I am purely an artiste.
+- I feel very meditative when I ride. A horse does not know whether my movie is a hit or a flop or what is happening in my relationship.
+- Being fit involves working on all aspects - your body, what you eat, and how you think. A sculpted body is not of much use if you're not there mentally. And similarly, if you're not eating well, it will affect your physical and mental set-up. After all, a six-pack might look good, but that's pretty much it!
+- I didn't allow failure to break my heart. So I wouldn't allow success to bloat my head.
+- I would really love to work with Clint Eastwood.
+- Having learnt my basics in theatre, I always feel film is a collaborative effort. If you do your part well and help the person in front of you in realising his or her potential, the film invariably comes out good.
+- There is a sense of purity in theatre which always attracts me. Deep down, I feel I am more of an artist than a commodity, which Bollywood turns you into. I want to strike a balance.
+- I wouldn't mind going half naked on stage, if that is what my role demands.
+- I don't see anything wrong in someone wanting to be famous or having sky-high ambitions.
+- I overhaul myself for my roles. Sooner or later, I will get my due.
+- Over the years, I have realized that there's more to a film's fate than just good acting and a solid script. It needs to be marketed well. It's the package that sells - the songs, action, actors, etc.
+- Honestly, I find writing to be a very lonely job.
+- I knew that I wanted to be an actor; how to go about it was the question. I went to Australia for my studies; from there I told my dad that I also want to do a course in performing arts, but my father refused. So I completed my studies and came back. But I kept poking him, saying that acting is something that I want to do.
+- My mom often tells me to get married, but she gets it now that I don't want to. Like any other mom, she is worried, but she also understands the demands of my profession. I am blessed to have a family like this.
+- My family is my biggest critic. Since they come from a non-filmi background, they give me an audience's point of view. They have been very supportive of me.
+- I'm going to be acting all my life. But, while doing that, I will try to avoid the trappings of fame.
+- We had a great dramatic society in school, and that's where I first got exposure both as an actor and director.
+- A few years ago, when I had no work and started believing that films weren't a viable career, I thought of finding another job. I started training and riding horses and got consumed by that. It was a boon in disguise.
+- There is no need to change my image. I like my image, and the audience likes it, too. I am very comfortable with the kind of roles I do, and as I am not doing the same character or playing myself. I explore my characters; I don't brood over my broody image.
+- I would like to be known as one of the best actors in the world because that is something that I would have earned. And being sexiest would come from my genes... it is something I was born with and not earned it for myself.
+- It is easy to bare your body, but it is difficult to bare your soul. What works for me is that I am not a city-raised boy with city-raised sensibilities. I can play the vulnerable tough man, the guy with a gun in his hand, tears in his eyes, fire in his heart, innocence in him, and in his arms a woman he loves.
+- I try to keep myself as normal as possible. Stardom is transient. People forget you after a while.
+- You don't run from the bad things in life; learn from them, because your worst is what will lead you to your best.
+- I find theatre easier than films, because it gives you an environment of a dark hall, the audience concentrating with you... whereas, film sets are not conducive to long rehearsals, and it is difficult to pick up the emotions amidst all that is going on around you.
+- I would often take this bus and go to a nearby village where I had hordes of animal friends. I was hardly around four or five years old then. The conductor was so used to seeing me hop on to the bus and get down at the same place, that he never asked any questions. The strangest part is, he never asked for a ticket either!
+- Seriously I suspected I was a good actor, though I didn't know it during 'Monsoon Wedding.' Now I realize the more I learn, the less I know about acting... and life.
+- I don't regret doing any of my films. All of them have been great learning experiences, and they have contributed to making me what I am today.
+- It is important to keep the filmmakers interested in you so they can offer you everything and anything. We actors are not given work on the basis of audience poll; the filmmaker will cast you after they see and like your work. It is essential to do different kind of films and not get typecast.
+- I believe in the institution of marriage; Other than cinema, it's the only way to be immortalised!
+- During my theatre days, I was more comfortable doing comedy. It's such an irony. I have always played a buffoon on stage, and yet I don't have any comic role to my credit.
+- I think I'm the only professional horse rider from the movie industry. Strangely, I've seen no men from the industry at equestrian events. Though I've seen some ladies like Diya Mirza and Lara Dutta at the race course. Women, by the way, make superior horse riders.
+- Contrary to the royal and uptight image of polo, I want to bring it to a younger generation. This is a great sport that can have a larger audience and appeal to more people. Sportsmanship is lacking in many other sports that I don't want to name.
+- Sex appeal is a good thing for commercial cinema. Though I can't sit at home and consider myself a sex symbol, it is for people to do so. I want to be known as an interesting actor.
+- I don't like people waiting on me. I feel it is an unnecessary expense.
+- Stardom happens - you can't plan it - it's destiny, and you shouldn't stand between you and your destiny. I'm letting my destiny play its part, and I go by my gut feeling. If I like my role, I say yes; if I don't, I just refuse, as simple as that.
+- Celebs says we have no time for love, but I wouldn't say that.
+- I don't have a set image. In fact, I would be curious to know how someone slots me.
+- I think it would be pompous to say I am an underrated actor. I don't think it is for me to think and decide; it is for people to decide. But I am glad I am underrated than being overrated - that is something I would find hard to digest.
+- I've had my share of struggle. I believe, never take success to your head or failure to your heart.
+- I don't play the role of a villain, really, but I like playing anti-hero kind of roles. I like characters where there's conflict, drama, and more personal investment than just being heroes.
+- You can't get angry with a horse. They will get angry and frisky with you.
+- I'm just happy that people have recognised me as leading man material.
+- There is an interaction and action, reaction between two people. One should show honesty in a relationship. Be honest to your partner and tell him everything. How long can you do things with dishonesty and that's wrong. Don't get into a relationship if you can't be honest.
+- I wouldn't mind doing a film revolving around horses, but I wouldn't dilute my equity just sitting on one.
+- It's too bad I'm not a flirt. When I'm on the sets, I'm too busy working on my scenes to look at the ladies.
+- The truth is that I've always wanted to be an actor, ever since I was a child. I used to see these English movies which were shown to us in our school every Saturday, and then I used to enact the hero's part in my head.
+- I am not an insecure actor, and this reflects in the films I have done. Yes, there was a phase when I was adamant on solo hero roles, but that is over now.
+- I am not an angry guy. It's just the roles I do that impact my personality.
+- I find solace in animals. I have got a stray dog at home called Candy. I picked it up while I was waiting at the airport one day. I always wanted to have a 'macho' dog but got this sweet little thing instead.
+- There is no life without sport and no sport without competition.
+- Be it Valentine's Day, Father's Day or Mother's Day, I feel all days are reminders of some feelings. February 14 doesn't hold any special relevance for me.
+- Knowledge is power. You can't begin a career, for that matter even a relationship, unless you know everything there is to know about it.
+- Every actor's deepest desire is to reach a huge audience. So, I don't look down upon commercial cinema... there's a beauty in it that you understand sooner or later.
+- I used to run away from school to my village. But later, I went to the U.S. for studies and lost touch.
+- A Bollywood hero, for most people, has been a Raj, a Rahul or a Prem... it's now a part of the psyche.
+- Love is a strange emotion. It is ever evolving. Lust is transient. With time, one realizes that love and togetherness are two different things. Very few people are lucky enough to experience the two emotions simultaneously.
+- A movie is a mass consumption product. I have got no delusions about being niche. I don't want to be niche. Though in the earlier part of my career I was into niche cinema, doing independent films - and I do have a revolutionary bent of mind - but you cannot make a change from outside; you have to be a part of it.
+- For very long, I wasn't able to find a place for myself in movies. After my initial success, I didn't know how to capitalise on it.
+- Though I thoroughly enjoyed playing crime branch officer Gautam Savant, it drained a lot out of me, too. It shook my faith in myself, as I explored my hidden side and wondered if I was just acting or using the character as an excuse to vent my mean side.
+- Trust is not about what you can or cannot do in the name of love but who you are and what you choose to reveal as things progress and evolve.
+- When we are younger, we say a lot of things without often believing in them. The thoughts within you are much more important, and so often, one can't completely describe what one feels. As we grow older, we realize that there is more to love than what is expressed in the conventional sense of the terms.
+- You have to make enough noise to be cast in the right films, and the best way to make that noise is to do lots of good work.
+- Love can never make you weak, and love is not restricted to opposite sex. I love my parents, I love my animals, and I love my profession.
+- Approaching people for work has not worked for me. People who came to me with work has worked.
+- At the end of the day, an actor is only a cog in the wheel.
+- Horses are in our DNA. We used them way before cars for commuting.
+- I have realized that intensity is my unique point. I don't have to attempt it; it's innate. So, when every actor is seeking his individuality, I guess I have already found mine.
+- From being a waiter, to a door-to-door salesman, to a car-washer, to a delivery boy - I have done it all.
+- I'm going to start a polo team with my friend, and we're trying to collect as many horses as we can. You have to find time for things you love.
+- Everyone wants to be famous; so do I. But I cannot lose sleep over it.
+- I give two hoots about being typecast. It's not in my hands.
+- It's a misconception that love can only foster between two people of opposite sex. Love is a bond.
+- People prefer doing films. That is not the case with me. I don't do theatre because I have to but because it makes me feel alive. I enjoy the whole process of rehearsing, though repetition can make it tedious.
+- There is a lot of silence in me, and I feel that silence is often better than spoken words.
+- Love to me has meant different things at different junctures of my life. I'm not a hopeless romantic.
+- I have this soft spot for have-nots. So, I was really inclined to portray their pain and pathos in 'Highway.'
+- None of us can claim to be fair and square in love - and I'm definitely not a hypocrite! Humans are built to evolve with time. It depends on the nature of the relationship you share with a person. It is there today, tomorrow it may be gone; c'est la vie.
+- In all of us, there is a struggle between the good and the bad. It makes it more palpable and real to play such people as an actor.
+- If someone explains me the definition of love, I will give my life to the person. Love is a thing which is difficult to understand. Love is always evolving.
+- We had a great dramatics department in school, so I did a lot of plays and theatre there. Later, when I was the captain of our student's ward, I figured out that if you find something you really love to do, you don't have to work for the rest of your life! You can just have fun and still excel in it because you enjoy what you do.
+- Theatre gives you wings as an actor.
+- I went through a low phase for two years when I had a string of flops. At that time, I even felt that I was in the wrong profession and that I should leave acting. But thankfully, I utilised that time to introspect and went on a self-exploration trip. I did theatre in between, and it helped grow the fire within me.
+- I think 'method acting' is a widely abused term.

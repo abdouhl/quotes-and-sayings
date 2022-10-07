@@ -1,0 +1,27 @@
++++
+author = "Laurie Holden"
+title = "Laurie Holden Quotes"
+quotes_len = "21"
+description = "the best 21 Laurie Holden Quotes"
++++
+- I've had a quite a few nightmares about being chased by walkers.
+- I'm a bit of a scaredy cat. Personally, I don't like to be kept up at night.
+- It's a fun thing to do: Go to a shooting range with a buddy, knock off a few rounds, release stress.
+- I feel defensive about my character because I really love Andrea, and we share the same heart.
+- I'm not interested in playing the victim. I like stories about survivors.
+- I've never been a fan of sociopaths who have no conscience. That scares me because they're capable of anything.
+- I am a tomboy and I love being with the boys and shooting guns and stuff.
+- It's a really dark, emotionally wrenching world that we've created on 'The Walking Dead.'
+- I don't want my tombstone to say actress. I want it to say human being.
+- Well, people fall in love with the wrong guy all the time, it doesn't make them bad people.
+- I love ghost stories but I can't really watch them, especially not by myself because then I can't sleep.
+- I love my 'Walking Dead' family. This is the best job I ever had.
+- Driving through much of the southern part of the U.S. reminds me of where I grew up in Canada. The trees, homes, sense of community... I love the South.
+- I really, really, really want to do a silly romantic comedy where I can just have a crush on the guy, trip over myself, and laugh and be goofy. I just feel like all I do is cry, sob, and fight zombies and the bad guys.
+- The beauty of 'The Walking Dead' and the beauty of being on a television show for a while, is that, it's your backstory, it's part of what you are, it's what you carry with you every day.
+- When forced to survive in an apocalyptic world, there are some characters that embrace their higher selves with some emerging as natural born leaders, and others succumb to their more base and primal selves and basically transform into savages. It's really a fascinating character study in the exploration of the human psyche.
+- It's a little daunting to know you're going to take off your clothes and 16 million people are going to see it. It's not a normal day at the office.
+- I'm not a runner. I do not like running. I love to swim. I love to surf. I do not like to run.
+- I think women are amazing and women's friendships are like a sisterhood and we should see more of it in television and film.
+- I think there's a collective consciousness around the world that there are things beyond our control that have the power to annihilate us, as a species, and it's all rather frightening.
+- I'm just attracted to good material and great characters and that can come in any form, whether it's television or film or a theatre piece.

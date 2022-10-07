@@ -1,0 +1,46 @@
++++
+author = "Barry Eisler"
+title = "Barry Eisler Quotes"
+quotes_len = "40"
+description = "the best 40 Barry Eisler Quotes"
++++
+- I make a good living selling hardback books through paper publishers, and I have many friends in the industry who will suffer as it changes, so on a personal level, the transition to digital isn't something I welcome wholeheartedly.
+- The fundamental difficulty that most novelists face when they are trying to adapt their own book into a screenplay is realizing that a screenplay is a completely different way of storytelling, and it has limitations.
+- When I wrote my eighth thriller, 'Inside Out,' in 2009, the villains were a group of CIA and other government officials who colluded to destroy a series of tapes depicting Americans torturing war-on-terror prisoners.
+- The two most important things to do for self-defense are not to take a martial arts class or get a gun, but to think like the opposition and know where you're most at risk.
+- After I sold my screenplay adaptation of 'Rain Fall' to Sony Pictures, I had no more creative involvement.
+- There's an awful lot of corruption in Japanese business and politics, corruption of the sort that can make for great setting for a spy story.
+- I love Japan, and Tokyo is my favorite city.
+- The difference between being a victim and a survivor is often a low level of situational awareness. You can't be a super-spy, watchful and paranoid every day. But I am more watchful than the average American.
+- The National Surveillance State doesn't want anyone to be able to communicate without the authorities being able to monitor that communication.
+- Stephen King has inspired me with his humor and honesty, and his admonition that the author's job is to tell the truth.
+- The job of the screenplay is to identify and extract the essence of the story from the novel and reconfigure it for the screen, maintaining its essence in a different vehicle.
+- Books are my art. The movie is someone else's art. But it's great marketing for books.
+- A heart beset by coronary disease will begin to recruit secondary arteries to carry oxygenated blood.
+- From the outside, the CIA seems pretty exotic, but from the inside, it's a big, bureaucratic place. Think 'post office with spies.'
+- The post office actually achieves its mission. I wish we could say the same of the CIA.
+- It would be awesome to be so impressive that we could sway people to our way of thinking just by declaiming our thoughts, but probably most of us lack such gravitas. Luckily, there's something even better: evidence, logic, and argument.
+- I love Jet Li, but he looks very Chinese, and his English is Chinese-accented. He wouldn't have been the right guy to play a Japanese-American.
+- What I care about is readers because without readers I can't make a living... And I think it's a bad thing for the world if people don't read anymore. I want people to read a lot.
+- Psychologically, it's always more pleasurable to blame others for our problems than it is to acknowledge our own responsibility.
+- The most important guideline when it comes to argument is the golden rule. If someone were addressing your point, what tone, what overall approach would you find persuasive and want her to use? Whatever that is, do it yourself.
+- Good argument is intended to persuade another.
+- Overall, one of the things that excites me most about self-publishing is that the highest-value use of my time in promoting the books will be found in writing more of them.
+- The strangest thing about the low quality of Internet argument is that effective argument isn't really so difficult. Sure, not everyone can be Clarence Darrow, but anyone who wants to be at least competent at argument can do it.
+- I've loved thrillers and spy stories since I was a kid. It's probably not a bad rule of thumb to write the kinds of stories you love to read.
+- I can understand the allure of a venerable Big Six imprint, of a shot at the New York Times list, of a publisher-sponsored book tour, of seeing your hardbacks in bookstores and your paperbacks in supermarkets.
+- The Internet is a limitless library at your fingertips. It's a great place to start with the acquisition of knowledge. My process is to go to a place when I'm writing about it. Nothing captures the essence, feeling and flavor of a place better than when I'm actually there and doing the writing.
+- I have a long-standing interest in what I like to think of as 'forbidden knowledge:' methods of unarmed killing, lock picking, breaking and entry, spy stuff, and other things that the government wants only a few select individuals to know.
+- I read pretty eclectically - fiction, non-fiction, and poetry - and I've been inspired and influenced by a number of writers.
+- Anger, and the self-righteousness that is both the cause and consequence of anger, tends to be easier on the psyche than personal responsibility.
+- I'm not sure why I'm so drawn to heroes who do bad things and to villains who think they're the good guys, but I do find that moral ambiguity and conflict makes for great characters.
+- Action fiction is driven more by what than by who. Put that ticking nuclear suitcase under Manhattan, and it's relatively easy to create suspense. Literary fiction is driven more by who than by what.
+- I was with the CIA for only three years. I worked in the Directorate of Operations, which is now called the National Clandestine Service. It's the part of the organization where the spies live. I didn't have much experience beyond the training.
+- At the national level, I don't know how to describe a threat to destroy Country A in order to punish Country B other than to call it state terrorism.
+- If the reader cares, I don't think it matters so much whether your hero is in fact an anti-hero.
+- When I was in college, I became interested in various aspects of foreign policy and international relations. Even as a kid, I was interested in what I call, loosely speaking, forbidden knowledge.
+- Publishing, legacy or indie, is a vehicle, and you can't opine about whether someone has chosen the right vehicle if you don't know where she intends to drive it.
+- I want to position my books as premium-priced versions on the reasonably-priced scale, if that makes sense, to find a sweet spot between the high-end of what my brand can support and the low end that results in impulse purchases and maximum sales volume.
+- When I think of a story, somehow it just always seems to come out involving spooks and spies and government skullduggery.
+- Publishing for me is a business, not an ideology.
+- Paper publishers are doing everything they can to slow the transition to eBooks because, in a digital world, paper publishers' high hardback margins essentially disappear.

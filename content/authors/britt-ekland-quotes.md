@@ -1,0 +1,52 @@
++++
+author = "Britt Ekland"
+title = "Britt Ekland Quotes"
+quotes_len = "46"
+description = "the best 46 Britt Ekland Quotes"
++++
+- I'd been a housewife and mother to our son Thomas Jefferson, and I was looking for a new career. So when my agent called and said a producer named Paul Elliott from E&B productions, the biggest panto company in the country at the time, wanted to meet me I agreed.
+- I'm a very physical person. I like to run and I like to work out.
+- I used to smoke cigarettes, ten a day, but gave up when I was 28. Now my vice is several cups of coffee a day, which isn't great if you're prone to weak bones as I am, as caffeine can leach calcium.
+- Back then I was called Dumbo because of my ears. I was called Fatty, too. It was hurtful so I became like the class clown. I became the one who was kicked around.
+- I am as far from a hypochondriac as you could ever be.
+- I don't sleep with happily married men.
+- The worst thing in the world is to be tired.
+- I'm no angel.
+- I listen to my body, I give it things it wants and I eliminate things it doesn't want.
+- Little bitty bags are completely impractical - I like big slouchy bags because they have to be comfortable for my lovely wee Chihuahua Tequila, who comes everywhere with me. I'm devoted to him, now my kids have long since flown the nest.
+- There are so many young women who throw their talent away.
+- Generally, I'm a pretty positive, but like any other working person, if the jobs aren't coming in, I do get depressed.
+- I would make a poor vegetarian because I adore meat.
+- I'm a light sleeper, but so long as I'm wearing earplugs, I sleep well.
+- I'm very organised these days, and I keep my life in my handbag, like most women.
+- I was brought up very conservatively. My father was positively Victorian - I wasn't even allowed to wear my hair down.
+- I tried the Atkins diet in the Seventies when pregnant with my son, as I didn't want to pile on the pounds. Now, so long as I'm healthy, I don't care what my scales say.
+- The ideal man doesn't exist. A husband is easier to find.
+- I love luxury, I love the high life, and I have to foot the bills - I have received practically nothing from my marriages and relationships.
+- I would teach U.K. parents how to stop their children throwing litter. London is a beautiful city but its streets are disgusting.
+- I used to collect vintage clothing - exquisite lace dresses, embroidered shawls and ornate jewelry - but that's just not me any more.
+- I'm not scared of snakes, spiders or heights. I have three children; as a mum, you can't be afraid of things like that.
+- I am planning my one woman show. It will be a showcase of my life. It starts at the beginning and ends where I am today. It will have every single inch of my life - as much as you can get into an hour. I will be touring everywhere.
+- I've been doing Pilates since 1974, I lift weights, I power walk every day and I run backwards. That's sometimes a little hard when you're not on your home turf, because you've got to find a place where there are no bumps in the way - or people.
+- As for the stage fright, it never goes away. When I'm waiting in the wings to go on, it's agony every single time but I stay focused and I know that once I'm on stage it'll be fine; I'll be in my happy little bubble.
+- I'd rather kill myself than dress like Victoria Beckham in towering heels day after day.
+- I was never particularly wild, just very busy and often didn't think about what I was putting into my body. Today things are very different. I stopped smoking in my late 30s; I avoid wheat and gluten as this makes me feel bloated and sluggish; exercise regularly and bounce out of bed.
+- Think of your pension and start saving. Like my father, I have been a spendthrift, and I regret that.
+- The idea of doing theatre always terrified me because I get terrible stage fright. In the early 1970s I was offered a panto but the thought of going on stage was just too mortifying.
+- I never really learned the value of money. My father didn't spoil me, but I think my grandparents did.
+- I broke my ankle ten years ago so high heels are not an option unless I'm literally going door to door for a function.
+- I spend hours mowing the lawn in absolutely straight lines on my tractor. If it's not right, I do it again.
+- I met Peter Sellers when I was 21 and we got married ten days later. He was not right mentally, but I hung in there for four years before I left.
+- I have always worked and I would say I'm generous with money - if somebody needed anything I would always give it to them.
+- I believe you need scientific proof that something works before you entrust your health to it.
+- I own a home in Sweden, I rent in both Los Angeles and in Britain, and I'm constantly travelling.
+- I am good at down grading - I have found I can live the same lifestyle in a two-bedroom apartment as in a five-bedroom house.
+- I think I suffer from body dysmorphia - I don't see what other people see.
+- I had a husband who, I'm convinced, was an undiagnosed manic depressive. He didn't treat me as if I had a brain - I was just this beautiful little doll he could show off.
+- I was so beautiful but I didn't realise it for years. I saw pictures of myself and even I was stunned.
+- George Hamilton is one of the funniest men I have ever known.
+- A lot of young actresses have a hard time combining a reasonable love life with a career.
+- Fame overcomes everything.
+- I dieted all the time in the Sixties, but we had no idea what dieting meant - we thought it meant not eating anything.
+- My father had his own business, a clothing store, which he inherited from his father. He travelled abroad frequently and was quite extravagant, so we had skiing holidays and summer holidays on the beach.
+- I will do my best to entertain. That's what I am: an entertainer.

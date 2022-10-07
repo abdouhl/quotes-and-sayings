@@ -1,0 +1,47 @@
++++
+author = "Robert Glasper"
+title = "Robert Glasper Quotes"
+quotes_len = "41"
+description = "the best 41 Robert Glasper Quotes"
++++
+- I think the people who are saying jazz has to sound a particular way, or, 'What you're doing isn't jazz,' are just scared because they can't do it. A lot of them just aren't talented enough to do anything new, honestly.
+- My first memories of life were in rehearsal; that's why I can sleep through anything.
+- None of the jazz greats made music for the purpose of you going to check out music before them. Michael Jackson didn't make music so you could go check out Sam Cooke.
+- I'm not really married to the craft of jazz - I'm married to me, and my style, and whatever I produce.
+- I'm from the gospel world. I grew up playing in church.
+- When music is crashing around us, when you hear the same five songs on the radio that aren't really saying much, we can always go back to great music. Great music always lives on.
+- Jazz is like a big secret club. The mainstream media doesn't pay any attention to it; it's, like, 1 percent of the music market - no one cares. Why? Because the majority of jazz is old.
+- If you got every single artist in the world in one room, and you put Miles on one side and Prince on the other side, those are the two people that everybody would be trying to get a glimpse of. And Michael Jackson would be the other one.
+- I try to get the hip-hop aesthetic, most times without an MC. I don't use a rapper or a DJ to give it the hip-hop style; it's strictly the band that makes that music, which is a lot harder to do.
+- You're supposed to create new standards. The more you play songs by your peers, they become standards, you know? Miles Davis played 'Gingerbread Boy' 'cos he and Jimmy Heath were cool, you know? That's how the culture goes.
+- Honestly, recording with Faith Evans blew me away.
+- I got into hip-hop, but I still had appreciation for all types of music, so I was trained to have an open mind and to always go with the flow.
+- Around 2009, my audience started getting a lot more mainstream - younger people, R&B and hip-hop fans mixed in with the jazz audience.
+- Everybody's not going to like jazz, let's just be honest about it. Everybody doesn't like everything. There's a disconnect in generations and some people just aren't going to feel that music.
+- When my friends were listening to hip-hop or R&B, I was in the crib listening to Billy Joel and Michael Bolton, Luther Vandross, and Oscar Peterson.
+- There is a modern take on certain things you can do that, to me, is still jazz.
+- You can see how different artists work, from writing to recording, just from being in the studio environment with them.
+- Everybody has a favorite song, but everybody don't have a favorite painting.
+- I feel like certain people think that certain styles of music will taint their jazz style.
+- People don't know that the very reason the police were made was to oversee slaves; they would be called overseers, and if a slave got out of line or tried to break away and escape, these were the people to hold them in and bring them back.
+- I feel like, paying homage to an artist, it's better to do something that's inspired by them - a new work that's inspired by them - versus another person saying they redid your song.
+- I want to remind people that black music is amazing. And there are all forms of it that we've forgotten, you know? Rock music is black music! Don't forget that's what it is.
+- I always tell people that, just to be a bad jazz musician, you have to be better than most musicians. The worst jazz musicians are normally better than most musicians, because you have to know so much.
+- For a while, R&B was going out of style. It was kind of getting kicked to the side. The first year the R&B Album of the Year didn't get on the TV portion of the Grammys is when I got nominated.
+- You have to go with the times. You're going to get left behind if you don't.
+- If you really dissect hip-hop you will find a whole lot of Charles Mingus, Ron Carter, Ahmad Jamal, a lot of classic jazz samples in there.
+- I started out playing traditional jazz, and I still do: I love standards, I love the music. But it must move on, and it must live and breathe, and continue to grow, and continue to change, and continue to mesh with other music - all that kind of stuff. Jazz can be on the playground too, you know.
+- When I have to compete with John Coltrane and Miles Davis and Louie Armstrong on iTunes, which I'm doing now, that's a problem. That means that jazz is not being heard by younger audiences.
+- I feel like everybody's life literally has a soundtrack because we love music so much, and there are so many songs that people love.
+- It's very rare that you get very old jazz lovers and super-young hip-hop lovers at the same exact show, when you think about it. Not many artists can do that.
+- 'Black Radio' was pretty much a jam session.
+- A lot of times, jazz musicians try to educate people. What other genre does that?
+- Black people, we built America, and we gave it all of its pop culture and all of its great musical genres.
+- Your main radio stations, the stations that get the most listeners, don't play anything that has any kind of integrity to it.
+- Selling out is when you do something that you don't naturally want to do.
+- I've heard some people say that I'm selling out, but I'm not. If I hadn't done 'Black Radio', and just kept on doing just piano trio stuff, I wouldn't be honest with myself; I'd be doing it to please other people. That would be selling out.
+- The music is going to die if you don't tap into something that people today can relate to.
+- I was really a nerd, and I was really more of a jazz nerd. So when I had my chance to put on something, most of the time it was going to be jazz, or gospel, or something like that.
+- I was playing drums in church when I was six. Then I picked up the piano when I was 11 or 12.
+- I do feel a responsibility because most people like me that are my age or younger, they don't quite make it over to the jazz side. They flirt with it, but they don't quite marry it.
+- Anybody who loves jazz has a little bit of snob in them.

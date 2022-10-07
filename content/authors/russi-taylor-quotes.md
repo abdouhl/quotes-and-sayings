@@ -1,0 +1,26 @@
++++
+author = "Russi Taylor"
+title = "Russi Taylor Quotes"
+quotes_len = "20"
+description = "the best 20 Russi Taylor Quotes"
++++
+- Mickey is his own person.
+- I don't know anybody in the world who is as lucky as I am.
+- You have to bring yourself to a character.
+- We didn't want it to be about Mickey and Minnie being married. It was about Wayne and Russi being married. We had the best time. We laughed a lot. We were always singing. We always had music in the house.
+- In a sense, Minnie makes me better than I was before because there's a lot to live up to.
+- You know how kids have a meltdown? They're overtired or overstimulated? Every once in a while, Wayne, as Mickey, would say, 'Aw, what's the matter, little fella?' And the kid would stop crying, his eyes would get big, and he'd look around, and the parents would say, 'What just happened?'
+- Wayne was my hero. He really loved doing Mickey Mouse and was very proud that he did it 32 years.
+- If you are going to be a character for the long-term you can't just imitate, you have to bring yourself to it.
+- My brother told me that I used to clown around with voices as a kid.
+- I was the kid who'd get up in class and tell the teacher, 'But we were supposed to have a test today! I studied for it!'
+- Wayne was coming out of a session as Mickey for 'Totally Minnie.' We met in the hallway. We just blended really well.
+- Voicing the role of Minnie has deeply affected me in many ways.
+- I like being able to go to the grocery store and know that nobody knows what I do or who I am.
+- I had done some stuff on camera, then I did some film dubbing when I lived in Europe. When I came back, I'd considered doing on-camera work again, but I didn't really like it.
+- Minnie loves everyone, unconditionally. That's the way she sees the world, which is probably one of the reasons she is as popular as she is.
+- We love to work together. Especially when he stands behind me at the microphone and we hug.
+- When we got married, we kind of kept it quiet because everybody was saying, 'Oh, Mickey and Minnie got married.'
+- I wanted to be a working actor, but I like being anonymous. So to me, voice work was the way to go.
+- I never wanted to be famous. The characters I do are famous, and that's fine for me.
+- I wanted to do what Mel Blanc did, and that was cartoons.

@@ -1,0 +1,27 @@
++++
+author = "Charlie Hunter"
+title = "Charlie Hunter Quotes"
+quotes_len = "21"
+description = "the best 21 Charlie Hunter Quotes"
++++
+- Now, when we first started, I would be playing something good and then feel like I wasn't doing the right thing and launch into some idiotic cliche. Luckily for me, Bobby was patient.
+- Yeah, it's more like playing what you think is appropriate for the moment. It's not about trying to force any particular style within the parameters - and the parameters we play in are pretty large!
+- But I just think we've got such a continuity with what we're doing that most people come in and fill in the blanks. And sometimes we leave a lot of blanks to be filled.
+- I never do anything to strictly satisfy a fickle, ever-changing commercial world. I do the music I like to play. It's the only way I feel comfortable existing in the industry.
+- I certainly hope my music is in no way, shape or form influenced by anything that would be known as a jam band. If it is, then I'm going to do something else.
+- So it's really hard for a horn player to comp. But I'm totally into trying to switch those paradigms around and find a little magic space where that works, and try to mine that.
+- Bobby is really the one who did all the editing on that stuff. And he did all the mixing. I particularly like the record we did with Logic because Scott Harding did a great job mixing it. He's really a killing engineer.
+- I mean, in the course of an evening, people will take a solo here and there, but generally it's all about the rhythm of that music. Dealing with the rhythm with everything. That's essentially at least my concept of what that group is.
+- I do dig the White Stripes. I like the record they have out now.
+- Yeah, well, it did earlier - but as Bobby and I have played together, our thing as a unit has become so strong that they kind of had to get in where they fit in. And most people do.
+- If we really wanted to be cool, and everyone in the world had Pro Tools, we could just put it up on the internet and everyone could make their own record out of it.
+- But I've come to the point in my evolution on the instrument where I realize that I can't play the same stuff that just a guitar player or organ player would play - and I need to embrace that in a big way.
+- Ultimately, at the end of it, it's just trying to get into that space where you feel like you're hitting the right thing and you're making music. And it feels intuitive rather than being counterintuitive.
+- That's the thing that we said about the horn before: it's a focus issue. It's like a singer versus a drummer. If a drummer's playing a drum beat, and a singer starts singing, what do you think the audience is going to do?
+- That's the exact concept behind the music: to take that kind of, I guess whatever you want to call it, jazz sensibility - but not have it be about solos.
+- Everything we did, we did live - and then Bobby took it home and chopped it up and edited it. Which is pretty much what they did with every jazz record you've ever heard.
+- And then as we played more and more as a trio, it became more and more of a situation where we realized we really knew how to use the fourth member of the group - that space. The thing about the trio is that it's the biggest sound you can have with the smallest unit.
+- The market didn't define the music; the music defined the market.
+- Anyone playing with you is going to change where your direction is.
+- It's just a way of trying to get to a third thing that's not particular to any quote-unquote genre. It's been great for me; it's really opened me up and gotten me to use that part of my imagination. It's very scary in a lot of ways, and just as exciting.
+- But that kind of falls in line; when you think about it, James Brown was a funk minimalist. All of those parts create a sum that's larger than than the individual parts.

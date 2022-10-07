@@ -1,0 +1,15 @@
++++
+author = "Chris Hillman"
+title = "Chris Hillman Quotes"
+quotes_len = "9"
+description = "the best 9 Chris Hillman Quotes"
++++
+- You know what I do on Sundays? I sing in a choir. I sing in a Greek Orthodox choir, and I'm the only hillbilly tenor in the Orthodox Church.
+- My dad founded the 'Rancho Santa Fe Times' and won a lot of journalism awards.
+- The Byrds weren't rock n' roll guys. We were kinda like your Seekers... folkies who took it a step further.
+- All along, I did what I was comfortable doing, which was to play the music I enjoyed and try to stretch the parameters a bit. Country and bluegrass and folk were my foundation.
+- Those Laurel Canyon days were great. I have a real fondness for that era, 'til about '68. Musically, it was wonderful, and there was this great innocence, an idyllic view of the world. After that, everything got a little... edgy.
+- I loved playing the stuff we did in the Byrds. It was a good band. I was lucky to be in it.
+- The Squirrel Barkers always have a special place in my heart.
+- I was a lucky kid. You could have got 10 kids to be in The Byrds who were better than I was.
+- When I was playing bluegrass, I was living down in West Hollywood - starving.

@@ -1,0 +1,15 @@
++++
+author = "Carlo Collodi"
+title = "Carlo Collodi Quotes"
+quotes_len = "9"
+description = "the best 9 Carlo Collodi Quotes"
++++
+- A boy's appetite grows very fast, and in a few moments the queer, empty feeling had become hunger, and the hunger grew bigger and bigger, until soon he was as ravenous as a bear.
+- When poverty shows itself, even mischievous boys understand what it means.
+- Once upon a time there was a piece of wood. It was not an expensive piece of wood. Far from it. Just a common block of firewood, one of those thick, solid logs that are put on the fire in winter to make cold rooms cozy and warm.
+- How ridiculous I was as a Marionette! And how happy I am, now that I have become a real boy!
+- At such a loving invitation, Pinocchio, with one leap from the back of the orchestra, found himself in the front rows. With another leap, he was on the orchestra leader's head. With a third, he landed on the stage.
+- How it happened that Mastro Cherry, carpenter, found a piece of wood that wept and laughed like a child.
+- A thousand woodpeckers flew in through the window and settled themselves on Pinocchio's nose.
+- Pinocchio, spurred on by the hope of finding his father and of being in time to save him, swam all night long.
+- Fancy the happiness of Pinocchio on finding himself free! Without saying yes or no, he fled from the city and set out on the road that was to take him back to the house of the lovely Fairy.

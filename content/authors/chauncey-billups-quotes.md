@@ -1,0 +1,53 @@
++++
+author = "Chauncey Billups"
+title = "Chauncey Billups Quotes"
+quotes_len = "47"
+description = "the best 47 Chauncey Billups Quotes"
++++
+- Everybody has their own desires.
+- Quite frankly, Minnesota was where my career kind of turned around, and it all had to do with Flip Saunders and his coaching prowess and his system.
+- My wife cooks, I clean. Then I go to practice, come home, and take a two hour nap. I wake up, shave my head, then it's time to ball.
+- I can do a lot more by shooting from outside, score inside, penetrate, and make opportunities for others.
+- Anytime you can grace the cover of any videogame, that means that you're on that level. That you're one of the best.
+- I have great respect for Dan Gilbert and the Cleveland Cavaliers, and I greatly appreciate the discussions we had regarding their organization.
+- My first couple of years in the league left me very unstable. I had some times where I played well, and I had some times were I really did not get the opportunity. After Rick Pitino gave up on me my first year, people were like, 'He can't play.' So I had to get over that hump.
+- It wasn't that I knew Kyrie wanted to be traded or not, or him and LeBron had a beef. I don't know any of those things.
+- I'm obviously not a politician, nor do I have the desire to be one, but I'm a conscious citizen.
+- I persevered, sustained, and continued to work hard and finally got my opportunity in Detroit, and I never turned back from that point. That's what made it so sweet to me to win a championship after what I went through. I had to scrap and fight to get through it, and to reach the pinnacle made it even sweeter.
+- I'm the kind of guy who has to be two feet in if I am going to give my best effort, so broadcasting is something I'm looking at long-term.
+- I wanted to be one of the best players of my era at my position. And I did that, and I earned that. No one gave that to me. I earned every single thing.
+- I got into a lot of fights, but it wasn't because of my name. Being from the neighborhood with a name like Chauncey, people think I got picked on. But a lot of strange names come out of the neighborhood.
+- The game was very, very good to me. I felt like I was equally as good to the game the way I played it and the way I respected it and the way I carried myself through the process.
+- I'm thinking about being the best I can be at ESPN in the studio.
+- When I signed back with Detroit, I signed to retire a Piston.
+- I'm a lot more serious on the court. I'm probably a lot more intense than some of these guys thought I would be. Off the court, I'm a totally different dude. But my passion's to win, and I'm a perfectionist out there.
+- We don't just hop out of bed, scratch our eyes, and become an NBA baller. It's a process. It's a tough grind that you have to go through that people don't understand.
+- If you give him a 3-point shot, you might as well count it. I'd rather have Steph Curry beat me 14 points and 14 assists than let him get 40. Because his 40 is just so loud. And it's because of those 3s.
+- I always wanted to retire a Piston anyway. That's where I stayed the longest and had most of my success. I always wanted to be remembered as a Piston.
+- I don't want to be fired after two seasons and risk never getting another opportunity to coach.
+- I got 'Smooth' when I was growing up. I got 'Bigshot' playing in Detroit. People who know me from Denver call me 'Smooth.'
+- The confidence level that Steph is playing with now, obviously, you won't totally stop him. If I'm playing against him right now, I think I'd try to pick him up full court, get the ball out of his hands, try to be a little physical.
+- For me, I think Andre Drummond is going to be a superstar. We didn't have that. We had a lot of very good players. I think Drummond will be a superstar if he continues to work. The media, everyone is behind him.
+- That's kind of been my entire career, the stress and pressure.
+- I think the most important position in the league now is the point guard.
+- There is a good and a bad way to handle everything.
+- What bothered me more than if LeBron left or not was that I didn't think they had great assets if you have to do a rebuild. It was more that than Bron. Bron and I have always had an amazing relationship.
+- I liked being home playing in front of my people, but I just did not like the situation because I was playing shooting guard, and that is not my position. I would play it if someone like Rip got hurt, but to do it for an entire season, that is not my position. I got it done when I was asked to do. But inside, I know that is not me.
+- Magic was always my favorite. I think Jordan was the best player ever, but Magic was my personal favorite.
+- The kind of leader and teammate that I was, at every stop I made, I was always honest with guys and honest with myself. I think that was the reason I grew to have the reputation I had in the league.
+- My game is - and I'm not saying I'm slow or anything like that, but my game is mental. My game is shooting; my game is efficiency. If I'm healthy, I feel like I can be effective for a long time.
+- Me not being able to play the way that I can play, that's when you kind of know it's that time.
+- Not that I shouldn't have been traded - everyone gets traded at some point. But the way that it went down wasn't justifiable.
+- I'm not the fastest player, but you can't really play up on me because my handles are good enough where I can get around you. But you can't play off of me, because I can shoot. And if smaller guys try to defend me, I'll back them down. I'm a good post player.
+- Nobody loses gracefully and easily, but there is a way to go about it.
+- People only see you on TV and riding around like stars, but they don't see behind the scenes how much time you have to put in working out. The lifting, the eating habits, trying to change all that so you can be that guy on TV, to be a baller, that's what people don't understand.
+- I love my life. I love this ESPN thing; it's been fun.
+- I drive a Range Rover almost every day, but my favorite is my '69 SS Camaro.
+- I've accomplished everything I tried to accomplish in basketball.
+- I'm from Denver, and basketball there isn't near what it is out in Chicago or Detroit or L.A. There weren't that many great players to come out of the area; I was the best player in high school. I was Player of the Year four straight years for the state. As a freshman, I was State Player of the Year; I was Mr. Everything, so I was a phenom.
+- I played football first. I love football. I'm a die-hard Broncos fan. I loved football, but in the offseason, I started playing basketball, and I just fell in love with the game. I've been playing basketball ever since 5th grade.
+- I can remember me and my cousin always fighting. He was a big Bulls and Michael Jordan guy.
+- A lot of time, you play well and you do good work, but you are not on a good team, so it really doesn't mean anything.
+- As I have conveyed before, ultimately I would like to lead a team's basketball operation and be a part of a successful franchise.
+- In any rebuilding process, I feel like there's probably going to be two or three coaches.
+- I am a big music guy. Hip-hop, R&B, old school, jazz.

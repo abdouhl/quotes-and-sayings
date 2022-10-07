@@ -1,0 +1,14 @@
++++
+author = "Raquel Cassidy"
+title = "Raquel Cassidy Quotes"
+quotes_len = "8"
+description = "the best 8 Raquel Cassidy Quotes"
++++
+- I loved doing 'Teachers.' I don't know if it's set me on a road, but it certainly got me out of financial penury for two years. But as much as I love it - and it's a huge sacrifice - as much as I love it, I'm in acting because I'm searching to do lots of different things.
+- My dad's a journalist, and he travelled a lot when I was young. There is no way my mother could have done that.
+- If life is going well, I watch quality things like period dramas and 'The Blue Planet.' But other times, I'll trawl through anything Freeview has to offer. I do believe TV can ruin your mind, but it can also be a really good friend.
+- I went to see 'Men In Black 2.' It was just a commodity, just money being shifted.
+- While 'Teachers' may have had its following, it was on late-night Channel Four, whereas 'EastEnders' was seen by millions and millions of people. I certainly don't have the cache to sell a programme like that, and certainly nobody's coming up and asking me to.
+- Potentially, you do inhabit different worlds. And while there are no specific roles I'm burning to play, as far as acting in the future goes, I'd really like to have done searing work.
+- A high-powered, successful woman doesn't necessarily have the same support behind her that a man in that position would. Plus, she's expected to be a domestic goddess, as well as the best wife, mother, friend, and lover. But it's not just in politics: you see it in acting, too, and in journalism.
+- My fantasy life was very full. Certainly when I was a kid, I probably wanted to be an actor because I wanted to be a princess, or something magical, and get to dress up magically, and have the kind of life that I hadn't been born into, with magic powers or whatever, and live this wonderful idealised life.

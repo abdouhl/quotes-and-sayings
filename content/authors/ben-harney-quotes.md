@@ -1,0 +1,16 @@
++++
+author = "Ben Harney"
+title = "Ben Harney Quotes"
+quotes_len = "10"
+description = "the best 10 Ben Harney Quotes"
++++
+- I reached a point where - I have a real heart and concern for families and for youth, and the more I became involved in working through a ministry, the more I realized how powerful the entertainment industry was and how irresponsible it was.
+- I was making $150 a week in workshop. It was a rough year. I had trouble paying the rent. But I had evenings free to spend with my wife, Olive, and our baby daughter. In terms of family-building, it was one of the most blessed years of my life.
+- I left acting in the summer of 1988 because I was unhappy with a lot of the irresponsibility that was going on in the entertainment industry.
+- I was excited to hear others talking of God. Most people in show business have some strong spirituality but don't talk about it openly.
+- There are other people in 'Dreamgirls' who are born-again Christians. We have a Bible study class once a week. It was started by Charles Bernard and myself. We meet at the theater.
+- When you think of the people who were important in your life, prettiness was not a factor. They might have been old, fat and toothless - but they were there.
+- I won't do anything demeaning to what I stand for.
+- I realized my calling was to use the arts and ministry to help young people.
+- God gave me everything I have.
+- We are living in a culture where we are so led by the visual, and what is promoted in the media, that the attitude becomes, 'I don't have to go through normalcy in life - I can look for exemptions. And I expect them, and when I look for them and they are not there, I am angry.'

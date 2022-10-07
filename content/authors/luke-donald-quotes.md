@@ -1,0 +1,20 @@
++++
+author = "Luke Donald"
+title = "Luke Donald Quotes"
+quotes_len = "14"
+description = "the best 14 Luke Donald Quotes"
++++
+- I am not a bomber. I'm more about precision and being target-oriented. I have to rely on all parts of my game firing if I'm going to win.
+- I'm sure people see me as quiet and someone who keeps things to himself a little bit. I might be quiet, but there's a lot of fire inside me, and hopefully people see that sometimes.
+- Dad was certainly a free spirit and had his own ways. He was very proud of my golf achievements but more proud of the person I've turned into. He brought me up to lead a very balanced life.
+- I've never played the Olympic Club. I have played Lytham, but only some amateur events. I haven't played Kiawah.
+- The majors are very important, and I would love to win one or many. I'll continue to compete in them hard and win if I can. There's not much more I can say. I'd love to be part of the club of people who've won majors.
+- I'm not a 'big picture' sort of guy. I prefer making small improvements each day.
+- From my own point of view, I went to college in the States. I am very comfortable on the PGA Tour. I have made my family life over there. It would be a big upheaval for me to play full time in Europe, which is why I have decided that I am going to play mostly in the U.S. but still support Europe when it is possible.
+- I'm sick at myself for not winning more. But I am always trying to find ways to make myself a better player. I am not just turning up to make up the numbers.
+- Chicago is fun. We've spent a lot of time there, about 15 years. My wife's parents and family live in Chicago, so that's a big selling point.
+- I'm probably an average hitter, at least, and if you talk to my peers, they will tell you that I hit the ball plenty far enough.
+- It will be a great story when I'm an old man telling my grandkids that I was once the best player in the world.
+- The message I really want to get out there is that I'm someone who works hard, gets the most out of his talent, off the course has a great family life.
+- There is more to the game than hitting it far. There are ways to make birdies other than hitting 350-yard drives. I pride myself on a good short game; I work very hard at it.
+- My objective has always been to get better, no matter where my ranking is.

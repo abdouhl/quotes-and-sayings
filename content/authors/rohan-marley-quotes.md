@@ -1,0 +1,83 @@
++++
+author = "Rohan Marley"
+title = "Rohan Marley Quotes"
+quotes_len = "77"
+description = "the best 77 Rohan Marley Quotes"
++++
+- I think that business should be a reflection of who a person truly is.
+- From the very beginning at Marley Coffee, we have appreciated the importance of growing our beans sustainably.
+- Music is obviously a huge part of the Marley family identity. But that music is part of a larger idea - love.
+- There's nothing wrong with being an innovator, but how do you innovate? Are you just destroying the place, or are you protecting the place?
+- What a great partnership: Marley Coffee and BikeCaffe, bringing organic coffee in an earth-friendly vehicle to our customers.
+- The benefits of organic coffee are significant, as chemical-free soil is good soil. This extends to healthy trees which result in good beans with greater antioxidants and less chemical residues.
+- With the House of Marley, over the years we've been trying to establish ourselves not just as a brand but a lifestyle movement. So it's been a challenge to get people to adapt to our new way of thinking. We're all about sustainability, the natural life, the eco life.
+- I should not deal with things that aren't founded on ethical principles, because that's not who I am as a human being.
+- I'm a Rasta man, and I can't have a piece of land that isn't something I want to eat from.
+- I was too aggressive. Too angry.
+- I can't stand losing.
+- Best Western is a great partner for Marley Coffee, and we look forward to taking advantage of this opportunity.
+- People know the Marley family for music.
+- Marley Coffee is dedicated to my father's dream to return to the farmlands, to offer our family treasures to the world.
+- To play my father, his struggles, and how he overcame it all would require you to bring tears to my eyes. It has to be one of his sons. And we're not, none of us, in Hollywood.
+- You can't be no philanthropist, no Warren Buffett, unless you make something first.
+- My football career was so filled with energy and impactful, as a University of Miami player and the things I did in Canada, that I left a good mark. I left a good impression.
+- I was wild. My mother couldn't control me.
+- The Marley name resonates all around the world.
+- Our father was a farmer and an entrepreneur as well as a musician, and we're pleased to deliver the fine taste of Jamaican coffee and our family's heritage to people everywhere through Marley's One Drop.
+- I'm used to competition.
+- I'm used to going out amongst giants and being the smallest linebacker.
+- I always dreamed of playing music with my father. But my voice is so scratchy, I only sing in the shower.
+- Everybody listens to Bob Marley. It gives you an inner feeling to keep pushing on. It's an education on life. He helps me out every day. It gives me a deep-down feeling.
+- Tuff Gong is the name of our father's enterprise, and we're continuing his legacy.
+- My father was the first entrepreneur in the family. He started his own record label, his own restaurant. He knew that, in order to give something back to the people, he had to create.
+- I want to be the one to make a change, like when my father started his music. It's about the message. Coffee is a vehicle to create change.
+- At the University of Miami in the U.S., people thought I was there only because I was Bob Marley's son. I had to prove myself on the football field and soon earned the respect of my peers.
+- I'm Bob's son. He's my inspiration. What can I give back to the community?
+- What I do is provide a quality product with a quality taste, that's sustainable, and present it with a proper price structure so when people see it on the shelves, they will want to try it.
+- My son, he understands being an athlete and being a student-athlete and how important it is that those two things go hand in hand.
+- The House of Marley started with the concept of working together for a better world.
+- I just love Ottawa because I was able to develop a lot of things, my own character as a man.
+- I remember my grandmother drying wild coffee berries in the sun, then hulling and roasting them for her own cup of coffee each morning.
+- We started Marley Coffee from a farm perspective, and ever since, we've been doing things in a sustainable way and organically.
+- My father has a movement that started before us. As his children, we are just the stewards to build on his foundation.
+- I truly love everything about India. I love the fact I can uplift my soul, energy to higher heights.
+- I fear nothing. I fly around and do things a guy 6-2 and 240 would not do. That gives me an edge.
+- I know a lot of people respect my father. They listen to what he said. It makes me want to strive more and more to be the best I can.
+- People expected me to be creative and true to myself. In that way, I follow my father's footsteps.
+- I don't fear death. If it happens, it was meant to happen.
+- I like hitting people. The best feeling is when you hit so hard, pow! You get a jarring headache.
+- When you pick up a House of Marley product, it's not just about the music; it's also about how it's created.
+- We want to bring life. We want to enhance life.
+- P.C. Richard and Son has a wonderful heritage and is part of the great American storybook.
+- Naturally healthy soil can sustain coffee crops for generations to come. All of this contributes to the quality of the bean.
+- I was named Rohan from the great West Indian cricketer Rohan Kanhai.
+- I will be there for my kids.
+- I didn't live the lifestyle of the rich and famous. My diapers were nappy cloth. I didn't live in a big house.
+- I knew that if I could create a quality product and find the proper retail outlets, it would be a great company.
+- I spent time living in Ethiopia, learning about the cultural importance of coffee and its roots in Ethiopia.
+- The U.K. was extremely important to my father and continues to be a place of tremendous goodwill for my family and I.
+- Growing up Marley, we wanted anything we put our hands on to be beneficial to the environment and the community.
+- My father's music was about revolution and changing the hearts and minds of people through love and the deliverance of everyone. We hope our brothers and sisters will follow our path and really start to consider ecology and utilizing material that benefits not only yourself but the people.
+- My nickname was Tarzan: I found my food in the jungle; I hunted birds.
+- We, as the Marley family, won't be responsible for destroying the community.
+- Much like my father instilled in us many of the values and traditions that my brothers and sisters and I still carry forward, P.C. Richard and Son is a family run business - now with four generations having worked toward providing customers with honesty, integrity and reliability. We are proud to be associated with such a beautiful family business.
+- My father was not just a man, but a spirit dancer. You have to come with that vibration, and it is not something you can act.
+- It speaks truth when you listen to Bob Marley.
+- We grew up understanding how the analog sound is a driving force for music.
+- I don't like losing. I don't want to lose. I don't want to be associated with losers.
+- The beauty of the Stir It Up lies in its ecological balance. We're bringing high quality, earth-friendly materials together with innovative design. The result is powerful sound and a stylish look for the new turntable.
+- When you're the voice who represents our music and our family, it's an amazing, and a huge, responsibility. I am able to not only be an ambassador for my own family but for everyone.
+- Competing is different than violence. Sport is love. It's passion. There's no passion in hurting people.
+- I played ball at Miami. The Rock was with us.
+- When you're growing up in Jamaica and you don't have much, and then you gain more and more... you can now share the more that you have with the people that have less because you know what less is like.
+- What is special about the House of Marley is that it's my father's vision that guides our production process.
+- Coffee connects us in so many ways - to each other, to our senses, and to the earth that supports the coffee trees.
+- I didn't know how to be a father.
+- I love being Bob Marley's son because he's a great man.
+- The idea of a memoir is to tell the truth. I know that often the truth hurts, but a lie hurts even more.
+- It's always interesting to see how we're able to, with craftsmanship... to bring these cool sustainable materials, cool metals, into the House of Marley and keeping that sustainable movement as well.
+- I never accept losing - no way.
+- I was always more of an athlete. I like to compete.
+- My goal is to continue to build Marley Coffee distribution and add our own stand-alone retail stores.
+- My father had no fear. He wasn't afraid of any man on earth.
+- I can't sing anything like my dad.

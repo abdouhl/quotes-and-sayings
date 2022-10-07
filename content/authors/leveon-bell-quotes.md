@@ -1,0 +1,106 @@
++++
+author = "Le'Veon Bell"
+title = "Le'Veon Bell Quotes"
+quotes_len = "100"
+description = "the best 100 Le'Veon Bell Quotes"
++++
+- Drake is one of my favorite artists, so it would definitely be a honor to make a track with him.
+- Pittsburgh is a great organization.
+- If I only get eight carries, and we win the game, I'm fine with that.
+- My mother was my first and strongest offensive line.
+- Oh man, I think Damian Lillard makes good music. He has bars.
+- I've always been a stubborn kid.
+- It was never a thing that bothered me, being cold or if there's snow. It never fazed me.
+- When I carry the ball, I don't just take a direct hit. I get out of bounds when I can, get to the ground, try to avoid taking a pounding on my shoulders and legs. If I do that, I think I'll be fine.
+- I love the city of Pittsburgh.
+- It is okay to play tough and try to hit guys hard in the course of the play - that's fine - but I don't like unnecessary roughness or things that happen after the play.
+- I take pride in staying in the game.
+- If I have 38 touches and we win the game, that's enough. If I have 38 touches and we lose, then I didn't get enough.
+- Obviously, I want to be a Steeler for my whole life.
+- I don't want to go out there and jeopardize myself getting hurt in camp.
+- I gotta go play with people who want to see me succeed, who want me to be great.
+- I don't play football just for money or things like that.
+- I practice so hard, Sundays are easy.
+- I feel like a lot of runners in the NFL: the more they get the ball, the more they get into a rhythm.
+- I want to be remembered as, if not the best, then one of the best players ever. Not just running backs - players.
+- When I'm running, I tend to see a lot.
+- I don't want to just be the guy to dump the ball off to or the guy who can do the checkdowns.
+- I don't necessarily care about the money aspect of it. I just want to be valued where I'm at. If I am playing this game, I want to set standards for all the other running backs behind me, like Todd Gurley and Ezekiel Elliott, Melvin Gordon, guys like that.
+- I just know when I'm on the sideline, I can't expect somebody to push me out of bounds.
+- Quarterbacks are leaders; it is what it is.
+- I think if you deflate a football, then you're definitely cheating.
+- What I've been doing over the course of my career - everybody's been seeing me be my best self.
+- My mom tried to get me on ballet. 'Walter Payton did it! Walter Payton did it!' I'm just not messing with ballet.
+- When people come up to me and are like, 'I really like your music,' it feels good to know that it's not all about football for me anymore.
+- I just don't like when guys come and do dirty plays.
+- The irony is, when people now compliment my ability to make something out of nothing on the football field, my mom is the one who's been doing so in real life all along.
+- I play this game to win Super Bowls and be a Hall of Famer.
+- I want to make sure I do everything in my power to be a better teammate and player.
+- I'm not a guy who will budge off how I feel about my work.
+- Making music is something I've always wanted to do.
+- I just feel like the way that I play, you know, I'm such a patient runner that a lot of people look at me as slow. But I'm not a slow guy.
+- I always want to find something to get you to play with a chip on your shoulder.
+- I want to be the best that I can be because I want to win a Super Bowl.
+- Rottweilers are really protective. They always want to be around you, and they are really cuddly. They are good around family.
+- I don't really compare myself to a lot of other running backs - that's no offense to any other running back, but just the fact that I can see and avoid hits.
+- I feel I'm one of those guys that doesn't necessarily depend on athletic ability.
+- I never feel like I'm in a rush. I'm controlling the pace. If I have the ball and hit the hole right now and get 3 yards, I feel like I can be patient, work for something, knowing I can still get the 3. It's something that's hard to be coached on. I just feel I've perfected it over time.
+- I use my mind. I set up blocks. I wait for things to open. I time up things. I use a lot of skill catching the ball.
+- I want to continue to grow, and as long as I keep going out there doing what I'm doing and don't fall off from what I've learned already as they keep adding things on, I'll be fine.
+- I know, when I'm 30 or 31 years old, I know I'll be productive because I don't depend solely on my athletic ability to get open and get yards. It's more my mind.
+- It's an honor to be mentioned with a guy like Walter Payton.
+- In football, when I break the line of scrimmage, I see a player in front of me, a defender, and already in my head I'm thinking, 'I'm going to make him miss.' So I'm already looking at the next defender like, 'OK, how can I set this guy up to get him out of position, too?'
+- I still find time to record during the season. Offseason, I record every day until 7 A.M. - all night.
+- I just want to go out there and do whatever I can to win the game.
+- Even before the partnership with New Era, I loved the hats. The fact that they even want to have a relationship with me means everything in the world to me.
+- I run my routes like a crossover dribble. It's about taking angles, faking one way but going the other, and being savvy. And then, instead of running to the basket, I'm running away from the defender.
+- I feel like I wanted to run differently than everybody else did. And I want to do things that everybody else hasn't done.
+- I just think my work ethic really shows.
+- Being in my rhythm, I can never tell whether I got 15 carries or 25 carries. It's never really a difference to me. I just go out and play.
+- The only time I'm really upset is if we lose the game and I feel like I wasn't involved.
+- I'm not a guy who always complains or talks about getting carries.
+- Regardless of what happened off the field, that doesn't change what I do on the field and my performance.
+- I have a chef for my main meals, but when he's not there, rather than go to the store and grab chips, I will eat grapes or a banana or egg whites.
+- I'm not a perfect person. I never will be. I'm not going to try to be.
+- It's about leaving a legacy. People will always remember what you did. That's why I run the way I run.
+- I think I had about 14 dogs in my house at one point.
+- I always try to find something to motivate me to be a better player.
+- If I ever see someone from high school I haven't seen since then, the relationship may not be exactly the same today, but I treat it as such. I don't want them to feel I've gotten too big.
+- Growing up, my uncle used to always have dogs, and we always had a dog growing up. I couldn't remember a time when I never had a dog. It was part of the family. So once I actually got old enough, I got a dog in college, then I felt he needed a friend, so I got another dog. They just started adding up from there.
+- I can't take nothing for granted. I have to really protect myself - either get out of bounds or continue to finish the play.
+- I've made a lot of money, I'm happy where I'm at. I've got a good family - I don't really need to play football.
+- I make plays in the passing game, blocking, doing everything.
+- I think I'm changing the game. In that sense, I'm what Steph Curry is to basketball. Don't get me wrong: I don't necessarily think Steph Curry is the best basketball player, but he changed the game, so he's going to always go down as being remembered. Now everyone wants to shoot the 3 and shoot it from deep.
+- I don't think there are a lot of backs who can do the things that I can do.
+- I feel I should be valued as a player, not so much my position.
+- I'm not really worried about how many carries I get or anything, I just want to make sure we win the game. So if I need 50 carries to win the game, I'm going to get it.
+- A lot of guys are just as fast, just as strong, or just as big as me. But they're not going to be able to think the way I do on the field.
+- My go-to, I eat a lot of boiled eggs, egg whites.
+- I recorded my first song when I was 13, 14 years old, and I've been running with it ever since.
+- I've been heavy into music.
+- I used to be more of a bruiser. I wanted to run through people. Now I try to run around them.
+- My family grew up Pittsburgh Steelers fans, and it's crazy I even got drafted there.
+- I just want to be a guy that's reliable, make sure I take care of the football, make plays in situational downs, get in the end zone, help the offense move the ball, and win games.
+- I used to go to Dairy Queen all the time. It always brings back a little bit of memories. As kids, we always used to go get ice cream.
+- I always feel like I can play better.
+- Some running backs do different things to get away. My move is to spin.
+- I like Drake, Kendrick Lamar, obviously Future - I love Future.
+- I love being a running back. But I really love being a football player.
+- There are times where maybe I don't have as many carries, and we still win the game, I'm going to be fine. I'm not really trippin' about the stats if we're winning the game.
+- My aunt has this video from when I was 6 years old, no teeth or nothing, and I told my mom and my aunt that I was going to the NFL.
+- I don't let people doubt me.
+- If you just play your game, the stats will come.
+- If I'm on an away game or on my way to the stadium or on a bus ride, I listen to more mellow music. Laid-back, chill, like The Weeknd, Drake, something like that.
+- As fresh as I can be in the games, the better.
+- I work out with my trainer; he knows my body to a T. He knows the things that I'm great at, and he knows the things I'm not necessarily great at, and he'll try to help those things.
+- I just feel like I try to get out of each game healthy.
+- Whatever the coaches want to call and are comfortable with me me running, I'm always down.
+- When I have my mind set, that's what I'm going to do.
+- I think 'Shade Room,' it's a different me. You know, I think it's more on the lyrical side, talking about my life and how I really feel. You know, all these things outside of football. And people really get to look at how I feel about things or how I look at certain things. It's not just a song, more so me just telling people how I feel.
+- I love the game of football.
+- For me, I just like to play respectable football.
+- The first album that I bought with my own money was 50 Cent's 'Get Rich or Die Tryin'.' That was, like, the 5th grade, 6th grade.
+- I'm not a real greedy guy.
+- I don't think I should settle for anything less than what I'm valued at.
+- There are a lot of running backs who see the first level, the D-linemen, and they can't really see the second level.
+- When I used to drop the ball, it was because of concentration, trying to run before I caught the ball.

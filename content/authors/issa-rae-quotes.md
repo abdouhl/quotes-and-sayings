@@ -1,0 +1,44 @@
++++
+author = "Issa Rae"
+title = "Issa Rae Quotes"
+quotes_len = "38"
+description = "the best 38 Issa Rae Quotes"
++++
+- Part of the allure of watching characters on-screen is to be able to put yourself in his or her shoes or to be able to relate to what he or she is going through or what he or she is thinking.
+- People are tired of mainstream media's limited and confined portrayal of people of color.
+- It's a bit cliche, but you can't go wrong by writing what you know. Even if you're a horrible writer, your own knowledge and experience is unrivaled. Nobody knows what you know like you know what you know. The way you see things is pretty unique.
+- You know, you have a lot of people - I've met a lot of people in the past, I've gone to private schools, you know, encountered different people who think that it's OK to make comments, insensitive comments about your race because they're joking. And think that if they're joking and they say it, you know, good-naturedly, that things will fly.
+- It's one thing when other African-Americans try to threaten my race card, but when people outside of my ethnicity have the audacity to question how 'down' I am because of the bleak, stereotypical picture pop culture has painted for me as a black woman? Unacceptable.
+- I used to love being the class clown. I loved to make jokes and make people laugh. There was a set of students who would find it funny. But the cool students were like, 'Eeew!'
+- Respectfully, 'Awkward Black Girl' was never meant to be politically correct. We poke fun at ignorance.
+- I think that just because the show is titled 'Awkward Black Girl' and it is a predominantly black cast doesn't mean that you shouldn't be able to relate to these people. We're all human beings. We all essentially go through the same things when it comes down to it, so I don't I think that should limit who watches it.
+- 'Awkward Black Girl' is spreading to all the right people because of word of mouth and social networks. I'm so grateful.
+- Mainstream media has convinced people that black people aren't relatable. So when a Jewish person comes up to me and is all, 'Oh man, I love that one scene from Episode 3, I watch it over and over again,' I'm so happy. Because that's what I want.
+- Every black film feels like it's Tyler Perry, and that just needs to stop. But people seem to slowly be looking for what else is out there - 'Is there something else besides this type of humor?' 'I'm tired of seeing men in dresses.'
+- The Internet has provided small communities for racism online, and people feel free to do it. Ultimately, there should be some consequence - if you promote your racism online then there should be a consequence.
+- I'm a social media addict.
+- People are willing to support and watch web series as a legitimate form of entertainment.
+- I don't think the mainstream media understands people of color are multidimensional. For some reason, there's an idea that only white people are relatable. I don't think it's necessarily racist. But it's odd, because the people who watch the most television are black women, so we should be represented in more ways.
+- I really want to be the black Tina Fey, where I just am able to produce my own content and produce other content for other minority filmmakers and put their voices on screen and basically be able to have free range to produce.
+- The black characters on TV are the sidekicks, or they're insignificant. You could put all the black sidekicks on one show, and it would be the most boring, one-dimensional show ever. Even look at the black women on 'Community' and 'Parks and Recreation' - they are the archetype of the large black women on television. Snide and sassy.
+- I wouldn't be anywhere without the Internet.
+- I'll stick to finding the funny in the ordinary because my life is pretty ordinary and so are the lives of my friends - and my friends are hilarious.
+- The very definition of 'blackness' is as broad as that of 'whiteness,' yet we're seemingly always trying to find a specific, limited definition.
+- I'm transitioning to television and film, but ultimately, I want to have a stronger presence on the web and be able to curate the content that I want to see. To bring attention to other filmmakers and writers.
+- It was jarring to be berated for 'acting white' when I was placed in a predominantly black middle school in Southern California. I was also chubby, into boys who weren't into me, and tried too hard to fit into this 'blackness' I was supposed to be.
+- I don't like to be overexposed. Too many articles, too many tweets, too many posts, I just don't like that. But at the same time, we live in a culture where that's almost necessary. People want content and they want their stuff when they want it.
+- The web presents an opportunity to showcase any character your sick mind desires. Want to create a cross-dressing, deaf/mute, corrupt politician who has a soft spot for saving children? Go for it!
+- Black and awkward is the worst, because black people are stereotyped as being anything but awkward in mainstream media... Black people are always portrayed to be cool or overly dramatic, anything but awkward.
+- I thrive on obstacles. If I'm told that it can't be told, then I push harder.
+- I never really had to put much thought into my race, and neither did anybody else. I knew I was black. I knew there was a history that accompanied my skin color, and my parents taught me to be proud of it. End of story.
+- I personally don't feel any pressure to make jokes about multiple baby-fathers and stereotypical black jokes, because one, that's just not my life, and two, I wouldn't even sound right talking about those things.
+- My first web series, 'Dorm Diaries,' was a realistic mockumentary about what it was like to be black at Stanford University. I'm black and I went to Stanford. Boom. Easy.
+- I think that television and the web are fusing anyway, so I think that ultimately whatever I do, I'm going to blend the two forms.
+- I hate to say it but I hate black humor. I feel like a Klan member saying it, but it's just not funny.
+- Growing up as a young black girl in Potomac, Maryland was easy. I had a Rainbow Coalition of friends of all ethnicities, and we would carelessly skip around our elementary school like the powerless version of Captain Planet's Planeteers.
+- I would love 'Awkward Black Girl' to be on television, with the right team of people who understand and get it. If 'Awkward Black Girl' could make it to HBO starring a dark-skinned black girl, that would be revolutionary.
+- There's so many, 'no, black people aren't like that' barriers in mainstream media.
+- You know, even with the 'Awkward Black Girl' episodes, they come out once a month. That's great for me, it's comfortable, it gives each time to digest, time for new people to get on to it and caught up, but oftentimes I have people who are almost demanding a higher output from me.
+- As a teenager, my blackness was also questioned by some of the life choices I made that weren't considered to be 'black' choices. For example, joining the swim team when it is a known fact that 'black folk don't swim'; or choosing to become a vegetarian when blacks clearly love chicken.
+- Who I was was not acceptable to black L.A. youth: the way I spoke and my sense of humor. Everybody else had relaxers and pressed hair. I wore my hair in an Afro puff. Nappy. The way I dressed. It was all about name brands at the time in L.A. I had no idea. All those things, I failed miserably at.
+- Every time I'm recognized in public, I'm super grateful and appreciative, but I also get hot and nervous.

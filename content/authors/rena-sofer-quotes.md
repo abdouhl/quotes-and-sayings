@@ -1,0 +1,17 @@
++++
+author = "Rena Sofer"
+title = "Rena Sofer Quotes"
+quotes_len = "11"
+description = "the best 11 Rena Sofer Quotes"
++++
+- I've been very lucky as an actor. I have worked all the time. Some shows I do, they get cancelled. Some, they're critically acclaimed, and then they get cancelled. And some, I'm in the last season of this or that. But I can't complain about my career.
+- I'm a character actress. It doesn't mean I can't do leading roles; I don't think of myself as a leading lady.
+- I find that when you do yoga, you don't crave unhealthy food. But I try to always let myself eat whatever I want. I have dessert or chocolate every day, but I'll only have a few bites. I try to have a little bit of cereal in the morning, and then I always try to have protein for dinner, too. But I eat pasta and stuff like that.
+- I knew my boyfriend was going to ask me to marry him. And I was sure the ring was going to be exceptional, and I bought him a Rolex Explorer. And I engraved 'yes' on it. And when he proposed, I gave him the watch.
+- For a clean makeup finish, I use Cle de Peau translucent pressed powder.
+- I'm one of those few actresses who works all the time, and even though I haven't done a show that literally puts me on some kind of map - as in, that's how I'm known and that's how I'll always be known - I'm very lucky.
+- I think '24' is a more mature audience, whereas 'Heroes' is a little bit younger. But I have to say, neither one is child friendly. My daughter doesn't get to watch either show!
+- There are many actors who, whatever they do, they pretty much play themselves.
+- Everybody asks, 'How do you do it?' And I'm like, 'Well, I'm recurring on both shows, so the reality is, I can do both shows.' And that's the best position to be in. And 'Heroes' just asked me to come back and do more. So once I stop airing on '24' for a little while, I'll be on 'Heroes,' and then I'll be back on '24.'
+- When I buy clothes, I like to buy them in outfits so I know they go together. I like a very simple, natural style. I never like to be the attention getter; I like to come under the radar and be cool about my look, very classic and stylish. I'm not into fads.
+- I think that when Michelle Pfeiffer goes out, she's exactly what I aspire to be - she always looks beautiful and sexy, but she never looks like she's trying to be the center of attention.

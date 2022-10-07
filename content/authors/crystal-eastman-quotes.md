@@ -1,0 +1,15 @@
++++
+author = "Crystal Eastman"
+title = "Crystal Eastman Quotes"
+quotes_len = "9"
+description = "the best 9 Crystal Eastman Quotes"
++++
+- Until women learn to want economic independence, and until they work out a way to get this independence without denying themselves the joys of love and motherhood, it seems to me feminism has no roots.
+- A good deal of tyranny goes by the name of protection.
+- I would not have a woman go to Congress merely because she is a woman.
+- If the feminist program goes to pieces on the arrival of the first baby, it's false and useless.
+- I am not interested in women just because they're women. I am interested, however, in seeing that they are no longer classed with children and minors.
+- It is not so much that women have a different point of view in politics as that they give a different emphasis. And this is vastly important, for politics is so largely a matter of emphasis.
+- Indifference is harder to fight than hostility, and there is nothing that kills an agitation like having everybody admit that it is fundamentally right.
+- The average man has a carefully cultivated ignorance about household matters - from what to do with the crumbs to the grocer's telephone number - a sort of cheerful inefficiency which protects him.
+- It is all right for the lion and the lamb to lie down together if they are both asleep, but if one of them begins to get active, it is dangerous.

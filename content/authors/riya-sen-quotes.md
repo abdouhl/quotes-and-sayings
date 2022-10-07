@@ -1,0 +1,106 @@
++++
+author = "Riya Sen"
+title = "Riya Sen Quotes"
+quotes_len = "100"
+description = "the best 100 Riya Sen Quotes"
++++
+- I love ghosts. I've actually seen a couple of spirits in my life and almost every single night, till today, I try and watch a scary film.
+- I have no problem in confessing that I drink alcohol but I always take it in a very limited manner.
+- If the offers are good, I am open to do movies in any language.
+- I eat everything under the sun and manage to do so as I control the amounts I eat, but I avoid binge eating.
+- Shopping makes me happy, just like with most girls.
+- I love indulging myself once in a while with a good aroma or Thai body massage followed by sauna and jacuzzi.
+- I hardly own a sari.
+- So my first role was when I was five years old. I had one scene with my mom in a Bengali film called 'Gajamukta.' After that, I thought I'd become Madhuri Dixit.
+- I'm always open to acting in Tamil films. In fact, I'm open to films from the south.
+- I like the fact that I come with a lineage and have a filmi background.
+- 'Shaadi No. 1' with David Dhawan didn't turn out to be the best, but it was a blast to work on.
+- I am enjoying my work but films are not my lifeline.
+- I definitely wanted to give acting a shot. And Mom helped me decide what I should do by insisting that my decision should be based on what I thought was right for me.
+- I don't think you have to starve yourself or eat raw salads everyday to be healthy.
+- I am not a bimbo actress like some people out there have made me look like.
+- I hate matching stuff.
+- I enjoy wearing a saree more than a mini skirt and maybe that has come off as bad acting in some of my films, because I didn't fit in there.
+- Oh, Raima and I gel very well on screen. Our natural sibling camaraderie is evident once the cameras started rolling.
+- It wasn't me. I couldn't go on set every day, get my hair curled for hours and sit with all that make-up. It just didn't do it for me. I took a conscious decision to stop working in Bollywood movies at that time.
+- A woman cannot change a man just because she loves him. A man will change himself if he loves his woman.
+- I have been offered several Bengali films. Due to destiny and good luck, 'Noukadubi' will be my first.
+- I don't drink everywhere, as I am not a hard drinker. I also prefer not to drink in those parties where there is a huge gathering of people. For me, drinking is private.
+- 'Love You Hamesha' was never my debut film. I just did a special appearance in it.
+- I would like to act in films of all genres.
+- Rituparno Ghosh and Bharathirajaa are two directors who were born to direct.They can make even a stone act.
+- I am always excited when the script or the character has something different to offer.
+- I don't mind going to Hollywood but not at the cost of doing anything!
+- I was controversy's favorite wild child.
+- Kolkata will always be special to me. My family, mom, dad, grandmother all live there.
+- I believe comedy is the toughest genre to bring alive onscreen, but it's something that I really enjoy doing as an actor.
+- My idea of a Benarasi sari was those heavy ones that are pretty cumbersome to wear.
+- I am lucky that my in-laws are incredibly special people and I love them dearly. My father-in-law is an extraordinary man and my mom-in-law a beautiful and brave woman.
+- Actually, I do have a knack of pulling things off with a straight face, guess it runs in my family.
+- I always wanted to do a web series where I play a negative character, or someone who's a druggie, or a spoilt child.
+- 'Jhankaar Beats' is a great movie with fabulous music. But when I see myself in it as an actor, I feel so tiny and young.
+- People think that just because I live in Mumbai, I'm not interested in Bengali films. But I want to act more in Tollywood because roles here are meatier.
+- No boyfriends please. They are just waste of time, and frankly speaking I don't have time or energy to run after boyfriends.
+- My parents have been very broad-minded and let us do what we wanted.
+- Everyone wants to be glamorous, no doubt, but I was so young when I came here. I was doing all these roles, wearing a mini skirt, running around and acting 'cute.' When I'd watch myself on screen I'd be like 'eeks, I can't believe that's me.'
+- I don't mind being called sexy, but I am much more than just that.
+- I am very fussy about my clothes and very moody as well.
+- Dad hails from the royal family of Tripura, Kooch Bihar and Baroda and is a great chef. Be it Nepalese, Italian, Lebanese, Chinese, Mughlai, Punjabi or Thai cuisine, he knows the nuances of them all.
+- Marriage doesn't guarantee anything, it doesn't come with perfect settings.
+- I don't think I will ever give up doing live performances.
+- I don't mind any role as long as I get to work with good directors.
+- I was in Calcutta and my parents had an offer for me to feature in Falguni Pathak's music video, produced by Universal Music. I was in Class 9 then, and pleaded to decline the offer because I was too shy. My parents explained that it was a once-in-a-lifetime opportunity. I was in tears because I was too shy and conscious in front of the camera.
+- I was open to taking risks and learning from my mistakes.
+- Actually, once you have a lot of work at hand in Mumbai, there's little free time to spend alone.
+- No wonder they call shopping 'retail therapy,' as any girl will tell you how it just takes away all the stress.
+- I never got the idea of the industry's understanding of the word 'sexy.' They always wanted me to wear a mini skirt or show some more cleavage. That's not sexy. You are sexy when you have a strong personality.
+- I've been interested in fashion since school, and I studied it in college.
+- My sister Raima, who is just a year older and my best friend too, is also an actress.
+- My name is always just added into any controversy without clarifying with me first.
+- I don't care if people compare me to my grandmother. I can never be like my grandmother. Nor was my grandmother ever like me. People may compare me with her or my mother, Moon Moon. But I am cool about it.
+- I realized some of the films I did, after a few hits that I had, they weren't working for me because I wasn't comfortable in the roles I was playing. That's why probably people thought I was a bad actress and I don't blame them.
+- Even when I went out, people had this perception that 'Oh Riya Sen' because they feel what you're on screen, you're the same in real life.
+- After exercising, I oil my hair regularly with almond, coconut, olive and castor oil.
+- As an actress-cum-model, I'm extremely fashion conscious.
+- I have always taken my own decisions.
+- Shivam might not be as shy or as moody as me but he has a wanderlust as well. We both yearn to constantly travel.
+- Every time my sister and I went on the set with my mother, everyone would be like, 'Oh my god, she's going to become a star.' So in my head, I always thought I was going to be an actress, but not so soon.
+- Well, Kolkata is home but I have got used to living in Mumbai too.
+- Nothing really bothers me. I'm too engrossed in my own world to care less.
+- When I look at my earlier work, I often wonder why I acted like that, why I wore that dress, why I said that dialogue... Why couldn't I do it better? I realized I was too young then and not confident.
+- I have Kalpana Lajmi's 'Kyon.' It focuses on teenage crime. My mother will play my reel-life mother in the film. I am excited about it for the simple reason that I will do a film with my mother.
+- Among the actors, I think my name has been misused the maximum number of times in the industry.
+- I go by my own body type when it comes to fasting, which means that I would not follow some general advice or rule of thumb.
+- I do miss home, especially my parents, but my work keeps me occupied most of the time.
+- As a kid, when I accompanied Mom on a shoot, people would ask for my autograph as well.
+- Chocolates tempt me a lot and I love binging on them. Sometime back, I had hogged so many of them that I had to go to Bangkok for treatment.
+- I grew up with Tagore and nobody ever expresses the emotion of love like he did and he understood women so well. He is the perfect man everybody dreams of, including me.
+- Other actors have come up and told me that I don't take my work seriously. How am I not taking it seriously? Ask the directors who I've worked with and they'll tell you how serious I am.
+- People who are my superfans will come to my app. Not everyone is going to come to the app. The superfans who come to my app will see the real me in a very different mode. That is the speciality of the app.
+- Before social media actually came into play, there were only journalists, who would represent you. If I went to a party, I was written about negatively or sometimes in a positive way as well but it never was the actual thing.
+- Unlike any other star kid, I didn't have any A-grade launch. I just did whatever came my way.
+- Now that I have started acting in Bengali films, I will look forward to working with various directors.
+- Bharathirajaa taught me everything, from body language to emoting with one's eyes.
+- As I've always been open to learning, directors have helped me with the nuances of acting.
+- I am not 'fashionable.' I am particular about what I wear.
+- I think belly dancing is very sensuous.
+- In Bengali films, I played my version of glamorous, where I played a wide-ranging characters.
+- Digital content is getting very popular especially with the youth in India, hence short films are a great opportunity to tell different kinds of stories for the young audiences.
+- I feel the word 'privacy' is under threat, majorly. We are forgetting that a celebrity is also a human being.
+- Every film that you are doing, you feel it's the best you've done, and you really enjoy it, until you move on to the next.
+- I am very fond of chocolates.
+- I have always wanted to play the role of a village girl.
+- I am on social media pretty often.
+- On the sets, Bharathirajaa would treat me like an adult even though I was just 16. One day, he slapped me. I was taken aback. I cried and went back to school. Then, he called me and said, 'You are like my daughter. Come back.'
+- I don't know where this glamorous image and all came from. I don't find myself glamorous or bold.
+- Marriage largely entails love, respect, honesty, understanding and trust between two people, which only you can create for yourself to make it last.
+- When you start your career, you act in all kinds of movies. You don't pick and choose. But later on, you may feel that there were some films where you should have given a second thought before saying yes.
+- I feel Bengali directors have offered me characters which have a story to tell and not just impress people because of what I wear in the film. That's the kind of roles I want to do.
+- I am quite comfortable with the way I look and I am not doing anything to change people's perception.
+- I've always been naughty but shy since my childhood, and comparatively Raima's always been an extrovert.
+- I want to have the kind of marriage that will last forever. The kind of marriage that will make my kids want to get married.
+- I have been in Bombay for the last 18 years; I have been on my own. I have travelled wherever I've wanted to.
+- If I wore a mini-skirt then it would become such a big deal, if I kissed on-screen then it was bold, it was glamorous but if the top actresses did it then no one would even discuss it. So I was like why do I have this sexy, wild and glamorous image?
+- I didn't learn acting. I was still in school/college, shooting and then going back to studies.
+- I have never tied my hair in a bun and I rarely wear a bindi.
+- I tapped into my potential in Bengali films, which I don't think directors in Bollywood were able to understand.

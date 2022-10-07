@@ -1,0 +1,106 @@
++++
+author = "Rachel Simmons"
+title = "Rachel Simmons Quotes"
+quotes_len = "100"
+description = "the best 100 Rachel Simmons Quotes"
++++
+- Taking full advantage of all that college offers can be tough for teens facing a major life transition under pressure to perform. Perhaps we should all lower our expectations and let kids find their way.
+- At the end of the day, most parents have more in common with their teens than they realize. Let's retire the bootstrap mentality and stop telling our teens that their stress is self-imposed.
+- From childhood to adolescence, girls face mixed messages about displaying power and authority.
+- Whether you chose a passive-aggressive husband, workaholic wife, or life of single motherhood, we are all officially allowed - and uniquely qualified - to critique our own life experience. Please don't pretend you're living mine.
+- Self-compassion encourages mindfulness, or noticing your feelings without judgment; self-kindness, or talking to yourself in a soothing way; and common humanity, or thinking about how others might be suffering similarly.
+- If you want to stand with me as a single mom - and I know so many of my friends and colleagues do - please don't appropriate my burden as a way to validate your own. To suggest that you are single-parenting when you are simply solo for the weekend devalues what real single mothers do.
+- There are many ways to be the odd girl out. Your pain can brief or lasting, visible to all or none, with one or many. One of the longest, quietest ways to be the odd girl out is to be friends with two girls who are closer to each other than to you.
+- Instagram rocks. I love it, and so do the youth I work with and study.
+- When we frame women's choices in terms of extreme work or extreme mothering, women think they have to define themselves in terms of a single goal, everything else be damned.
+- In the so-called age of girl power, we have failed to cut loose our most regressive standards of female success - like pleasing others and looking sexy - and to replace them with something more progressive - like valuing intelligence and hard work.
+- Sadness, irritability, fatigue, and distractedness are among the most common side effects of grief while parenting.
+- I come from a family where happiness was seen as an 'extra,' a kind of frill to life - nice to have, but certainly not necessary and by no means paramount. Work was king. Suffering meant you were working hard. It made you worthy.
+- There are times in every friendship when you or your friend are too busy to call or are more focused on other relationships. It will hurt, but it's rarely personal. Making it personal usually makes things worse, and being too clingy or demanding can drive a friend even further away. Like people, friendships can get 'overworked' and need to rest.
+- I am a recovering rat racer.
+- There are no shortcuts to genuine friendship. Relationships are built over time.
+- You might be thinking that some people are just naturally good at speaking up, and others just aren't - game over. Not true. Speaking up is a skill that you have to learn like any other, whether it's speaking Spanish or doing calculus or changing a tire.
+- Isn't prom just a fun dance that hardworking students deserve? Sure, but it's also an event where girls internalize damaging cultural messages.
+- As parents, we must be mindful that our actions are matching our words.
+- Classroom discussion is where you learn how to debate an idea and stick with an opinion, even when others don't agree - and not take it personally, either.
+- We learn best when we're intrinsically motivated - that is, when we try something new for the sheer enjoyment of the experience.
+- Empathy isn't the same thing as expressing emotions. It's not about sharing your feelings - it can be really uncomfortable if a parent cries or loses strength at the moment her daughter needs it most. The message sent is that you need to be taken care of, not the other way around.
+- The Internet foments outrageous behavior in part because it is a 'gray area' for social interactions.
+- Launching a kid into college is about more than having the money to pay for it. Parents invest so much of their time and identities in the process that it can feel like a part time job. For many parents, the college your child ends up attending becomes a parenting grade.
+- Prom culture is now painstakingly documented on sites such as Instagram and Facebook, exacerbating the angst of the uninvited.
+- No matter how much you urge them to relax and how much you mean it, your child probably grapples with highly stressful environments away from home, whether it's where they go to school, the teams they play on, or the peers in their social circle. Most teenagers I know long for empathy from their parents about their struggle.
+- If parents shield their children from real feelings, kids falsely imagine their parents are in constant control of themselves - and may try to emulate them.
+- When your child believes you really respect what he's feeling, he'll be much more likely to trust you.
+- Social media forces girls to bear witness to painful realities of relationship that were previously hidden from view. It is a new kind of TMI, or 'too much information': publicly posted photographs of an outing or party you did not attend, or a personal web page like Formspring, can send a girl into paroxysms of anxiety and grief.
+- What teens share online is dwarfed by what they consume. Pre-Internet, you had to hoof it to the grocery store to find a magazine with celebrity bodies - or at least filch your mother's copy from the bathroom. Now the pictures are as endless as they are available.
+- When girls can be honest with each other, they can make mistakes on their own terms and discover through experience - and not through knee-jerk adult intervention - what a healthy friendship should look like.
+- When I did the original research for 'Odd Girl Out,' I asked every bullied girl I interviewed to tell me what she needed most from her family. The answer truly surprised me. It wasn't having the best solutions, calling the school, or trying to act like everything was okay. It was empathy.
+- Being jealous of a friend doesn't mean you hate her or wish her ill.
+- Many of us endure pain in the service of beauty every single day. We rip off our hair with hot wax, jam our soft skin into modern-day corsets, and burn our scalps with dyes.
+- Prom drops girls squarely into the beauty spending pipeline.
+- Teaching girls to agitate over every problem implies that relationships, and people, can bend to our will.
+- I've spent years in therapy excavating my endless, often fruitless drive to overachieve. I have learned that being successful hasn't made me happy. It's just made me successful. I even call myself a recovering overachiever.
+- Secrecy is hardly new on Planet Girl: as many an eye-rolling boy will tell you, girls excel at eluding the prying questions of grown ups. And who can blame them? From an early age, young women learn that to be a 'good girl,' they must be nice, avoid conflict, and make friends with everyone.
+- The Internet has transformed the landscape of children's social lives, moving cliques from lunchrooms and lockers to live chats and online bulletin boards and intensifying their reach and power.
+- Just like people date and break up, friends break up, too. 'Best friends forever' rarely ever happens; it's just that no one talks about it.
+- Parents of all girls must simultaneously explain overt and covert sexism, name it whenever they see it, and teach their daughters to do the same.
+- Many girls aspire to a version of selfhood that puts a psychological glass ceiling on their potential to succeed. They suffer from what I call the Curse of the Good Girl: the pressure to be liked by everyone, generous to a fault, and flawless at everything you do.
+- In the age of girl power, we're loath to send a message of surrender to our girls. To the contrary: we've doubled down on giving them permission to speak up and fight for their rights. This is a good thing.
+- Raising your hand when you're not sure you have the right answer helps you take risks with your ideas and put yourself out there.
+- There's no question that aggression can be learned through modeling. When a child sees her parent behave in a particular way, she may be tempted or even rewarded for being that way.
+- Somebody once told me I treated my smart phone like Wilson, the volleyball Tom Hanks turns into a friend when he's stranded on a desert island in that movie 'Castaway.' It's an apt comparison: parenting a toddler occasionally feels like being marooned, and your phone is your only connection to the rest of the world.
+- If smart phones had been around for women in the 1950s, 'The Feminine Mystique' might never have been written. The depression and ennui of housewives would have been blunted by Pinterest and Facebook.
+- Ours is not a culture that cares much for the work of care.
+- Harassment is one of puberty's darkest, most unreported rites of passage.
+- Small changes lead to big ones. But big changes - trying to become a different person overnight - usually lead to defeat.
+- Sometimes true girl power means accepting that we are actually vulnerable and even powerless - then figuring out how to adapt and have our needs met in other ways.
+- I realized that I wanted a Rhodes Scholarship, not because I wanted to go to graduate school but because I wanted to win a famous award. Quitting forced me to realize I was on the wrong track and that I had lost touch with who I was and what I cared about.
+- Teasing is often healthy and fun, not to mention an important part of interpersonal and individual development. But when it's abused, 'just kidding' contains a disturbing logic: If I didn't mean it, it didn't happen.
+- Jealousy is unavoidable - it's part of the price we pay for intimacy.
+- Feeling jealous doesn't make you a terrible person.
+- Knowing that your parents are okay makes you feel secure in the world.
+- My experience is that aggression is a universal trait in human beings - girls feel it in any sort of environment, same-sex or co-ed.
+- Before I became a parent, I was a bestselling author and speaker pounding up the escalators of a different airport every week.
+- The meteoric rise of the 'wellness' industry online has launched an entire industry of fitness celebrities on social media. Millions of followers embrace their regimens for diet and exercise, but increasingly, the drive for 'wellness' and 'clean eating' has become stealthy cover for more dieting and deprivation.
+- Girls who use jokes to be nasty are often hiding other feelings they are struggling to express.
+- In our million-mile-an-hour culture of never enough, working less is interpreted as working less well. This isn't always the case.
+- To teach their children how to show themselves grace in the face of a challenge, I coach parents to model self-compassion in the face of everyday setbacks.
+- Parents are teachers as much as caregivers, and our children learn to navigate life's challenges by watching us. Kids can get a road map for how to handle painful emotions.
+- Despite girls' sparkling resumes - including rates of college enrollment and high school grades that outstrip boys - sexism is a barrier that still leaves girls ambivalent about power. Opening doors has not amounted to ambition to lead for many of them, even those with options, networks, and resources.
+- When I went to prom in the early 1990s, I seesawed between my wish to get asked by the right guy and ride in the cool kids' limousine with the burgeoning realization that I was gay. I had a fun night, but I was far from my authentic, assertive self that night. Prom felt mostly like a job I had to do to maintain my position in the social hierarchy.
+- All around me, I see girls forced to become rat racers in the College Application Industrial Complex, the subculture where students must craft themselves into the perfect specimens for college admission and often lose their authenticity, love of learning, and sense of self in the process.
+- Girls must understand not only their moral obligation but their power to be allies to each other at parties and other potentially unsafe spaces for girls.
+- Self-knowledge is the foundation of real success.
+- It never hurts to tell your teen they matter more than their looks.
+- Our friends are barometers of our own lives: We look to our BFFs to better understand how we're doing ourselves. Our friends help us make sense of what we have, what we aspire to, and what we truly long for.
+- You can give them the opportunity to thrive, but when it comes to finding happiness or success, kids are really on their own.
+- Having a baby on my own is a dream come true, but in my world, there's no sheepish spouse on his way home from a work trip to offer me a stretch of alone time.
+- When you're motivated by external rewards, it's often because you're trying to accomplish goals you didn't create yourself.
+- Real body satisfaction starts when you learn to see yourself for more than your weight.
+- I was a single mom by choice at 37, and if my love life hadn't quite panned out, most everything else had. I was a classic 'amazing girl' - driven, social, and relentlessly well-rounded - reveling in the fruits of post-Title IX America: an all-metro athlete in high school, Rhodes Scholar at 24, best-selling author by 27.
+- Failing well is a skill. Letting girls do it gives them critical practice coping with a negative experience. It also gives them the opportunity to develop a kind of confidence and resilience that can only be forged in times of challenge.
+- Girlhood is often marred by schoolgirl cruelty, a grim rite of passage in which parents sometimes cruelly collude. Mothers and fathers must take a stand against petty or protracted hostility between girls.
+- Painful breakups can have profound effects on the body and mind.
+- Oversharing online can make you feel connected to someone in the moment, but when the moment is over, the only thing that has really changed is that you just gave a piece of yourself away.
+- Silence is deeply woven into the fabric of female experience.
+- For generations, black children have been brought up to have a critical race consciousness, a framework for dealing with prejudice and discrimination, which helps inoculate them against the spiritual toxins they will almost certainly encounter as they come of age in our society.
+- Sometimes comparing can be a good thing: it can inspire us to work harder and reach farther. But for the most part, excessive measuring yourself up against others - especially when it becomes a way to put yourself down - is a colossal waste of time. It's a dead end. It won't make you do anything except feel horrible.
+- A girl's social networking profile is a persona she constructs, a photoshopped billboard on the information superhighway. It also offers a salve for the anxiety so many girls feel about relationships, providing the answers to burning social questions like, What do other people think of me? Do people like me? Am I normal? Am I popular? Am I cool?
+- Most parents would not hesitate to assume responsibility for their child's behavior on a playground, at school, or in someone else's home. What happens online should be no different. Parents should talk with their children about computer ethics, stipulate rules of conduct, and - most importantly - establish consequences.
+- Intrinsic motivation is one of learning's most precious resources. It bolsters us to stick out the tough moments of a challenge and pursue what we love to do.
+- As girls grow up and download what it means to be a culturally acceptable 'good girl,' they learn to please others at the expense of themselves. They worry about protecting relationships - and what people think of them - at all costs.
+- If the Internet has been called a great democratizer, perhaps what social media has done is let anyone enter the beauty pageant. Teens can cover up pimples, whiten teeth, and even airbrush with the swipe of a finger, curating their own image to become prettier, thinner, and hotter.
+- A healthy friendship is one where you share your true feelings without fearing the end of the relationship. It's also one where you sometimes have to let things that bug you slide. The tough moments will make you wiser about yourself and each other. They will also make you stronger and closer as friends.
+- If we want to end a culture rampant with harassment, we must listen to the adult women who are speaking out courageously. We must also make room for girls to speak: If we listened, we'd find that many middle schoolers are trying to tell us, 'Me too.'
+- I run skills-building programs focused on healthy risk taking, failure resilience, and self-care for undergraduates around the country.
+- Classroom teachers can play an active role in instructing children about appropriate conduct online, even where there is no school policy on the issue. By promoting public discussion about their lives on the Internet, teachers and students can work together to share advice and develop 'rules to type by' or similar Internet-minded guidance.
+- Happiness doesn't just happen. It must be pursued. And if the pursuit of the 'ultimate currency' of happiness helps us choose occupations that confer present and future benefit, and these choices, in turn, motivate us to succeed, this strikes me as perhaps the most powerful non-cognitive skill of all.
+- Reacting to every slight or letdown is neither realistic nor fair; it sends the message that we expect the other person to be flawless in relationship. But no one is perfect, and no one relationship can ever meet all our needs.
+- For the self-conscious or insecure girl, technology can become a crippling addiction, an insatiable hunger not just for connection but the elusive promise of being liked by everyone.
+- We have to teach girls communication skills.
+- When I was 24, I won a Rhodes Scholarship.
+- Girls may love movies about fairytale princes, but their most captivating romance is with their friends.
+- To defer to someone else's definition of a life well-lived is a Faustian bargain.
+- It's not easy to let our kids be less than perfect.
+- Most of us are destined to be unhappy if we can't accept that we will have moments - or a waist size - that don't match our perfect vision of how things should be.
+- If more students use self-compassion to reframe their failures, they may discover more nourishing sources of motivation and healthier strategies to pursue their goals.

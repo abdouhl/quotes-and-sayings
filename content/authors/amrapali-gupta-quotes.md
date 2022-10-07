@@ -1,0 +1,88 @@
++++
+author = "Amrapali Gupta"
+title = "Amrapali Gupta Quotes"
+quotes_len = "82"
+description = "the best 82 Amrapali Gupta Quotes"
++++
+- We believe in celebrating eco-friendly Ganpati.
+- Coffee is healthy in a way. It gives us many benefits. It has caffeine which is found in almost every commercial fat-burning supplement - and for good reason. It's one of the few natural substances proven to aid fat burning.
+- Having a joint family provides me with an extra dose of unconditional love and support.
+- I enjoy rains with my husband Yash. I love playing music and take him out and get drenched.
+- I tried playing a positive character in my last show 'Tujhse Hai Raabta' and people gave me a good feedback, but still some people think that I'm the vamp from 'Qubool Hai.'
+- I choose Yash and made him my man. This was the best thing this entertainment industry could give me.
+- In fact, I only had a cameo role in 'QH,' but the writer and director sensed my talent and in Season 2 I was given Begum Sahiba's role.
+- My accent is not very refined as it has the typical U.P. touch. So I am trying to overcome that.
+- My in-laws are from Bhagalpur district in Bihar and they are great devotees of Hanuman.
+- I'm just waiting for something really new and creative to sign.
+- I pray that people keep showering their love on me always.
+- My in-laws don't let me do much household chores so maximum of time is devoted to my four-year-old son Kabir.
+- I want people to understand that irrespective of their profession, family time should be the priority.
+- There are no boundaries while enacting negative characters and we are free to perform in any manner, it's fun.
+- I am really excited to start my responsibility of Kabir's new phase of life. Taking care of his school books and uniform, waking him up, to making his tiffin to drop and pick him up, looking after his homework and studies; the feeling is really special.
+- Antagonists are always creatives efforts. They get extra attention be it in their costumes to their screen time. I actually enjoy it.
+- Tanveer is one character which people love to hate. I am overwhelmed by the reaction my character has garnered across various platforms, which gives me an assurance that my efforts have paid off.
+- For kids, the first day of school is always a special day for their parents.
+- I was looking for playing something positive on-screen, but I'm often offered roles that are either negative or grey.
+- Soul mate and rain are perfect combination.
+- Living in a joint family is like receiving a triple scoop of your favorite ice-cream. It feels so nice when the entire family sits together on the dining table to have food.
+- 'Tujhse Hai Raabta' is a fascinating story and I am really excited to be back on such a show with such a unique concept.
+- I give a glamorous twists to rangolis by combining it with beautifully crafted diyas.
+- In fact, I love playing positive as well as negative roles.
+- Yash is loving, caring, understanding and supportive. He is the kind of man I have wanted to marry.
+- Before I got married, I used to start prepping up for Diwali almost a month in advance.
+- Chhath is made up of two Hindi words - 'Chah,' indicating six stages and 'Hath' representing the act of austerity. The vratti observing this strict fast is believed to acquire solar energy in six different stages. It is one of the most scientific puja known to mankind and offers a host of health benefits.
+- Usually I don't attend functions without Yash.
+- We live in a joint family of eight.
+- Our constitution must be stronger to take action against any unnatural behavior at work place.
+- In the rush of busy life, we don't get enough of time to enjoy with our children.
+- I am thankful that my career didn't see a road block due to my marriage, which in some cases we have heard that women can't do good work after marriage and that's not true.
+- Rani Mukherji has been my role model and I would like to do the kind of films that she has done. But to work with Shah Rukh Khan is my ultimate dream.
+- In fact, I was very conscious of my accent and used to hesitate in talking to people.
+- GST is good idea! It brings hope for a better future. Under the new taxation regime, fruits, vegetables, pulses, wheat, bread and rice are exempted from taxation even as chips, biscuits, butter, tea and coffee are attracting higher taxes. So, that will bring a positive change in our health as well.
+- I feel motherhood is the best phase in every woman's life.
+- My fans got connected to Yash on a social networking site and they expressed their love for me to him. Although I am not active on FB, Yash sometimes keeps checking out FB to stay updated regarding 'Code Red.' He told me that many crazy girls and guys wish to meet me. They kept on requesting Yash to help them meet me.
+- Putting up the festive lights outdoors is my husband's responsibility and he really jazzes it, managing to attract everyone's attention in the neighborhood!
+- Sometimes I bring Kabir with me on sets else my in laws take care of him. When Yash is not out at work, he looks after him. We are not a family to leave our children to care takers.
+- New Year's Eve 2021 will look different this time around. We won't attend big parties with our friends and neighbors, there'll be no crowd-filled ball drop in Mumbai clubs and street side.
+- Every Diwali, the excitement sets in with all the decorations, lights and Puja. Even if busy schedule of shoots does not allow time to enjoy all the celebrations or perform rituals, I make sure to do whatever I can.
+- Long drives and tea-snacks add more fun to rainy day for me.
+- I give haircut to my son. I have made him learn mathematics table. I have also made him learn some spellings and grammar. I feel lockdown has made me more responsible as a mom.
+- I am like a child in real life.
+- Not all the actors get a chance to leave a landmark.
+- Earlier I used to be a shy girl.
+- 'Teen Bahuraniyaan' got us many awards. Be it Best Jodi, Debut faces or favorite bahu, we bagged many awards. I still watch the show online and keep blushing. I really miss the cast.
+- One year of parenthood made us realize our responsibility towards our son. We also understood how a child needs his parents and how much they are dependent on their parents for anything to everything.
+- But personally, I was bored playing only negative characters.
+- I do not want to be slotted... so I feel lucky for myself to get a positive role in 'Tujhse Hai Raabta.'
+- I am great devotee of Lord Hanuman. Even so is my husband Yash. We chant Hanuman chalisa every morning and night.
+- I think I'm already slotted. After 3 Bahuraniyaan where I played a positive role, I did one negative role just as an experiment. After that I started getting only such roles.
+- Kabir has special place for police in his heart. Whenever he sees a policeman, he wants to meet them. That's why we celebrated his birthday with a police-themed party.
+- I have never been one to choose the easy path.
+- It's really fun and totally a new experience shooting at home with limited resources.
+- The time Yash and I planned to get settled together it was difficult for me. I remember my career was at high peak and I had to make a decision. I choose to keep career aside for my marriage and I'm proud of it.
+- Zee TV is the one that made me famous and made me what I'm today.
+- My parents-in-law, brother-in-law and everyone else are so fond of my son, Kabir. I believe raising him in a joint family set-up will make him more mature and caring.
+- For me 2021 will be more about spending time with my hubby Yash and son Kabir.
+- I am not too much greedy.
+- I am really one of the luckiest wife to have Yash as my husband.
+- Success won't descend on you. You have to earn it.
+- I did face the casting couch when I had gone to sign a film; but I don't want to name the person. Most people in the film industry are like that. But thankfully, the television industry has been spared of it.
+- I am addicted to my son and can't remain so long without him as I knew shooting schedules are really hectic.
+- I have restarted my kathak practice. There had been a long gap in between so I started training with online help.
+- Ratna Pathak Shah played the modern-age mom perfectly well in 'Jaane Tu Ya Jaane na' and 'Khoobsurat.'
+- From his food to his health, most of my time during lockdown goes on my son, Kabir.
+- A full day fast without water is observed on the third main day of Chhath Puja. The main ritual of the day is to offer arghya to the setting Sun. On this day we prepare a prasad of sweets, among which Thekua is pretty popular.
+- After the success of 'Qabool Hai,' I was always assigned for the same type of roles.
+- Be it 'Teen Bahuraniyaan' or 'Qubool Hai,' Zee TV has always been special.
+- Saroj Khan was actually my dance teacher. I have watched her and learned many dance steps.
+- When I was a child, I used to help my mother decorate our house and prepare an elaborate spread of pretty lamps and flower rangolis.
+- I was worried about managing my time among shooting and with my son Kabir. He is yet small and needs me most of the time. But Yash wanted me to move on and get back to shoots. But I was nervous before starting shoots with my comeback show 'Ishqbaaz.'
+- As an actor I always want to try new and challenging roles.
+- Just living is not enough, one must have sunshine too. And one can achieve that only when we make sure that our workplace is friendly and mentally fit for us.
+- Once I was not allowed to offer prayers in temple and was attacked by my fans.
+- Yash planned a surprise for me when I returned home from shoot recently in the evening. He took me to a temple where he had invited all the fans to see me. All of them came rushing with so many gifts for me. However, I could not accept expensive gifts; but I was on cloud nine to see people bringing so many nice things for me.
+- And yes, there's a big difference between playing a negative role in a family drama and a supernatural show. Being an actor, I have to take such risks.
+- Vijaya Dashami is considered to be an auspicious occasion for children to commence their education in classical dance and music, and pay homage to their teachers.
+- We are not insecure about our relationship, but since Yash is a little busier than I, at times I do get angry with him for not giving me time. On the other hand, I also feel great about Yash doing so well.
+- My YouTube channel gives family goals to my fans. They get access to how I live my life with my family off screen.
+- I have grown up in a joint family and I'm lucky that even after my marriage, I live in a big family.

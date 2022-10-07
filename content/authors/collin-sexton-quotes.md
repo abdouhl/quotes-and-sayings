@@ -1,0 +1,69 @@
++++
+author = "Collin Sexton"
+title = "Collin Sexton Quotes"
+quotes_len = "63"
+description = "the best 63 Collin Sexton Quotes"
++++
+- I love the game and I just want to be around it or watch it all the time.
+- I just wanted to go to the right team, a team that was going to allow me to learn and come in and just be me.
+- I just want to go out and play the right way, make sure I get my teammates the ball and then also bring the energy on defense. That's something that I know I can do each and every game, whether my shot's falling or not.
+- I'm trying to win, go out there and get a victory. That's what it's all about at the end of the day. That's what I do each and every game.
+- Me and my brother growing up used to collect rookie and basketball cards, like MJ's and LeBron's. That's what we used to collect, have a lot signed as well.
+- I just want to go out there and just be that player that my team needs me to be, whatever they need me to do.
+- I just try to do my best each and every game. I feel like I've gotten better in every aspect. Just have to continue to work, continue to watch film and learn each and every day.
+- Pick a good set of friends that are going to allow you to move in the right direction.
+- Every time I step on the court, I have to give my all.
+- If I get my teammates going early, then my shots usually open up. Come off pick and roll and make the pocket pass on the first one. Then it's like OK, does the defender step up now? Then next time I may have the layup. So, just playing the game like that. Reading and reacting and not thinking too much.
+- I feel like I'm not going to have to live up to anybody's shoes.
+- I love the criticism because if there was no criticism then what can you work on and what can you get better at?
+- Once all of this is over, I'm definitely going into coaching. I want to change and help people's lives in many different ways.
+- I feel like when you're out there and getting reps up and getting a lot of time, then the game's starting to slow down a whole lot.
+- No matter the wins and losses, you can control your attitude. You can control you coming into work each and every day with the right attitude and wanting to get better and trying to get better.
+- Just have to continue to motivate myself to be ready at any time, be ready to go no matter what. Keep my mind busy and stay locked in.
+- Growing up, you want to make it to the NBA. That's everyone's goal.
+- I've seen those mistakes where I could have just given an easy layup or quick dump pass just to get my teammates going, so I watched a lot of stuff on that. Now I see it, now I can make those plays and make sure I feed my teammates.
+- I love Kobe Bryant, was a Lakers fan for sure.
+- Those are the moments people remember at the end of the game: You make a big shot. 'Yeah, he made a big shot.' I feel like those are the moments I work for and make sure I'm always ready for.
+- When you move into becoming more of a shooting guard, you get more catch-and-shoot three's, lot of pin-downs and things like that where you shoot the three a lot more.
+- I don't worry too much about scoring. I worry about the assists.
+- I love adding fuel to my fire and trying to prove I can play.
+- You can't control injuries, can't control guys getting fired and stuff like that.
+- I'm my hardest critic because I know what I can do and I strive to be as perfect as I can be even though I know it's not possible.
+- I've been doubted all my life.
+- On the court as well as off the court, I'm going to do everything that's right and try to lead by example.
+- When teams are crowded in the paint, it's very hard to get in there and penetrate, but you got to find ways to get into transition and get into your strengths. It's a lot of thinking out there, you got to make sure you think and strategize.
+- I try to get as many assists as I can.
+- When I'm out there, I play with a chip on my shoulder regardless of the situation.
+- I'm more like a team person.
+- I'm going to come in and learn and be the best player I can be on the court as well as off the court.
+- Running out the tunnel and hearing my name called out for the first time, stepping out before the game. I just had a different type of feeling, it was amazing, like I actually made it to the NBA.
+- I evaluate myself pretty tough.
+- At first you see a lot of people say 'Oh he's good, but he can't shoot' or 'Oh he's good, but can his shot translate to the NBA?' That just made me go into the gym and work that much harder to show and prove that I can shoot outside shots, and I can make shots.
+- Just the energy when I was sitting and watching the game, like the seats were shaking, fans were screaming. Just, I feel like I'll be ready to play in something like that when it's my time.
+- Since I was growing up, I was always the younger one playing with older guys. They called me Young Bull and that just stuck.
+- This isn't tennis or track. This is basketball. It's more about the team than self. There are four other guys on the court with you.
+- So, just make the right reads and the ball will always come back around to you. Taking the right shots and not forcing anything. Just let the game slow down and play free.
+- I try to show a little bit of excitement, only when I'm on the court, but off the court I'm just chill.
+- You can talk about pretty much anything in the barbershop.
+- I've always been the point guard, always been the floor general out there, and it's helped me see things I didn't previously see on offense from a shooting guard standpoint.
+- It's basketball. At the end of the day everyone wants to win, and that's really the reason why we play is to win.
+- When you first come into the league you don't know what to expect. And then if you do, you're ready, but then it's different when you're playing and getting reps. It's just like anything, you start to do something, play it enough and do it enough then you can get good at it.
+- It feels good just to have my teammates behind me each night.
+- Everyone wants to make the Olympics. Everyone wants to pretty much just play on the team or at least try out.
+- Find a group of friends that are going to push you and want you to do better whether it's in the classroom or on the court.
+- I just had to get in front of the right people to show my talents off and do what I do best. That's play hard all the time.
+- If I improve on the jump shot then I will be hard to guard.
+- I ain't going to lose confidence. Once you have it, you have it. Just because confidence comes from within you and you just have to continue to push yourself.
+- I can't control what people say, but I can control what I do.
+- College coaches, you know how they are - they want you to go 1,000 percent every second of the day.
+- I know what I can do and I know what I want to be in the future. I fuel myself. I know I want to be pretty good and I want to do whatever it takes for the team to win.
+- I can score the ball a little bit. But sometimes I put myself in a bind.
+- It might not be your day that day, but just stay positive and things will get better.
+- I feel like I'm making the right plays and right reads each and every night, so if I keep doing that the assists are going to come.
+- I wanted to go somewhere and make a name for myself. I wanted to go somewhere and establish a winning culture because everybody knows about the football team. So I wanted to change the culture and make it both basketball as well as football and just give the fans what they want in Tuscaloosa.
+- Nobody ever gave me anything. Everything I got I had to work for.
+- Coming out of college that's all people kept saying was I couldn't shoot. I shot probably 30-something percent from 3 so they were pretty much on top of that.
+- Chris Paul is a guy I can talk to about different stuff, especially when I played on his team.
+- When I'm out there I know I can score the ball like whenever.
+- I am in Cleveland, I do wear No. 2, and I do wear Kyrie's. That's gonna be linked together. I just got to take it.
+- I know what I can do and I know I can pass the ball. I know I can be a true point guard and I know I can score also.

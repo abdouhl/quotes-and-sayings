@@ -1,0 +1,27 @@
++++
+author = "Bobby Keys"
+title = "Bobby Keys Quotes"
+quotes_len = "21"
+description = "the best 21 Bobby Keys Quotes"
++++
+- In the summertime, I played Little League baseball; football in the fall; basketball in the winter.
+- I pull a lot of the stuff that I play off the rhythm tracks - and Keith Richards has been one of the main contributors to my inspirational playing.
+- John Lennon, who was a good friend of mine, he had one of the best senses of humor of any human being. And Keith Richards, fantastic sense of humor. They were smart, sharp. They had their own thoughts on matters.
+- We just get up there and play rock-and-roll music, man. Everybody sweats and has a good time.
+- I play more rhythmically than I do a lot of notes.
+- I always loved Little Anthony and the Imperials. They were like the precursors of the Temptations. I loved their music.
+- I can't read music. That's not where I come from musically. I come strictly from feeling, and that feeling comes from rock & roll.
+- I've played in bands with A-team players around. But unless they can play together, it doesn't do any good. And you can take guys who may not stand on their own up against a bunch of individuals they might be compared to, but you put 'em together, man, and they are unique unto themselves in a way that no one else can touch.
+- You got to realize that the vision, the image, according to 1964 U.S. rock and roll standards, was mohair suit and tie, and nicey-nicey ol' boy next door.
+- It's pretty scripted on the road: very organised and compartmentalised, and that's the way it has to be with so many people involved in a Stones tour.
+- I try to play the best I can every time I play. But there's just some folks that seem to draw a little bit of that extra special out of you.
+- It doesn't matter how many times I've played 'Brown Sugar', I never get tired of playing it.
+- I've never thought of my name at the top of the marquee in any particular terms other than, you know, slight bewilderment.
+- If the people dig it, then I dig it. If the people wanna hear it, then I wanna play it.
+- Sometimes, I play a round of extremely poor golf.
+- I first went on the road with the Rolling Stones in the year of our Lord, 1969. But my grandfather gave me away to a drummer when I was 15 years old.
+- When I talk about rock n' roll, to me, that goes back to the beginning of the 1950s. Blue suede shoes and sideburns, man. Pink and black coloured clothes. Turn your collar up, comb your hair in ducktails. And the music was cool. It was a whole culture then - a different world.
+- When you're not on the payroll, and you want to continue the Beverly Wilshire lifestyle, but you're only geared for a Holiday Inn existence, things are gonna catch up to you.
+- I play with toys. I have one plane that travels with me. It travels with the equipment.
+- I played in the high school band. I was the one baritone saxophone out of 80 other people. No one could tell whether I was hittin' the right notes or the wrong notes.
+- The first session I did with the Stones was an accident. I just happened to be wandering down the hallway of the same studio.

@@ -1,0 +1,104 @@
++++
+author = "Robbie Lawler"
+title = "Robbie Lawler Quotes"
+quotes_len = "98"
+description = "the best 98 Robbie Lawler Quotes"
++++
+- I've actually done a really good job listening to my body, relaxing. Some days you train hard, some days you rest a little bit.
+- I'm just trying to be a better fighter every time I compete, so it's all about being more strategic and looking for a way to get a finish.
+- No one ever wants fight of the night. Every fight I've gone in, I want knockout of the night. I want to be in and out quick. Sometimes, these guys just have a lot of grit - they're highly trained, and I just can't get them out of there, so I get fight of the night.
+- When I came back to the UFC, I was just excited.
+- I'm glad that in this sport you can write your own stories, and you don't have to worry about what other people expect out of you.
+- Coming back to the UFC was huge. I was ready for the spotlight for the first time.
+- Sometimes when you are winning, you don't see your flaws; you don't see what you are not good at.
+- The basics win fights.
+- I don't like going to decisions. I always try to finish people, knock them out, beat them up, and that's always the game plan.
+- My coaches have done a good job of tightening my skills, where I can dictate a little bit more where the fight is going.
+- I never lost sight of my goals. I never stopped thinking I could reach the top.
+- If I don't have the drive and determination to wake up every day and train with young, hungry fighters, if I don't want to do that, then I need to get out of the game, but as long as my body says I'm all right, and my hunger stays the same, I'm going to keep going.
+- For me, it's always the same: worrying about how I can get better, the techniques I can do.
+- He's been doing this a long time. Hats off to a champion, Carlos Condit.
+- I'm just fighting a lot of high-level guys. I feel everyone is trying to be tactical, everyone is trying to put their A-game out there, and I have to find a way to win. I'm all about moving on and trying to get better.
+- I know you can't fight forever, and there's only so long you can do this.
+- If you look at all aspects of all sports, everything comes down to basics and fundamentals.
+- I don't really think about or pay any mind to what everyone thinks about my fighting style or if they watch me fight; I just concentrate on myself.
+- Adidas is one of the biggest companies in the world. To have a company like that, a mainstream company, a major sports company, to say they want me, it's awesome.
+- I've always had a belief in myself and an ability to always do what I believe.
+- It's nice that fans want to see me fight. It definitely helps and gets everyone excited. It gets the UFC excited, and they are quick to put me back in there. But I really just focus on myself and getting ready to fight.
+- I'm not a matchmaker; I don't run the UFC - I'm a fighter. So I'll stick to doing what I do best: training and punching people.
+- I've been fighting for a long time.
+- I focus on making sure I'm sharp, and it doesn't matter who I am fighting. I need to perform at my best and try to elevate my game to the highest level I possibly can, so that is what I concentrate on doing.
+- Everyone likes different things. Not everyone's the same. Not everyone runs their mouth. Not everyone can fight.
+- I don't really dabble into the politics of MMA too much.
+- Everyone's got an opinion, and not all of them are good ones.
+- I'm just willing to do a lot, take a lot, and force people into a fight. That's something a lot of people aren't ready to do. Some people are.
+- Woodley has tremendous athleticism, brings a lot of technique - well-rounded fighter.
+- I think people appreciate that I've been around so long, and I never gave up on myself and just kept grinding, and eventually I made it to the top.
+- Fighting somebody like Manhoef, who can take anyone out at any point in time - that was a big win for me and one of the best finishes. In that fight, it wasn't looking good for me, but I kept believing in myself and was able to land a big shot, which was huge!
+- I'm not just a guy who can knock people out.
+- There's always going to be some phenom fighter coming up. If they're special athletes and highly trained, they'll do big things.
+- I just worry about myself. I'm just gonna be me and do me. If people appreciate it, cool. If not, I'm gonna still be me.
+- I just move forward and not worry about the things I can't control.
+- I don't fight for my legacy or for the glory or anything like that. The feedback from the fans is nice, don't get me wrong; it's a good feeling having them - you on their side. But I'm motivated by making a good living for my family, and that's what made me get serious about this.
+- I think the UFC's done a great job of building the brand, building the UFC, building MMA.
+- When push comes to shove, I'm a fighter, and I'm going to force someone to fight. It takes a lot of technique, it takes a lot of skill, but to take that, and make something of it, it's a lot of heart and a lot of determination, and that's something I have. That's who I am.
+- It has never been a motivation thing. I'm a fighter. I always show up and give it my all.
+- There wasn't much money in this sport when I started, but I didn't get into it because of money. I loved to fight, and I loved MMA.
+- Every day, I need to get better. I need to get stronger. I need to get faster.
+- I've always loved to fight. I love what I do, and that is why I've been doing it for so long. I really enjoy fighting and competing at a high level. I love getting in there and getting after it.
+- I try not to worry about what people think and what people think I should do each fight, how impressive I need to be. I need to go out there and win; that's what it comes down to.
+- I only know I feel good when I fight.
+- My coaches do all the breakdowns of my opponents, and I leave that up to them.
+- Just being able to grind, day in and day out. You have to be a different kind of person to not just do the workouts, but to not make money for months at a time.
+- I don't worry about who they're putting in front of me. Why would I? That's just nonsense for me to waste my energy.
+- My techniques are basics, but my willingness to be in the pocket and see things is very high level.
+- I just want to be a better fighter, plain and simple.
+- I fought for, like, five years in Hawaii - nothing better than that. It was awesome. Every fight, I went on vacation, and I wasn't cutting any weight, so I could just eat whatever I wanted. I enjoyed it.
+- Obviously, CM Punk is a really big draw for the UFC. He's going to bring a lot of eyes to the UFC, and the better he does, the better it'll be for all MMA fighters as far as sponsorships and stuff.
+- My coaches and I always stress getting better and working on all aspects, so I'm ready to fight and take it to the next level.
+- The thing is I always believed in myself. I always believed that I was going to be the best in the world.
+- I don't really pick my opponents.
+- I'm not gonna tell any man what he should do in life.
+- Winning fires me up.
+- You want to go out there, and you want to be sharp, and you want to execute your game plan and... get it done fast.
+- I want to go out there and be clean in my performances and showcase great knockouts.
+- Who am I to say anybody can't do what they want to do and create their own destiny if they believe in something?
+- I want to knock people out.
+- I was a huge Mike Tyson fan, would sit through the night watching boxing matches and would hit the bag at every opportunity I would get.
+- Every fighter wants to... take the least amount of damage possible.
+- Usually, when I liked athletes growing up, it was because they could hit a ball very far or they can throw a ball very fast. They can shoot a jumper, or they can dunk the ball.
+- Everybody would rather get a quick submission, a quick knockout.
+- I'm tactical, and I have a lot of heart - something that you don't see when you watch a lot of fights.
+- I want it to be one-sided. I don't want to take any bumps or bruises: I want to go out and dictate all aspects and go out the way I came in. I'm looking to dominate and dictate.
+- To take what I have, they're going to have to have more than skill and technique. It's a lot of heart, a lot of determination. That's just who I am. I'm not messing around out there. I'm not giving it away.
+- Drew McFedries was the hardest hitter I've ever been around. A big, strong, athletic guy with power. He didn't have to hit you with a hard shot or load up - even the little short shots could hurt you.
+- In college, I tried to start wrestling as soon as I could and when it was available to me, as I loved competing, and then got into MMA under Pat Miletich, where I was able to sharpen all my skills and develop into a true fighter.
+- I was always into martial arts and boxing.
+- I expect greatness out of myself.
+- When you're on a roll, you want to stay busy - you want to keep that momentum going.
+- I can see that I can be a role model.
+- When St-Pierre retired, it brought a lot of enthusiasm to the weight class, and things got shook up.
+- It doesn't matter who I'm facing. I'm concentrating on myself.
+- Everyone's out there trying to take what's mine, and they're going to have to fight me for it.
+- I just take it one fight at a time.
+- I'm going to fight until my body says otherwise.
+- I think fans expect fighters to beat each other up, and what I expect out of myself is to stay of trouble.
+- I worry about myself in the ring; I worry about what I can do and how I can dictate a fight.
+- I was getting a lot of good work with my wrestling up in Iowa, but I needed a more all-around game, striking, jiu-jitsu at a high level. I had a lot of good coaches out at ATT to work with. They pushed me. Everything was smarter. Everything was precise.
+- You can only stay at a high level so long before you need to rest your body.
+- I don't know what the fans expect out of these fighters, but I know what I expect out of myself. And that's go out there, beat people up, and just be me.
+- I was a striker before a wrestler. I've always wanted to knock people out.
+- Holly Holm is a heck of an athlete and a heck of a fighter.
+- Even when you lose, you get better. Sometimes when you lose, you win.
+- You don't appreciate what you have when it all comes to you real quick. I went from nothing to everything all at once.
+- Trying to get over guys and knock them out, that's what fires me up. Decision victories, whoop dee doo, but finishing guys fires me up.
+- I didn't care what people thought of me, that I was getting better, pushing myself to get better. Those are the things I concentrate on. I don't concentrate on what everyone else was saying.
+- It's all about being sharp and not taking too much damage. That's always the game plan.
+- I'm just a quiet guy who loved to fight.
+- I always thought I could be the best, and that's what I've been doing all these years.
+- When you're coming up, and you have Matt Hughes, Tim Sylvia, Jens Pulver and Pat Miletich, Jeremy Horn to train with and compete with - guys that have fought in Japan, all over the world - and you see these guys every day, you just embrace the grind and get after it: you have no choice but to succeed.
+- Sometimes spectacular things look really great, but when push comes to shove come fifth round, the basics, fundamentals and technical aspects are going to come into effect.
+- The best part about being a champion is going out and defending your belt, so that's what I plan on doing and doing it many times.
+- I just train hard and worry about the things I can control.
+- I'm a big baseball fan, and I love the Cards.
+- I always believed in myself, and even in the bad times, when I'd do bits of greatness here and there, it was those kinds of things that kept me alive and helped me to get to where I am now.

@@ -1,0 +1,24 @@
++++
+author = "Isadora Duncan"
+title = "Isadora Duncan Quotes"
+quotes_len = "18"
+description = "the best 18 Isadora Duncan Quotes"
++++
+- The dancer's body is simply the luminous manifestation of the soul.
+- Any intelligent woman who reads the marriage contract, and then goes into it, deserves all the consequences.
+- My motto - sans limites.
+- With what price we pay for the glory of motherhood.
+- Perhaps he was a bit different from other people, but what really sympathetic person is not a little mad?
+- Art is not necessary at all. All that is necessary to make this world a better place to live in is to love - to love as Christ loved, as Buddha loved.
+- So that ends my first experience of matrimony, which I always thought a highly over-rated performance.
+- You were once wild here. Don't let them tame you.
+- People don't live nowadays: they get about ten percent out of life.
+- Most human beings today waste some 25 to 30 years of their lives before they break through the actual and conventional lies which surround them.
+- The finest inheritance you can give to a child is to allow it to make its own way, completely on its own feet.
+- The real American type can never be a ballet dancer. The legs are too long, the body too supple and the spirit too free for this school of affected grace and toe walking.
+- The first essential in writing about anything is that the writer should have no experience of the matter.
+- It has taken me years of struggle, hard work and research to learn to make one simple gesture, and I know enough about the art of writing to realize that it would take as many years of concentrated effort to write one simple, beautiful sentence.
+- What one has not experienced, one will never understand in print.
+- We may not all break the Ten Commandments, but we are certainly all capable of it. Within us lurks the breaker of all laws, ready to spring out at the first real opportunity.
+- So long as little children are allowed to suffer, there is no true love in this world.
+- It seems to me monstrous that anyone should believe that the jazz rhythm expresses America. Jazz rhythm expresses the primitive savage.

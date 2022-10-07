@@ -1,0 +1,155 @@
++++
+author = "Christina Aguilera"
+title = "Christina Aguilera Quotes"
+quotes_len = "149"
+description = "the best 149 Christina Aguilera Quotes"
++++
+- I'm not just another bimbo.
+- I feel things deeply.
+- In order to effect great change, we need to look at how we can help those in our own communities as well as globally.
+- I will not have my son grow up in a tension-filled home.
+- To be given the opportunity to help shape new artists' careers and mentor them to see their dreams come to fruition is a task I welcome with open arms.
+- Mormons aren't gonna buy my album but, you know, what are you gonna do?
+- I was known as the little girl with the big voice.
+- I am a woman who has my extreme vulnerable side and my baggage - and at times I feel extremely weak.
+- I find fragrance to be such a mood enhancer and definitely a seduction tool.
+- I've always been really good with my heels. Even pregnant, I could perform in heels.
+- The blind audition process can be nerve-wracking.
+- I'm a lucky girl.
+- We take food for granted, but it isn't a luxury for many people.
+- I've never watched an entire episode of 'American Idol'. It's too mean.
+- I don't think I could ever really be with a woman because that's a lot of... Yeah, there's a lot of estrogen and I'm a lot to deal with when it's that time of the month, so I can't imagine it times two.
+- When I learned how millions of children go to bed hungry, my only response was, 'What can I do to help?'
+- Certain people want to see me solely as a pop act, but there are many different sides to Christina Aguilera besides the pop girl.
+- I have more than one side of me that likes to get out on a stage and sing.
+- Being too thin. Being bigger. I've been criticized for being on both sides of the scale.
+- It's important to take time for your spouse and nurture the relationship.
+- Basically, what I'm saying is there is nothing fake about what I do. I'm up-front, I'm real, I'm honest and I'm open with my feelings.
+- I knew there would be a negative reaction in the press to my divorce, but I am not going to live my life because of something someone might say.
+- What is it in us that makes us feel the need to keep pretending... we gotta let ourselves be.
+- It's been quite a roller coaster ride, but I've grown and learned a lot about myself. The greatest thing is being able to interact with fans and touch people's lives... for that I give thanks.
+- That's why I wrote 'Fighter'. I have that need in me to help people. I am all about the underdog.
+- It's been a joy to be a part of other people's journey, to be able to inspire and be a part of new singers coming up in this business.
+- I have fun being sexy and tough at the same time.
+- I want to look good when people see me.
+- I just get really bored with sticking to the norm and having the proper conservative image. That's just so not me.
+- I love my body.
+- I always wanted to have my own album recorded and released before I graduated high school.
+- People don't always want to have females as leaders.
+- After I had my son, Max, I knew I wanted to get involved in causes that help children.
+- I have those days where I'm PMSing and bloated.
+- I am Ecuadorian but people felt so safe passing me off as a skinny, blue-eyed white girl.
+- I think all of us as women have this super-human quality. We create life, we give life, we are the sources of life for our children - we're all pretty bionic.
+- The roughest road often leads to the top.
+- I'm a bit of a night owl because that's when I feel the most creative and alive.
+- I think you can really gauge my state of mind by listening to my albums.
+- I have six-year-old fans that weren't even around for 'Genie in a Bottle' or even 'Fighter.'
+- I'm very protective of how much I let people see.
+- I have spoken honestly about being born into a home where there was discord and chaos. I saw my mom have a rough time with my dad being very controlling, which is why I push back whenever I feel like someone is trying to box me in. It makes me run for the hills.
+- I'm a big micro manager; I'm a stickler about organisation; everything needs a place, a purpose, and micro managing myself even when I'm in the studio.
+- I'm a risk taker and I've always been like that, especially when it comes to fashion.
+- I'm content with life, and I'm finally at that place where I feel relaxed and can really enjoy what's going on around me.
+- I was brought up in a household of chaos and I never felt stable at home.
+- My mom brought me up to believe that my talent is a gift and a blessing.
+- I was never into the boy crazy thing because I was very focused on my career.
+- I'm experimental by nature... always exploring my creativity.
+- My first love was singing and I had no time for boys.
+- All I want to do is be normal. But really, it's other people who won't let me be that way.
+- I try to stay focused on my creativity.
+- I still have my eyes on the prize: I want to be that old lady onstage shaking her hips and singing her greatest hits.
+- It's impossible to redefine yourself and your life overnight.
+- The road is a lot of work.
+- I still got the nasty in me.
+- Blues and soul and jazz music has so much pain, so much beauty of raw emotion and passion.
+- Sometimes you just know what you're placed on this earth to do.
+- My body can't put anyone in jeopardy of not making money anymore - my body is just not on the table that way anymore.
+- I'm not really religious but very spiritual. I give money to this company that manufactures hearing aids on a regular basis. More people should really hear me sing. I have a gift from God.
+- I really don't spend any time on the Internet, so I guess I live a little under a rock in that respect.
+- My fans do deserve to see me back out on the road.
+- I don't have anything to hide but what happens is the media tend to beat up what I say.
+- I embraced being a pop artist, but I like doing it on my own terms, at my own pace.
+- Whatever I do, it's my business. It's not my job to parent America.
+- I think it's a given that people know what I can do vocally.
+- Getting older, you just don't want to sing fluffy.
+- I don't weigh myself - it's all about how I feel in my clothes.
+- For me the visual is just as important as the music.
+- I didn't want to do something that was easy for me.
+- Being a mother, singer and actress is a definite juggling act, but I don't think I would be comfortable any other way.
+- I'm not a judgmental person, so I can't comment on someone else's background.
+- I'm a smart girl. There are decisions that I make for reasons, and the most important thing is that my son is happy and he always will be. He's surrounded by love.
+- I look back at the looks I've had over the years. I'm proud of myself that I had the courage to experiment with crazy hairstyles and some fashion things. Would I do it again? No. But that's part of the learning process and getting from point A to point B.
+- Toward the end of my pregnancy, I felt really big - I gained about 40 pounds, which is a lot for my size.
+- I got along better with the guys than with the girls. Only two girls came up to talk to me. Later I found out they were telling their boyfriends, 'If you talk to her, I'll kill you.' It's always rough with that high school thing.
+- I turned to music originally because of my past and needing a release or an outlet to get out anger or frustration or hurt.
+- I hate working out - I have to mentally push myself through it. I can get very whiny, saying things like, 'I can't do it!'
+- When success comes, people can try to trick you or take advantage of you.
+- It's definitely a dream come true to be recognized and to be able to sign autographs. But, it's also a lot of hard work and can be draining. If you don't know already, you will quickly learn who your real friends are.
+- You used to have to sing and convey emotion, and now, well, technically you can do anything with technology. It sucks for music today, but that's why that old music feels so good to me.
+- I'm at peace.
+- Thankfully, I have my mom and a small group of close friends who are there for me 24/7 and whom I can trust and depend on.
+- I think everybody should have a great Wonderbra. There's so many ways to enhance them, everybody does it.
+- It can be hard in this business, especially when you're very young, to figure out who you can and can't trust.
+- My son is healthy and happy, so that's all that matters to me.
+- It's always nerve-wracking when you're hosting 'Saturday Night Live.' You either sink or swim.
+- I'm one that likes to collaborate.
+- I have certain physical features that I favor over others. We all have our areas.
+- I don't think there is such a thing as being too raunchy when it comes to the art form of burlesque.
+- When I first met my husband, I needed that helping hand to take the reins and look after me.
+- Growing up with the childhood that I had, I learned to never let a man make me feel helpless, and it also embedded a deep need in me to always stick up for women.
+- When you're unhappy in your marriage, your children are the ones who suffer.
+- I don't even watch my own show: I tape it, I'm out.
+- I have a lot of things to say and a lot of things to let out of me.
+- I love color - I'm not a beige kind of girl.
+- I'm an ocean, because I'm really deep. If you search deep enough you can find rare exotic treasures.
+- Red lips and fragrance always top off an outfit for me.
+- When I first came out there was no such thing as Twitter or Facebook. And the blogs! Like, what is that?
+- Now everyone is a critic.
+- Pop is actually my least favorite kind of music, because it lacks real depth.
+- I feel so fortunate.
+- I don't want to talk about genies in bottles anymore.
+- Target is one of the best at really listening to the artist and understanding what they are about.
+- I don't see anything wrong with being comfortable with my own skin.
+- It's an amazing thing to say, 'I'm beautiful,' without feeling like you're cocky.
+- I'm embracing many different things, but it's all feel-good.
+- I have always been one to encourage perseverance.
+- I've been through my highs, I've been through my lows; I've been through the gamut of all things in this business. Being too thin. Being bigger. I've been criticized for being on both sides of the scale. It's noise I block out automatically. I love my body.
+- So, where's the Cannes Film Festival being held this year?
+- People expect me to cry, but I always laugh when things go wrong.
+- I really love traveling to Japan.
+- I love doing normal things - movies, shopping, going out with friends, writing, reading, taking hot bubble baths - that's a big one for relaxation. I also love to go to art and history museums.
+- I never mind contorting myself for a good cause.
+- When you're young, it's so easy to get bull-dozed.
+- I think it's really great when you stand up for something that you really believe, even if you get heat for it.
+- I'm a hard worker and I really give to my fans through my shows.
+- I'm not being like, 'Hey, everybody, I'm pregnant!' I'm not that girl.
+- I really feel free and not as serious as I have been in the past.
+- My parent's divorce and hard times at school, all those things combined to mold me, to make me grow up quicker. And it gave me the drive to pursue my dreams that I wouldn't necessarily have had otherwise.
+- I remember watching the Grammys and looking at the performances and crying to my mom, saying how much I wanted to be there.
+- I definitely love women. They are more attractive to the naked eye.
+- I have a lot of aggression in me that needs to come out in a not-very-precise or articulate way.
+- I always wanted to have my own album released before I graduated from high school.
+- I'm not a 9-to-5 woman who has the same kind of lifestyle for years on end. I couldn't do it.
+- I don't want to believe my own hype.
+- It's a big responsibility to help someone express themselves as an artist.
+- I like to be as free as possible at all times.
+- I went through my first big breakup, with a boyfriend who I had been with for more than two years. He had been one of my dancers, and it was my first love and his.
+- I do reinvent old hits of mine and sort of give them a new life.
+- There was no way in hell I was going to jeopardize my baby for my show.
+- A lot of people are afraid to face themselves, especially when something goes wrong. But that's important, because if something happens within a relationship, it could be how you're allowing someone else to treat you.
+- The artists I look up to are the ones who push their own limits.
+- I stray away from formulaic, the formatted.
+- The most vulnerable people have tough exteriors because they are very scared inside, and it's very hard for people like that - people like me - to open up. But playing it safe means you stop being open to learning. I always try to find the challenges.
+- When you're part of a pop phenomenon, you have so many opinions shoved down your throat.
+- I love theatrics and have a huge imagination: Why would I want to sit onstage and sing a bunch of ballads back-to-back?
+- My future daughter is not going to go through what I did.
+- I was very pushed to look a certain way and act a certain way, and it wasn't me, but I played by their rules to get my foot in the door.
+- I want to be an all round entertainer, I want to act, make films, make albums, do whatever I can.
+- Right now I'm pretty single... My career is my boyfriend.
+- I should not have to prove my ethnicity to anyone. I know who I am.
+- I felt caged by my childhood.
+- Everybody needs that one person that takes you to the right place to see all the positives in your life.
+- The most successful people I've worked with, like the Rolling Stones - people of a different, kind of legendary caliber - have such great, warm energy.
+- I want to be a poet and have a chance to explore that and let people know what's really on my mind.
+- When I'm traveling on tour, one of my favorite things to do is to throw a baseball cap on and go to a Target. The company has always been good to me. They've got such a great creative team.
+- I think they say that when you're breast feeding, you know, your weight kind of slims down. It's a little easier. It's like a workout within itself. It's very tiring actually and you find yourself snacking more often.
+- I'm a businesswoman.

@@ -1,0 +1,192 @@
++++
+author = "Ben Bernanke"
+title = "Ben Bernanke Quotes"
+quotes_len = "186"
+description = "the best 186 Ben Bernanke Quotes"
++++
+- If you want to understand geology, study earthquakes. If you want to understand the economy, study the Depression.
+- The failure of Lehman Brothers demonstrated that liquidity provision by the Federal Reserve would not be sufficient to stop the crisis; substantial fiscal resources were necessary.
+- Our mission, as set forth by the Congress is a critical one: to preserve price stability, to foster maximum sustainable growth in output and employment, and to promote a stable and efficient financial system that serves all Americans well and fairly.
+- The Federal Reserve's job is to do the right thing, to take the long-run interest of the economy to heart, and that sometimes means being unpopular. But we have to do the right thing.
+- I came home from school one day, and there was a phone call for me. And I picked up the phone. They said, 'This is the Harvard Admissions Department. We'd like to let you know that you're accepted in the freshman class.' And I said, 'Come on, who is this really?'
+- Among other objectives, liquidity guidelines must take into account the risks that inadequate liquidity planning by major financial firms pose for the broader financial system, and they must ensure that these firms do not become excessively reliant on liquidity support from the central bank.
+- Indeed, in general, healthy investment returns cannot be sustained in a weak economy, and of course it is difficult to save for retirement or other goals without the income from a job.
+- The Federal Reserve Act requires the Federal Reserve to report annually on its operations and to publish its balance sheet weekly.
+- Imperfect substitutability of assets implies that changes in the supplies of various assets available to private investors may affect the prices and yields of those assets.
+- I don't know why there aren't more Depression buffs.
+- When historical relationships are taken into account, it is difficult to ascribe the house price bubble either to monetary policy or to the broader macroeconomic environment.
+- The stress on the financial system in the fall of 2007 was significant, but not so significant as to threaten the overall stability of the U.S. economy, although it did lead to the beginning of a recession at the end of 2007.
+- The world has a great deal more to offer than money.
+- The ultimate purpose of economics, of course, is to understand and promote the enhancement of well-being.
+- The movement toward a holistic approach to community development has been long in the making, but the housing crisis has motivated further progress.
+- To be sure, faster growth in nominal labor compensation does not necessarily portend higher inflation.
+- The economist John Maynard Keynes said that in the long run, we are all dead. If he were around today he might say that, in the long run, we are all on Social Security and Medicare.
+- Market discipline can only limit moral hazard to the extent that debt and equity holders believe that, in the event of distress, they will bear costs.
+- I was a professor at Princeton University. And, in that capacity, I studied for many years the role of financial crisis in the economy.
+- The Fed needs an approach that consolidates the gains of the Greenspan years and ensures that those successful policies will continue - even if future Fed chairmen are less skillful or less committed to price stability than Mr. Greenspan has been.
+- The Federal Reserve can only buy Treasuries and agencies, and moreover quantitative easing typically involves buying longer-term Treasuries and agencies in terms of bills, for example.
+- When the economic well-being of their nation demanded a strong and creative response, my colleagues at the Federal Reserve... mustered the moral courage to do what was necessary.
+- Most of the policies that support robust economic growth in the long run are outside the province of the central bank.
+- Preventing liquidation of an unbalanced market will leave you in tears.
+- Honest error in the face of complex and possibly intractable problems is a far more important source of bad results than are bad motives.
+- At the most basic level, a central bank must be clear and open about its actions and operations, particularly when they involve the deployment of public funds.
+- I and others were mistaken early on in saying that the subprime crisis would be contained. The causal relationship between the housing problem and the broad financial system was very complex and difficult to predict.
+- As you know, in the latter part of 2008 and early 2009, the Federal Reserve took extraordinary steps to provide liquidity and support credit market functioning, including the establishment of a number of emergency lending facilities and the creation or extension of currency swap agreements with 14 central banks around the world.
+- It takes about two and a half percent growth just to keep unemployment stable.
+- For many of us, owning a home signaled a passage into adulthood that coincided with the start of a career and family.
+- I have spoken about deficits, and I think deficits are important because they address broad economic and financial stability. We need to talk about that.
+- Certainly, 9 percent unemployment and very slow growth is not a good situation.
+- I served seven years as the chair of the Princeton economics department where I had responsibility for major policy decisions, such as whether to serve bagels or doughnuts at the department coffee hour.
+- The Fed's independence is critical.
+- The biggest downside of my current job is that I have to wear a suit to work. Wearing uncomfortable clothes on purpose is an example of what former Princeton hockey player and Nobel Prize winner Michael Spence taught economists to call 'signaling.'
+- Central bankers got it right in the United States in 1987 when they avoided deflationary pressures as well as serious trouble in the banking system.
+- Because a person has to be either working or looking for work to be counted as part of the labor force, an increase in the number of people too discouraged to continue their search for work would reduce the unemployment rate, all else being equal - but not for a positive reason.
+- Evolutionary psychologists suggest that humans experienced evolutionary benefits from brain developments that included aversion to loss and risk and from instincts for cooperation that helped strengthen communities.
+- The Fed's policy choices can always be debated, but the quality and commitment of the Federal Reserve as a public institution is second to none, and I am proud to lead it.
+- Remember that physical beauty is evolution's way of assuring us that the other person doesn't have too many intestinal parasites.
+- Deflation can be particularly dangerous when a financial system is shaky, with household and corporate balance sheets in poor shape and banks undercapitalized and heavily burdened with bad loans.
+- Economic engineering is about the design and analysis of frameworks for achieving specific economic objectives.
+- Investment banks manage to go bankrupt through their investment-banking activities, commercial banks manage to go bankrupt through their commercial-banking activities.
+- The banks have accounts with the Fed, much the same way that you have an account in a commercial bank.
+- The tax code is very inefficient. Both the personal tax code and the corporate tax code. By closing loopholes and lowering rates, you could increase the efficiency of the tax code and create more incentives for people to invest.
+- In fact, the world needs more nerds.
+- Our financial system is so complicated and so interactive - so many different markets in different countries and so many sets of rules.
+- The Mexican debt crisis, Latin American debt crisis, the crises of the 1990s, the Wall Street stock market crash, and other events should have reminded us, and did remind us, that financial instability remains a concern, remains a problem.
+- History proves... that a smart central bank can protect the economy and the financial sector from the nastier side effects of a stock market collapse.
+- A.I.G. was even larger than Lehman, with a substantial presence in derivatives and debt markets, as well as in insurance markets.
+- The public in many countries is understandably concerned by the commitment of substantial government resources to aid the financial industry when other industries receive little or no assistance. This disparate treatment, unappealing as it is, appears unavoidable.
+- The crisis in Europe has affected the U.S. economy by acting as a drag on our exports, weighing on business and consumer confidence, and pressuring U.S. financial markets and institutions.
+- As we try to make the financial system safer, we must inevitably confront the problem of moral hazard.
+- Actually, I'm a Republican.
+- I generally leave the details of fiscal programs to the Administration and Congress. That's really their area of authority and responsibility, and I don't think it's appropriate for me to second guess.
+- Obviously, I haven't succeeded in defusing the political concerns about the Fed.
+- The children of the unemployed achieve less in school and appear to have reduced long-term earnings prospects.
+- The Federal Reserve cannot solve all the economy's problems on its own.
+- I am particularly pleased to see that the Bendheim Center for Finance is thriving.
+- The Federal Reserve, like other central banks, wields powerful tools; democratic accountability requires that the public be able to see how and for what purposes those tools are being used.
+- The central bank needs to be able to make policy without short term political concerns.
+- Small businesses have played an important role in fueling past economic recoveries.
+- The benefit of appointing a hawkish central banker is the increased inflation-fighting credibility that such an appointment brings.
+- To achieve a more balanced international system over time, countries with excessive and unsustainable trade surpluses will need to allow their exchange rates to better reflect market fundamentals.
+- Monetary policy cannot do much about long-run growth, all we can try to do is to try to smooth out periods where the economy is depressed because of lack of demand.
+- I come from Main Street, from a small town that's really depressed.
+- Community development has a long history of innovation and learning from experience.
+- No one will lend at a negative interest rate; potential creditors will simply choose to hold cash, which pays zero nominal interest.
+- Low and stable inflation in many countries is an important accomplishment that will continue to bring significant benefits.
+- The Depression was an incredibly dramatic episode - an era of stock-market crashes, breadlines, bank runs and wild currency speculation, with the storm clouds of war gathering ominously in the background... For my money, few periods are so replete with human interest.
+- If Australia finds it has a strong Australian dollar, and it has higher unemployment, then it would have to respond, and that would either be by increasing domestic demand or by weakening its own currency.
+- Fostering transparency and accountability at the Federal Reserve was one of my principal objectives when I became Chairman in February 2006.
+- China is growing very quickly and is clearly becoming an important player in the world economy.
+- Neighborhoods and communities are complex organisms that will be resilient only if they are healthy along a number of interrelated dimensions, much as a human body cannot be healthy without adequate air, water, rest, and food.
+- The more guidance a central bank can provide the public about how policy is likely to evolve the greater the chance that market participants will make appropriate inferences.
+- Consumers going through foreclosure typically will see their credit scores drop, raising longer-term questions about their ability to rebound financially and perhaps pursue a more sustainable home purchase at some later point.
+- Smart financial planning - such as budgeting, saving for emergencies, and preparing for retirement - can help households enjoy better lives while weathering financial shocks. Financial education can play a key role in getting to these outcomes.
+- Many savers are also homeowners; indeed, a family's home may be its most important financial asset. Many savers are working, or would like to be.
+- Banks need to continue to lend to creditworthy borrowers to earn a profit and remain strong.
+- It's true that the Federal Reserve faces a lot of political pressure and is unpopular in many circles.
+- Now that I'm a civilian again, I can once more comment on economic and financial issues without my words being put under the microscope by Fed watchers.
+- Because financially capable consumers ultimately contribute to a stable economic and financial system as well as improve their own financial situations, it's clear that the Federal Reserve has a significant stake in financial education.
+- If I am confirmed, I am confident that my colleagues on the Federal Open Market Committee and I will maintain the focus on long-term price stability as monetary policy's greatest contribution to general economic prosperity and maximum employment.
+- Identity theft is a serious crime that affects millions of Americans each year.
+- If two people always agree, one of them is redundant.
+- One would be forgiven for concluding that the assumed benefits of financial innovation are not all they were cracked up to be.
+- Different countries have different kinds of financial structures.
+- The amount of currency in circulation is not changing. The money supply is not changing in any significant way.
+- The Federal Reserve has never suffered any losses in the course of its normal lending to banks and, now, to primary dealers.
+- The Federal Reserve has always recognized the importance of allowing markets to work, and government oversight of financial firms will never be fully effective without the aid of strong market discipline.
+- A collapse in U.S. stock prices certainly would cause a lot of white knuckles on Wall Street.
+- If bankers become overly conservative in response to past lending mistakes - or if examiners force such behavior - it will hurt bankers' own long-term interests and the economy in general.
+- Only a strong economy can create higher asset values and sustainably good returns for savers.
+- People saw the Depression as a necessary thing - a chance to squeeze out the excesses, get back to Puritan morality. That just made things worse.
+- A little humility never hurts.
+- There will not be an automatic increase in interest rate when unemployment hits 6.5%.
+- In a mature economy like India's, which is becoming modern and a financially-oriented economy, an independent central bank, responsible central bank, is really central to success.
+- Monetary policy is not a panacea.
+- Evolving technologies that allow economists to gather new types of data and to manipulate millions of data points are just one factor among several that are likely to transform the field in coming years.
+- Sector-specific price declines, uncomfortable as they may be for producers in that sector, are generally not a problem for the economy as a whole and do not constitute deflation.
+- As an educator myself, I understand the profound effect that good teachers and a quality education have on the lives of our young people.
+- In many spheres of human endeavor, from science to business to education to economic policy, good decisions depend on good measurement.
+- The lesson of history is that you do not get a sustained economic recovery as long as the financial system is in crisis.
+- Given the extent of the exposures of major banks around the world to A.I.G., and in light of the extreme fragility of the system, there was a significant risk that A.I.G.'s failure could have sparked a global banking panic.
+- The role of liquidity in systemic events provides yet another reason why, in the future, a more system wide or macroprudential approach to regulation is needed.
+- Developments in financial markets can have broad economic effects felt by many outside the markets.
+- The Fed is totally open.
+- In the tradition of national income accounting, economic policymakers have typically focused on variables such as income, wealth, and consumption.
+- There are a number of institutions globally where the Federal Reserve typically leads the U.S. effort to work with financial regulators from other countries, and we try to, to the extent possible, establish international standards for how - the amount of capital a bank should hold, for example, or how much.
+- To be sure, the provision of liquidity alone can by no means solve the problems of credit risk and credit losses; but it can reduce liquidity premiums, help restore the confidence of investors, and thus promote stability.
+- In any given month, a large number of workers are being hired or are leaving their current jobs, illustrating the dynamism of the U.S. labor market.
+- I would argue that no financial instrument counted as regulatory capital should be allowed to receive any protection from losses.
+- I think one of the lessons of the Depression - and this is something that Franklin Roosevelt demonstrated - was that when orthodoxy fails, then you need to try new things. And he was very willing to try unorthodox approaches when the orthodox approach had shown that it was not adequate.
+- It must be awfully frustrating to get a small raise at work and then have it all eaten by a higher cost of commuting.
+- All the Federal Reserve can do is make loans against collateral.
+- High levels of homeownership have been shown to foster greater involvement in school and civic organizations, higher graduation rates, and greater neighborhood stability.
+- How much would you pay to avoid a second Depression?
+- It's the price of success: people start to think you're omnipotent.
+- I think most of us would agree that people who have, say, little formal schooling but labor honestly and diligently to help feed, clothe, and educate their families are deserving of greater respect - and help, if necessary - than many people who are superficially more successful.
+- Long term, I have a lot of confidence in the United States. We have an excellent record in terms of innovation. We have great universities that are involved in technological change and progress. We have an entrepreneurial culture, much more than almost any other country.
+- A gold standard doesn't imply stability in the prices of the goods and services that people buy every day, it implies a stability in the price of gold itself.
+- The downturn following the collapse of Japan's so-called bubble economy of the 1980s was not as severe as the Great Depression.
+- Deflation is defined as a general decline in prices, with emphasis on the word 'general.'
+- The one thing people don't appreciate, I think, is that central banking is not a new development. It's been around for a very long time.
+- Uncertainty is seen to retard investment independently of considerations of risk or expected return.
+- Rents should begin to decelerate as the demand for owner-occupied housing stabilizes and the supply of rental units increases.
+- In September 2008, the two largest housing mortgage companies called Fannie Mae and Freddie Mac, which were government-sponsored enterprises, which hold hundreds of billions of dollars of mortgages, because of the losses they took on the mortgages, they essentially became insolvent, and the government had to take them over.
+- After the 1929 crash, the Federal Reserve mistakenly focused its policies on preserving the gold value of the dollar rather than on stabilizing the domestic economy.
+- I am very proud of my nerd-dom.
+- The actions taken by central banks and other authorities to stabilize a panic in the short run can work against stability in the long run if investors and firms infer from those actions that they will never bear the full consequences of excessive risk-taking.
+- To minimize market uncertainty and achieve the maximum effect of its policies, the Federal Reserve is committed to providing the public as much information as possible about the uses of its balance sheet, plans regarding future uses of its balance sheet, and the criteria on which the relevant decisions are based.
+- Of course, economic forecasts must be revised when new information arrives and are thus necessarily provisional.
+- Every effort needs to be made to try and offset the costs of Katrina and Rita by reductions in other government programs, especially those that are wasteful, duplicative and ineffective.
+- I've never been on Wall Street. And I care about Wall Street for one reason and one reason only because what happens on Wall Street matters to Main Street.
+- If the fiscal cliff occurs, I don't think the Federal Reserve has the tools to offset that event.
+- In all likelihood, a significant amount of time will be required to restore the nearly eight and a half million jobs that were lost nationwide over 2008 and 2009.
+- For practitioners of community development, as in any field, joining a network of like-minded professionals is important for building skills and becoming aware of opportunities and resources.
+- Economic management involves the operation of economic frameworks in real time - for example, in the private sector, the management of complex financial institutions or, in the public sector, the day-to-day supervision of those institutions.
+- If you're in a car crash, you're mostly involved in trying to not go off the bridge, and later on you say, 'Oh my God!'
+- In the future, financial firms of any type whose failure would pose a systemic risk must accept especially close regulatory scrutiny of their risk-taking.
+- Textbooks describe economics as the study of the allocation of scarce resources. That definition may be the 'what,' but it certainly is not the 'why.'
+- The best solution to income inequality is providing a high-quality education for everybody. In our highly technological, globalized economy, people without education will not be able to improve their economic situation.
+- Economics has many substantive areas of knowledge where there is agreement, but also contains areas of controversy. That's inescapable.
+- Importantly, in the 1930s, in the Great Depression, the Federal Reserve, despite its mandate, was quite passive and, as a result, financial crisis became very severe, lasted essentially from 1929 to 1933.
+- You want to put the fire out first and then worry about the fire code.
+- Monetary policy is a blunt tool which certainly affects the distribution of income and wealth, although whether the net effect is to increase or reduce inequality is not clear.
+- I assure this committee that, if I am confirmed, I will be strictly independent of all political influences... essential to that institution's ability to function effectively and achieve its mandated objectives.
+- In a slow-growing world that is short on aggregate demand, Germany's trade surplus is a problem.
+- Income inequality is troubling because, among other things, it means that many people in our society don't have the opportunities to advance themselves.
+- No economy can succeed without a high-quality workforce, particularly in an age of globalization and technical change.
+- Clear communication is always important in central banking, but it can be especially important when economic conditions call for further policy stimulus but the policy rate is already at its effective lower bound.
+- If you are not happy with yourself, even the loftiest achievements won't bring you much satisfaction.
+- Achieving price stability is not only important in itself, it is also central to attaining the Federal Reserve's other mandate objectives of maximum sustainable employment and moderate long-term interest rates.
+- Well, the U.S., of course, is the world's largest economy. It's about a quarter of the world's output. It's also home to many of the largest financial institutions and financial markets.
+- Chairman Greenspan is, of course, a master.
+- My proposal that Fed governors should signal their commitment to public service by wearing Hawaiian shirts and Bermuda shorts has so far gone unheeded.
+- Stronger regulation and supervision aimed at problems with underwriting practices and lenders' risk management would have been a more effective and surgical approach to constraining the housing bubble than a general increase in interest rates.
+- Since World War II, inflation - the apparently inexorable rise in the prices of goods and services - has been the bane of central bankers.
+- Building a rainy-day fund during good times may not be politically popular, but it can pay off during the bad times.
+- The crisis and recession have led to very low interest rates, it is true, but these events have also destroyed jobs, hamstrung economic growth and led to sharp declines in the values of many homes and businesses.
+- The American people are among the most productive in the world. We have the best technologies. We have great universities. We have entrepreneurs.
+- We should see better and more direct measurements of economic well being.
+- The decline in home equity makes it more difficult for struggling homeowners to refinance and reduces the financial incentive of stressed borrowers to remain in their homes.
+- Many foreclosed homes are neglected or abandoned, as legal proceedings or other factors delay their resale. Deteriorating or vacant properties can, in turn, directly affect the quality of life in a neighborhood, for example, by leading to increases in vandalism or crime.
+- Aggregate statistics can sometimes mask important information.
+- In the typical economic recovery, a resurgent housing sector helps fuel reemployment and rising incomes.
+- In the past, Federal Reserve chairmen have not generally gone directly to the public.
+- Home purchases that are very highly leveraged or unaffordable subject the borrower and lender to a great deal of risk. Moreover, even in a strong economy, unforeseen life events and risks in local real estate markets make highly leveraged borrowers vulnerable.
+- After a long period in which the desired direction for inflation was always downward, the industrialized world's central banks must today try to avoid major changes in the inflation rate in either direction.
+- Interest rates are used to achieve overall economic stability.
+- Growth in U.S. real imports slowed to about 3 percent in 2006, in part reflecting a drop in real terms in imports of crude oil and petroleum products.
+- History has demonstrated time and again the inherent resilience and recuperative powers of the American economy.
+- There are limits to monetary policy.
+- Well, optimism's a good thing. It - makes people go out and - you know, start businesses and spend and do whatever is necessary to get the economy going.
+- I don't think there are any students who should not be exposed to a basic financial literacy course.
+- The Libor system is structurally flawed. It is a major problem for our financial system and for the confidence in the financial system. We need to address it.
+- The financial crisis that began in the summer of 2007 was an extraordinarily complex event with multiple causes.
+- If you take a candy bar in the short run, it gives you a burst of energy, but after a while, it just makes you fat.
+- Long-term unemployment is particularly costly to those directly affected, of course. But in addition, because of its negative effects on workers' skills and attachment to the labor force, long-term unemployment may ultimately reduce the productive capacity of our economy.
+- In the future, my communications with the public and with the markets will be entirely through regular and formal channels.
+- To the extent that bank panics interfere with normal flows of credit, they may affect the performance of the real economy.
+- Economic science concerns itself primarily with theoretical and empirical generalizations about the behavior of individuals, institutions, markets, and national economies. Most academic research falls in this category.
+- I got into economics because I wanted to make things better for the average person.
+- Banks will have to win the confidence of their customers through fair dealing, making good loans, and remaining financially healthy.
+- Monetary policy has less room to maneuver when interest rates are close to zero, while expansionary fiscal policy is likely both more effective and less costly in terms of increased debt burden when interest rates are pinned at low levels.
+- Following an extended boom in housing, the demand for homes began to weaken in mid-2005. By the middle of 2006, sales of both new and existing homes had fallen about 15 percent below their peak levels. Homebuilders responded to the fall in demand by sharply curtailing construction.

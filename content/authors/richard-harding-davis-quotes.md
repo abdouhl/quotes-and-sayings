@@ -1,0 +1,26 @@
++++
+author = "Richard Harding Davis"
+title = "Richard Harding Davis Quotes"
+quotes_len = "20"
+description = "the best 20 Richard Harding Davis Quotes"
++++
+- I am now in Gibraltar. It is a large place and there does not seem to be room in this letter, in which to express my feelings about Moors in bare legs and six thousand Red-coats and to hear Englishmen speak again.
+- Morocco as it is is a very fine place spoiled by civilization.
+- The secret of good writing is to say an old thing in a new way or to say a new thing in an old way.
+- You see, I'd not a very good place here; the fellows looked on me as a sort of special object of ridicule, on account of the hat and cane, walk, and so on, though I thought I'd got over that by this time.
+- Tonight I am going to take a party to the headquarters of the fire department, where I have a cinch on the captain, a very nice fellow, who is unusually grateful for something I wrote about him and his men. They are going to do the Still Alarm act for me.
+- Portugal is a high hill with a white watch tower on it flying signal flags. It is apparently inhabited by one man who lives in a long row of yellow houses with red roofs, and populated by sheep who do grand acts of balancing on the side of the hill.
+- It has pleased and interested me to see how I could get along under difficult circumstances and with so much discomfort but as I say I was not sent out here to improve my temper or my health or to make me more content with my good things in the East.
+- Anything as good and true as that moral cannot be new at this late date.
+- Creede is built of new pine boards and lies between two immense mountains covered with pines and snow.
+- I went out to the Derby on Wednesday and think it is the most interesting thing I ever saw over here.
+- Wednesday a junior came to me, and told me I was to be hazed as I left the Opera House Friday night.
+- I wish I was not such a very bad hand at languages. That is one thing I cannot do, that and ride.
+- As soon as she gets her divorce one of us is going to marry her. We don't know which. She is about as beautiful a woman as I ever saw, and very witty and well-informed, but it would cost a good deal to keep her in diamonds.
+- Of course, the idea of a six months' holiday is enough to make anyone laugh at anything, but I find that besides that I was a good deal harassed and run down, and I am glad to cut off from everything and start fresh. I feel miserably selfish about it all the time.
+- All through the night, like the tumult of a river when it races between the cliffs of a canyon, in my sleep I could hear the steady roar of the passing army.
+- All the fascination of King Solomon's Mines seems to be behind those great mountains and this I may add is a bit of advance work for mother, an entering wedge to my disappearing from sight for years and years in the Congo.
+- As soon as I landed at Malta I found that though I could go to Tunis I could not go away without being quarantined for ten days and if I remained in Malta I must stay a week.
+- The old sergeant from headquarters treats me like a son and takes the greatest pride in whatever I do or write. He regularly assigns me now to certain doors, and I always obey orders like the little gentleman that I am.
+- I knew more about Texas than the Texans and when they told me I would find summer here I smiled knowingly.
+- I have just come from a couple of raids, where we had a very lively time, and some of them had to pull their guns. I found it necessary to punch a few sports myself.

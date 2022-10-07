@@ -1,0 +1,79 @@
++++
+author = "Regina Brett"
+title = "Regina Brett Quotes"
+quotes_len = "73"
+description = "the best 73 Regina Brett Quotes"
++++
+- There are few places you can find silence. Air travel could be the last fortress of solitude.
+- If you're lucky enough to still have grandparents, visit them, cherish them and celebrate them while you can.
+- I always felt that at the moment I was born, God must have blinked. He missed the occasion and never knew I had arrived. My parents had 11 children. While I love them and my five brothers and five sisters deeply, some days I felt lost in the litter.
+- When you write a book, you are asking someone to make an investment in their time and money. A column can come and go as the weeks pass, but a book needs to be timeless.
+- It's OK to let your children see you cry.
+- When you hear the word 'cancer,' it's as if someone took the game of Life and tossed it in the air. All the pieces go flying. The pieces land on a new board. Everything has shifted. You don't know where to start.
+- Eating something fresh out of the oven is like a hug you can taste.
+- Family is more than DNA, more than who we used to be, more than we can imagine we will become.
+- I still miss my gramma. I can see her at the farm, in her apron, babushka and support stockings. My Slovak gramma spoiled us with pig in the blankets, kalachi, pop, chips and a drawer full of lollipops. It was heaven.
+- Cancer is messy and scary. You throw everything at it, but don't forget to throw love at it. It turns out that might be the best weapon of all.
+- No one really has a bad life. Not even a bad day. Just bad moments.
+- The last watch I wore felt like a handcuff. When I need to know the time, I check my cell phone.
+- Cancer taught me to live only in the day I'm in. In the moment I'm in. Some moments, I simply ground myself by touching the desk, the table, the wall wherever I am and say, 'You're right here. Stay put in this moment.'
+- It's sad that grandkids show up at the end of obituaries, way behind the list of work place achievements, social clubs and survivors. Why last? If you've got grandkids, you know they're first when it comes to the joy in your life.
+- I like that they call it an airplane cabin. A cabin is where you go to get away from stress. The cabin is a respite from the terminals on either end of the flight where noise bombards you as soon as you walk through the gate.
+- I grew up Catholic. We went to confession on Saturday, stood in the shortest line, since it led to the priest who gave the easiest penance - usually a few Our Fathers and Hail Marys. We confessed in private, prayed our penance and our souls were clean.
+- Back when I was dating, the dreaded C word was Commitment. As soon as most men found out I had a child, they ran. If I ever got close enough to say the words, 'I love you,' they ran faster.
+- Sometimes you have to disconnect to stay connected. Remember the old days when you had eye contact during a conversation? When everyone wasn't looking down at a device in their hands? We've become so focused on that tiny screen that we forget the big picture, the people right in front of us.
+- While journalists cannot right every wrong, champion every cause or fix every problem, they can - through the written word - lift someone's burden for a day, make some elderly woman on a bus smile or let them know they are noticed by someone.
+- Be eccentric now. Don't wait for old age to wear purple.
+- Pope Francis is not only changing the face of the Catholic Church, he's challenging us to be the face of God in the world by seeing the face of God in the person we least expect to see it, including the person in the mirror.
+- Cancer is a great wake-up call. A call to take the tag off the new lingerie and wear that black lacy slip. To open the box of pearls and put them on. To crack open the bath oil beads before they shrivel up in a bowl on the toilet tank.
+- What other people think of you is none of your business.
+- If we want our daughters to honor their bodies, they need to hear us honor ours, no matter what size or shape we are, no matter what scars or sags we see in that mirror.
+- It's rare to find someone excited over jury duty. If they're out there, I've never met them. Not a one. When the summons for jury duty arrives in the mail, how many people scream, 'Yes!' and run to clear the calendar? None. Our first and only reaction is, 'Oh, no,' quickly followed by, 'How can I get out of this?'
+- Cancer taught me to stop saving things for a special occasion. Every day is special. You don't have to get cancer to start living life to the fullest. My post-cancer philosophy? No wasted time. No ugly clothes. No boring movies.
+- Bakers get excited over aprons. I love the soft cotton ones with pockets like my gramma and mom wore. They always kept a hankie tucked in one pocket, which wasn't sanitary, but was comforting to the child who needed a tear or nose wiped.
+- A book store is a treasure chest. Every time you walk in one, you strike gold.
+- My daughter had carried within her a story that kept hurting her: Her dad abandoned her. She started telling herself a new story. Her dad had done the best he could. He wasn't capable of giving more. It had nothing to do with her. She could no longer take it personally.
+- For me, being Catholic was who I was and who I am, just like I'm Irish and Slovak. It's just so ingrained in us.
+- We need to be smarter than our smart phones and realize the people we are with are more important than the people we aren't with, and way more important than the strangers we hope will tweet and like and share and Instagram whatever we're sending out into the cybersphere.
+- It takes tough love to order kids to step away from the iPhone or iPad during dinner or to take the devices away if they're interrupting and interfering with everyone else's pleasure at a movie, concert or other public event.
+- Some days, 24 hours is too much to stay put in, so I take the day hour by hour, moment by moment. I break the task, the challenge, the fear into small, bite-size pieces. I can handle a piece of fear, depression, anger, pain, sadness, loneliness, illness. I actually put my hands up to my face, one next to each eye, like blinders on a horse.
+- When I turned 45, I lay in bed reflecting on all life had taught me. My soul sprang a leak and ideas flowed out. My pen simply caught them and set the words on paper. I typed them up and turned them into a newspaper column of the 45 lessons life taught me. When I hit 50, I added five more lessons and the paper ran the column again.
+- If baking is any labor at all, it's a labor of love. A love that gets passed from generation to generation.
+- When you have cancer, it's like you enter a new time zone: the Cancer Zone. Everything in the Tropic of Cancer revolves around your health or your sickness. I didn't want my whole life to revolve around cancer. Life came first; cancer came second.
+- My daughter finished high school the same month I got my master's degree. I'm glad I didn't know when I gave birth to her at 21 what it would cost in terms of time, money and sacrifice to bring her to that graduation day.
+- Everything can change in the blink of an eye. But don't worry; God never blinks.
+- Before I started chemotherapy treatments, I wrote down the best advice from doctors, family, friends, books, and survivors and created an 'Owner's Manual' to help me take care of myself. It would remind me that cancer is doable.
+- When I was 41, I found a lump the size of a grape in my right breast. I ended up bald, sick and exhausted from surgeries, chemo and radiation treatments. Ah, but I got to live.
+- Greet every morning with open arms and say thanks every night with a full heart. Each day is a precious gift to be savored and used, not left unopened and hoarded for a future that may never come.
+- Too often, we get attention and sympathy by being a victim. If we're invested in someone being our villain, we must love being the victim. We have to let go of both characters in the story.
+- As much as the Pulitzer is the hallmark of journalism, I think what I love the most is when somebody says they took my column and it's in their wallet. I have had people open their wallet and show me a corner of a column.
+- A writer writes. If you want to be a writer, write.
+- The only gift my dad ever bought me is still in my jewelry box. It died at 10 minutes to 11 decades ago, but the gold Caravelle watch keeps my dad alive. A watch isn't about keeping time. It's about stopping it.
+- The idea of being stuck in a plane with dozens of people chatting over each other on their phones might feel like Dante's 10th circle of hell.
+- Cooking involves a deadline and hungry people and ingredients that expire in a week. It's stressful. Cooking happens on the stove and on the clock. Baking happens with ingredients that last for months and come to life inside a warm oven. Baking is slow and leisurely.
+- Sometimes you have to censor books. When I read 'Peter Rabbit,' I skip the part about Peter's father ending up in one of Mrs. McGregor's pies. I also hid the book of 'Grimm Fairy Tales.' They're just too grim for my grandkids. Reality will come soon enough.
+- When it comes to chocolate, resistance is futile.
+- How do you know someone is a grandparent? They've got milk stains on every shirt from burping babies. Their pants are worn out at the knees from crawling around giving pony rides. They have 2,842 pictures of the grandkids on their smart phone and not one photo of their spouse.
+- Summer is the annual permission slip to be lazy. To do nothing and have it count for something. To lie in the grass and count the stars. To sit on a branch and study the clouds.
+- For years I heeded the warning: Do monthly breast self-exams. Like most women, I did them on a 'sort of' basis. Every few months I'd sort of do a quick feel, but never as thoroughly as the doctors urged. I didn't want to go looking for trouble. If you look for it, you might find it. Looking for cancer is unsettling. Thank God I looked.
+- I usually give a book 40 pages. If it doesn't grab me by then, adios. With young adult books, you can usually tell by Page 4 if it's worth the time. The author establishes the conflict early, sometimes in the first sentence. The themes of hope, family, friendship and overcoming hardship appeal to most everyone.
+- Going through chemo is like investing money in a retirement account. You feel the hit right now, but later in life you get to reap the benefits - by still being alive.
+- We all have that power to have a soul that magnifies God.
+- Some people hate funerals. I find them comforting. They hit the pause button on life and remind us that it has an end. Every eulogy reminds me to deepen my dash, that place on the tombstone between our birth and our death.
+- It's easier to forgive those who hurt you than those who hurt the people you love.
+- If a relationship has to be a secret, you shouldn't be in it.
+- If you want to lose 40 pounds, you order salad instead of fries. If you want to be a better friend, you take the phone call instead of screening it. If you want to write a novel, you sit down and write a single paragraph. It's scary to make major changes, but we usually have enough courage to take the next right step.
+- The secret to success, to parenting, to life, is to not count up the cost. Don't focus on all the steps it will take. Don't stare into the abyss at the giant leap it will take. That view will keep you from taking the next small step.
+- No matter how I feel, I get up, dress up, and show up for life. When I do, the day always serves up more than I could have hoped for. Each day truly is a slice of heaven. Some days the slices are just smaller than others.
+- If no one shopped on Thanksgiving Day, the stores wouldn't open. End of story. I say we all take the pledge and stay home. Thanksgiving is a day to give thanks for what you have, not to save a few dollars to get more.
+- Even if you have nothing in your wallet, nothing can keep you from having a great summer. You can listen to crickets sing you to sleep, trace the Big Dipper, breathe in the stars, run through a sprinkler, host a cartwheel contest in the front yard.
+- We all have a personal pool of quicksand inside us where we begin to sink and need friends and family to find us and remind us of all the good that has been and will be.
+- Most of life is showing up. You do the best you can, which varies from day to day.
+- No matter how you feel, get up, dress up and show up.
+- Almost every month, I have a day where I get stuck in the mud of me. I used to blame hormones and PMS. After I hit 50, I blamed the lack of hormones. But men get stuck, too, so it must simply be the human condition.
+- It takes courage to sit on a jury. How many of us want to decide the fate of another person's life or freedom? How many of us want to hold that kind of power in our hands?
+- 'Star Trek' never grabbed me. Every time I hear about Klingons, I think of those little lint balls that stick to your clothes in the dryer.
+- God isn't present in the past or future. The great 'I Am' is in the present moment. When I claim that presence, I can get through anything today.
+- My life used to be like that game of freeze tag we played as kids. Once tagged, you had to freeze in the position you were in. Whenever something happened, I'd freeze like a statue, too afraid of moving the wrong way, of making the wrong decision. The problem is, if you stand still too long, that's your decision.
+- We are all on a journey of faith, and we have to polish that faith.
+- We've come a long way from having one land line that was forbidden to be answered during dinner. We had no answering machine, just a dad who barked, 'Who calls during dinner? If it's important, they'll call back.' He was right.

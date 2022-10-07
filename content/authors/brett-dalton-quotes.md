@@ -1,0 +1,14 @@
++++
+author = "Brett Dalton"
+title = "Brett Dalton Quotes"
+quotes_len = "8"
+description = "the best 8 Brett Dalton Quotes"
++++
+- I'm excited to be a part of the Marvel universe because I grew up with it.
+- After graduating, the jobs that I got were TV, so you sort of move to where the jobs are. But I would absolutely go back to theater if the role was right.
+- I'm really obsessed with 'Ramsey's Kitchen Nightmares.' I really don't know why.
+- We all have our secrets. We all have our vulnerabilities.
+- I used to go to the comic store all the time. I was into comic cards, which are essentially baseball cards for comic book heroes. They have these cool stats on the back. I had collections of these things. I still have a lot of my collection at home.
+- I've owned mopeds in the past.
+- My dad's an artist, and my grandfather paints - he's not a painter; my grandfather's a butcher - but he does a lot of crafts, stained glass, painting, that stuff. There is art in our family, and I was an art major in college along with being a theater major.
+- Everybody is the way they are because of certain events that have happened in their life. Oftentimes you'll meet somebody who seems a certain way, and then you realize, 'Oh, that guy's actually the sweetest man I know. But I wouldn't have known that from the outset because that's hidden.'

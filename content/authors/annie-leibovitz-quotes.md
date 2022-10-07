@@ -1,0 +1,85 @@
++++
+author = "Annie Leibovitz"
+title = "Annie Leibovitz Quotes"
+quotes_len = "79"
+description = "the best 79 Annie Leibovitz Quotes"
++++
+- Sometimes I enjoy just photographing the surface because I think it can be as revealing as going to the heart of the matter.
+- I still need the camera because it is the only reason anyone is talking to me.
+- I try to be home for dinner, but I'm not there enough. I sometimes feel I'm still fumbling, getting it wrong, but I make my way.
+- You don't have to sort of enhance reality. There is nothing stranger than truth.
+- I don't think there is anything wrong with white space. I don't think it's a problem to have a blank wall.
+- If I didn't have my camera to remind me constantly, I am here to do this, I would eventually have slipped away, I think. I would have forgotten my reason to exist.
+- A thing that you see in my pictures is that I was not afraid to fall in love with these people.
+- I realized I couldn't be a journalist because I like to take a side, to have an opinion and a point a view; I liked to step across the imaginary boundary of the objective view that the journalist is supposed to have and be involved.
+- I've created a vocabulary of different styles. I draw from many different ways to take a picture. Sometimes I go back to reportage, to journalism.
+- Lennon was very helpful. What he taught me seems completely obvious: he expected people to treat each other well.
+- I went on tour with the Rolling Stones in 1972 for two or three cities. And in 1975, I was the tour photographer for the Rolling Stones. I hung onto my camera for dear life. Because it scared the hell out of me.
+- I'd like to think that the actions we take today will allow others in the future to discover the wonders of landscapes we helped protect but never had the chance to enjoy ourselves.
+- I feel very proud of the work from the '80s because it is very bright and colorful.
+- I feel unbelievably blessed that I have had the opportunity to photograph Malala in her classroom in Birmingham.
+- Those who want to be serious photographers, you're really going to have to edit your work. You're going to have to understand what you're doing. You're going to have to not just shoot, shoot, shoot. To stop and look at your work is the most important thing you can do.
+- The camera makes you forget you're there. It's not like you are hiding but you forget, you are just looking so much.
+- There must be a reason why photographers are not very good at verbal communication. I think we get lazy.
+- As fantastic as it is to have 'Vogue' and 'Vanity Fair' as places to work, I don't often get to shoot the kind of things I like to photograph in the way I like to photograph.
+- I fight to take a good photograph every single time.
+- When I say I want to photograph someone, what it really means is that I'd like to know them. Anyone I know I photograph.
+- I can't stand the word 'celebrity.' It's such a brash word.
+- I feel a responsibility to my backyard. I want it to be taken care of and protected.
+- As I get older, the book projects are - liberating is one word, but they really are me.
+- I'm more interested in being good than being famous.
+- The pictures of my family were designed to be on a family wall, they were supposed to be together. It was supposed to copy my mother's wall in her house.
+- I feel more like a creative artist using photography because there's - the digital work is so interesting now. It's come to that. I have had many different stages of photography - there are many different ways to take photos. But I feel now I'm in that stage of my life where I use the camera, you know, in that way.
+- My lens of choice was always the 35 mm. It was more environmental. You can't come in closer with the 35 mm.
+- At my Rolling Stones' tour, the camera was a protection. I used it in a Zen way.
+- I shoot a little bit, maybe two rolls, medium format, which is 20 pictures, and if it's not working, I change the position.
+- I've learned to create a palette, a vocabulary of ways to take pictures.
+- I was scared when I went to Conde Nast. I had heard horror stories about how they used you up and then spit you out and went on. But there was this great history of photography that had been done there.
+- As a young person, and I know it's hard to believe that I was shy, but you could take your camera, and it would take you to places: it was like having a friend, like having someone to go out with and look at the world. I would do things with a camera I wouldn't do normally if I was just by myself.
+- There certainly are people who are a pain to work with. I'd be crazy to name them. You can't be indiscreet in this business.
+- My father was stationed at Clark Air Base in the Philippines, which had a hospital where they brought casualties straight from the battlefield. My mother was kind of a sophisticated bohemian, and my father was in the military to make a living.
+- There were some advantages to being a woman photographer. I think women have more empathy with the subject.
+- When you go to take someone's picture, the first thing they say is, what you want me to do? Everyone is very awkward.
+- What I am interested in now is the landscape. Pictures without people. I wouldn't be surprised if eventually there are no people in my pictures. It is so emotional.
+- It's hard to watch something go on and be talking at the same time.
+- When I started working for Rolling Stone, I became very interested in journalism and thought maybe that's what I was doing, but it wasn't true. What became important was to have a point of view.
+- As soon as you put something to bed like the 'Women' book, you're never finished. There were portraits of people that I wanted to photograph - it's an endless subject.
+- What has stayed true all the way through my work is my composition, I hope, and my sense of color.
+- My body was so instrumental to how I took pictures: it was practically a dance. I used to use my legs a lot; now I'm a little more sedentary.
+- I sometimes find the surface interesting. To say that the mark of a good portrait is whether you get them or get the soul - I don't think this is possible all of the time.
+- As much as I'm not a journalist, I use journalism. And when you photograph a relationship, it's quite wonderful to let something unfold in front of you.
+- In a portrait, you have room to have a point of view and to be conceptual with a picture. The image may not be literally what's going on, but it's representative.
+- When I started working for Rolling Stone, I became very interested in journalism and thought maybe that's what I was doing, but it wasn't.
+- Nature is so powerful, so strong. Capturing its essence is not easy - your work becomes a dance with light and the weather. It takes you to a place within yourself.
+- I was with Tom Wolfe at the launch of Apollo 17, which led him to 'The Right Stuff.'
+- What I end up shooting is the situation. I shoot the composition and my subject is going to help the composition or not.
+- I didn't want to let women down. One of the stereotypes I see breaking is the idea of aging and older women not being beautiful.
+- I'm a huge, huge fan of photography. I have a small photography collection. As soon as I started to make some money, I bought my very first photograph: an Henri Cartier-Bresson. Then I bought a Robert Frank.
+- I was scared to do anything in the studio because it felt so claustrophobic. I wanted to be somewhere where things could happen and the subject wasn't just looking back at you.
+- I personally made a decision many years ago that I wanted to crawl into portraiture because it had a lot of latitude.
+- Computer photography won't be photography as we know it. I think photography will always be chemical.
+- Coming tight was boring to me, just the face... it didn't have enough information.
+- I wish that all of nature's magnificence, the emotion of the land, the living energy of place could be photographed.
+- When you are younger, the camera is like a friend and you can go places and feel like you're with someone, like you have a companion.
+- My hope is that we continue to nurture the places that we love, but that we also look outside our immediate worlds.
+- I admired the work of photographers like Beaton, Penn, and Avedon as much as I respected the grittier photographers such as Robert Frank. But in the same way that I had to find my own way of reportage, I had to find my own form of glamour.
+- No one ever thought Clint Eastwood was funny, but he was.
+- One of the great things about being an older person is that I am very aware of the scope of the work and the historical sense of it. It's bigger than me.
+- In a portrait, you have room to have a point of view. The image may not be literally what's going on, but it's representative.
+- I fell in love with the darkroom, and that was part of being a photographer at the time. The darkroom was unbelievably sexy. I would spend all night in the darkroom.
+- There are still so many places on our planet that remain unexplored. I'd love to one day peel back the mystery and understand them.
+- I went to school at the San Francisco Art Institute, thinking I was going to become an art teacher. Within the first six months I was there, I was told that I couldn't be an art teacher unless I became an artist first.
+- It's a heavy weight, the camera. Now we have modern and lightweight, small plastic cameras, but in the '70s they were heavy metal.
+- A very subtle difference can make the picture or not.
+- I went to Yosemite as an homage to Ansel Adams. I could never be Ansel Adams, but to know that's there for us - there's so much for us in this country.
+- I've never liked the word 'celebrity.' I like to photograph people who are good at what they do.
+- Everyone keeps asking you for pictures, and after a while you get tired of that. I always say, They are in the archives.
+- What I learned from Lennon was something that did stay with me my whole career, which is to be very straightforward. I actually love talking about taking pictures, and I think that helps everyone.
+- When I take a picture I take 10 percent of what I see.
+- The work which is manipulated looks a little boring to me. I think life is pretty strange anyway. It is wooo, wooo, wooo!
+- There's not enough talked about in terms of growing older. You start to lose your body.
+- If it makes you cry, it goes in the show.
+- I don't think I could give advice to my younger self because she probably wouldn't listen.
+- I love photography. And I just eat it up. I feel like I'm an encyclopedia, you know, inside.
+- When you are on assignment, film is the least expensive thing in a very practical sense. Your time, the person's time, turns out to be the most valuable thing.
+- I am impressed with what happens when someone stays in the same place and you took the same picture over and over and it would be different, every single frame.

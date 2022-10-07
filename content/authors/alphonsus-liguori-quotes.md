@@ -1,0 +1,26 @@
++++
+author = "Alphonsus Liguori"
+title = "Alphonsus Liguori Quotes"
+quotes_len = "20"
+description = "the best 20 Alphonsus Liguori Quotes"
++++
+- Nothing else is required than to act toward God, in the midst of your occupations, as you do, even when busy, toward those who love you and whom you love.
+- Just as a mother finds pleasure in taking her little child on her lap, there to feed and caress him, in like manner our loving God shows His fondness for His beloved souls who have given themselves entirely to Him and have placed all their hope in His goodness.
+- But You never reject a repentant and humble heart.
+- Not only is there no need of an intermediary through whom He would want you to speak to Him, but He finds His delight in having you treat with Him personally and in all confidence.
+- Speak to Him often of your business, your plans, your troubles, your fears - of everything that concerns you.
+- Since His delights are to be with you, let yours be found in Him.
+- Who is there that ever receives a gift and tries to make bargains about it? Let us, then, return thanks for what He has bestowed on us. Who can tell whether, if we had had a larger share of ability or stronger health, we should not have possessed them to our destruction.
+- The heart of man is, so to speak, the paradise of God.
+- What grieves me most in my past offenses, O my loving God, is not so much the punishment I have deserved, as the displeasure I have given You, Who are worthy of infinite love.
+- If you wish to strengthen your confidence in God still more, often recall the loving way in which He has acted toward you, and how mercifully He has tried to bring you out of your sinful life, to break your attachment to the things of earth and draw you to His love.
+- God is displeased at the diffidence of souls who love Him sincerely and whom He Himself loves.
+- Your God is ever beside you - indeed, He is even within you.
+- Job was astonished at seeing Almighty God so intent on doing good to us that He seems to have nothing more at heart than to love us and to induce us to love Him in return.
+- Yet you should practice the greatest possible love and confidence in treating with Him.
+- Acquire the habit of speaking to God as if you were alone with Him, familiarly and with confidence and love, as to the dearest and most loving of friends.
+- Ask those who love Him with a sincere love, and they will tell you that they find no greater or prompter relief amid the troubles of their life than in loving conversation with their Divine Friend.
+- With such thoughts in your mind, now that you have resolved to love Him and please Him with all your strength, your only fear should be to fear God too much and to place too little confidence in Him.
+- True, He is infinite Majesty, but He is also infinite Goodness and infinite Love. There can be no greater Lord than God; neither can there be a more ardent lover than He.
+- Assuredly, Loving Souls, you should go to God with all humility and respect, humbling yourselves in His presence, especially when you remember your past ingratitude and sins.
+- It is a great mistake, as we have already remarked, to be afraid of Him and to act in His presence like a timid and craven slave trembling with fright before his master.

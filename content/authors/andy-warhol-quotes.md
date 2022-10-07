@@ -1,0 +1,84 @@
++++
+author = "Andy Warhol"
+title = "Andy Warhol Quotes"
+quotes_len = "78"
+description = "the best 78 Andy Warhol Quotes"
++++
+- Now and then, someone would accuse me of being evil - of letting people destroy themselves while I watched, just so I could film them and tape-record them. But I didn't think of myself as evil - just realistic.
+- People sometimes say the way things happen in the movies is unreal, but actually, it's the way things happen to you in life that's unreal.
+- People need to be made more aware of the need to work at learning how to live because life is so quick and sometimes it goes away too quickly.
+- If you wear a wig, everybody notices. But if you then dye the wig, people notice the dye.
+- In the future, everyone will be famous for 15 minutes.
+- I'm afraid that if you look at a thing long enough, it loses all of its meaning.
+- The most exciting thing is not doing it. If you fall in love with someone and never do it, it's much more exciting.
+- I suppose I have a really loose interpretation of 'work', because I think that just being alive is so much work at something you don't always want to do. The machinery is always going. Even when you sleep.
+- What's great about this country is that America started the tradition where the richest consumers buy essentially the same things as the poorest.
+- Everyone needs a fantasy.
+- When I got my first television set, I stopped caring so much about having close relationships.
+- Land really is the best art.
+- I always hear myself saying, 'She's a beauty!' or 'He's a beauty!' or 'What a beauty!' but I never know what I'm talking about.
+- Checks aren't money.
+- I just happen to like ordinary things. When I paint them, I don't try to make them extraordinary. I just try to paint them ordinary-ordinary.
+- I always like to see if the art across the street is better than mine.
+- Employees make the best dates. You don't have to pick them up and they're always tax-deductible.
+- We live in an age when the traditional great subjects - the human form, the landscape, even newer traditions such as abstract expressionism - are daily devalued by commercial art.
+- I think Chris Burden is terrific. I really do.
+- I think it would be terrific if everybody was alike.
+- Before I was shot, I always thought that I was more half-there than all-there - I always suspected that I was watching TV instead of living life. Right when I was being shot and ever since, I knew that I was watching television.
+- The most exciting attractions are between two opposites that never meet.
+- So many people seem to prefer my silver-screenings of movie stars to the rest of my work. It must be the subject matter that attracts them, because my death and violence paintings are just as good.
+- Since I was shot, everything is such a dream to me. Like I don't know whether I'm alive or whether I died. I wasn't afraid before. And having been dead once, I shouldn't feel fear. But I am afraid. I don't understand why.
+- I am a deeply superficial person.
+- If you're not trying to be real, you don't have to get it right. That's art.
+- Human beings are born solitary, but everywhere they are in chains - daisy chains - of interactivity. Social actions are makeshift forms, often courageous, sometimes ridiculous, always strange. And in a way, every social action is a negotiation, a compromise between 'his,' 'her' or 'their' wish and yours.
+- I'm bored with that line. I never use it anymore. My new line is 'In 15 minutes everybody will be famous.'
+- Since people are going to be living longer and getting older, they'll just have to learn how to be babies longer.
+- What's great about this country is that America started the tradition where the richest consumers buy essentially the same things as the poorest. You can be watching TV and see Coca-Cola, and you can know that the President drinks Coke. Liz Taylor drinks Coke, and just think, you can drink Coke, too.
+- Isn't life a series of images that change as they repeat themselves?
+- Don't pay any attention to what they write about you. Just measure it in inches.
+- I always wished I had died, and I still wish that, because I could have gotten the whole thing over with.
+- If you want to know all about Andy Warhol, just look at the surface of my paintings and films and me, and there I am. There's nothing behind it.
+- I went to vote once, but I got too scared. I couldn't decide whom to vote for.
+- My fascination with letting images repeat and repeat - or in film's case 'run on' - manifests my belief that we spend much of our lives seeing without observing.
+- An artist is somebody who produces things that people don't need to have.
+- My idea of a good picture is one that's in focus and of a famous person.
+- I used to have the same lunch every day, for 20 years, I guess, the same thing over and over again.
+- I like boring things.
+- I'm the type who'd be happy not going anywhere as long as I was sure I knew exactly what was happening at the places I wasn't going to. I'm the type who'd like to sit home and watch every party that I'm invited to on a monitor in my bedroom.
+- Dying is the most embarrassing thing that can ever happen to you, because someone's got to take care of all your details.
+- I want to die with my blue jeans on.
+- Sex is more exciting on the screen and between the pages than between the sheets.
+- Once you 'got' Pop, you could never see a sign again the same way again. And once you thought Pop, you could never see America the same way again.
+- When you think about it, department stores are kind of like museums.
+- I'm for mechanical art. When I took up silk screening, it was to more fully exploit the preconceived image through the commercial techniques of multiple reproduction.
+- I used to think that everything was just being funny but now I don't know. I mean, how can you tell?
+- Art is what you can get away with.
+- I'd asked around 10 or 15 people for suggestions. Finally one lady friend asked the right question, 'Well, what do you love most?' That's how I started painting money.
+- During the 1960s, I think, people forgot what emotions were supposed to be. And I don't think they've ever remembered.
+- I think they should have movies in restaurants. I can't believe that so many people get together just to sit there. It's so abstract... isn't it abstract? What are these people sitting here watching?
+- They always say time changes things, but you actually have to change them yourself.
+- Fantasy love is much better than reality love.
+- I never think that people die. They just go to department stores.
+- Being born is like being kidnapped. And then sold into slavery.
+- I think the first photograph I did was a ballplayer. It was a way of showing action or something.
+- Being good in business is the most fascinating kind of art. Making money is art and working is art and good business is the best art.
+- I never understood why when you died, you didn't just vanish, everything could just keep going on the way it was only you just wouldn't be there. I always thought I'd like my own tombstone to be blank. No epitaph, and no name. Well, actually, I'd like it to say 'figment.'
+- I love Los Angeles, and I love Hollywood. They're beautiful. Everybody's plastic, but I love plastic. I want to be plastic.
+- I had a lot of dates but I decided to stay home and dye my eyebrows.
+- I think everybody should like everybody.
+- Art? That's a man's name.
+- I like to work when I'm not working - do something that may not be considered work, but to me it's work. Getting exercise by going to the grocery store.
+- I've been invited to the White House about five times. I think the greatest thing would be if they actually invited everybody to the White House every night... they'd just take about 500 people a night. Everybody would just love this country because it's so thrilling to go there. It really is.
+- Voyeurism is a director's job description. It's an artist's, too.
+- I think having land and not ruining it is the most beautiful art that anybody could ever want to own.
+- It would be very glamorous to be reincarnated as a great big ring on Liz Taylor's finger.
+- Sociological critics are waste makers.
+- I'll bet there are a lot of artists that nobody hears about who just make more money than anybody. The people that do all the sculptures and paintings for big building construction. We never hear about them, but they make more money than anybody.
+- I've decided something: Commercial things really do stink. As soon as it becomes commercial for a mass market it really stinks.
+- I think kids should go to high school until they're 30. No, really, because people are staying younger now and there's nothing to do. If you stayed longer, then it would be really great.
+- I want to be a machine.
+- I always thought I'd like my own tombstone to be blank. No epitaph, and no name. Well, actually, I'd like it to say 'figment.'
+- The clothes of Courreges are so nice.
+- It's the movies that have really been running things in America ever since they were invented. They show you what to do, how to do it, when to do it, how to feel about it, and how to look how you feel about it.
+- I have Social Disease. I have to go out every night. If I stay home one night I start spreading rumors to my dogs.
+- Making money is art and working is art and good business is the best art.

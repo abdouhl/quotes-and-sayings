@@ -1,0 +1,31 @@
++++
+author = "Richard Thompson"
+title = "Richard Thompson Quotes"
+quotes_len = "25"
+description = "the best 25 Richard Thompson Quotes"
++++
+- It's fun to sing sad songs. And it's fun to listen to sad songs. Enjoyable. Satisfying. Something.
+- The thing I do, really, is a communication with audiences more than any achievement through records.
+- All audiences should be slightly off balance.
+- I like the idea of playing in unison with yourself.
+- I just like to entertain myself by sitting down and writing songs.
+- I want people to come to my music without prejudice. I want them to get the music first. And who I am isn't that important. If they like the songs to me that's a good thing.
+- There's a part of me that wishes I'd never said one single solitary word on any subject publicly. Then I could have been the tortured poet, and there's so much mileage in that. But it's too late to stop now.
+- I try to make songs visual and tactile to kind of put you into the action.
+- I have to remind myself not to set boundaries.
+- To stand up on a stage alone with an acoustic guitar requires bravery bordering on heroism. Bordering on insanity.
+- I try to look for the good in everybody, regardless of the way they're labeled.
+- But music can save your life sometimes. It probably saved me from working in a bank or something. That's a kind of salvation right there.
+- Amplifying acoustic instruments more than a little is really cheating, and everything becomes a compromise.
+- The best thing you've got going for you is individuality.
+- Well, first of all it's entertainment. That stops us becoming too pretentious or thinking we're great artists.
+- I probably wrote three-quarters of the songs without an instrument in my hands.
+- When you stand up acoustic in front of an audience, you really are a man without any clothes on. And that can be fun - it depends how much of an exhibitionist you are, I suppose. I quite enjoy it.
+- As the writer, you're always a presence in the song. If you get close to what human beings are like, you're writing about common experience. We all do much the same things, so if you nail somebody, then you've also nailed yourself.
+- What I wanted to hear didn't exist, so it was necessary for me to go out and create it.
+- You want the audience to be uncomfortable.
+- People want to hear about the extremes of human nature. They want things that are larger than their own lives, and more romantic, and not necessarily of their own experiences.
+- I think the reason kids get into drugs and smoking is they don't have anything to do.
+- I'm glad there are a lot of guitar players pursuing technique as diligently as they possibly can, because it leaves this whole other area open to people like me.
+- I'm always making a conscious effort to be viable and accessible.
+- It's amazing what some people read into songs.

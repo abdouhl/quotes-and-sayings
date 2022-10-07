@@ -1,0 +1,88 @@
++++
+author = "Richarlison"
+title = "Richarlison Quotes"
+quotes_len = "82"
+description = "the best 82 Richarlison Quotes"
++++
+- I was always, always running. I was running since I was small. And it is something I also learned from watching my father because he never gave up on the pitch and was looking to score the goal.
+- I like playing video games, so I spend a lot of relaxation doing that, and I live in a big house with a pool, so that is also good fun.
+- I go quite often to David Luiz's house, and Willian usually joins us, as they are close friends. We have a barbecue, play video games, and we cannot live without samba.
+- Living in Rio is dangerous sometimes.
+- My toenails are out of my foot because of all the stamps I have received during games. But it's fine. This is the Premier League and the way they play here.
+- I've said many of my friends are in jail; some already died.
+- I came to Watford to play in the Premier League and stand out.
+- I organised a charity game in my hometown, and we collected three tonnes of food for the people of the town.
+- I always want to play the 90 minutes.
+- Now I'm at the Premier League and help my family. That's all that matters.
+- English football is really suited to me.
+- I want to evolve and improve as a professional.
+- It's always good to have players who can help us in attack.
+- If I play at a really high level, opportunities will come my way.
+- Neymar makes difficult games easy.
+- I just want to thank Everton for the opportunity and Watford for having opened the doors for me in England.
+- It is a very, very difficult thing to get into the Brazil national team, so when you achieve that, it makes you really happy, and you want it to continue for as long as possible.
+- Teams are already marking me individually: they are putting two players there on my side. Unfortunately, it's difficult, but I'm doing what I can. I'm facing them. I'm making assists. I'm trying to score my goals.
+- I don't have the words to describe what the fans have done for me.
+- The first goal I scored for Brazil will live with me forever.
+- I'm a guy who always seeks the goal.
+- I have the dream of playing at a World Cup and winning a Champions League.
+- I remember walking on the street, and they would call me a stupid lil' punk, little criminal. Thank God I haven't become a criminal like they said.
+- I am a calm person, and I know my responsibilities. I will show it on the field.
+- I have been watching Brazil since I was a little kid.
+- I think my dad is the proudest of anyone that I made my debut for Brazil.
+- I had the yellow mohican when I was 13, 14. I didn't quite pull it off, though, because I didn't really have the right hair products. It would stay up for five minutes and then just flop down.
+- Everton have put their faith in me, and I intend to honour this shirt and demonstrate on the pitch why I came here.
+- I'm very happy at Everton; it's a very good club with very good structure. The fans love the club and the players.
+- Marco Silva is always talking to me in training; he is always giving me guidance on positioning in the area. His coaching is essential for me. He is training me with an eye to being in the right place at the right time when balls come into the box so I am able to score more goals.
+- I enjoy what England has to offer.
+- When I was a kid, I would mess around on the streets with my mates, winding people up and making them angry. It got to the point where someone called the cops, and we had to run away. But to be honest, now I am a calm guy.
+- God has made everything perfect for me.
+- If you lose a game in Brazil, you cannot walk about among the fans.
+- Bernard is a great player, a player for the Brazilian national team, and I also followed his progress with Atletico Mineiro.
+- I'll never forget this memory: I was at home, and suddenly my father came home with 10 footballs for me. I lived by a football pitch, so every day, I'd take the ball and practice shooting.
+- I went to school in the afternoon and worked in the morning. Sometimes I went out into the fields with my granddad.
+- I used to sell candy and ice creams in the street, and I worked in the fields to help my parents.
+- I came to England to make a name for myself in the best league in the world.
+- Fans in Brazil cross the line. A few times at Fluminense, the fans would go to the airport after we had played away to shout at us.
+- I always want to do whatever it takes - whatever I possibly can - to help my team-mates on the pitch.
+- When it comes to understanding how to talk in English about football, I always watch 'Match of the Day.'
+- I am aiming high. I want to achieve a lot here, make history here, and make a name for myself at Everton.
+- I want to continue to score goals.
+- Everybody wants financial security for their family, and when a player says otherwise, he's lying.
+- There's no doubt God gave me a gift, and I've taken advantage of it.
+- I never thought that I'd be playing in the biggest league in the world.
+- I came to Watford to make history.
+- Growing up watching the Premier League, the person with the most presence was Gilberto Silva. He was everywhere in Brazil. His matches were always televised. He was the main figure I was following in the Premier League.
+- Neymar has been an idol of mine since childhood. I've always tried to mirror myself in the way he plays, and I've also tried imitating some of his haircuts.
+- I want to be the top scorer of the league, take Everton back to the Champions League, and reach the Brazilian national team.
+- I feel at home and very happy with the national team. Even with the responsibility, I am very proud I can go and be in that environment.
+- I feel I have been developing more and more.
+- I give my life to football.
+- I used to work selling ice lollies and sweets on the road. I worked at a car wash as well.
+- I have learned that you need to have patience, perseverance, and faith in people to reach your goals.
+- I don't speak a lot of English, of course, but I do try to express myself, and usually, I can get across to people what I am trying to say.
+- I feel really good at Everton. My team-mates are helping me with my confidence on the field, and that is vital. And being part of the Brazil national team has been really important for my morale and a positive thing for my confidence.
+- Since I was promoted to the America MG first team, there was already pressure on me. In my third game at America, I was already in the starting line-up.
+- Whenever we are en route to a game on the bus I am always watching the goals of Ronaldo, Adriano, and Neymar to get some inspiration. Then, when I am on the pitch, I try to replicate what they do.
+- I want to show I can play at my best for a whole Premier League season.
+- I'm really happy with my first season in the Premier League: I played 38 games and managed to stay injury-free.
+- When my father played in the local team, I always used to go with him to watch him. He played as a striker. He was very good; he used to score a lot of goals. Once, he scored seven goals in one game.
+- I had no trainers to play, so I went barefoot. Everyone else had trainers. I also remember running 9 km. to training one day with ripped trainers. The sock kept coming out of the shoe, so I'd have to stop and tuck it in.
+- I go home after games to watch the highlights with my friends, and I listen to the commentary and to the experts. I always get home by 10 o'clock at night so I can watch it live.
+- I am intending to work hard, score goals, and get assists.
+- Yerry Mina's a great guy. He's also a great dancer! When he played for Palmeira,s he'd always celebrate with a dance. We became friends, and I speak to him regularly.
+- I want to have a lot of success with Everton.
+- I started my career as a No 9. I know how to play as a No 9.
+- Mum obviously did not earn much money to feed me and my siblings. She worked hard to raise us, but there was always something missing.
+- Pressure, responsibility - I'm used to playing in big clubs.
+- It is a dream from my childhood: I always wanted to play in the Premier League, which is one of the best leagues in the world.
+- I thought about the problems I had growing up: how I prioritised football over school, but people were telling me I wouldn't make it, that it wasn't possible. The thing is, I did make it, thanks to my own will and determination and the help of some people I had around me in my hometown.
+- To be honest, I knew pretty much nothing about Watford as a town or a club. But I feel so comfortable - the players, the staff, the board, and the fans have made me so welcome.
+- I haven't got enough fingers to count the number of clubs who rejected me.
+- I was ready to give up football, but I lifted my head, and I went to Belo Horizonte with just the money for an outward ticket for the last trial I had, with America MG. If I didn't make it, I had no money to get home to Espiritu Santo, 600 kilometres away. I gave my all that morning, and I passed.
+- I did not think twice when the offer from England came because it was always a professional goal of mine. I want to make history in Watford and score lots of goals.
+- The pigeon dance came from a group from Rio de Janeiro who had a song in around 2012. A trend was started when I did the dance at home. Everyone started copying me.
+- I want to be a top scorer with my national team.
+- Some of my friends said I wouldn't have a future in football, as did some of my family, but I still believed in the potential I had. My mum would tell me I needed to get a proper job, but for me, I didn't want to be anything other than a footballer. That led to some tension and frustration between us.
+- It is a big responsibility to play for Brazil. But I know how to deal with it.
+- I can only work hard because it is a huge responsibility to wear all of these shirts, all of these clubs that I have played for.

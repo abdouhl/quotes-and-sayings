@@ -1,0 +1,33 @@
++++
+author = "Isabela Moner"
+title = "Isabela Moner Quotes"
+quotes_len = "27"
+description = "the best 27 Isabela Moner Quotes"
++++
+- I got to work with great actors like J.K. Simmons and Jenna Elfman. They were amazing.
+- I filmed the 'Sicario' sequel 'Soldado' with Benicio del Toro and Josh Brolin. That was cool. I play the female lead. I'm the bad guy's daughter.
+- I want versatility, like J-Lo or Beyonce.
+- I'm really not worried about my image overall.
+- I like to watch 'The Office' over and over and over again. It's great, one of the best shows in the history of television. But also, I like to read. I honestly don't like to socialize, because my job is to socialize.
+- Of course, yes, I watched 'Dora' growing up. I'm bilingual, and she's like my icon.
+- I have been working with UNICEF Peru a lot. I am aiming to educate children, mostly because once adults reach adulthood, your views are shaped. With children, you can really teach them, you can open their eyes to what is really going on. The only way we can open their eyes and free them is by educating them.
+- 'Transformers: The Last Knight' is a different kind of movie.
+- I'm 5 feet tall, and that's on a good day.
+- I can make the best fart noises. I can make, like, 10 different sounds at different levels.
+- I was a little tomboy, growing up, but we had to go to the library every weekend if we wanted some form of entertainment. And I would gravitate towards the Shirley Temple, Judy Garland section of the library, and I would just pop that in and watch on replay because kids can watch movies over and over again.
+- I don't think I related to the Irish Catholic surroundings that was my environment when I was growing up.
+- Us girls have to uplift one another rather than bring each other down.
+- Kids are my favorite because they're so pure. They're really mean sometimes because they're super honest, but I trust them as a good judge of character. And they're always so nice to me, so I feel really awesome.
+- There are tons of actors and actresses I admire. But I really admire Jennifer Lawrence because she has won awards and made so many great movies, and she still seems so down-to-earth and funny.
+- Every girl wants the same thing - to be accepted and loved for who she is.
+- For 'Dora,' I wasn't sure I wanted to do it. I wanted to go on a serious path. Then I read the script. It's really funny and action-packed. It's almost like a 'Jumanji'-type movie.
+- Social media is so weird. I hate it, to be honest, but I feel like we all need it in order to get our voices out there and really speak on things that we care about. That's the only time I use it.
+- I like the human mind and how messed up it is.
+- I'm honored and excited to bring Dora to life. I grew up watching the show, and for me, especially as a Latina, Dora was an amazing role model - she is a strong, adventurous, and fun-loving girl.
+- We don't have Latina heroines in theaters; I haven't seen Marvel doing it.
+- I always wanted to be the center of attention - you know actors, ugh.
+- If you actually want to be in the business, it's kind of cliche, but don't give up. If you've really wanted this your entire life, and you work hard enough to get it, if you don't give up, then you will definitely get there.
+- Voice work is really fun and challenging. I like learning different skills and different styles, and this is definitely different from doing a play or a filmed TV show.
+- I am a girl from Cleveland, Ohio, that never thought she would be in Hollywood!
+- There were so many wonderful opportunities for me growing up in Cleveland. And whatever I'm doing in New York or Hollywood, I meet people from Cleveland.
+- I had started doing small community theater shows in my hometown of Cleveland. I did a lot of shows there before I met this director who told me, 'Listen, I really think you could be on Broadway.' And I was like, 'No, that's crazy.' I didn't believe it... I was 9, maybe 8 years old at the time, and I was like, 'No. No way.'

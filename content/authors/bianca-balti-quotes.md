@@ -1,0 +1,54 @@
++++
+author = "Bianca Balti"
+title = "Bianca Balti Quotes"
+quotes_len = "48"
+description = "the best 48 Bianca Balti Quotes"
++++
+- When you shoot on location, you need the sunrise natural light, so you need to be up and ready. I never get used to waking up so early! I love sleep too much.
+- Ever since I was a little girl, I watched many movies, and a lot of them are in California. So I already felt the United States was my home. It wasn't a difficult choice to move here.
+- Every model aspires to get contracts, so I have been very lucky with Dolce & Gabbana to be able to get that before I even really started as a model.
+- Bones don't make for success on the runway, but a proportioned, balanced body does.
+- My definition of beauty is happiness. I believe that when you are happy, it shines through and makes you a more attractive and beautiful person!
+- When I dream, I dream big.
+- I began working as a model because I was born thin. I didn't become thin to be a model.
+- Becoming a mother made me better understand how blessed I am to do this job.
+- I just want to have a lot of kids.
+- Because my friends and family are real people, and they wear all sizes, I couldn't imagine designing something that my loved ones could not wear.
+- I take so many planes, so I need to give my skin and hair a moisture boost. I use a hair oil in the ends before I go on the plane and always spritz a face spray during the flight.
+- I love the sunrise, as I am definitely a morning person! It's a great time to get up and have a coffee in the garden by myself before everybody wakes up.
+- The sun feels so lovely on your skin, but it can be really damaging. I make sure to wear SPF 50 sun cream all over my body at all times. It takes a bit longer to get tanned, but the color stays way longer afterwards.
+- I know what I want, and it's hard to delegate.
+- I was very naughty. That's the reason I didn't go very much to the university, because I was partying with my friends more than going to the university.
+- My favourite area of Milano is by the canons - I go to an authentic Italian restaurant around there on a Sunday for delicious food.
+- As soon as I gave birth, I had, like, 20 kilos, which I think is about 50 lbs., and I realized, 'Oh my gosh - in one month, I have my photo shoot.' So I had to lose a lot, and you know, it doesn't happen in one month. So it took me almost a year because I think, realistically, it takes about a year.
+- It's easy for me to stay grounded because I know I am just a girl, a mother, a daughter, a lover... a normal person who was lucky enough to do this job, and I know it's my job - not the person I am.
+- My perfect day would start with a kiss from my daughter. I would drive her to school listening to our favourite punk rock music on loud in the car.
+- Giving my contribution to protect and respect the environment, as well as its inhabitants, makes me feel happy.
+- When you wear your signature scent, you feel something special from within.
+- I transform when I work, but on a daily basis, I really don't pay that much attention to my looks.
+- What the canons of beauty transmit is an idea of taking care of yourself. Eating well, living healthily, doing sports. It's a way to highlight the natural beauty in each of us. The natural body that all of us are born with.
+- I really love women that manage to be amazing in their age.
+- When I was pregnant with my second baby, I almost gained 50 pounds. I enjoyed my pregnancy, but then I had to lose the weight for work.
+- I grew up having all the Dolce & Gabbana campaigns on the walls of my teenage bedroom, and I was dreaming of one day being a model.
+- I'm really tired, incredibly tired of hearing people say that fashion is behind anorexia.
+- It's all about portion control.
+- I love to go to the beach or stay at the pool with my girls - enjoy the sun and the water as much as I can, take rides with the bicycles, and spend time with my family.
+- 32 in modeling years is like 60.
+- A ponytail or a chignon makes me feel very beautiful and sensual. I feel like I can be more myself that way - I can move and talk without worrying about the hair.
+- With modeling, I'm thankful to have so many work options. But you do have to be able to say no. In reality, everything would be yes because every gig pays more than any normal job. But you still have to keep your priorities straight in life. And my priorities are my girls.
+- I just realized some things make me happier, and the good weather in California makes me happier.
+- It's amazing because I've done so many of these things I've always wanted to do - almost everything - in my career.
+- I really love doing simple things. I'm surrounded by people all the time at work, so I want to have a normal life when I'm off duty: motherhood, food, and love!
+- I wouldn't know the political solution to ending the conflict in those countries that refugees escape from. The only thing I know for sure, however, is that we need to help these people.
+- I love to be tan. Maybe this is the wrong message, but I don't always put sunscreen on.
+- It's good to mind about things but not to give it too much weight, because there are some things you cannot change.
+- I always say what I think... I'm not brave - I just have no filter.
+- My mom never used to put makeup on. But one day, when I was a kid, she had a red lip, and I was like, 'Oh my God, you look so amazing!' She said, 'But if I wore it all the time, you would not have noticed.'
+- My normal look is so regular that when I'm going out or doing something, I like to be excessive. I'm very Italian - I don't like to go small.
+- I am very lucky: there are so many models that look so particular and become the popular of-the-moment models. They have such a unique and special look, whereas I am more classic looking.
+- You keep dreaming big, never put the limit on your dreams, and believe that everything can come true.
+- I love Milan because it's my home town. But Paris is the dream city: even when you're stressed out in shows, you look around, and everything is so beautiful. Then, in New York, I love the energy of the city.
+- I'll sometimes go and do a sunbed, but never spray tan.
+- I like to wear colors and prints in the summer and play with extravagant accessories.
+- I've learned more from makeup artists in my nine years of modeling than from my mother. She always told me not to wear any makeup. I try to keep my skin and hair clean and give them a rest when I'm not working.
+- When you become a mother, it's your mission in life to protect your child. I therefore can't imagine what a hell it must be crossing the sea with a crying child on your lap without any certainty of making it to the other side alive.

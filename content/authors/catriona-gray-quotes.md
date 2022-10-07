@@ -1,0 +1,58 @@
++++
+author = "Catriona Gray"
+title = "Catriona Gray Quotes"
+quotes_len = "52"
+description = "the best 52 Catriona Gray Quotes"
++++
+- I'm constantly trying to redefine what being a beauty queen is.
+- Even though my label is that of a beauty queen, I'm not going to limit myself to that, just because that's my title.
+- We Filipinos bond over food, music, dance, and shares stories. And to Filipinos, no matter who you are and where you come from, you always have an invitation to celebration.
+- Let's cultivate an environment, not just in beauty pageants but in society in general, where we argue like we're right but listen like we're wrong.
+- I am quite a conservative person, just as an individual.
+- I am very open to learning. I am like a sponge: I'd like to soak up in new things, new skills.
+- Even if someone does say something negative, it does not give us a reason to retaliate; just take the high road and don't say anything.
+- My course is about really working on a sheet of music. You work out the chords, which note complements the other, and how they will make the feeling of tension, the feeling of resolution. It's all about harmonization. That's more of the theory of notation and everything rather than practical. I don't play any instrument.
+- Being a beauty queen was never on my radar.
+- Us Filipinos love Christmas so much that we have the longest Christmas season in the world.
+- When I was 13, my mom said she had a dream that I would win Miss Universe in a red dress.
+- I think Miss Universe is wonderful platform that we promote diversity and women empowerment. Why? Because we are achieved women who have stories, who have passions, who have careers.
+- I feel everything very strongly, and I find that when I sing through music, it helps me connect to people.
+- I just feel like a Filipina, a Filipino woman, and it just so happens that when I was growing up, I was very much an Australian, and I think you can be both.
+- People should debate. They shouldn't be afraid to talk. You should listen to what other people think and how they make decisions. There should be an exchange of ideas and opinions because that's how we learn.
+- Ever since Binibini, I've really been hands-on since I've been an independent candidate. I'm hands-on in every single aspect of my preparations because I'm having so much fun.
+- I don't think that your height affects how good of a spokesperson, how well you can be, how well you can communicate your ideas as a beauty queen or as a public figure.
+- I just constantly tell myself that I should be the only one to define my worth and what I'm capable of and how I perceive myself. And that I should never source that worth from other people, especially strangers on social media. They don't know who I am, the length of my journey, who I am as a person.
+- It's actually one of my dreams to have my own album. My music genre is dark pop.
+- I was a very quiet, shy child. I just became quite talkative in high school, in Grade 10 onwards.
+- I'm proud of my body. I feel strong in my body.
+- My strength is that I'm an empath.
+- My dad is 20 years older than my mom. Growing up, I felt like he knew everything. I felt like, for every question I had, he had an answer.
+- If I could teach people to be grateful, we could have an amazing world where negativity could not grow and foster, and children would have a smile on their face.
+- To see that I have this huge platform now, and so many people are listening to what I have to say, it really makes me want to orientate toward something that would really educate people, create awareness, do something more than just show them a cute outfit or what I'm having for lunch.
+- Seeing lights being put up along the street and these colored lanterns called parols being put up at people's houses makes Christmas in Philippines magical.
+- I am a creative person.
+- So many people look up to pageants, including young girls and young boys. The message that I would hate to send to them is that you're only deemed worthy of a title or worthy of recognition or of success if you fit in a certain number.
+- Philippines, what an amazing honor it has been to carry your name across my chest and to embody you in all aspects.
+- I work a lot in the slums of Tondo, Manila, and the life there is poor and very sad. And I've always taught to myself to look for the beauty of it and look in the beauty of the faces of the children and to be grateful.
+- No matter what your family does or where your family is, you always need to look after each other.
+- I can sing in my head and rearrange the tune of a song, note per note. I am a nerd.
+- I love my parents so much. My day or night is not complete without talking to them - on Skype.
+- There is that whole realization that I'm not just speaking to Filipinos anymore: I'm speaking to a global audience.
+- Miss Universe is someone who communicates her thoughts effectively and is able to connect to people.
+- I loved numbers from a very young age. I feel like my mom led me there because, instead of giving me Game Boy and PlayStations and a TV, she gave me educational software on our family computer for Math and stuff.
+- It's just so funny that when I was growing up, I was very much of an Australian. I just thought it was funny that there was this war, like, 'No, she's ours, she's practically a Miss Australia.' But I am a Miss Philippines.
+- Social media has definitely revolutionized or transformed the world of pageantry, and not just pageantry, but any social cause that we like to lend our voice to, how we inform each other, how we connect.
+- When I was young, I did varied after-school activities - I did art, drama, science, math. I'm not the sporty kind of person, but I did get a certificate on outdoor recreation.
+- I was born in Cairns, Queensland. Then my parents and I moved to Sydney. We moved to New Wales. We moved around Australia. I was just really close to my parents, and actually, we moved around a lot when I was very young. I think it played a big part in making me the shy teenager that I was.
+- I loved school as a kid. I was a bit of a nerd.
+- To be a Miss World is to carry a burning torch. It is like action carried out by one to illuminate the lives of many.
+- I think we are moving to that place where we are being celebrated for our character, our inside, our wit. I think that's the direction we should go because that's what defines you as a person, not a number on a scale.
+- I've been modeling since 2012, when I was 18, so I am used to following a crazy schedule.
+- I don't have the habit of asking money from my parents.
+- I have always used my platform to speak about positivity in social media when it comes to pageantry because it is one of the main problems I have experienced.
+- I'm an only child, and I'm very, very close with my parents, who actually live in Australia.
+- I'm very mindful that I am representing the Philippines, so I cannot voice an opinion that contradicts that of our leader, Pres. Duterte.
+- Some people think that confidence is something that some people just have. Even though I may look confident strutting in a two-piece on a stage, there are days when I'm so nervous, or I feel like, 'Oh my gosh, I don't know if I can do this.'
+- I may now carry the sash of Miss Universe, but I'll forever be your Miss Philippines.
+- I love working with children because, as an only child, I grew up always wishing for siblings.
+- Once I started music, it just was fulfilling in a way that everything else wasn't.

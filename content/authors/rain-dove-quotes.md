@@ -1,0 +1,106 @@
++++
+author = "Rain Dove"
+title = "Rain Dove Quotes"
+quotes_len = "100"
+description = "the best 100 Rain Dove Quotes"
++++
+- I identify with my body, but I don't identify it as male or female; I just identify it as a vehicle to help me bring my awareness around the world.
+- My sex appeal lies in suits and ties, but my body is femme.
+- I see the wielding of a pronoun as something that can be freeing for some members of society but a shackle to others like myself.
+- Fashion really does change the world. It changes how people feel about themselves. It changes what people are comfortable with sexuality-wise. It changes how people accept themselves.
+- I always had this attitude of, 'They don't get to tell me how I live my life.'
+- My reputation was that I had bad BO, and I was poor, and I was ugly.
+- The way woman is defined by marketable modeling and commercial standards... It makes me feel alien to myself.
+- I grew up having to do manual labor because people always told me that I was an ugly girl. I've never had the permission to be myself except for when I'm doing manual labor. Because in manual labor, it's about, 'Can you pick this up, can you move this here,' and I could.
+- You don't see Victoria's Secret women running around with even short hair. That's too crazy for them.
+- I went out to California; I was pursuing my degree in genetic engineering and civil law at U.C. Berkeley, and I had to pay my way through school. I eventually got a scholarship, which was great, but in the beginning, it was very hard.
+- When someone thinks of the term, 'pretty girl,' they don't typically think of someone who looks like me.
+- The face of beauty literally needs to change, which means the way we think of beauty needs to as well.
+- The biggest problem with the beauty industry is that it treats its customers as if they have a lot to be corrected rather than things that should be highlighted.
+- I'm constantly told in the industry that I don't look like a woman, so therefore, I can't be put in editorials and campaigns because people wouldn't get it.
+- I look like what we have taught society a lesbian looks like. I just do. I have the short hair. I got the muscles.
+- The gender thing doesn't exist; it's a social construct you don't have to fit into.
+- I think the fashion industry is limitless. Not everyone sees me as being part of their vision. But the people that have seen me, some of them have seen things in me that I hadn't even seen in myself.
+- I'm a proud woman. I'm a proud man. I'm a proud whatever people think I am.
+- I had lice in third grade, and my mom shaved all my hair off.
+- The great thing about fashion is that you can create a very unique version of yourself to display to the world.
+- Justice can rarely exist without honesty.
+- Confrontation makes me nervous.
+- When I walk down the street in a dress, people think I'm transgender. The issue isn't that I'm embarrassed to be thought of as transgender: the issue is that people treat transgender individuals so violently, especially if they think it's male to female.
+- A gender capitalist is someone who takes advantage of opportunities given to people based on their perceived sex or gender.
+- I model as male, female, and everything in between. I model as all genders.
+- The reason people wear the things that they wear and accept the standards that they accept is because most athletes make a good portion of their money in advertising and doing campaigns afterwards.
+- What it means to look like a woman or man changes regionally - from mannerisms to clothes to posture to makeup to even your vocals - so I just observe, and I replicate.
+- Gender is a shackle.
+- I believe that everyone who is human is androgynous, but I don't think there are a lot of people that are presented as truly androgynous.
+- I believe that if you want gender, then you can have it. If you want to label yourself, then sure. If you want to use history to describe who you are, then there is nothing wrong with that. But don't limit me on the way that you limit yourself.
+- Not everyone will see your beauty, and not everyone will find you attractive or believe you are worthy of their clothing or publications.
+- I find when I'm perceived as male in society, there is an enormous amount of pressure, but it comes with respect, so it's a balance.
+- I'm more comfortable modelling as a man because I don't get any criticism.
+- I think it's a different kind of activism. Like, women shouldn't have to step into men's roles to be empowered. They should be able to step into themselves. So that's what I try to bring, that we shouldn't be thinking of it as menswear or womenswear; it should be clothing for people.
+- When I put on a dress, people have a lot of questions to ask, so I like putting on a dress just to get people to ask those questions and open up a dialogue.
+- I love the body I have.
+- You have to be satiated with just being authentically yourself at the end of the day.
+- There's something so empowering about knowing I can pick up an axe and split a piece of wood.
+- Fortunately, unlike my teachers and classmates, my parents never forced gender roles or even a ended identity on me. I grew up on a farm, so all that mattered was working hard.
+- I've been told I'd make a great parts model.
+- My very first runway show, I was in 'Vogue.'
+- My body is sometimes this thing I look at and think, 'What strange, alien thing grew around my consciousness?' It's like this weird fungus that's just there.
+- The Olympics represent a global standard - for men, for women, for athletics.
+- The first thing you put on in the morning is your lingerie, and you have to look at yourself and tell yourself that you're beautiful, and that's really hard to do when even a simple catalog can't confirm that you're wearing something appropriately or look good enough.
+- Men are taught they are going to make a lot less in the fashion industry, so they don't bank their entire lives on it. They're very supportive. Women, on the other hand, are more competitive. They always assume I'm trans and say, 'How did they make clothing in your size?'
+- Victoria's Secret is a brand, not a socio-political movement. But at the same time, there is that one-dimensional look.
+- All victims deserve justice.
+- I lost a bet with another model. We were watching a Cleveland Browns game, and she told me I should be a model. I said that models are pretentious people who don't eat. She said, 'If you choose the winning team, I'll do you a favor. If I choose the winning team, you'll go to a casting call.' She won, so I went.
+- Some people say there's a reason that Victoria's Secret wouldn't put me or any woman who doesn't fit within a certain spectrum on the runway.
+- You could ask a lot of people in my childhood, and they'd say I was very prudish about showing off skin.
+- I want to tell people that there are more ways to be beautiful, there are more ways to be handsome.
+- It bothered me that women were taught they can't be beautiful just being themselves - it filled me with rage.
+- When a lot of people wake up in the morning and put on their underwear, the first thing they feel that day is terrible about themselves. When you see that your body is not what other people want, it can be really devastating. I have so many friends that I grew up with who have had serious eating disorders.
+- I'm not gender-fluid. I'm not gender-nonconforming. I'm not gender-free.
+- When I get dressed, I don't think about what other people think. I only think, 'Is this me? Is this my truth? Am I able to move through this world with confidence? Am I able to move through this world feeling that I am I?'
+- Dove is encouraging people to set their own standards worldwide. To be their own unique selves. To not allow others to shame them for accepting their own bodies and styles.
+- I love high fashion. I want to do it, but in order to be able to make a change, you have to be able to talk to the masses, not the 1 percent.
+- I have nothing against the Victoria's Secret Angels. They're all beautiful people, and I respect where they are at.
+- Clothing shouldn't be a societal shackle. It should be art and truth and a way for us to show the world what we want out of it. It's environmental armor.
+- When I first started out modelling, I was binding my chest at gigs to make sure my physique was able to be 'passable' as male. But now, I never bind. It's highly unsafe and unhealthy.
+- I model as a human being.
+- Gender doesn't exist in my book.
+- Designers and advertisers like the idea of my breasts, waist line, long legs, and long neck - but have literally made gagging noises at my facial features.
+- We've established a world that's binary gendered, and I don't want to be disadvantaged at all. If being male is going to be more advantageous than being female, I'm all about it. I don't really think it's that important.
+- I'm not my body.
+- 'Educate, don't hate.' That's my motto. The reason why there's so much pushback against diversity and against minority communities is because people are afraid to make mistakes and ask questions. They feel that they'll be chastised if they use the wrong label. It's too scary for them.
+- The VS Angels are beautiful, but so are you.
+- I grew up believing I was just an ugly girl.
+- I have what some people consider to be a 'hippie' mentality.
+- Illamasqua is a great brand with great people.
+- Being an androgynous model is one thing, but a lot of what we're up against is the way we stand for certain values, such as our sexualities, or if people with our look are common enough to be part of the consumer market.
+- I hope, by never hiding, I can show there is never anything to be ashamed of when we are being our true selves.
+- I saw how much money people spent in the fashion industry, and I was like, 'Oh, man, if someone can spend this much on clothes, they certainly can spend five dollars a month on causes.'
+- I get a lot from people who are in oppressed situations and say they were gonna give up. A lot of people have reached out and said they were in bad situations and really need me to be successful.
+- Victoria's Secret is entitled to brand themselves the way they want to.
+- Modeling is also the first job I've ever had where it's my job to love myself. While many people think that modeling would chip away at your self-esteem, it's actually bolstered mine tenfold.
+- I am a 100 percent determined to be a Victoria's Secret model.
+- I ended up in Colorado working in wilderness fire prevention. My job was to run around with a chainsaw and cut down trees during a blaze. It was really fun. When I first got out there, that's when I realized how passable of a male I could be.
+- Victoria's Secret should highlight real women that actually purchase their clothing. I would love for them to start featuring more real bodies and diverse women. Victoria's Secret has the ability to tell people, 'It's okay,' when they wake up in the morning. They have the ability to change lives.
+- I will conquer Femmeness... And then, I will turn it on its head and redefine it for the world to see.
+- I never wanted fashion to be a part of my life, but it will always be there.
+- My name is Rain Dove, and my pronouns are just a sound. You can use whatever you want.
+- When I'm a gender capitalist in the fashion world, I basically can go to any casting that I want to as long as somebody likes my face.
+- My state of being is just unique.
+- My style really comes down to me trying to be efficient by wearing what's going to get me the most out of the world. Whether that means wearing an Armani suit or an H&M dress, that's what I'm going to wear.
+- The me that is me is not my body. It's an awareness and an experience.
+- My goal is to eradicate poverty. I think we can't have equality until we eradicate poverty.
+- I may not be the conventional girl, but that doesn't mean I'm not a pretty girl. Or that any girl isn't a pretty girl.
+- I feel more comfortable in men's clothing, and I'm a lot of more convincing as a boy than as a gendered female. But with women's clothing, I feel more empowered.
+- Part of the beauty of Victoria's Secret modeling is that they are called 'Angels' for a reason - because they're aesthetics are supposed to be unobtainable. But so are mine. No one could ever be me. Look exactly as I do. Be exactly as I am.
+- Use she, he, it, one, they. You could call me mow mow, and I honestly don't care. A pronoun is just a sound. All I'm listening for in that sound is positivity.
+- To be existing at all is beautiful simply because of how complicated and unexplainable being alive really is.
+- My strength does not come from my clothing.
+- I just see clothing as cloth, and I see it as art, and I see it as a way to express yourself artistically in this world.
+- We the people have the power to decide who we want to see in our advertisements and how we want the world to be portrayed. If we show that being ethical and being diverse is profitable, they're going to market to us.
+- I used to feel guilty about having nice things, because there was so much good I could be doing with that money. I always tell people that, if you can afford what I'm wearing, then you can afford to make a difference. But fashion has taught me that it's not a bad thing to love yourself and take care of yourself.
+- No mater what I wear - whether my choice or not- I guarantee I will be me.
+- During my career path, I've experienced first-hand what people deem as beautiful. It's not me. It's not most people. It's limited and small.
+- When a brand says, 'Our product is great, and we think it'll be great for anyone that loves it, too,' that's the ultimate marketing message.
+- I want people to realize that they aren't their bodies. They are something more than their bodies.

@@ -1,0 +1,18 @@
++++
+author = "Bruce Beutler"
+title = "Bruce Beutler Quotes"
+quotes_len = "12"
+description = "the best 12 Bruce Beutler Quotes"
++++
+- If we think of the immune system as a machine, then we are far from even knowing all of its parts.
+- A mutation can create an alternative form of a phenomenon - a phenotype or trait - and we can learn a lot by seeing this alternative state. Once I saw a mouse with no eyelids. It simply had a membrane over the eyes. I found it fascinating that there is a single gene required for eyelids to develop.
+- My idea right from the beginning, I guess, was to dismantle the immune system one gene at a time so we could track the mutations that cause problems.
+- In college, I had an early introduction to classical genetics from Professor Dan Lindsley, also an extraordinary teacher who influenced me greatly.
+- If you really want to isolate a disease, then you have to isolate the people who carry it.
+- I felt I ought not to be wasting time, and I hurried to graduate from high school to enroll at UCSD. I also hurried to finish college, to go on to higher studies. By the time I was in my teens, I had a strong sense of mission, wanting to discover something important or solve a major problem in biology or medicine.
+- Science is far from the center of the world for most people: even for many with highly sophisticated tastes, interests, and accomplishments.
+- People may have said that without symptoms, you can't transmit Ebola. I'm not sure about that being 100 percent true. There's a lot of variation with viruses.
+- Chance leads to discoveries, and mutagenesis is a way to enhance one's chances of finding a surprise. Often it is the exceptional observations that lead to advances; once you understand exceptions, you understand the whole picture.
+- I grew up hoping that my father might win a Nobel Prize.
+- Autoimmunity is probably the next frontier. The majority of cases of autoimmune disease result from a complex genetic problem that has environmental influences. It is a colossal task for the immune system to maintain tolerance to self and yet be ready to react to everything in the world around us.
+- The nicest part of the prize, perhaps, is the effect on my friends and family. Each of them feels proud and happy to have the relationship with me that they do. In a way, it's as though they received an award too, and I like that very much.

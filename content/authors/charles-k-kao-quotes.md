@@ -1,0 +1,12 @@
++++
+author = "Charles K. Kao"
+title = "Charles K. Kao Quotes"
+quotes_len = "6"
+description = "the best 6 Charles K. Kao Quotes"
++++
+- Maybe it was the home tutoring, or the late start to formal schooling, or an overly cautious and protective upbringing, but in any case, I never became a talkative person. As an adult, I am not always comfortable in social gatherings with small talk. I must have inherited my father's gentle nature.
+- When information is infinite, individual pieces of information are worth nothing.
+- The primary school I attended in Shanghai was a very liberal one, established by scholars who had return from an education in France. The children of leading families were enrolled there, including the son of a well-known man believed to be a top gangster of the underworld!
+- When you are young, you are fervent about the things you believe in.
+- Because of the earlier loss of the two elder siblings, my brother and I lived a very pampered and protected life. Nursemaids kept constant watch. With my parents busy at dinner parties and social events, we only met them as if for a daily royal audience.
+- Ideas do not always come in a flash but by diligent trial-and-error experiments that take time and thought.

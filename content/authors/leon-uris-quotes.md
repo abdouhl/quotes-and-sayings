@@ -1,0 +1,23 @@
++++
+author = "Leon Uris"
+title = "Leon Uris Quotes"
+quotes_len = "17"
+description = "the best 17 Leon Uris Quotes"
++++
+- It is extremely important to know what you don't want to find.
+- I am very proud of this work because it is more about the meaning of the Easter Rising and its relationship to what this whole century has been about, people liberating themselves, freeing themselves.
+- I enjoy writing, sometimes; I think that most writers will tell you about the agony of writing more than the joy of writing, but writing is what I was meant to do.
+- English of course is your major tool, but it is not nearly so important as other aspects of writing for example you have to have some natural ability you can't buy it no one puts it there you're born with it.
+- My first book was rejected nine times. It turned out to be a best seller, Battle Cry? in 1953.
+- I was a terrible English student.
+- I essentially write for myself.
+- Usually a good part of the people trying it end up not making it.
+- I was too heavy to be a jockey and too honest to be a producer, so I became a writer.
+- I have been writing for 50 years and readers still read my first book from when I was in the Marine Corps.
+- So writing is a very, very difficult position to obtain... and retain.
+- Writing, basically breaks down to relationships between people and that is what you write about.
+- You can try to reach an audience, but you just write what comes out of you and you just hope that it is accepted. You do not write specifically to a generation.
+- I have drawn inspiration from the Marine Corps, the Jewish struggle in Palestine and Israel, and the Irish.
+- Research to me is as important or more important than the writing. It is the foundation upon which the book is built.
+- I do not write for an audience.
+- Often we have no time for our friends but all the time in the world for our enemies.

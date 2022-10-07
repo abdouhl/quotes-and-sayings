@@ -1,0 +1,31 @@
++++
+author = "Lorrie Fair"
+title = "Lorrie Fair Quotes"
+quotes_len = "25"
+description = "the best 25 Lorrie Fair Quotes"
++++
+- UNC symbolizes something special. When you get chills you know you belong here.
+- The China game was the best because it took the effort of everyone on the team to survive 120 minutes.
+- That doll looks more like a black man than me.
+- It's all a matter of how agents want to handle their clients.
+- I do feel we have several great keepers on this team. We just need to get them that experience.
+- This season is my most special and most cherished. All my focus is on getting that championship back here.
+- Everywhere you look these days you see Carolina athletes.
+- The national team comes before everything.
+- I'm little, but I love big things.
+- The fact that the games were so close was a tribute to the level of skill in the World Cup.
+- Some people asked me if it was going to be a downer to come back and play on a college team after playing on a world championship team, and I don't think they understand what it is like to play here.
+- Even if you have a bad game, you have to swallow your pride and sign. It takes a little time, but it makes the kids happy. And it makes you feel good, too.
+- I don't know if there are words to describe my motivation.
+- They are always telling us that Carolina Blue is not a color, that it is really Columbia blue or sky blue. But there is no bad blood amongst the teammates. All of our kidding is in good fun.
+- Getting a chance to practice six months against my own teammates, who I consider the best soccer players in the world, there's no way I couldn't improve.
+- Here at Carolina, our World Cup opponents marked their calendars. Obviously the other nations wanted to win every game, but a big upset over the U.S. was something we knew other teams would cherish.
+- Sometimes I come home and still can't believe it's all mine.
+- Michael Jordan always wore his Carolina shorts under his Bulls' uniform.
+- I think there is a special bond between Carolina athletes. A lot of people seem to wear our gear because it is fashionable. They love the colors. It's Michael Jordan's school!
+- Everybody thought I was crazy. They thought I should take the money and run. But there was just something special about being a senior at Chapel Hill. I just couldn't leave.
+- If my soccer career were over, I would still come here because of the people. And despite the fact I've had to skip some school for National Team purposes, I am looking forward to holding that Carolina degree as soon as I can get my hands on it.
+- It's flattering if people think I'm attractive. If it helps, great, but it's not going to get in the way of me wanting to win. That's what I'm all about.
+- I don't know if you could take a whole 90 minutes and say that was the best game we ever played.
+- I think UNC and Lorrie Fair is a perfect match.
+- We knew it was going to be the biggest event scheduled in the history of women's sports, but we didn't ever fathom we would be playing before sold-out stadiums all over the country.

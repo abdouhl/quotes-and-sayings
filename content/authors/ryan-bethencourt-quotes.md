@@ -1,0 +1,26 @@
++++
+author = "Ryan Bethencourt"
+title = "Ryan Bethencourt Quotes"
+quotes_len = "20"
+description = "the best 20 Ryan Bethencourt Quotes"
++++
+- We're starting to see a renaissance of investors embracing the idea that scientists can build businesses.
+- I imagine a day, some time in the not too distant future when children and teenagers will be able to create their own genetically engineered machines, cure the diseases of the old and find new ways to build and extend the capabilities of humanity, moving from programming software to programing the physical world, through biology.
+- Since the beginning of civilization humans have altered our environment and its biology to allow our civilization to thrive - from domesticating plants and animals to building shelter and tools from living organisms.
+- Biohacking could literally change the world as we know it.
+- Simple genome engineering of bacteria and yeast is just the beginning of the rise of the true biohackers. This is a community of several thousand people, with skill sets ranging from self-taught software hackers to biology postdocs who are impatient with the structure of traditional institutional lab work.
+- Biology, it's the technology which builds our world, and we can harness it to shift humanity from a scarcity to an abundance economy.
+- I believe within five to 10 years most larger corporations will switch to greener industrial enzymes, not just for the environment but also for their bottom line.
+- We're at the beginning of the digitization and automation of biotech.
+- We're finally moving out of the realm of solely discussing biology in regards to a drug-based world.
+- Biohackers want to tinker; do fun science; and, in the process, accelerate the pace of biotech innovation.
+- In the past, biology has been a backwater type of activity - a bunch of nerds in a lab. Now the sheer potential of biology to re-program our physical world is a new reality for everyone.
+- We'll continue to heal human bodies through biotechnology but we'll also increasingly feed, clothe and house the world through bioengineered systems. Ultimately, there's no reason why live animals should be used in any part of our food or goods chain and we're working to make that a reality.
+- Biology is greener and, at scale, should be incredibly cost-effective: The cost of goods sold should be little more than the sugar water needed to brew almost anything.
+- People wanted to do science outside of classical institutions like universities or big corporations, so we embraced it.
+- IndieBio's capital, facilities and deep mentoring by a network of biotech specific experts have the potential to spawn the Google's, Facebook's and Instagram's of biology.
+- Our world is built on biology and once we begin to understand it, it then becomes a technology.
+- Biology - DNA - is technology. It is coding. It is physical coding, but still code.
+- The success stories in biotechnology are mainly due to the straightforward application of design thinking in both the business and science aspects of our lean startups.
+- When deciding whether to fund and build a company, we start from basic principles and because many of the businesses and products that our companies create are a complete novelty to us, them and the market, we have to do the math.
+- The potential for synthetic biology and biotechnology is vast; we all have an opportunity to create the future together.

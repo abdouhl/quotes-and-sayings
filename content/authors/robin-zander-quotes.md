@@ -1,0 +1,38 @@
++++
+author = "Robin Zander"
+title = "Robin Zander Quotes"
+quotes_len = "32"
+description = "the best 32 Robin Zander Quotes"
++++
+- Opening for certain acts after so many years of headlining obviously made us resentful. It was kind of hard watching all these bands, who I really believed didn't deserve to be on top musically, going ahead and pushing us out.
+- Bun E.'s a member of the band, but he's not touring, and he's not recording... We've had our differences, but we're all settled up now, and hopefully we can forget about that era. These decisions that Cheap Trick makes, Bun E. is part of.
+- I'm a chameleon. That's my personality in the band.
+- To me, it's like, what's good for me is good for Cheap Trick... and what's good for Rick is good for Cheap Trick, and so on... and that's the thing.
+- We're from Rockford, Illinois, but we've always thought international.
+- I'd say it's harder to play with an acoustic guitar strapped over your shoulder for a few hundred people than it is to play in front of thousands with an entire bombastic band behind you.
+- We've always been kind of an underground band in a way that had the respect of our peers on the road. I like to say we're the world's most famous opening act because we've opened for every huge band on the planet.
+- Country music is worldwide - it's not just Nashville and Texas.
+- We keep some distance between ourselves when we're not working. I think that's a really good thing.
+- I hope the best for anybody in this business. It's hard enough as it is, and of course you don't get much respect from anybody, but when you do, you should appreciate it.
+- I think maybe we were just a little bit overdone. It was saturated. People may have gotten tired of us. We were everywhere, all the time.
+- I'm a casual F1 racing fan. I'm probably more of a stock car, NASCAR guy.
+- I used to collect comic books. I had a substantial collection. I collect records also, but those have gone the way of the world.
+- I think we've got three that we have to play, and that would be 'Surrender,' 'Dream Police' and 'I Want You to Want Me.'
+- Some people ask why we bother to make new music, but we still love doing it.
+- I'm not a guitar collector. I own some guitars because I play.
+- I could do James Taylor, Neil Young, and sound just like them.
+- Early on, I was into David Bowie. Then someone in the band suggested I try a Bryan Ferry type of thing. That's when I started wearing three-piece suits. It wasn't unnatural for me.
+- I've completely embraced life in Florida after growing up in the Midwest. This is home for me.
+- As far as Cheap Trick albums, I like the Red Ant record, which is just called 'Cheap Trick,' from 1997; that's my second-favorite album.
+- My father was indeed a musician, but he was a weekend warrior. He was a welder, actually, and worked all his life at the Ironworks in Beloit Wisconsin, and he played in a swing band on weekends.
+- I was a young boy. A stock car guy used to live across the street from us. He'd work on his car, and both of my older brothers became gearheads.
+- I think all of our records are a progression of some sort.
+- It's rare that anybody gets in the Hall of Fame, and to be nominated is good enough for me.
+- I always liked that about bands like the Beatles. They could be so touching at one moment and then 'Helter Skelter' the next.
+- We've been around, and we've stayed around, and we go out, and people still enjoy listening to us, and we still sell a lot of tickets, so what do I got to complain about? Nothing.
+- 'Dream Police' was in the can and ready to go when 'Budokan' started taking off worldwide, sales-wise.
+- I remember Robert Plant coming backstage after the first show saying, 'Hey, boys, I should be opening for you.' That felt pretty good.
+- Nobody forced me to look any way. I just exaggerated what was already there.
+- Everybody has a country side to them, as I do.
+- After all these years, I still get nervous in front of people. I can't help it. I just, you know, I want it to be a good show, and I want people to get their money's worth.
+- Each record is sort of like a brand new baby, where it's your favorite thing at that moment in time.

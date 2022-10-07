@@ -1,0 +1,98 @@
++++
+author = "Rhea Chakraborty"
+title = "Rhea Chakraborty Quotes"
+quotes_len = "92"
+description = "the best 92 Rhea Chakraborty Quotes"
++++
+- I believe more in looking after yourself than in doing make-up. So if it's skin care versus make-up or taking care of your inner body instead of just looking good, choose the former. You will end up looking good in whatever you wear.
+- As a young actor, everything new and different is an opportunity and worth its while.
+- Doing a film with YRF is like a dream come true for a newcomer. It's like a family here. Everyone looks after you. If you do your work well, they appreciate you. You are in safe hands with such production houses.
+- Being a VJ, I never had an issue being in front of the camera. I'm totally at ease and that's my saviour.
+- Girls should empower themselves and be strong enough to protect themselves.
+- I like Vidya Balan, Kareena Kapoor and Anushka Sharma.
+- Apart from trimming ends, I haven't really cut my hair.
+- I have seen many times in 100 Crs films there is no content, in short only money is wasted.
+- Even if you are an established actor's son or daughter, you need to work hard.
+- I don't think of any movie as big or small, after all what matters is content of the film.
+- My nickname is Mishti... I am named after mishti doi!
+- I have studied in 14 schools.
+- I don't really have a fitness regime. I swim regularly and hit the gym once in a while but I also eat a lot.
+- I am fashion conscious but not to the extent that girls are. I am just fashion conscious to the point where I want to look presentable and nice when I walk out of the house.
+- People told me, 'you can't do intense characters.' Some said 'you look too commercial,' and I would wonder what a 'commercial look' is.
+- I am very public about my love for the people in my life, whether they are girls or boys.
+- I am continuing to do lead roles and that is where I am actually headed, but doing cameos is also a fun experience.
+- I was on a show called 'Teen Diva' which was being aired on MTV. I talked a lot on the show and the boss there thought I was good for VJ-ing since I spoke so much.
+- I feel Prawaal Raman is an amazing director with great films in his pocket like 'Gayab.'
+- As actors, we do have certain powers. I want to use them for the right cause.
+- When it comes to opportunities, your father or mother can only set up a meeting for you. However, your opportunities will only materialise if the star kid is talented or suits the role.
+- MDKM' has to be the right launch for me. I was pampered a lot on the sets while I bullied everyone.
+- I love my silver payals which I've been wearing for years now.
+- I love all my friends and I don't hide that.
+- I am on good terms with whoever I have worked with. We never discuss films. We discuss life and what we had for lunch!
+- I started my career with 'Teen Diva,' and that helped me learn anchoring. Fortunately, I got work after the show ended.
+- I have realised taking a stand is tough, but what's tougher is maintaining it and letting go of all those who doubt your intent.
+- Back during my VJ days, I was overconfident as I was on television and was earning money very early in life.
+- I think some star kids have it even harder than outsiders, because the pressure is too much.
+- Sometimes I just rub the fruit that I eat for breakfast on my face to hydrate it and give it a nice glow.
+- When you're a VJ, you can say whatever you want, dress whatever way you want to. You play your own character.
+- I want everyone to understand that as an actor you need to be able to play different roles, be versatile even in terms of your personality.
+- I never did any acting in school. There was only one play in which I participated and it had no dialogues for me.
+- There is a somewhat different struggle when one comes from a film family. If you don't work hard enough or are not talented, you won't make it.
+- I do actively look out for any kind of work, whether it's long form, short or web. I just look out for interesting characters. It doesn't matter where it is.
+- Home remedies are the best.
+- People eat to live but as far as I am concerned, I live to eat and it adds an extra glow to my skin.
+- It's so smart to include pockets in gowns.
+- I had auditioned for 'Band Baaja Baarat' but did not get selected. I was feeling bad, was upset. But I think certain films are meant by destiny. And that film was not meant for me.
+- The industry confines us in boxes, but we have to prove that we are women of substance.
+- Your fashion depends on who you are and you should wear clothes according to who you are. You should also be comfortable in what you wear.
+- I would love to do ten films a year.
+- Alia Bhatt's role in 'Udta Punjab' is something I would like to do. Nobody can replace Alia in the movie, and she did a fabulous job, but I would love to do such roles.
+- All women should become Hercules!
+- Patience is the name of the game in Bollywood.
+- It's quite a layered character that I portray in 'Jalebi' and I needed to deviate and cut-off completely from the world to get into a different zone as a character. I'm really glad it proved beneficial and worked to my advantage.
+- My father was in the Army so I have lived all over India.
+- Even for digestion, I boil aijwain, jeera, ginger and lemon in water and drink it all day.
+- I never even knew I would end up becoming an actor. It was coincidental for me. Once I did it, I realised it's what I really want to do.
+- I can be the girl next door, be the sexy girl, be an action girl. As an actor, this is something that people need to see.
+- Ram Kapoor is super chilled out. He's so humble. He's very passionate towards his work. You get to learn a lot from him.
+- My journey has been beautiful, more than what I could ask for. Of course there have been ups and downs but I've been fortunate and grateful for this journey. It has taught me a lot, I've grown, become a better actor and a human being.
+- Sonali Cable' is not a low budget film, it's a normal budget film.
+- For me Salman's the most romantic and the best action hero there ever could be. I'm so attracted and mesmerized by him! For me he's the ultimate superstar, I can just watch him for hours.
+- I think a woman's role is not just confined to being a homemaker and have babies, but a lot more.
+- The entire experience of 'Sonali Cable' has been beautiful. It has been a long journey for me, both physically and emotionally and a great learning experience.
+- I hope to do meaningful and different types of roles.
+- There are so many people who are trying their luck in films and only a few of those actors get to do films and choose to be an actor. The stakes are always high here. It's hard in the sense that it's very uncertain.
+- I am not defined to be in any mould and I can be whatever I want to be.
+- I hate it when people match their clothes, shoes and accessories.
+- I don't do any work that I am not very convinced about. That has always been my stand.
+- I was preparing to get into one of the IITs when I was in school. I was a good student.
+- If I was offered a Salman Khan or a Shah Rukh Khan film, I would have signed it. No one says no to that.
+- Everyone thinks I am Punjabi till I tell them my surname Chakraborty.
+- It's always a pleasure and a blissful experience to work with Yash Raj Films banner.
+- Of course nepotism exists, but if star kids are not good at what they do, they won't last.
+- According to me films like 'Sonali Cable' are career changing films and only few get such chance, I am happy that I did this film.
+- Both are two different things. As a VJ, you are yourself. But as an actor, you are playing a character that you want people to fall in love with.
+- Chocolate is there in my name itself, so how can I stay away from it?
+- I'd like to be Marilyn Monroe for a day.
+- When you watch films, there are so many different types of characters you want to portray.
+- Yeah, I am fun loving. I do crack jokes at times too.
+- I want to work with Farhan Akhtar.
+- I drink lots of water and avoid make up as much as possible. I also make sure I get a good night's sleep.
+- People must at least do basic squats, yoga and surya namaskar every day to keep their mind and body fit.
+- I dress according to my mood. Some days I don't want to dress up, while some days I want to look great and so I make an extra effort to put on some Kajal and beautiful dresses, but it all depends on my mood.
+- I do not follow a charted diet plan. I eat everything.
+- I learned that you have to fall in love with what you are doing and then you will enjoy it.
+- When I was in MTV, I wasn't really looking out to do films.
+- Actors do all kinds of roles, but once in a while, we also want to do a meaningful film.
+- Bank-Chor' is a rollercoaster ride and I'm delighted to be on it.
+- I think it would be interesting to know what it feels like to be the most beautiful woman in the world.
+- I am a Bengali. My mother is from Mangalore so it's a mix of both cultures at home.
+- I don't think anyone can make it in Bollywood without talent and hard work and it applies to all fields.
+- A lot of people advise me about the things that I need to do and shouldn't do, but I feel there is no right or wrong in the industry.
+- The problem with online shopping is that you cannot feel the fabric.
+- I don't believe I am hot. But I think if you keep your body in shape, work out and look after yourself, it helps.
+- If a guy is going to get paid and will be covered on a magazine cover for revealing his relationship status, then girls toh definitely should get featured in two magazine covers and many more things to reveal the relationship status!
+- Mahesh Bhatt has been a great influence in many people's lives. The vibe he brings onto the set is very positive.
+- I think no one really knows for sure what will work at the box office. Even big production houses don't know what will do well and what won't.
+- I've always had long hair and it's something I'm proud of.
+- Through the auditions and the process of 'Sonali Cable,' I realised that I want to be an actor.

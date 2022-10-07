@@ -1,0 +1,29 @@
++++
+author = "Louis Leakey"
+title = "Louis Leakey Quotes"
+quotes_len = "23"
+description = "the best 23 Louis Leakey Quotes"
++++
+- I have examined the stomach contents of seven aardvarks.
+- The Dalmatian breed of dog has many primitive characteristics.
+- Raising funds for my fourth expedition proved to be very difficult.
+- There is tragic evidence to show that the paintings at the French prehistoric art sites are deteriorating.
+- The author knows just what he wants to illustrate and how he would like it to be done.
+- Far too often animals are put to sleep when they could be saved through proper care and nursing.
+- To save an animal's life in order that it may suffer indefinitely is something I would never condone.
+- Sometime during the many millions of years that have elapsed since mammalian faunas came into existence, some sort of island crossed from West Africa to South America.
+- The majority of people in Angola were not provided with any kind of schooling and were completely illiterate, very badly paid, and treated almost as slaves.
+- I put a bullet into the back of the crocodile's neck just behind the head, thus killing it. If a crocodile is hit in any other part of its anatomy it disappears into the water and is irrecoverable.
+- Most Kikuyu marriages were arranged on the basis of what is described by anthropologists as the bride price.
+- Colonial governors and senior civil servants are not easy people to argue with, and I was not popular because of my criticism of the colonial service in Kenya.
+- I kept an open mind on the question of whether a hominid had been present in Europe in the early Pleistocene.
+- The trip I made to Angola to study the prehistoric contents of the gravel beds as a means of deciding the age of the deposits and their economic potential was the first time prehistory had ever been used for such a purpose.
+- Sometimes string figures were used to illustrate stories, as in the case of an Eskimo example that depicts a man catching a salmon. Sometimes they had magic or religious significance.
+- I saw what looked like another fallen tree in front of me and put my foot on it to cross over. At that moment it reared up in front of me-the biggest python I had ever seen!
+- When my father arrived in Kenya, he had found the Kikuyu way of life similar to that of the British at the time the Romans invaded England 2,000 years ago.
+- At Olduvai, for 20 years, Mary and I had investigated and made a general survey of the overall geology.
+- South Africa had a long record of studies in prehistory, going back to the end of the last century.
+- I felt that in time simple stone tools would be found in early Pleistocene in England.
+- We set up the promised clinic for the sick and wounded Masai.
+- Although we followed that hyena for the best part of half an hour, we never caught up with it.
+- The Foxhall jaw has now been missing for many years.

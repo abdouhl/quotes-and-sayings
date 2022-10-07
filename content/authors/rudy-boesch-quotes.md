@@ -1,0 +1,41 @@
++++
+author = "Rudy Boesch"
+title = "Rudy Boesch Quotes"
+quotes_len = "35"
+description = "the best 35 Rudy Boesch Quotes"
++++
+- Everybody recognizes me, so I can't walk down the street without being stopped.
+- I hang around military guys and like it.
+- The best life in the world. 'Survivor' was nothing compared to what I did, and it's just that way.
+- Joining the service is a great thing. I think everybody should join the service. It is a great life and we do exciting things.
+- Keep yourself healthy. If you got your health, you can do anything. You don't need no money, you don't need nothing.
+- If I start something I am going to finish it.
+- One of the biggest things that hurt me during 'Survivor' was I found out girls can run faster than I can. That really burned me up.
+- I'm not getting an Emmy.
+- I was born military. I made up my mind right away, 'Im gong to do this for the rest of my life.'
+- My word is my word, and my word is good.
+- I just hate getting old - it's slowing me down.
+- I got an action figure. You know, like G.I. Joe. What I seen of it, they got to put a little gray in the hair.
+- I blew a chance at a million dollars.
+- It is a good life. I would do it all over in a minute if I could.
+- Ain't nobody more famous than me. I am my own hero and everything else. If you are a SEAL you can say that.
+- I was with much nicer people in the Navy. On Tiga, you had a lesbian, a hippie, a homosexual and this neurologist who shaved his whole body every third day.
+- I was at the Emmys, and someone told me that I'd gotten more applause than Brad Pitt. I said, 'Who's he?'
+- Every place I go, Im recognied, and its pretty hard to just sit by yourself.
+- The only reason I'd bring a Bible out here is if I needed toilet paper.
+- All I do is get up in the morning and go where I'm told to go.
+- Join the military, there is nothing better. You get to travel a lot.
+- I took charge of the rice when I got on 'Survivor.' I said, 'I'll take charge of this and it'll last till the end.' And it did.
+- I was never destined to be a movie star, and I'm happy not being one.
+- Whatever my agent says to do, I usually do.
+- I have done a lot greater things than 'Survivor.' Going through SEAL training was much harder than 'Survivor.'
+- I'm not much at saying patriotic things.
+- I got out of the Navy in 1990.
+- Well, I think one of the big things wrong with kids these days, a lot of them don't have a family. A lot of them got one parent and there's quite a few that don't have any parents and that's where the whole problem is. There's no family life, no father to slap 'em around when they need it.
+- Actually, I can take a roller coaster or leave it.
+- I don't jog anymore 'cuz my knees hurt and stuff like that. I walk a lot and I am really slowing down walking.
+- For a homosexual, he's one of the nicest guys I ever met. And he's good at what he does. You know, he's got leadership ability, and if these people here would listen to him, he would take 'em a long way. But anyway, me and Richard got to be pretty good friends - not in a homosexual way, that's for sure.
+- 'Survivor' was not fixed. There's no way to fix 'Survivor.'
+- When they picked the people for 'Survivor,' they wanted 15 fouled-up people and one normal person. I was the normal person, in my opinion. I'd have bet a million bucks I was gonna win.
+- I'm glad to see a lot of patriotism in this country - I haven't seen that since World War II.
+- I was hoping I could die of old age in the military, but they wouldnt let me.

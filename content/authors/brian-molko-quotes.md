@@ -1,0 +1,29 @@
++++
+author = "Brian Molko"
+title = "Brian Molko Quotes"
+quotes_len = "23"
+description = "the best 23 Brian Molko Quotes"
++++
+- A lot of what has pushed me forward is desire, and I have expressed that in my songwriting - perhaps because it's safer!
+- The extreme side of my personality, which I chose to sort of display, was snowballing and getting a life of its own. It was like looking in a mirror and not recognising myself.
+- I'm a weirdo magnet, but I'm handling it better than I used to.
+- Imitation is the highest form of flattery, but clones kind of get it wrong because we are promoting individuality and being proud of being yourself.
+- We live in a strange bubble.
+- Dresses, I find, are impractical in social situations, but I enjoy wearing them a great deal on stage.
+- The more you'll dress up the more fun you'll have.
+- I feel very comfortable with the way I look, and I feel very comfortable with the kind of confusion that it creates in people's minds.
+- I'd be interested in finding out if there is a light you walk into, and if you do meet people from your life and walk hand in hand with Jesus. I would hate for my death to be tragic: I'd like to be old when it happens. But hopefully a young death is unlikely.
+- I used to fly off the handle in everyday life, but I'm a little calmer now.
+- Being so honest in my writing is cathartic.
+- I'm tired of being around men all the time. I'm going to start a band called Skirt with three girls and I'll play the guitar and sing backing vocals in drag. I went window shopping when I was in New York, saw a lot of amazing dresses.
+- Music is about expressing things you can't in everyday life.
+- I've always found music that is carnal very attractive but not in the most obvious way.
+- Placebo is music for outsiders, by outsiders and our gigs are like conventions of outcasts, which is cool.
+- I refuse to be held responsible for bringing back a wave of pasty-faced people into the world.
+- I believe very strongly that when it comes to desire, when it comes to attraction, that things are never black and white, things are very much shades of grey.
+- There's a hell of a lot of freedom in this rock and roll circus... it's where all the freaks go - it's the environment for me.
+- So, then you find yourself in a situation where you have to do things because they're on offer to you, because you don't have much self-respect left. You just can't say no, even to something that you've never done before. You just can't help yourself.
+- I guess the line between being paranoid and being a rock star is smaller than one would expect.
+- My mouth has a tendency to get me into trouble, but because I'm so small and I take on people who are lager than me. If someone punched me, I'd get my drummer beat them up.
+- I had a great deal of arrogance and a great deal of bravado, but I think the bravado was brought on by a huge insecurity.
+- I love being a freak. It's great!

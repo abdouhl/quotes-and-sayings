@@ -1,0 +1,14 @@
++++
+author = "Christine O'Donnell"
+title = "Christine O'Donnell Quotes"
+quotes_len = "8"
+description = "the best 8 Christine O'Donnell Quotes"
++++
+- Americans want our leaders to defend our values, our culture, our legacy of liberty and our way of life, not apologize.
+- In order to restore our country to the principles on which it was founded, we need to elect leaders that believe in the principles of the party, not just the power of the party.
+- We're not trying to take back our country. We are our country.
+- I never had the high-paying job or the company car. It took me over a decade to pay off my student loans. I never had to worry about where to dock my yacht to reduce my taxes.
+- It's time to replace career politicians with citizen's politicians. It's time to elect people who are going to stand up to the Washington elite and stand up to a White House and Congress hell-bent on ramming socialism down our throat.
+- The conservative movement was told to curl up in a fetal position and just stay there for the next eight years, thank you very much. Well, how things have changed.
+- And I'm asking for your support because I want to defend America, as I've said before, from becoming a socialist nation.
+- Will they attack us? Yes. Will they smear our backgrounds and distort our records? Undoubtedly. Will they lie about us, harass our families, namecall to try to intimidate us? They will. There's nothing safe about it. But is it worth it? Well, let me ask you. Is freedom worth it? Is America worth it?

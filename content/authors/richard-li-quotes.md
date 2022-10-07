@@ -1,0 +1,13 @@
++++
+author = "Richard Li"
+title = "Richard Li Quotes"
+quotes_len = "7"
+description = "the best 7 Richard Li Quotes"
++++
+- Doing ventures is great - I'm talking economics now - if you've got a rising market. It's wonderful. If I hadn't got HKT, I would have been just as happy. Because there's a price for everything. And to overpay for something is awful.
+- If you look at some of the smaller capital markets in Asia, when they want funding, they either come here to Hong Kong or they go to California, the mecca of the Internet, because they can capture the liquidity and then move on and do what they want to do, which is develop a business.
+- I want to create something like Sony. Not in terms of manufacturing products but creating something that is innovative, makes money, improves peoples' lives.
+- If achieving the Hong Kong dream becomes a vanishing hope, then our society will suffer. What would the Hong Kong dream be? It's no different from the American dream, whereby an everyday man on the street who works hard would be able to make good savings and use those savings as equity for their future small business.
+- I've spent a good part of my life in Silicon Valley, California, and I really like that place.
+- We had been busy building up fibre infrastructure under the ground in Hong Kong and underneath the homes of people, so when we launched IPTV, it was relatively smoother sailing than in other territories.
+- I believe it's important that Hong Kong does not become another Chinese city.

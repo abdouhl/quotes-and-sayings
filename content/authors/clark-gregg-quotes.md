@@ -1,0 +1,33 @@
++++
+author = "Clark Gregg"
+title = "Clark Gregg Quotes"
+quotes_len = "27"
+description = "the best 27 Clark Gregg Quotes"
++++
+- I thought there would be more time in my trailer to write during 'Agents Of S.H.I.E.L.D.,' but I seem to be always flying in a harness and conquering supervillains instead.
+- The thing is, I love a great death scene - no good actor doesn't. Sorry, any actor, I should say.
+- There's nobody who loves being around actors working more than David Mamet, especially actors bringing his tremendous dialogue to life. I've never seen a movie director who was happier to be directing a movie than Dave.
+- Apparently, Agent Coulson is a representative or an avatar of all the geeks. And there is so much love for Coulson and fan art of Coulson.
+- Sometimes being an actor is being a song in someone else's mixtape, so I really understand why more and more actors are making films of their own.
+- I was an 'Ironman' fan. It was in the '70s. I definitely liked comics and drew a lot of panels on my notebook when I should have been studying - probably why I ended up in the arts.
+- The technology actually seemed to come at just the right time to make the Hulk - Mark Ruffalo was really able to play both characters.
+- If the day comes when I'm no longer playing Phil Coulson, I'll very gratefully bid him farewell, because it's been an incredible journey, but I've learned that it's best to just be grateful for where I am and make the most out of that opportunity that day.
+- New York is the perfect place for a film festival because there's already so much energy and life here, and New Yorkers love movies.
+- 'The Avengers' is exciting on the level 'The Matrix' or 'Indiana Jones' was when I was kid. I think it will be timeless.
+- I had worked in this New York theatre company for my first eight or nine years out of college, acting and directing there, and I'd begun to write a little bit.
+- When there wasn't a lot of work, I wrote a screenplay, 'What Lies Beneath,' which got noticed and got me more acting jobs. As I got more jobs, I was able to make my own films. That ethos of making my own work has provided me with a lot of opportunities.
+- In Jiu-Jitsu, every instinct you have wants to do everything but relax or breathe when someone's attacking you, and learning that takes a long time. I think that's why a lot of people stop at blue belt because it's really hard to do. It's hard to take that next step. It took me a long time.
+- I like anything Jennifer Lawrence is in. She's so beautiful.
+- There's something about the superheroes and the idea behind their relationship with humans, whether it's a metaphor for the better part of ourselves, or the more flawed part of ourselves. So it seems to really be our own pop-culture version of Greek mythology.
+- I was really sad after 'The Avengers' when I realized I was not going to have a part in 'Thor 2' or 'Captain America: The Winter Soldier.' But I'm not arguing with my fantastic plane and my really cool car.
+- Joss Whedon and all the writers of 'Iron Man' and 'Thor' found a way to keep Coulson saying something that keeps you guessing. I'm really lucky because a lot of people play agents and don't get nearly as much fun stuff to do.
+- I would want the going-back-in-time superpower, so I could take back the stuff that I say and gets me in trouble with my wife.
+- When I moved out to Los Angeles to get some film and television work, and couldn't get any... I became a little isolated, a little terrified, and it's a good place to get writing, because you're so bored. So I wrote a few screenplays, and people notice those.
+- All the PG-13 superhero movies are depriving me of the gore that I need.
+- I was lucky enough to work a little bit with Steven Spielberg.
+- I feel like every time you think you really understand how deep the seductive power of evil is, it always proves to be one step deeper than you thought possible.
+- I think about it, and I realize there's been some version of a Batman or Spiderman or Superman franchise since I was a boy, since before I was a boy.
+- I was a football player at college and dislocated my thumb. I was out for a bit and passed the theatre and saw some lovely drama students walking into an audition for 'Much Ado About Nothing' and thought: 'That's what I'll do when I recover.' I joined that production and was hooked.
+- CBT is really a miracle. I've seen it help a lot of people, and one of the reasons I'm speaking out is that I don't feel like enough people know it. Through my work, I constantly come across other people who have various forms of anxiety or panic - it's much more common, I think, than people realize - and not all of them even really know about CBT.
+- The cool thing about directing is, whatever cool thing works in the scene, it's still making the episode be a great story, and everyone's working toward that goal, so it doesn't much matter where it's coming from.
+- I started out doing theater in New York. I used to go to Shakespeare in the Park a lot.

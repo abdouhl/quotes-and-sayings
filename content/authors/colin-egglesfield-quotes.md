@@ -1,0 +1,14 @@
++++
+author = "Colin Egglesfield"
+title = "Colin Egglesfield Quotes"
+quotes_len = "8"
+description = "the best 8 Colin Egglesfield Quotes"
++++
+- It's sad to see such institutions as 'All My Children' and some of the others, like 'Guiding Light,' which have been on the air for, like, 40 or 50 years. It's almost unfathomable to see that they actually aren't going to be on the air anymore. It's really sad.
+- The reason I love kids so much is because they're so honest, so you know right away if they like you or they don't.
+- There were days when I was on the last $10 in my account, and I was freaking out about paying rent or buying groceries. Then you book a commercial, and you're good for another three months.
+- As a kid, I was always very shy growing up - I wasn't very good at articulating my thoughts or my feelings. Now that I'm older, I found acting to do that. So it's been an amazing way to sort of express who I am.
+- I think it's incredibly important for kids to be able to express who they are and feel like they can be themselves without being persecuted for it or bullied for it.
+- The best thing about running is that you can eat a lot and still feel OK.
+- A family member of mine was diagnosed with lymphoma, and the treatment they're getting wouldn't exist if it weren't for the work that Team in Training does. I want to support them.
+- I've been struggling so long with my career that I haven't been in a position to invite a woman into my life. It would have been like, 'Hey, come live with me and my two roommates, and let's make ramen noodles tonight.'

@@ -1,0 +1,100 @@
++++
+author = "Casey Affleck"
+title = "Casey Affleck Quotes"
+quotes_len = "94"
+description = "the best 94 Casey Affleck Quotes"
++++
+- When I like someone a lot, I get scared that I'll let them down. My fear of sucking is worst when I feel like someone thinks I'm good.
+- If I can't see the humor in it, how am I going to be funny?
+- I think there's a certain amount of pressure depending on how demanding the part is, depending on how great the material is. I feel a certain amount of pressure to rise to the occasion.
+- I sort of fell in love with it when I was in high school doing theater. And so, as sometimes happens when kids - they graduate high school, and people turn to them and say, 'So what are you going to do with your life?' I thought, 'Well, I like being onstage. I like being an actor.'
+- I'm tired of answering questions about myself.
+- I love to think about and therefore talk about why people do what they do. That's kind of why I like being an actor.
+- I had a public school education - 3,000 kids when I was there. And there were a lot of teachers who would just sit there. You'd come in and sign your name and the teacher would just sit there at the head of the class and you would literally just have to stay in your seat for 40 minutes and that was the only thing you'd have to do in class.
+- I believe that any kind of mistreatment of anyone for any reason is unacceptable and abhorrent, and everyone deserves to be treated with respect in the workplace and anywhere else.
+- When a performance isn't working, it's usually because the actor is trying to do something and they're not able to express their idea very well. It's a muddled expression.
+- A lot of the times, I end up having to do jobs to sort of pay the bills.
+- The first thing that I remember auditioning for was a weather commercial in Boston, and I got the job. The idea of the commercial was that you ought to watch the weather in the morning so that you know what's gonna come later in the day.
+- I wish I had more control over my career, but making movies is something you do with lots of people.
+- My mom has a good way of engaging me in a conversation about the choices I make, listening, being objective and open-minded, and respecting those choices so long as they don't put me in danger.
+- I don't want to be known as someone who is deliberately trying to do things that are not commercial! That is not a good reputation to have when you're trying to be a working actor.
+- If you look at the paths of other actors, most people have a curve where you hit it and there's a time where you make a lot of money and they let you make your movies, and then they take it away and it's gone.
+- Does celebrity interest anyone? It's definitely not appealing to me. I think anyone who's had any real exposure to it would probably regret ever having even entertained the idea.
+- I guess people think if you're well-known, it's perfectly fine to say anything you want. I don't know why that is. But it shouldn't be, because everybody has families and lives.
+- When I was young, I asked my priest how you could get to Heaven and still protect yourself from all the evil in the world. He told me what God said to his children. You are sheep among wolves. Be wise as serpents, yet innocent as doves.
+- I feel like whenever I do a movie, people think, 'Well, that's good, but that's probably the best he'll do.' I sort of bang and bang and kick in a door, and people say, 'Now a million doors will open for you.' And they don't.
+- In New York, as long as you're not peeing in someone's doorway, everyone thinks you're a gentleman. I feel like my behavior goes over better on the streets of New York.
+- I was 14 years old when my dad went into rehab, and he stayed there for a long time - I don't know, 10 or 12 years maybe. He first was there as a resident, as someone trying to get sober, and it took a long time; and then he stayed on helping people get their GED.
+- I do think people do pick movies that reveal something about them that they aren't always aware of. If you ask them what kind of an actor they think they are, they'll probably tell you something different than what they've actually done.
+- I've seen 'Lord of the Rings' and 'The Hobbit' about 25 times each, so I like all kinds of movies, but I'm drawn, as an actor, to dramas about humans living lives I can relate to.
+- People should try eating no animal products for just one day a week.
+- I live in New York full time. I can't live in L.A., because I fear people think I'm a vagrant there. If you show up in L.A. with your shirt inside out or socks mismatched, people start putting change in your cup.
+- Sometimes I pick parts because I think, 'OK, it scares me,' and that's an indication it's going to be a good movie for me to do. Sometimes that leaves me in a terrible... Well, it doesn't always pan out, you know?
+- Sometimes being an actor is kind of demanding in very different ways.
+- Talking to other people about a part is not helpful for me. It's such an internal and complicated and still kind of mysterious process.
+- Why can't people just say they were moved? Why do they have to say it's sappy?
+- Celebrity never really served me that well; it serves other people well.
+- I think David Letterman is a genius. Night after night he is funny and smart. He seems to really enjoy his jokes. They seem connected to who he really is. I like watching him, and there is no one better at turning an awkward moment into something very funny.
+- They wanted me to do Scream 2, and I hate talking about movies I turned down, because it sounds judgmental. There's nothing wrong with horror movies. I enjoy watching them. The main reason I turn a part down is if I think I won't be good.
+- The first dog I had was owned by an abusive couple. He was very skittish. He wouldn't let me hold him. It was explained to me that it was because of how he was treated.
+- I was really short in high school. I was stuck on the bench in the baseball team, so I just thought I'd try out theater, and that was the last time I did sports.
+- I am in the process of starting a nonprofit organization that gives rescued animals a home in a simulated wild environment and, for those who have been tested on, who are disabled, aggressive, etc., their own space to live out their days.
+- I love getting ready to do a scene, and thinking about it, and talking about it. But the rest of the time, I'm so nervous and obsessed. I'm just tearing my hair out in the trailer. The whole time I'm really tense.
+- Sometimes you read something, and there's a part of you that remains in an analytical actor place. Am I going to do this movie? Is this a good part for me? Is it not? Can I bring something to this?
+- You can start with a great director and great actors and have a great script - and it still just doesn't work. It's kind of a mystery how that happens.
+- What is acceptable in our culture, I think, is really detrimental. I think we ought to have a little more ownership over the kind of material and the content that we put in front of people, especially young people.
+- I've done so many movies that are bad, with material that's so shallow, that you instantly scratch the surface, and there's nothing underneath.
+- I don't really care that much about being a matinee idol.
+- My family would be supportive if I said I wanted to be a Martian, wear only banana skins, make love to ashtrays, and eat tree bark.
+- Some people go to their job. That's the job they have; they have to do it. They hate their boss and their coworkers, this and that. It's hard to get along.
+- The first movie was mostly about George and Julia. This one is mostly about me and Catherine and our love story and our whole history. So it's a very different movie.
+- I feel like I've been picky through the years and would do one movie a year or one movie every two years, and I want to work a lot more. So if I can find something that just happens right away as a director, I'll do it if I really love it, but otherwise, I want to keep working as an actor and getting better.
+- If you have kids, you feel everything stronger. It's like someone turning the lights on in your inner room.
+- It's part of the actor's job to show up with a head full of steam, to have their own take on this. So that way, you're not relying on, 'OK, tell me how to do it.'
+- After high school, I drove out to L.A. with a friend of mine who had just graduated also, and I started auditioning. I got an agent, but it was all 'Saved By the Bell' auditions.
+- I feel like there's an obligation - this sounds terribly pretentious - if you're an artist, to share your own experience in a way that's truthful and honest: 'This is what I have to share; this is my life.'
+- In a movie we try to deceive. In theaters, as they say, the deceived are the wisest.
+- I've written some love letters in my life, I can say.
+- I like studio movies; I love big commercial movies.
+- Things are never crystal clear, but at some point, they reveal themselves to you. You just hope it happens when you're still on set.
+- I've chosen the parts that have interested me and parts that I thought I could do a job with but also were challenging and a little bit scary.
+- It's really fun when a scene doesn't work.
+- I have friends who remember seeing fish hauled onto a boat's deck and beaten to death.
+- I'm tired of playing the brat.
+- There isn't any sibling rivalry; I think we have very different, very individual career paths and have never really thought that way. He's my brother. I only have one, and we're very close. We wouldn't ever allow that stuff affect our relationship.
+- Truth is, there's never really been anything so horrible said about me that I haven't either thought of or said to myself.
+- After I left LA... it was like waking up. And so I moved back east and stopped auditioning.
+- I believe veganism can be beneficial for the individual and the world, and of course the animal, but belief is like laying in the dark with someone and telling them you love them and hearing nothing back. So I've never had the confidence to get on a soapbox and tell someone else what to do.
+- Is it really every 10 years that you get to work on a great movie? That can't be.
+- I moved out to LA, got an agent, started auditioning. I didn't know anything about how it worked. And since I was really bad, luckily, I didn't get any of those parts.
+- What I learned on 'To Die For,' I learned over the years that followed, when some memory from the shoot would bubble up to the surface of my mind, and I could see it from a new perspective. I would usually cringe when that happened.
+- Part of the criteria for doing a project is that it's scary or challenging because at some point you go, 'It's too scary; it's too challenging. I don't want to do it.' But things that seem easy are never any fun.
+- I knew it would be hard work, but that's the reason you're an actor. If you're a bricklayer, you don't want to just show up at someone's house and put a little row of bricks around their garden. You want to build a building.
+- Lots of movies don't kind of work as well as they do on the page.
+- If you're a director and someone shows up and asks how I do it, I'd imagine, as a director, you're like, 'Man, I've got a million decisions to make; can you show up with an idea for the scene?'
+- I didn't have to audition. That's common, but it had never happened to me before. Normally, I hate auditioning. I need to stew and think... let the character develop and grow inside me.
+- I have a very bad relationship with mice.
+- For people who have... had curve balls thrown at them, it is easier to digest change and digest change in other people. Change only scares the small-minded. The small-minded and me.
+- My first exposure to TV, film, theater, the idea of what acting was, is I was a little kid, and my mom's best friend was a local casting director in Cambridge, Mass. Her name was Patty Collinge.
+- In my movies, there has been little to do in the way of animal rights. I have never worked in a movie with animals. No horse-riding, no trained dogs, lions, bears. A few actors, but what could I do? We had to have them.
+- The idea of someone not liking me or not liking my movie was always easier to deal with than someone really liking it. I don't know why.
+- It seems like they never say anything bad about actors, they just pump them up.
+- When you're the younger brother, usually it's not that common that you're having these experiences that your older brother is in awe of.
+- I get very sentimental, I get very nostalgic, and when I live in a place, I instantly put down way too many roots.
+- When I was a kid, we didn't really leave Cambridge, which was the town where I grew up in.
+- I get offered a lot of the same type of thing... The teenage slasher movies.
+- I feel really lucky to have been able to not only have him as a brother - because I love him and he's such a smart guy and an interesting, fun guy - but also have a friend to go through and chart and navigate the waters of Hollywood, which can be kind of alienating and lonely at times just because everyone is always... you know what it's like.
+- Most of my acting jobs have resulted in a series of mortifying revelations spread over years and years following the shoot.
+- We obsess about celebrities. We create them, build myths around them, and then hunt them and destroy them. I don't know where it's taking us or what it means, but I know we do it. I have seen a lot of it myself.
+- I have been lucky enough to work with people who inspire me, who I admire and respect, and who have made films - before working with me - that I continually return to over the years because they are so good.
+- Movies are collaborative, and that's part of what makes it a great experience. They're different from a lot of other art forms, but also it makes it seem like when you see the final product, you go, 'I wouldn't have done that. I wouldn't have done this.'
+- I've run into people who say, 'I know what you're like: You're a Boston guy.' That's so weird. This person who doesn't know anything about me thinks they know a lot because of the city I grew up in, which, to me, is a meaningless label. There are all kinds of people from Boston.
+- I have no desire to be famous at all.
+- The four movies I can remember seeing as a kid were 'The Elephant Man,' 'The Magnificent Seven,' 'The Good, The Bad and The Ugly' and 'Mad Max!' Two of those are westerns. So the western genre is emblazoned on my memory from childhood, and those are two great movies.
+- The way people appear in the gossip papers, as they're depicted as celebrities, it's not often much like who they are. The more people I meet, the more that's true. Sometimes, they're worse.
+- When other people say, 'Oh you're so-and-so's friend, brother, or husband,' it's reductive to the point of being white noise.
+- All cultures are different. Some commit genocide. Some are uniquely peaceful. Some frequent bathhouses in groups. Some don't show each other the soles of their shoes or like pictures taken of them. Some have enormous hunting festivals or annual stretches when nobody speaks. Some don't use electricity.
+- I find that I kind of have to sink into the character.
+- You sleep with people all the time that you hate.
+- One thing I don't do anymore is read or pay attention to the critical response, which is a bummer because when I started, and when I was in school, I loved to read old film criticism.
+- There was no one moment when I decided I would spend my life acting. I am not certain that I will. Acting has never been a consistent passion. I have done it since I was young - so I have been acting for 30 years - but intermittently. I always had other jobs, joys, and creative outlets.

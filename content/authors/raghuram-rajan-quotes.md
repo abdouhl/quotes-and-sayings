@@ -1,0 +1,59 @@
++++
+author = "Raghuram Rajan"
+title = "Raghuram Rajan Quotes"
+quotes_len = "53"
+description = "the best 53 Raghuram Rajan Quotes"
++++
+- I will say this: the central banks can actually support growth beyond a point. When there is no inflation, they can cut interest rates, and that is the way they support growth, but if you cut interest rate to the bone, there is nothing more to cut. It is very hard to support growth beyond that.
+- The gap in India has always been between the promise and the execution.
+- Taking my bike out and riding the bike path along Lake Shore Drive, that's one of the great experiences in my life. And I hope to do it as long as I can.
+- In India, we say one thing, and we do something else.
+- I am a 10th class pass in Hindi. From 7th grade to 12th grade, I was in Delhi; before that, I was abroad. I came in not knowing a word of Hindi in 7th grade and learned Hindi and passed the exam in 10th. I think I was north of 50 percent, so I feel very proud of that accomplishment.
+- The American political scientist Francis Fukuyama has argued that liberal democracies, with their political freedom and economic success, have three important pillars: a strong government, the rule of law, and democratic accountability. I would add a fourth: free markets.
+- One of the difficulties of a job in the, quote, 'real world' is you don't really get time to shut yourself off in a room and think.
+- In a world with weak aggregate demand, countries are engaging in a futile competition for a greater share of it. In the process, they are creating financial-sector and cross-border risks that will become increasingly apparent as countries exit their unconventional policies.
+- We should make sure that unscrupulous schools do not prey on uninformed students, leaving them with high debt and useless degrees.
+- How do we get more politicians to move from 'fixing' the system to reforming the system? The obvious answer is to either improve the quality of public services or reduce the public's dependence on them. Both approaches are necessary.
+- I don't think policy makers surprise unnecessarily. You don't pick surprise as a part of your policy. Markets value a certain amount of predictability. But there are certain areas where surprise is a tool.
+- In emerging markets, slow growth in the advanced economies has shut down a traditional development path: export-led growth. As a result, emerging markets have had to rely once again on domestic demand. This is always a difficult task, given the temptation to over-stimulate.
+- By killing transparency and competition, crony capitalism is harmful to free enterprise, opportunity, and economic growth. And by substituting special interests for the public interest, it is harmful to democratic expression.
+- The idea was never for me to be a career bureaucrat or career technocrat; it was more about where I could implement ideas and reform programs.
+- I am not a 'doom and gloom' guy.
+- The first step to prescribing the right medicine is to recognize the cause of the illness. And, when it comes to what is ailing the global economy, extreme monetary easing has been more cause than cure. The sooner we recognize that, the stronger and more sustainable the global economic recovery will be.
+- Strong government doesn't mean simply military power or an efficient intelligence apparatus. Instead, it should mean effective, fair administration - in other words, 'good governance.'
+- In a competitive industry, only paranoid incumbents - those constantly striving for betterment - have any hope of surviving.
+- Too many years away from academia renders you pretty incompetent at research and teaching. So I had to go back.
+- A monopoly is like running on firm ground. Nothing compels you to move, but if you do, you move forward. The faster you run, the more scenery you see - so you have some incentive to run fast.
+- The Reserve Bank cannot just exist; its ability to say 'no' has to be protected.
+- It is the central bank governor, unlike other regulators or government secretaries, who has command over significant policy levers and has to occasionally disagree with the most powerful people in the country.
+- Politicians know that structural reforms - to increase competition, foster innovation, and drive institutional change - are the way to tackle structural impediments to growth. But they know that while the pain from reform is immediate, gains are typically delayed and their beneficiaries uncertain.
+- Uncertainty of any sort results in volatility, and Brexit will be no exception.
+- I am an academic, and I have always made it clear that my ultimate home is in the realm of ideas.
+- Customers often value a good more when its price goes up. One reason may be its signaling value. An expensive handcrafted mechanical watch may tell time no more accurately than a cheap quartz model; but, because few people can afford one, buying it signals that the owner is rich.
+- I'm not a publicity hound, I hope.
+- Democratic accountability means that governments must be popularly accepted, with citizens empowered to replace corrupt or incompetent rulers.
+- If anybody was to look towards a big source of demand in future, it would be hard for them to miss India.
+- If developed countries' citizens want to feel slightly better about their economies' slow growth and high unemployment, they should contemplate how much worse matters could be without the institutions that they have.
+- Perhaps the hardest challenge has been to persuade the public, impatient for rapid growth, of the need to ensure stability first. Growth, it is argued, is always more important, regardless of the looming economic risks.
+- What is important for a central banker is that you have to convey that you know what you are doing.
+- If economists were to wait for careful studies before offering opinions about policy, we would never have anything timely to say.
+- Ultimately, in the long run we need to immunise our system from being overly responsive to fluctuations in the exchange rate; that is, people should, by and large, be reasonably hedged, or they should borrow more in domestic currency rather than foreign currency.
+- The U.S. should worry about the effects of its polices on the rest of the world. We would like to live in a world where countries take into account the effect of their policies on other countries and do what is right, broadly, rather than what is just right given the circumstances of that country.
+- The difficulty in a number of Western democracies is that the playing field is being tilted. For many in the middle class, prosperity seems unattainable because a good education - today's passport to riches - is unaffordable.
+- Common man is always benefited by a rate cut.
+- Indian-ness, love for your country, is complicated. For every person, there is a different way that you show respect for your country... my mother-in-law will say karmayogi is the way to go - do your work.
+- Endorsing unconventional monetary policies unquestioningly is tantamount to saying that it is acceptable to distort asset prices if there are other domestic constraints on growth.
+- The problem with forbearance is that it always looks like a good thing to do until it stops working.
+- Indian cricket fans are manic-depressive in their treatment of their favorite teams. They elevate players to god-like status when their team performs well, ignoring obvious weaknesses; but when it loses, as any team must, the fall is equally steep, and every weakness is dissected.
+- Monetary policy is like juggling six balls... it is not 'interest rate up, interest rate down.' There is the exchange rate, there are long term yields, there are short term yields, there is credit growth.
+- Everyone may have some advise for the RBI. Some may advise, 'Cut your lending rates and raise the deposit rate.' How will a bank function? We take a medium term view. The bank has an 80-year-old history. I don't want to destroy it for a few decisions.
+- The more that everyone has access to the same educational opportunities, the more society will tend to accept some receiving disproportionate rewards. After all, they themselves have a chance to be winners.
+- Central bankers have had enormous responsibilities thrust on them to compensate, essentially, for the failings of the political system. And my worry is we don't have sufficient tools to do that, but we're not willing to say it.
+- The few emerging economies that have avoided booms and busts have done so by adhering to sound policy frameworks.
+- As a country that does not belong to any power bloc, India cannot afford to put itself in the position of needing multilateral support - a trap into which even developed countries, like Portugal and Spain, have fallen.
+- Competition is like a treadmill. If you stand still, you get swept off. But when you run, you can never really get ahead of the treadmill and cover new terrain - so you never run faster than the speed that is set.
+- To ensure stable and sustainable economic growth, world leaders must re-examine the international rules of the monetary game, with advanced and emerging economies alike adopting more mutually beneficial monetary policies.
+- Every adverse development across the world affects the rest of the world in some way.
+- The government will always tell you that it wants low inflation. The real issue is the horizon over which to bring inflation down.
+- Instead of abandoning competition and giving banks protected monopolies once again, the public would be better served by making it easier to close banks when they get into trouble. Instead of making banking boring, let us make it a normal industry, susceptible to destruction in the face of creativity.
+- I have said repeatedly that the way to sustainable growth is to bring down inflation to much more reasonable levels.

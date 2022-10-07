@@ -1,0 +1,58 @@
++++
+author = "Brent Faiyaz"
+title = "Brent Faiyaz Quotes"
+quotes_len = "52"
+description = "the best 52 Brent Faiyaz Quotes"
++++
+- You gotta question the purpose you serve for those who invite themselves into your life. Learn who you are and always question the motive. No one knows you the way you do.
+- If you're my woman, you're somebody I give emotions to that I don't give to nobody else. You're my safe space. I don't want my safe space to be compromised.
+- My music is often written from the perspective of an extroverted introvert.
+- The first couple of times I went out and heard my voice or heard people listening when I wasn't the one playing it for them, it felt good.
+- In order for people to take what you say seriously, they have to know who you are as a person.
+- I still got bars, I just use 'em differently. I'd say I'm a better singer than I am a rapper at this point because I've been sharpening my sword.
+- As cliche as it sounds, don't stop. I feel like so often people will have talent or have potential, and they'll quit because they don't get anywhere as soon as they want to.
+- I got a toy keyboard when I was around like five or six.
+- Before anything, I wanted to be a rapper. I used to make beats and I would start singing to layer my beats and that's kind of how I realized I could sing.
+- Don't stop until you get where you're trying to go.
+- Me and Goldlink have known of each other for a minute and our managers know each other so they set up a studio session. When we got in the studio, we was cool; we're from the same area so we have a lot in common.
+- I recorded everywhere. I would go to different cities and do a session there for the project. I did sessions in New York and I did sessions in L.A. It was just kind of wherever I was and I felt like cutting a track.
+- People will listen to a song and expect that you just have that persona on all the time. But really, that was your one outlet that one day to get that emotion out. The only difference was you put it on a canvas that's going to be there forever.
+- I don't really feel the loyalty to any particular genre. To be completely honest, I'm an R&B singer because I'm black and I sing.
+- In 2018, nothing is sacred. Everyone is everywhere and knows everybody. I don't text too personal because somebody might screenshot it and share it.
+- I was reading Neil Postman's 'Amusing Ourselves to Death'. It's one of my favourites.
+- I really just wanted to make something special for women. There aren't enough records uplifting them out there.
+- Rapping was kind of hard. It's so many words. When you sing you can kind of stretch the words out. I didn't have to write as much as everybody else.
+- I could always sing just playing around, but I ain't want to be no singer. I thought that was lame.
+- I feel like any way you can get the message to resonate, I'm all for it.
+- I've always felt like I was observing everything, like I'm just looking out of the window, peeping how everybody is living and just penning about it, so I made the album about that concept.
+- Being old didn't seem like an accomplishment. Everyone I knew who was old was like sick or broke. It just didn't look appealing until I moved to L.A. and started interacting with people who were 50+ and still kicking it, having money, living large.
+- If I have a collection of songs for an EP or mixtape, I create the narrative afterwards; but usually with an album, I have a concept and the name first.
+- I'd prefer for people to know that they're going to get some substance when they listen to my music versus hearing the same 'Oooh baby, I love you.'
+- I know when it comes to the actual narrative of my solo music, it's its own thing. That's why I went out of my way after 'Crew' to not do a bunch of collaborations.
+- You work on something for so long that you become numb to it. Like, you don't even know how to listen to it because you listened to it so many times.
+- If you tell somebody that you make music they're all interested. But when you say you rap, they just start rolling their eyes at you. It would've taken me a lot longer to get my foot in the door if I'd continued rapping all the way.
+- I want to put my soul into the music and still be who I am when it comes to an actual conversation.
+- We're products of this world we were born into. We all battle our own demons. Everyone is troubled in the dark, but, please just stop & think about the babies. They're gonna be here long after we leave.
+- If I feel like making something, if I feel like saying something on the track, that's what I am going to do - regardless of reaction.
+- I don't wake up thinking about the genre of R&B as a whole. I just make music.
+- I used to think that there was a certain way I had to stick to when it came to R&B, but now I'm saying whatever, the same way these rappers do. I'm bringing that into R&B music.
+- I think it's good that YouTube decided that they really want to showcase Black talent.
+- I started off making beats when I was like 12. Then when I linked with people who make beats full time, I was like, 'Bet, now I can focus on writing and singing.'
+- Music is my one opportunity to let out how I'm feeling when I'm not talking to a chick or my mom, you know what I mean? It's just venting.
+- When you're initially making music, you're kind of just shooting at the air.
+- I got a dog and am trying to elevate. I'm working out, eating healthier, reading books. Making 'Make it Out Alive' is going to be a reflection of all of that.
+- With the Sonder music, I pull a lot from what's around me.
+- If it feels good coming out, then I really don't care about anything else, for real. It's all about just having fun with it. If it feels like less work, then the project is coming out better.
+- I probably talk to myself more than I talk to anyone.
+- I feel you gotta be nervous. If you're nervous, it's just 'cause you want to do well, it's not 'cause you're scared.
+- If I'm being honest, I was messing up on every other level in my life growing up - whether it was in school or in my jobs. I was always distracted by my love for music.
+- Sonder is the realization that every individual passerby has their own life just as vivid and complex as yours.
+- I mean, I wasn't the best student in school. It would be different if I were to pursue music while I was already in school and doing things for my parents to be proud of and music was a side thing. Being that I dropped everything to do music, they was not with it.
+- An outside party don't ever stay outside.
+- I think if you're an interesting person, you don't have to cloud yourself in mystery for people to want to know more about you.
+- I work while I'm on the move, so I'm able to book sessions in different cities.
+- If you can look in the mirror and say I love myself, that's going to affect your interactions with people who look like you.
+- I want to own my masters. That's the main thing--owning all my music.
+- There's the hype stuff that people love for five minutes and then there's the stuff that changes cultures and shifts how you look at music. And then there's that rare point where that hype stuff changes the game.
+- I think it was 'The Diary of Alicia Keys'. That was the first time album I ever bought with my own money. I had a little Discman.
+- I'll listen to certain things that I made back then, and I'm like, 'I wish I could have done this, I would've done that'. When you start out making music, you just want to make something that people will like.

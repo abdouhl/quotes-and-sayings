@@ -1,0 +1,20 @@
++++
+author = "Bryn Terfel"
+title = "Bryn Terfel Quotes"
+quotes_len = "14"
+description = "the best 14 Bryn Terfel Quotes"
++++
+- I started singing because I come from Wales.
+- I work on my voice through what I have to sing.
+- I've been amazed by the numbers that have come out to see the torch relay, so being a part of it is lovely.
+- It was in Cardiff, and the cast was 60 per cent Welsh-speaking. It's the first time I've walked into a rehearsal room speaking my mother tongue, which in itself was a breath of fresh clean air from the Welsh mountains. Singing Hans Sachs is always a milestone, but I was happy to be part of such an achievement, not personally but as a company.
+- I think every singer should be able to jump in for a singer who has been sick, for instance, and learn an opera in two days. I know people who can do it.
+- For three years, the 'Meistersinger' score was a ball and chain to me. It went with me to every city and concert hall.
+- I enjoy all aspects of singing and I'm luckily given the choice to be part of different styles of music.
+- People think top singers are overpaid, but opera houses have a top fee, which is a good thing. Of course concerts are different- everyone wants to make as much money as possible.
+- People may have thought that we changed a lot. I don't think we came in with that intention. Certain things I can't stomach. But I tried to be as collegial as possible. When you sign that contract, you're tied to that opera house to try your best. But every different team will play with a different intensity.
+- Welsh is my mother tongue, and my children speak it. If you come and live in this community you'll work out pretty quickly that it's beneficial to learn the language, because if you're going to the pub or a cafe you need to be a part of the local life.
+- If you have a recital to do, you have to memorize the songs. I never use music when I do recitals. It produces an instant barrier, both for yourself and the audience.
+- I gave my all.
+- When I watch the Olympics I become such an emotional wreck. I've always loved the Olympics, be it the summer or the winter Olympics.
+- Good acting is about being as natural and calm as possible. These days producers have such definite ideas that you have to be prepared to do whatever they ask.

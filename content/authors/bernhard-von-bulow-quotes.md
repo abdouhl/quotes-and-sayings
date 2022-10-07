@@ -1,0 +1,15 @@
++++
+author = "Bernhard Von Bulow"
+title = "Bernhard Von Bulow Quotes"
+quotes_len = "9"
+description = "the best 9 Bernhard Von Bulow Quotes"
++++
+- This fact lays on us - so long as the maintenance of good relations with Russia seems to us worth an effort - the duty of satisfying Russia that she has no need to fear any invasion of her sphere of interests on Germany's part.
+- English policy may not yet have made the definite decision to attack us; but it doubtless wishes, by all and every means, even the most extreme, to hinder every further expansion of German international influence and of German maritime power.
+- Since the German people, with unparalleled heroism, but also at the cost of fearful sacrifices, has waged war against half the world, it is our right and our duty to obtain safety and independence for ourselves at sea.
+- It was both necessary and desirable for us to be so strong at sea that no Sea Power could attack us without risk, so that we might be free to protect our oversea interests, independently of the influence and the choice of other Sea Powers.
+- For the sake of our interests, as well as of our honour and dignity, we were obliged to see that we won for our international policy the same independence that we had secured for our European policy.
+- Mr. Chamberlain desires to avert the threat to England's peace by making England, in alliance with Germany, stronger than her rivals and so to force them to renounce their hostile intentions against her.
+- But it is a law of life and development in history where two national civilizations meet they fight for ascendancy.
+- The history of England, who has always dealt most harshly with her vanquished foe in the few European wars in which she has taken part in modern times, gives us Germans an idea of the fate in store for us if defeated.
+- We must also win really sufficient and, above all, practical, guarantees for the freedom of the seas and for the further fulfilment of our economic and political tasks throughout the world.

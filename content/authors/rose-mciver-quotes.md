@@ -1,0 +1,46 @@
++++
+author = "Rose Mciver"
+title = "Rose Mciver Quotes"
+quotes_len = "40"
+description = "the best 40 Rose Mciver Quotes"
++++
+- I've been very lucky with my career and don't feel like I'm being typecast in the same role over and over again.
+- Writing is definitely something that interests me a lot.
+- When I was about five, I could do a vaguely decent American accent - straight through kind of decent - and 'Hercules' needed some kids. I definitely wasn't a good actor.
+- I love having the laid-back, easy-going, family-priority nature of New Zealand, but I'm certainly enjoying the States in terms of the career opportunities and the enthusiasm I get to find work.
+- My mom used cold cream her whole life, and she's got great skin!
+- I don't ever want to feel like my whole life is laid out before me and I know exactly what's gonna happen. That would be so boring.
+- When I look at jobs, one of the most relevant questions I ask is, 'Is this something I've done before, or is it a chance to experience a new context, tone and relationship?' I also ask if it's a story worth telling and a character with a reason to exist... someone who reflects the human condition.
+- What I love about my work is the variety and not knowing what's coming next, and being able to embrace something for a period of time and know something new is going to follow.
+- If you're small and can speak clearly and you're a cute kid, that's the craft, really. The whole child actor thing can be dangerous sometimes. Other kids were taking piano lessons; I did ballet and acting.
+- I'm really fortunate that I am in continuous work and I love what I do. And I think that there's a reason that it keeps happening. So while that keeps happening, I will be thrilled - and feel lucky - to keep doing it.
+- I don't really have a drive toward being a director at all. Not that I wouldn't rule it out, but I just don't think my instincts lie necessarily in a very visual way. But I am very interested in storytelling, narrative and character development, so writing is something that I absolutely want to do.
+- My school of thought with going into a character is that you have to understand where they come from, and you have to empathize with them.
+- Tinker Bell needs a Tinker Bell. She needs someone plotting for her. I certainly think that it's something she wants.
+- Allison Janney, I'm such a big fan of. Especially the way she conducts herself on a personal level, it's so beautiful. She's this fun, gracious person.
+- I had to do a Northern England accent once, and I didn't have much time, so I went and pored through YouTube. There are all sorts of resources out there. The Internet has made that much more affordable. Don't break your neck to spend your money.
+- Tinker Bell is a great wing woman. And as somebody pointed out to me, she is also a winged woman.
+- The reason I feel like I act is because you get to live a million different lives in one. I don't have to go about my life, just being easy-going New Zealander Rose. Sometimes I can inhabit a feisty, vicious character. Sometimes I can inhabit a painfully shy British girl, or whatever it might be.
+- I bring ideas to set, and I'm more than willing for those to be affected and be malleable based on what the other person gives me. I don't know what another actor is going to give me, on the day, and I don't want to be so hard and fast in my technique that I'm not open to what's coming.
+- I've done a lot of drama, and as a lifestyle, going to work and laughing every day is just great. It's great for your mental health, and it's great for setting up a nice year.
+- I really like questions. I like people who write scripts because they're asking questions, not because they're giving answers. It's something that I look for.
+- Being given a terrible piece of information shouldn't ruin the interactions you have with the people around you or mean that you can't become something, even if it's not the idea of what you thought you were going to be.
+- When you overcome a profound loss, or there's some catalyst in your life that shifts everything, if you're able to take it in stride and heal, it can make for much more three-dimensional and empathetic people.
+- Since I was growing up in New Zealand where there's a hole in the ozone layer above us, we get so much sun damage to our skin, and the thing we can do to look after ourselves is use sunscreen during the day, but making sure your skin is well hydrated while you sleep.
+- I'll use mascara because I need a little help with my blonde eyelashes. I like They're Real! by Benefit.
+- Really, I'm never much of a goal-setter. Whenever I've tried to make big, solid plans, they don't happen. I'm more into whatever the circumstances are that present themselves, making wise decisions around that.
+- We can get carried away with our heads in books, and although there's so much to be learned from that, I think sitting in a cafe and speaking with someone - whatever it is, their mannerisms, their choices, are just as valuable as any class you can go to.
+- I think if I manage to juggle a personal life that I'm really happy with as well, as long as I manage to maintain balance, that's kind of the mark of success to me.
+- Say a piece of pottery is broken, and it's fixed, and they use gold in the adhesive and in the sealant. It becomes more precious than it was before it was broken in the first place.
+- There are many projects that I would have loved to be a part of, but I was not high-profile enough, or I had the wrong look. That's just something you have to expect.
+- There's no use beating yourself up about what you can't change.
+- I always think about the settlers who moved to New Zealand in the 1800s. They hadn't even been to the place before. They just packed their bags and shipped over knowing they'd never see their family again or be able to speak to them - they'd maybe get a letter if they were lucky.
+- My motivation is to get a deeper understanding and exploration of something that I want to know about the human condition. So, that's what I look for in the material I read: if it's asking a genuine question about a concept of the world that interests me. And also, it helps if it's a context that I find interesting.
+- There is humor in the darkest of moments - People who I have loved and passed away, and very high stake situations where you can't help but laugh. I think that's very human.
+- I also have a role model back in New Zealand, a woman called Miranda Harcourt. She's an actress and a writer. Her willingness to stay open to material is really great. I read a lot, and I try to watch and listen to diverse material.
+- The best way to study to be an actor is to interact genuinely with the people around you and observe and listen.
+- The great thing about being an actor in a film is that you're able to start knowing exactly where you're going to finish and really paint something in between. You can work to know the arc you need to build. Whereas in television, it is open-ended, and you're constantly guessing. There are pros and cons to both.
+- I work with a stylist called Devon Nuszer and a makeup artist called Aaron Barry, and between those two, I trust them implicitly. I have the things I do over and over again and that I feel safe with, but they inspire me to take risks, and I trust them so much.
+- My brother was scouted for a commercial when he was three, and it was just because he could speak clearly and was well behaved, basically. I don't think he had any amazing acting ability at that age - although he is actually a great actor.
+- My most vivid memory - it's actually one of my first memories - I was three, and I was the youngest angel in the show production. And I remember being absolutely desperate for the toilet. I needed to wee really badly. So I was crossing my legs when I was walking down.
+- I do think of myself very strongly as a New Zealander, but when I moved out to the States, I was aware that I didn't want to just live in a satellite community of only other New Zealanders.

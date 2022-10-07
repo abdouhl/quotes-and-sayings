@@ -1,0 +1,19 @@
++++
+author = "Clementa C. Pinckney"
+title = "Clementa C. Pinckney Quotes"
+quotes_len = "13"
+description = "the best 13 Clementa C. Pinckney Quotes"
++++
+- Our people expect the best of us. They send us to take care of the people's business, and those of us who take hold of that responsibility understand that's what it's really about.
+- Our calling is not just within the walls of the congregation, but we are part of the life and community in which our condition resides.
+- God is no respecter of persons or causes.
+- In the community, in the African-American community, one person ought to say something, and that is the minister. The minister is paid by the people. He doesn't work for a big company. He doesn't represent a particular special interest.
+- I hope I can live up to the faith that has been put in me to do a good job.
+- What this denomination stands for is, really, is the universal vision of all people being treated fairly under the law as God sees us in His sight.
+- I always felt God had called me to serve within the church because of what the church stands for. This has always been home.
+- We don't see ourselves as just a place where we come to worship but as a beacon and a bearer of the culture and a bearer of what makes us a people. But I like to say that this is not necessarily unique to us. It is really what America is all about.
+- Could we not argue that America is about freedom, whether we live it out or not, but it really is about freedom, equality and the pursuit of happiness. And that's what church is all about.
+- We have a legacy to uphold: the people who died so that we could have the right to vote; the people who sacrificed so that we would one day realize the dream of a black president.
+- Loving God is never separate from loving our brothers and sisters. It's always the same.
+- It is my hope that as South Carolina senators, that we will stand up for what is best and good about our state.
+- I see everything I do as an extension of the ministry. It's all about service.

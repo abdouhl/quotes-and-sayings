@@ -1,0 +1,21 @@
++++
+author = "Billie Piper"
+title = "Billie Piper Quotes"
+quotes_len = "15"
+description = "the best 15 Billie Piper Quotes"
++++
+- Weight doesn't matter as long as you're happy with yourself.
+- I am thinking about those things now. More so than all my friends - they're a lot older than me, but they're not even thinking about babies.
+- I would really love to do a musical, I don't know in what capacity but something funny.
+- I'm reading more than ever. I used to find it tedious, but now it's like my little friend - it takes my mind off things.
+- The more things you own, the more people you need to employ.
+- There are lots of great movies coming out of the U.S. but it's not something I've ever really been interested in. They're great films but I much prefer the smaller independent films, which are more thought provoking and experimental.
+- I'm happy in the UK. I absolutely love it and I've finally got a great group of friends. I've got a lovely little flat and my work's here.
+- There's not enough money in the world to get me singing 'Because We Want To' again. I wouldn't do it. I think Beyonce Knowles got a couple of million for a private show but I would be happy to turn it down.
+- In the next few years I'd love to play a female version of Doctor Who. I know exactly how I would play her - she would be crafty in a clever kind of way.
+- Steve Coogan does something for me. He is so naughty, but I quite fancy him.
+- A musical film is my idea of heaven. You can pre-record, you don't have to sing live. Singing live was the bit I hated the most. I never felt like a confident singer.
+- That's what the 'Doctor' is about, essentially - having that energy that you just can't understand.
+- I have to teach myself. I kind of wish I'd continued with my education, but that's something I can do in the future.
+- I love fresh flowers for my home. I spend far too much money on them, buying them almost every day.
+- Amadu is all about the family. I've never known love like that before, and it made me think, 'I want a bit of that'. It kind of forced me to get to know my family again. Another reason why he's so lovely.

@@ -1,0 +1,106 @@
++++
+author = "Luciana Berger"
+title = "Luciana Berger Quotes"
+quotes_len = "100"
+description = "the best 100 Luciana Berger Quotes"
++++
+- The sad truth is that millions of people with mental illness suffer stigma and prejudice, especially at work.
+- I'm very worried about the future for women in politics.
+- Anti-racism is one of our central values and there was a time not long ago when the left actively confronted anti-Semitism.
+- We have ways to protect the public when free speech crosses over in hate speech.
+- History tells us breakaway parties don't work.
+- Banning smoking in vehicles with children in them will help protect them from the misery of smoking-related diseases, from cancer to asthma and emphysema.
+- Since I was first elected to Parliament in 2010, I have witnessed appalling attacks on Jewish people, including my fellow MPs.
+- In 2008/9 26,000 people in the U.K. relied on emergency food aid from a foodbank; which was 26,000 too many.
+- It is true that food banks are a sign that the British retain their altruistic instincts. I support my local food banks whenever and however I can. But I am deeply concerned about their normalisation.
+- I want to be part of something that can offer British people something to vote for.
+- All too easily I have had people dismiss food poverty as an affliction of the workless and idle, insinuating that it is a way of life only for those who choose it. Yet the reality couldn't be more different.
+- I've been working to see that mental health is raised in both oral and written question sessions in parliament.
+- If you don't support people with mental illnesses they are more likely to develop a physical illness too and that is challenging.
+- It is overwhelmingly women who will plug the gaps in care provision, sacrificing paid employment to look after family members.
+- By creating a generation of vulnerable people, especially children, with a poor, irregular diet, we are storing up a public health time bomb.
+- All governments could do more on mental health.
+- Time to Talk is all about tackling taboos and getting the nation talking about mental health.
+- Social care from cradle to grave is a huge concern for us all.
+- I left the Labour Party because I consider it a racist endeavour. I could no longer, in good faith, knock on doors and say vote for me, and by extension get Jeremy Corbyn as Prime Minister.
+- We have to acknowledge that it goes both ways and that there's many social factors which will impact negatively, as well as positively, on mental health.
+- As the Independent Group, we are determined to try to forge a different style of doing politics.
+- We strive for equality and equality in mental health matters as much as anything else. I see it as an imperative, not a choice.
+- There is no excuse for using someone's mental health as a stick with which to beat them.
+- We need to do more to raise awareness of perinatal mental health illness and address the stigma that still surrounds it in our society.
+- If you walk into A&E with a broken bone you expect it to be fixed. If you need help because you've got a mental health condition you should get that help and support.
+- All of our lives are enriched by our culture, from blockbuster films, best-selling video games, independent music, and internationally-renowned museums and art collections, to theatre, opera, ballet, literary festivals and performance poetry.
+- Many of us grew up with colourful characters such as Tony the Tiger, Coco the Monkey and Ronald McDonald. These figures were designed to market products - from sugary breakfast cereals to hamburgers - to children.
+- Despite being commonplace, too many people with mental health problems still face stigma, prejudice and discrimination.
+- The Liberal Democrats are unequivocal in wanting to stop Brexit and are committed to securing Britain's future as a tolerant, open and inclusive society.
+- I grew up when Labour was in power and I was able to appreciate the values and the difference the government could make. I joined the party as a teenager and its values run deep though my veins.
+- The point of a mental health first aider is to be a champion for good mental health in the workplace, to provide a safe port-of-call for anyone wanting to talk about their mental health, and to offer signposting to available expert advice and professional services.
+- Mental health first aiders are not designed to replace mental health professionals, or to provide services on the cheap, any more than current first aiders replace paramedics or heart surgeons.
+- Britain is home to world class creative industries and talents.
+- The cruel realities of austerity and Brexit mean that life is chaotic, expensive and the road ahead is littered with obstacles.
+- Since I was a teenager I have been standing up to antisemitism, racism and discrimination in all its forms.
+- The technological revolution has the potential to liberate us or enslave us, and the road we take will depend on our politics.
+- Members of the workforce must feel valued.
+- As Liberal Democrats, our plan is to stop Brexit and with it the nurse tax and other barriers to E.U. nurses coming to work in our NHS.
+- Food poverty exists because of unemployment, low wages, high costs of heating, as well as problems at the DWP including delays in receiving social security, and the cruel and unfair Bedroom Tax.
+- One anti-Semitic member of the Labour party is one member too many.
+- We enjoy a growing awareness and literacy around the symptoms of and remedies for mental illness. Thanks to brave public figures and persistent campaigners, much of the ignorance and stigma has been reduced.
+- No one anticipated the SNP wiping out Labour in Scotland in 2015.
+- Workers' rights must be respected.
+- While a traditional TV advert might last for 30 seconds, a child can play an advergame for hours on end.
+- To resign from the front bench is not a decision to be taken lightly.
+- In order to really give mental health the focus and attention it deserves, we need to bring together and integrate all the services that provide women with the care they need. This includes the mental and physical health services, as well as social care.
+- We need to be open about mental illness, and demand the mental health services we need.
+- Nothing undermines faith in our political system than politicians going back on their word.
+- Many people with mental illness suffer in silence, afraid to seek help for fear of victimisation.
+- Free speech should never mean hate speech.
+- The difference between the BNP and Labour is that the BNP was always a fringe party, never a contender for power.
+- There are laws in this country to protect everyone and that includes the Jewish community.
+- We will not give up the fight to ensure that mental health is the given the priority it needs and deserves.
+- When the physical threat of coronavirus subsides, as it surely will, we must address the impact to our mental health.
+- David Cameron needs to get his head out of the sand. He and his colleagues need to see what poverty is really like.
+- Stress is part of life. It is something we all experience from time to time. Sometimes it reflects our own busy lifestyles or key moments such as exams, moving house, organising an event, or coping with a bereavement. Often it is associated with work: meeting a deadline, dealing with difficult people, or meeting stretching targets.
+- We should aim for every workplace to be a place which encourages good mental health.
+- We remain a country where a young person's chance of fulfilling their potential rests on the vagaries of where they were born and what their parents do, rather than their innate talent and ambition.
+- For many food poverty is the product of a toxic combination of low wages, austerity economics, spiralling food prices and lengthy delays to benefit payments, all of which should concern us.
+- As Britain prepares to leave the E.U., we need to become more efficient as an economy. We need everyone contributing to our collective prosperity, in every part of the country. We simply cannot afford to waste the potential of a generation because of mental ill-health.
+- It looks like caring for the most vulnerable in our society could be yet another casualty of Brexit, with over-stretched and potentially unsafe care services and a reduction in female employment another unforeseen consequence.
+- When I was selected as a Labour council candidate in 2009, people publicly challenged how I could possibly represent anyone from the Bengali community because of my faith and since my selection and election as the member of parliament for Liverpool, Wavertree, I have received a torrent of anti-Semitic abuse.
+- Young people need the serenity that comes from a stable home, safe streets, regular income, opportunities for travel and study, affordable transport, and a real stake in the future.
+- No one walks into a food bank with their head held high.
+- Mental illness is a fact of life, like cancer or heart disease.
+- Performers put their heart and soul into their art, and can be subject to highly personal attacks and criticism. The tone and language of reviews, or commentary on social media, can be bruising and severe. Everyone is a critic. All of this adds to the stress and anxiety suffered by people in the performing arts.
+- I have observed and taken part in some mental health first aid training, and I have met many mental health first aiders, and I am convinced that even a few hours' training can make a real difference.
+- I can't think of any mother who would think twice about discussing the changes that happen to their body during pregnancy. But on top of this, we need to reach a point where they're comfortable talking about what might happen to their mind.
+- Protecting children from smoking in cars is the right thing to do.
+- Until we fix the deep-rooted problems of economic inequality, we cannot expect young people to experience the best childhood and adolescence.
+- As a university student and activist, I was attacked from all quarters from the far right to the far left.
+- If we can't behave and speak in tune with our values, then they aren't really our values.
+- I suppose I have been contending with issues surrounding my safety and security for years.
+- There are a lot of myths about food banks, but the truth is that many people are increasingly having to turn to them just to put food on the table, including many in work.
+- Our climate is changing. The causes are man-made. And we are already feeling the effects.
+- Advertising has moved online, with the rise of the 'advergame.' These are compelling online games, often aimed at the under-15s, designed to promote a high-fat or high-sugar food or drink. Advergames are advertising disguised as entertainment. If they didn't work, the food and drink industry wouldn't be investing in them.
+- People are sick of the false choice between the established political parties who take voters for granted.
+- The fact that some people are not as able to communicate concerns about their care must never mean that any less attention is paid to their treatment - or their death.
+- When I started my undergraduate course at Birmingham University, as a Jewish student it was a natural step to join the Union of Jewish Students (UJS).
+- It's absolutely crucial that we look at mental health not just through the prism of health but in a cross-cutting way.
+- Many feel the need to hide their problems from their school friends, work colleagues and even members of their own family.
+- One in five women experience a mental health condition during pregnancy, or in the year after giving birth. It can affect any woman. And it can be devastating.
+- I ultimately joined the Labour Party and became an MP because the country and my constituents deserve a Labour government.
+- Culture is a reflection of values.
+- As we confront the child obesity crisis, advergames that promote unhealthy foods to kids are a real cause for concern.
+- A failing social care system will have long-lasting repercussions for all, but it is women who are likely to be worst hit.
+- For many people who face anxieties, depression, trauma or grief that dominate their lives, a vital source of support may be a counsellor or psychotherapist.
+- Politics is no longer being fought on traditional political lines.
+- Most people who rely on food banks are there through no fault of their own.
+- Decent people must refuse to back Corbyn and his candidates.
+- Online hate needs to be taken as seriously as offline hate - but it isn't.
+- We need employers to have an open mind about people with mental illness, and be willing to employ people, with the right support.
+- One of our ambitions as independents is to alter our political culture. We want to leave behind the bullying, intimidation and tribalism.
+- Twitter has made some improvements on the site and it's important that you can report people - but when you are getting the level of abuse I was, it's an onerous task reporting each and every person.
+- I have long argued for the arts to have the recognition and funding they need, not only because they brighten our lives, but also because they make a tangible contribution to our national economy.
+- I've never been an MP in government unfortunately and only know what it's like to be in opposition.
+- I am anxious that, in some areas, changes across Government departments are making things worse for our nation's mental health.
+- In the Independent Group, we have the seeds of a new political movement that can reinvent our broken politics and provide a home to people who are politically homeless.
+- The nature of most Covid-19 deaths, in hospital or a care home away from family and friends, has made it worse for the people they leave behind. In the absence of the traditional rites and rituals of funeral and mourning - the opportunity to just share a hug - the process of bereavement has been made even harder to bear.
+- Many of the underlying factors in poor mental health are societal.

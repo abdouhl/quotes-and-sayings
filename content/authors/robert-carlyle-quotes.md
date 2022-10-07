@@ -1,0 +1,72 @@
++++
+author = "Robert Carlyle"
+title = "Robert Carlyle Quotes"
+quotes_len = "66"
+description = "the best 66 Robert Carlyle Quotes"
++++
+- To be honest I don't think I was any great shakes as a theatre actor because everything I was doing was really small in size - intimate.
+- I'd totally be attracted to a geek girl!
+- Biologically, I'm lucky - an angular face and dark colouring which shows up well on camera.
+- I used to be a rabid reader, but now it's scripts or nothing - network television is quite relentless, and you can't drop the ball.
+- Anyone who knows anything about me knows that I am a very patriotic guy, in terms of my Scottishness and my roots.
+- I do tend to divide my childhood into darkness and light, and the first seven years were certainly the darkness.
+- Each performance and each film is what it is. It's right and belongs within that moment. You look at it and try to make it fit your particular part of your character and your particular film.
+- I think you should only wear jewellery if it has a story behind it.
+- I often have scripts sent to me with allegedly Scottish characters where I end up telling them, 'You're going to have to rethink this whole thing!'
+- I never rehearse. Never! I think it's a waste of time.
+- Bullying is a terrible, terrible thing.
+- I've really enjoyed my work in television, but the problem for me is the turnover of directors every week.
+- Acting is a really insular thing.
+- I have a reputation for being an improvisational actor, which is true, but I also know what I'm doing so that if the improvisational strand doesn't work I can go back to what I know's already there.
+- A lot of the characters I play have problems, they are marginalised, they have serious psychological problems, problems with relationships, with childhood. These are big subjects, big subjects. You can't balk at work like that. As an actor, that's as good as it gets.
+- Anyone that knows me knows what I'm about, and I'm very much a British actor, a European actor.
+- Guys, particularly in the West, go to the gym and train for hours and hours to pick up something that is heavier than them. Why would you want to do that?
+- To pursue a career in Hollywood you have to have a personality bypass. Look at the top 20 stars in the world - there's probably only two actors among them. Hollywood's not about you as an actor. It's about your currency, what you 'bring to the table'. And I've never been one to jump through hoops for anyone.
+- I've always taken my love of children from my father. He was a children magnet. Suddenly, having my first child hit home what my dad went through.
+- I'm in four different films this year, and I have four different accents. I sound different in every film. You have to love a character to play it well, and change in my work is what I want.
+- Vancouver's a very child friendly city, there's... no doubt about that.
+- A lot of Scots have settled in Canada over the years and it's a very easy place for Scots - they understand us, we understand them.
+- I don't take a great deal of interest in party politics. Social politics interests me a great deal more.
+- I never go anywhere without my iPod.
+- People in Scotland appreciate homegrown talent, but it's getting harder and harder to get films made in Britain.
+- It took a long time for me to accept I was an actor, a professional actor, and that, actually, I make a living out of this.
+- I'd love to play some kind of fop.
+- It depends who the director is you know, I mean Ken Loach for instance. I've done up to 32 takes with him.
+- The quality of TV drama nowadays is getting better and better. They've had to invent a new term for it: 'high-end television.'
+- The thing I miss the most about Scotland is the football.
+- We met in Cracker. I played a maniac fan who murders a policeman and she did my makeup. I thought anyone interested in me looking like that must have genuinely liked me.
+- My wife was a make-up artist, and she's a total product junkie. Our bathroom is packed full of lotions and potions so I end up trying them out.
+- Every actor I think has got their own number of takes that they like, you know. Some actors like to go all day, you know on the one scene and some actors want to take two takes. I personally like four.
+- The more people know about an actor the less convincing they become. A bit of mystery's a good thing.
+- People go to the movies to watch a film and all they're thinking about is the actress's cellulite they saw in a magazine.
+- A lot of my work is with children and there's a reason for that, because they really level you.
+- I feel like I'm the luckiest man on the planet.
+- I think I have a natural, if I can say that, got a kind of natural ability in comedy.
+- In the late '70s, maybe just before I started, there was still an attitude that if you did film you didn't do TV and vice versa, but that's gone now.
+- I loved cinema while growing up and, for the longest time, wanted to be a director.
+- The U.K. and the U.S. are very different countries, and it really shows in the television.
+- If there's anything you want to ask your parents, ask them before they go, because once they go, they're gone.
+- I want to keep audiences off balance, so they don't know who I am or how to take me. If I duck and weave, as Frank Bruno might say, I'll have a longer shelf life.
+- I like to be working and moving - the worst thing you can do to me is stick me in a room all day while you're lighting a shot. That just kills me.
+- I rant and rave about noise pollution.
+- When I look back at it now, my past and the way I grew up, I grew up on communes.
+- My dad was rubbish at all other aspects of his financial life, but he's pretty good at paying the rent.
+- There are a lot of things that make up a performance, a lot of technical things. It isn't always just about pulling it up from the darkest recesses of your mind or your heart. It's your experience and your observation.
+- The script will point you in certain directions and I go the opposite if I can. I try do do one thing and tell a different story with my eyes. I believe what's more interesting is always what's not being said.
+- Acting, the arts in general, is a magnet for the wounded of society.
+- Hunger's a great spur.
+- I hate the word 'hippy.'
+- Acting is probably the greatest therapy in the world. You can get a lot stuff out of you on the set so you don't have to take it home with you at night. It's the stuff between the lines, the empty space between those lines which is interesting.
+- I was 16 when I was in a band, for about 10 minutes. I went off and did acting after that. So it was a wee moment for me when I sang.
+- In troubled times the last thing you want to do is to stick your money into a film. It's such a gamble.
+- The first thing you should know about me is when I was three years old my mother left me and my father. And that was traumatic obviously for my father - he suffered a nervous breakdown at that time in his life.
+- Most of the time, you find that the smaller the budget, the more the project is about something substantive.
+- I just don't like the whole Hollywood thing.
+- I'd love to do a Columbo-type detective character in a series.
+- Of course, I love chats with various actors about the process and how they do it. To me, if it's not on the camera, if it's not there, it's not worth it. It really just isn't worth it.
+- The darker the character, the more interesting.
+- I'm not someone who believes in wasting my vote.
+- My first love is art, and I see a lot of things in an artistic way.
+- I owe my father everything.
+- I love sci-fi because it leads in the imagination, and I always say it has the most intelligent fans in the world.
+- I'd work with Danny Boyle every day of the week. No matter what he was doing I would do that.

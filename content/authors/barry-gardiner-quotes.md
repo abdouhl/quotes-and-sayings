@@ -1,0 +1,106 @@
++++
+author = "Barry Gardiner"
+title = "Barry Gardiner Quotes"
+quotes_len = "100"
+description = "the best 100 Barry Gardiner Quotes"
++++
+- Making the most of global trade opportunities does not mean transitioning to a low-tax, deregulatory, 'Bargain Basement' economy. It means developing a robust Industrial Strategy intertwined with a strong trade agenda.
+- Public demand for better services requires increased revenue, but international market competition for capital and labour drives down the ability of any one country to raise either corporate or personal income tax.
+- It is hard to imagine a world without bees. It would be even harder to live in it.
+- Classical economics values things by seeing how much someone will pay for them. But this is where classical economics is wrong. What it fails to account for are all the 'externalities' - the services people regard as free goods: pollination services, flood protection, climate regulation, soil stabilization, carbon sequestration.
+- Nafta has been responsible for a race to the bottom in standards across North America, with working conditions declining along with wages.
+- The media when it focuses on climate change at all, does so in terms of carbon emissions and how to reduce them. Only rarely do our leaders advance arguments about adapting our environment and our economy to the effects of climate change that are already inevitable.
+- The Tories are trying to lock the country into the old, dirty technologies that harm our communities and the people who are forced to live with disruption on their doorstep.
+- You cannot send battleships in to stop the destruction of a rainforest. But you can spend money on clean technology transfer that enables countries to bring their people out of poverty without polluting their future.
+- Most people are surprised to find out that the myth of the crowded little island is just that - a myth.
+- Dictators have an old trick to assess the strength of their opposition: they say something patently untrue, and then look to see who mindlessly repeats it. Those who do, they recognise as their true supporters.
+- The costs of solar energy across the world have come down so fast that its growth as a cheap, clean energy source has been exponential.
+- We recognise the need for government to provide a clear and stable regulatory framework so as to release the investment power of business in order to deliver progressive public policy.
+- Trade agreements influence the standards, protections and regulations that shape the kind of society we live in.
+- The basis for securing preferential future trade terms with India begins in that recognition of essential equality. Indeed it begins in recognising that India is now an emerging global superpower whose primary interests are regional in South East Asia and who needs a deal with the U.K. less than we need one with her.
+- Labour believes that every trade deal should come before parliament for a full debate on the floor of the House of Commons, with a vote at the end of that debate.
+- No minister should be able to whisk through Parliament agreements that are negotiated behind closed doors.
+- We recognise the link between environmental failure and social injustice. When the energy sector is privatised and deregulated, it not only tends to pollute more, it also charges the poorest more per unit!
+- A Brexit that works for Britain needs to work for small businesses and must ensure that our future trade deals don't just work for big business.
+- Treaties negotiated with foreign powers create binding obligations on future generations that cannot be repealed in the way that domestic law can. As a consequence, the most rigorous process should be in place to scrutinise such treaties before they ever come to be ratified.
+- Like so many free trade deals before and since, Nafta was sold as a massive opportunity for working people and their prospects. Forecasts spoke of hundreds of thousands of new jobs in all three countries. The reality could not have been more different.
+- Science tells us we need to keep the majority of fossil fuels in the ground, and that we must urgently invest in renewable energy, and other alternative industries. Doing so would create millions of jobs, ensure a fair transition for fossil fuel workers into new industries, and avert the most catastrophic climate breakdown.
+- The road to the Paris climate talks has been paved across decades.
+- We need to be investing in the low-carbon technologies that are creating the apprenticeships and skilled jobs of the future.
+- The mark of a bad leader is not to make the wrong decision. It is to make no decision at all.
+- Most trade agreements arise from a desire to liberalise trade - making it easier to sell goods and services into one another's markets. Brexit will not.
+- Leaving the E.U. with no trade deal is the worst possible option. It will condemn British exporters to the full range of tariffs and barriers that apply under WTO rules.
+- Understanding government can be a complex business. The stated reason for a policy and the real reason for it are rarely the same.
+- It used to be an article of faith held across parliament that the government should be 'technology neutral' to achieve cost-effective decarbonisation.
+- The shipping industry plays a fundamental role in boosting global trade and prosperity. Maritime leaders have rightly recognised the need to invest in more energy-efficient vessels and to apply measures like slow-steaming. But to ensure a level playing field, collective action is urgently needed across the sector.
+- Addressing climate change globally promotes health, education and gender equality. Addressing it domestically secures U.K. jobs and sustainable clean economic growth; it protects communities from flooding and the scandal of fuel poverty. It begins to see clean air flow in our cities and schools.
+- Trade policy can be a tool for change and progress.
+- Adaptation is the forgotten word of climate change.
+- World leaders need to work together through the rules-based system of the WTO to tackle unfair practices, including the widespread dumping of steel on world markets at less than market price.
+- Subsidies should never be a permanent feature of any market. They should be introduced only to address market failure and they should be withdrawn gradually as those distortions in the market are addressed.
+- Our view has been that unless stringent environmental tests can be passed by would-be frackers, then no fracking should take place.
+- The future can be just and green - not corruption-mired and polluted.
+- Even if Trump leaves the Paris Agreement or the U.N. climate process entirely, the issue will be unavoidable at G7 and G20 level.
+- A well-functioning judicial or education system is just as much part of the wealth of a nation as its roads, ports and factories.
+- The Paris Agreement is a highly significant step in tackling climate change - but a piece of paper will not save the world. It is not 'job done.'
+- In the Labour Party we are absolutely united in our belief that shipping must define its 'fair share' of tackling climate change, and develop an emissions reduction plan for the sector.
+- Fear is a treacherous leader. It shrinks from the new and fails to meet the challenges of the future.
+- Acidisation isn't benign - like fracking, it can pose risks to groundwater sources, and runs counter to the urgency with which we must shift away from fossil fuels.
+- Labour opposes the principle of companies having their own private and privileged courts in which to settle investor-state disputes.
+- As the oceans get hotter, corals also become heat-stressed and expel the algae that live on their skeletons, resulting in coral bleaching events that can wipe out entire reefs. This destroys the habitat that supports a quarter of all marine life.
+- We need robust sustainability regulations for shipping that are internationally recognised and respected. This will ensure shipping plays its part in the global transition to carbon neutrality.
+- Like air pollution, flood risk is a threat that government should be protecting us against.
+- We're fighting for community energy initiatives, warmer homes and crucial flood defences - and fiercely opposing the Government's assault on renewables.
+- Climate change brings pressures that will influence resource competition between nations and place additional burdens on economies, societies and governance institutions around the globe. These effects are threat multipliers.
+- The most important thing to understand about Trump's withdrawal from the Paris Climate Change agreement is, whilst it undeniably damages the rest of the world, it does most damage to America itself.
+- Climate change is a threat to the conditions in which our economy can function at all.
+- In order to properly measure the impacts of climate change on our Financial system they must first be identified and disclosed.
+- The pluralist society must be pragmatic. It does not say that 'God is dead.' It does not say that 'God is alive.' It says if we are to answer the question of how we can live together then we must remain agnostic on all such matters - at least so far as our civic association is structured.
+- The more we engage with others, the more we find people with whom we do not share the values and truths that we consider so fundamental. In virtual places, by contrast, we are able to select the precise individuals with whom we associate to ensure that we obtain the affirmation we require.
+- As we pump greenhouse gases into our atmosphere, the ocean absorbs carbon dioxide, making the seawater acidic and hostile for shellfish and corals.
+- Donald Trump spoke to the experience of ordinary working people when he dubbed Nafta the 'worst trade deal ever made.'
+- If government is so keen to let local people have a veto in stopping wind farms, why does it not allow local people to say no to fracking?
+- The Tories' favoured trade deals post-Brexit are likely to make regional inequality worse, by focusing on the best deal for the City of London at the expense of smaller firms across the country.
+- When I was a child my mother used to pay me half a crown - 12.5 pence - to wash her car each week.
+- Climate change is a shared crisis - one that transcends politics and borders and must be fought collectively, justly and transparently.
+- We must commit to a positive programme of ocean recovery to combat the effects of climate breakdown, and boost our oceans' capacity to tackle climate change.
+- An efficient economy does not perpetuate the misallocation of capital - it punishes it.
+- U.K. aid spending in India is that it ensures that we are able to work with our partners to develop their markets, business and enterprise, to boost labour standards and rights and, ultimately, to boost the incomes of the poorest which, in the long term, boosts demand for British goods and services.
+- The Tories must stop focusing on their ideological obsession with a hard Brexit and their internal party divisions and start focusing on what is best for our country and our economy. Their absurd proposal that the U.K. should become the E.U.'s tariff collector is neither practical nor palatable across the Channel.
+- Normally I am clear beforehand about which single proposal in a binary choice I am going to vote for.
+- GDP has been a con perpetrated upon the poor of the world: a measure of economic activity and not of actual wealth. What it masks is the way in which we transform their natural capital into our consumption through international rules that regard the ecosystem services upon which they rely as mere externalities.
+- Labour's Climate Change Act and our other reforms, including the Green Investment Bank, have been the foundation for the huge growth of Britain's green industries.
+- Years of government inaction on air pollution has got people thinking that the state cannot even protect basic public goods like clean air.
+- We engage in the public institutions of work and school and club and team, because it is there that we find meaning and purpose. But sometimes when we engage, we find confrontation not affirmation.
+- The degradation of natural resources such as forests and freshwater has removed much of the resilience that societies formerly enjoyed.
+- Climate change must be approached as an opportunity to transition our economy to a zero carbon future. Business understands this even when governments don't.
+- We all know the principle that the polluter pays? Well one day I got to wondering why it is that the polluter seems to get away with it quite so often! Then it occurred to me that if the polluter is going to pay, somebody needs to tell him how much. The proper valuation of natural capital will enable us to say how much.
+- Trade negotiations require compromise.
+- Fracking locks the U.K. into an industry that is based on fossil fuels long after our country needs to have moved to renewables.
+- As the cost of renewables plummets, the clean energy transition is increasingly driven by the business case.
+- Whether you're a banker or a botanist - the economic benefits of a clean energy revolution are compelling.
+- Climate change brings increasingly frequent and severe weather patterns and this means more floods.
+- Financial decision-makers at every level are recognising that fossil fuel investments risk their returns being undermined by stranded assets.
+- Pluralism has been the driving fact behind political theory now since the Copernican revolution and the wars of religion that were spawned from it.
+- Labour must evince a positive vision for the future of our country outside the E.U. One that is consistent with the leave voters' objectives, without sacrificing our rights and protections, as the Conservatives threaten to do.
+- We must learn the lessons of the 2008 crash: no company should be able to become too big to fail.
+- The Paris Agreement makes it impossible for any country or any sector to say climate change isn't their problem. It has created unprecedented momentum for all sectors in all countries to take action and be part of the solution.
+- A Land Valuation Tax is a levy on the value of the land unimproved by buildings or other enhancement. The method is already used by insurance companies each year when they calculate your home insurance premium - they separate the cost of a total rebuild of the property from the value of the land itself.
+- Doing nothing to stop national parks being drilled for oil isn't what climate leadership looks like.
+- The problem with climate change has always been that whilst political timeframes and economic investment timeframes work on a 3-5year cycle, the planet needs a rather longer term view.
+- We are patriotic enough to believe there is no good reason why foreign investors from Europe cannot be expected to resolve any disputes fairly through British justice, operating through British courts. And we are European enough to think that our companies can do the same by relying on European courts.
+- We as politicians have to understand that the greatest threats to our security are no longer conventional military ones. You cannot nuke a famine.
+- We want trade agreements that aid development and increase prosperity, growth and productivity at home and in our trade partner countries.
+- Climate change is real and anthropogenic; and the 5th Assessment Report of the IPCC has left the deniers little room for manoeuvre, but they are swiftly morphing into a new breed that accept the climate is changing but like to suggest this may have positive benefits.
+- The direct risks from climate change are obvious: as changing weather patterns cause extremes of flood and drought, hurricanes and typhoons. These damage the physical infrastructure of buildings and bridges roads and railways. They are violent and disruptive.
+- Thanks to David Attenborough and 'Blue Planet 2,' we've become aware of the damage to our oceans from plastic pollution. We now know to use textile shopping bags instead of plastic, reuse coffee-cups and refuse polystyrene ones, and avoid plastic straws when ordering a drink at the bar.
+- Leaders get things wrong. Of course they do. They have imperfect information. They face competing political pressures. Ultimately they are human.
+- The less money you have the more likely you are to live close to polluted roads. Most of us cannot choose to move further away from a main road or add another 40 minutes to our commute so that we can live in a quiet, clean, leafy street.
+- We have never believed that any potential future benefits from fracking make it acceptable for the government to bulldoze over the concerns of local communities or the very real environmental dangers that can occur as a result of weak safeguards controlling the technical process.
+- MPs should be able to debate, amend and approve a mandate for the negotiation of any trade agreement before talks start, based on an independent impact assessment of what social, economic and environmental risks might be expected.
+- The U.K. should see overseas aid as an investment in the future potential of a market and shouldn't be used as a stick to bash trading partners and strategic allies with.
+- The unpopularity of raising corporate or personal income tax has been a straight jacket constraining Labour's thinking on how best to invest and grow the economy.
+- It appears that President Trump wishes to disrupt the global multilateral trading system as much as possible.
+- Whilst the developed world may say it wants to see much greater commitment to reduce greenhouse gas emissions, this may only be politically feasible if there is strong support for adaptation measures in those countries at greatest immediate risk.
+- Poor decision making in government; the tragedy of short-term economic thinking; our national housing crisis: these are real 21st Century problems for our country. They are problems that can only be solved by genuinely fearless thinking about our natural environment.
+- After years of globalisation, disaffected populations have lost confidence that the system is fair.

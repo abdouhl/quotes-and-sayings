@@ -1,0 +1,73 @@
++++
+author = "Allison Tolman"
+title = "Allison Tolman Quotes"
+quotes_len = "67"
+description = "the best 67 Allison Tolman Quotes"
++++
+- I worked for three years in a small IT firm in Chicago. I managed our client base, so I translated into human speak for our technicians. But our company was sold, and the atmosphere and the culture really changed, so I quit without having anything else lined up.
+- I did Internet dating for a while, and that is rife with horrible dating stories.
+- As a newcomer, you know, you don't come out the gate as a singer and try to compare with Judy Garland.
+- I liked in television that you do some work, then you perform, then you stop and you have a break because they have to set up lights, and then you do some more work. I really liked the pace of it; it really agreed with me.
+- As a comedian who's used to, like, punching the jokes, it's hard to teach yourself that that's not the strong choice in the sense that you have to really have to dial it back.
+- Most of the time you spend filming a show is time you spend without the cameras on, when you're not acting.
+- I've never had money before in my life. Ever. Never, ever.
+- I've done some version of that Minnesota accent - that Midwestern accent - in sketch comedy for years. It's the quickest way to symbolize you're a mom.
+- I liked in television that you do some work, then you perform, then you stop and you have a break because they have to set up lights, and then you do some more work. I really liked the pace of it; it really agreed with me. I enjoyed it.
+- If you only live in the world of the actor, and if you only live in the world of auditions, etc., then you don't really have a whole lot to offer when it comes to playing the humans that you're trying to audition for.
+- The best thing I ever learned when I first started acting is that you audition, and then you forget about it when you walk out the door. Even when you have a callback, you can't bank on things until you actually book that job, or your heart will just be broken over and over again.
+- I moved to Chicago when I was 28, and I wasn't completely idealistic about going to Second City and making a living from comedy, but I knew it would be great for the resume.
+- It's scary to not know when your next job is coming, and that is a daily fear when you are trying to act full-time.
+- I don't think I have ever worn more outfits over the course of four days than I did Emmy weekend. You barely sleep. You don't eat.
+- I read the 'Fargo' hashtag and what people tweeted at me and every article and every comment on every article. I really just ate it up. But I wasn't prepared for hearing what everybody thought of me.
+- Maybe to my own detriment, but I watched all of 'Fargo' probably more than once. And I tend to be a little critical of myself. But I can also let things go. So I can think, 'Well, that moment didn't read as well as I thought it would,' but it doesn't keep me up at night.
+- I'm from Texas, and Texas has a reputation that far precedes actual Texas, and it is irritating sometimes.
+- I've met a lot of really friendly people who are incredibly happy for me, which is really flattering and humbling.
+- It's interesting to play a female character who's not ever using feminine wiles to get things done.
+- I worked in IT, which is all boys, and I was the queen of the boys. That's what I did. I was the one who knew where the paper towels were, which was very important. And I organized happy hours and things like that.
+- I was working, like, 14-hour days on 'Fargo,' and now if I schedule more than two things in a day, I'm like, 'Whoa, you guys. That's two train rides, and I have to plan for an hour-and-a-half lunch with my cat.'
+- I did a 20-minute selection of scenes from the play 'Spring Awakening' in college, well before the musical came around, so when the musical was becoming a hot thing, and I was reading interviews with Duncan Sheik about how he came to do the music, I think it's interesting.
+- I grill, like, every day.
+- Improv training allows you to get out of your head a little bit and take more risks, which is something I would like to continue to improve upon.
+- 'The Secret Garden' was the first musical that I fell in love with when I was a kid. My mom took me to see it, and it was the first one that I owned the soundtrack to and listened to over and over again.
+- I guess my interest in performance has evolved and changed many times over the years.
+- Someone asked me about how it feels to wear the same costume every day and whether it gets tired or boring, but the good thing about it is that you know what to expect, every day.
+- I've been working as an actress and sort of struggling along for ten years, so I've been on a million auditions for a million things I haven't booked.
+- When I first got out of school, I went on a children's theater tour, and I went around the country a little bit that fall, and it was the first time I went to Chicago. We spend a couple of days in Chicago, and I was really struck viscerally by the city.
+- I started getting Twitter followers after I started doing press for 'Fargo.' One of my best friends from college is a librarian, and she started tracking after each interview how many Twitter followers I got. She and her librarian friends were like, 'We're going to make a graph.' And I was like, 'Alright, nerds.'
+- I don't have any phobias per se, but both tight and vast spaces tend to make me nervous after a prolonged time.
+- I worked in IT for about three years for a tiny firm with ten other people.
+- I went to New York for the first time when I was in college for a school trip and, uh, it did not appeal to me. It was too much hustle and bustle.
+- Coming out of Dallas and doing commercial work in Dallas - if you had improv background in Dallas, then you were instantly shot to the top of the list of commercial bookings because they loved improvisers because you could elevate the material.
+- I don't know what my next dream role gig is, but I have so, so many shows that I'm like, 'Oh my God, can I guest star on 'New Girl?' Like, that would be amazing!'
+- It was important for me as a theater artist to allow myself and my interests to evolve over time and allow my notion of what success meant to evolve over time. I've always had a day job and never been just acting. But it didn't make me feel like I wasn't doing what I was supposed to be doing.
+- I went to New York for the first time when I was in college for a school trip and, uh, it did not appeal to me. It was too much hustle and bustle. And I have since now found a New York where if I lived there now, I know where I would want to live.
+- I really respect the Coen brothers as directors and as creative individuals and with the way that they handle the industry and the business side of things.
+- I do find that when I see women who flesh out the television or film world and make it look more like the world I actually live in, I gravitate towards those characters.
+- I saw 'Fargo,' not when it came out, but probably a few years later, and went through multiple viewings - I'm sure my tape has been worn out.
+- At Clements, I was an officer in Thespian Troupe No. 3689.
+- The thing about theater that always and still kind of makes me edgy is that you work and work and work and work, and then you're just in performance mode, and then you have to just be on; the work is done, and then you just have to do it over and over again, so you're just constantly at that performance level.
+- I'm hoping I can evade a type and go for roles based on what I consider plausible and what I consider good.
+- At 32, I kind of thought I was past the point where I was gonna get a break that really changed my life overnight.
+- I did a lot of commercial and theater work when I got out of school and was living in Dallas, and I moved to Chicago to go through the Second City Conservatory Program.
+- When you go in to do a screen test, you negotiate your contract and sign all your paperwork before you even get on a plane.
+- I need an office and a place I can sit down to get away from television and just write.
+- I don't think you realize how often on television people are not like anyone we know or have known.
+- There are a few directors as a young person where I was kind of like, 'Well, these are a sure bet.' The Coens, Paul Thomas Anderson, Wes Anderson.
+- Whenever I've done a sketch in which I'm asked to play a mom, my brain goes to Minnesota. It makes the character seem matronly, warm, the kind of person that takes care of you and brings you Campbell's soup when you're sick. It's a great shortcut.
+- Body-shaming is something I feel really strongly about. I think about my niece, I think about my friends who have daughters being on the Internet and reading these things, and it just makes me furious. It makes me so angry.
+- Our TV and movie cops are usually in heels and pencil skirts.
+- What is right is not always popular.
+- I never pursued voice hard enough. I've done musicals here and there, but I was never dedicated to really being one of these fantastic, operatic kind of singers that you have to be in some of these musicals.
+- I'm aware me getting a role out of Chicago as a complete unknown is an insane anomaly, so I knew I'd have to get out here to L.A. as soon as the door opened.
+- For me and accent work, I think once you've figured out where that energy is, where the sound is in your throat or your mouth, it's a whole lot easier to do.
+- I never really acted full-time. I certainly had gotten past the point where fame and fortune was something that I was dreaming about or anticipating.
+- I know the benefits of having a really great improv show are amazing because it was this one rare and fleeting thing that was incredible, but the risk just didn't appeal to me. I liked the control of sitting down and writing things.
+- I moved to Chicago and I did theater, and then I started writing and I stop acting and I did sketch. You know, I did all of the things that, if you were serious about doing television, don't do.
+- My mother has stories of leaving me in the bath as small kid, like a 3-year-old, and there being mirrors on the side, and her going to get a towel and coming back in, and me making faces at myself, like, 'Now I'm happy. Now I'm sad.'
+- I tend to play nurses and waitresses and policewomen.
+- I originally wanted to stay in Chicago as long as I could. I love Chicago. I don't love L.A. I don't want to leave Chicago.
+- In theater, we know a scheduled season months in advance.
+- I taped my original audition for 'Fargo' with my agency in Chicago, Stewart Talent.
+- I haven't been recognized out in public or anything. The strangeness of celebrity has been relegated to Twitter, which is kind of manageable.
+- I was getting a lot of really nasty feedback about my weight during 'Fargo,' which is unfortunate because I am statistically a completely average-size woman.
+- I've always had a day job and never been just acting.

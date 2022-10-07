@@ -1,0 +1,91 @@
++++
+author = "Rico Nasty"
+title = "Rico Nasty Quotes"
+quotes_len = "85"
+description = "the best 85 Rico Nasty Quotes"
++++
+- I've been Rico since 10th grade.
+- When I started rapping, I was like, I'ma change my name before I become famous. And that didn't happen. I didn't have time.
+- Tierra Whack is very wise.
+- I feel very open to trying new things.
+- Everything's a battle.
+- Growing up, my mom always knew that I was more on the Black side than the Spanish side, just because I didn't speak Spanish.
+- A lot of times I play my music at shows based on the views and the streams.
+- I describe my sound as sugar trap, that's not really a description that's really who I am, that's my swag, that's how I talk and walk.
+- It's very important when you in the studio to be with a confident creative.
+- Yachty is very wise.
+- You gotta be very positive. It helps. It really does.
+- I grew up listening to Bob Marley, Jill Scott, Floetry, Nas, Jay-Z, Beyonce.
+- I think my sound is very loud. I want other people to describe it as a form of therapy - therapeutic music, a form of release to them.
+- At the end of the day, you have a side of the story that needs to be heard, too.
+- I feel like what motivates me is what would motivate the regular average person.
+- When I made 'Tales of Tacobella,' and I made 'Sugar Trap,' it was like people literally trying to say that like, either that they made it, or that they helped make it, and then they continued to try to steal the flow, try to steal the aesthetic of everything I tried to build.
+- I don't look at anything for who I should be.
+- The first time my dad ever heard my mixtape it was 'Summer's Eve,' and he was fresh out of jail. And he'd be in jail for like damn near two years.
+- Try performing with your period. Like really, and then call me back. I know Beyonce has. I know Nicki has. I know all of the legendary women have had to do that. A man can't do that.
+- When I was in high school, I was like the only girl making music.
+- I love when people are just naturally happy people.
+- I didn't want to do music. I was very doubtful. I was like, 'Oh my God. No one wants to hear a teen mom rapper.'
+- I made 'iCarly' when I was 18 years old.
+- I don't want to say I'm that famous, but when you see me, you see me.
+- It's hard to be dainty and la la la when you're also supposed to be strong.
+- When I first knew that I wanted to rap I was seven years old and I lost the talent show. It was like spoken word or something. My mom made me do it. It was a Langston Hughes poem. The girl that came on after me, she wound up winning. She was a singer.
+- I wanted a future outside my hometown.
+- I don't want people to expect the hard tracks to continue my whole career. When I started making music, I wasn't making music like that.
+- When I started making music, I figured the name Rico Nasty would give a background of who I am.
+- I feel like what I'm bringing to the table that's different is like not just consistency in the music but consistency in the creativity, consistency in the visuals, in the fashion, participation with the fans and things that I give them and merch and stuff like that. And I'm very active with them.
+- I love Beyonce. I feel like Beyonce is the final form of a person. Like, you gotta get to your Beyonce stage in life. That's your final form as a human.
+- Taurus and Sagittarius do not get along.
+- I feel like I get a variety of people in my crowd. Because of that, there's a nice amount of Hispanic people and Latinos that come to my shows. There's also a really big amount of Black and White people.
+- Tales of Tacobella' showed that I can rap.
+- I'm proud of who I am.
+- I never wanted to stop making music.
+- I wanna be be able to take care of my mom.
+- I went with Atlantic because I got a lawyer to look at my contract and my contract was fire.
+- Whenever I'm around Spanish people, I'm kind of like a fly on the wall.
+- I don't wanna be bare minimum. I wanna be successful.
+- When I wanted to become an artist I wanted to be versatile but at the same time, fans never know what to expect.
+- I've never been the type of person to put myself in a box.
+- People keep trying to say I'm one type of artist and I'm just not.
+- The name Rico Nasty came from Instagram.
+- I've been imagining spikes in my head since I was 13 years old.
+- It's just amazing being a parent, being a little nervous at first, but then everything falls into place naturally.
+- It is kind of easy for me to speak out. Just because I am very vocal in my music about a lot of different emotions, like anger, and normally stuff that people would hide, I'm okay with as a woman.
+- As women, we're always supposed to be catty, or too cute to dance. And it sucks.
+- I feel like I have a lot of rhythm because I'm from the DMV. Because you got so many different types of music: Baltimore Club music, Go-Go, then you got the DMV rap music scene, then you got the DMV R&B music scene. It's a lot of music and it's a lot of taste that caters to most.
+- I plan to break the barriers that people try to trap female rappers in. This isn't about 'Oh she sounds good for a female rapper,' it's about 'Yo, she sounds really good on this and can really rap!'
+- I thought I'd be famous for being cute.
+- Once I found art, it was a wrap.
+- I think that it is important to mingle with your peers and get to know the people that you coming up with because everything that we're doing is history.
+- I don't want to be that stereotypical black girl that's mad all the time.
+- I was like, weird on purpose. I wanted to be an outcast.
+- I'm actually a true lyricist.
+- Why still be pretty and all that when there's so many girly female rappers already? You can be a rock star instead.
+- I feel like I'm really loud and brash.
+- I've always wanted to dress like this, and I've always wanted my music to have the edge, the twist to it.
+- Some women can probably be Nicki Minaj and Cardi B, but some of us can't.
+- I feel like what made 'Nasty' so fire was it was finally something that they couldn't take from me.
+- That aggression came over time from dealing with stuff - 'Anger Management' really is what it's called. That project came out and I felt a weight lifted off my chest. I learned something about myself.
+- Lil Yachty is opening up that lane of being a black weirdo.
+- I love Rihanna.
+- I don't know, whenever someone was like, 'Yeah, I'm going to the studio,' I just went with them. And I started recording.
+- I want to bring more structure into my shows sometimes but honestly, people have told me they like the randomness and how crazy it gets.
+- A lot of people tend to get intimidated by looking at a place where they're from as empty. I look at it like a clean slate.
+- I got expelled from high school my freshman year.
+- I shot 'Poppin' in L.A. because I love L.A. Because when I came out here, I fell in love with it.
+- I like music where someone is trying to get their power back.
+- I love that my friends understand that I'm not gonna forget about the old me.
+- I feel like being a 2019 XXL Freshman is just, it's important for me because not too many women can say they've... gotten anything like this, not too many people from where I come from can say that they've gotten anything like this.
+- I'm like pixie grunge. The perfect blend of sugar and spice.
+- I really hate when I do a great song with great lyrics but my voice just don't fit because of the type of beat I picked.
+- I used to play Joan Jett all the time. Then, the movie 'The Runaways' came out. It was a wrap from there.
+- Whenever comparisons get too crazy I just think about my goals, and what I want from myself. I don't look at any references.
+- They're never gonna not put you in a box. It's something that they have to do, because nine times out of 10 people don't understand creativity.
+- Shoutouts to Cardi B. She's going to be a great mom.
+- I stopped making music for other people.
+- The scene in the DMV now is very united. I don't know if it's for everybody but everybody is showing love, everybody is showing support. Everybody is just trying to make a name for themselves and they are willing to help other people. Everybody is willing to network and do things with people outside of who they know.
+- Earl Sweatshirt is very wise.
+- I feel like all artists have to come to L.A. at least once because it's just beautiful. It's peaceful.
+- I'm a little bit scared of everything. It's kind of funny. Whenever people ask me how I'm feeling, I'm like, 'I don't know. I'm scared. I'm nervous.'
+- It's a lot of women that was before me, it's a lot of women that's gonna come after me!
+- I met Yachty through Twitter early 2015.

@@ -1,0 +1,16 @@
++++
+author = "Bobby Brown"
+title = "Bobby Brown Quotes"
+quotes_len = "10"
+description = "the best 10 Bobby Brown Quotes"
++++
+- In the beginning, the media was calling me a bad boy all the time because of the way I act and feel onstage. None of them have ever taken the time to get to know me when I climb offstage.
+- I could really care less about what they think about me, but at the same time, I do have something to prove.
+- I'm staying focused and clear about what I want in life, and I'm going to get it, man.
+- I feel that the simplicity of life is just being yourself.
+- Well, in order to become a grown man, in order to become significant in my family and significant in my children's life, I had to learn my lessons.
+- People want variety and something that is affordable.
+- Whitney and I have fun reading the newspaper sometimes. You'd be amazed at the places they say I've been.
+- I like being in control of making all the major decisions pertaining to my projects. That's something that you don't get to do in a group. Everything has to be voted on - every minor decision.
+- I look forward to putting out the new CD and doing the television performances to show everyone that B. Brown is back. In fact, I never left.
+- The business has changed so much that they're able - we're able these days in the music industry to be able to control our own destiny.

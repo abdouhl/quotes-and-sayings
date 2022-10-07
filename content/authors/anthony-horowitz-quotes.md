@@ -1,0 +1,53 @@
++++
+author = "Anthony Horowitz"
+title = "Anthony Horowitz Quotes"
+quotes_len = "47"
+description = "the best 47 Anthony Horowitz Quotes"
++++
+- Authors have odd relationships with their creations They owe their fame and fortune to their characters but feel enslaved by them.
+- My father was aloof, very strange and very distant.
+- My perfect reader doesn't just read - he or she devours books.
+- If my children were as unhappy as I was at school, I'd send them somewhere else, but it never occurred to my parents.
+- I have a great belief in not doing anything unless I'm passionate about it.
+- It's hard to write when you think every sentence is going to be read by a million kids.
+- My wife, Jill, and I have an incredibly close working relationship, and an incredibly happy married one. We met through work. I was the world's worst advertising copywriter. She had the misfortune to be my account director, so from the very start she was my boss, and she still is.
+- Relationships between writers and publishers are of course very strange and change all the time, rather like a see-saw.
+- My greatest fear is disappointing the reader, so each book has to be better than the one before.
+- I'm not good at the modern world.
+- No writer can really sustain two huge - I hate the word 'franchises.'
+- Writing about magic is harder than writing about spies because you're dealing with something that doesn't really exist.
+- You like to think with young adults that with your books, a little part of it has reached them and will stay with them. It is great to be part of an eight-year-old's world.
+- My writing has always been what you call 'narrative fiction' in the sense that it's got very strong plots and twists at the end.
+- Everywhere, publishers are being squeezed out.
+- You don't need to be able to string a sentence together in a way that is elegant or even vaguely meaningful to produce a bestseller - as Dan Brown has demonstrated time and again.
+- I enjoy scaring people.
+- I fear dying in the middle of a book. It would be so annoying to write 80,000 words and not get to the end. I'm phobic about it. So when I'm writing a book I leave messages all over the house for people to know how the story ends, and then someone can finish it for me.
+- It is, of course, traditional in children's literature to get rid of the parents.
+- Throughout history, story telling was at the very beginning of life.
+- With every year that passes, I get further away from my target audience, and while I've been happy to think of myself as a father figure to these kids, I'd be a little distressed to be thought of as a grandfather figure.
+- There's something very strange about Sherlock Holmes, especially if you're an English schoolboy. When you read the stories, they stay with you forever.
+- I didn't really have a favourite subject at school as I was useless at everything.
+- If you are going to be a writer, you have to have self-belief, every writer gets rejections, they say the difference between a successful and unsuccessful writer is an unsuccessful writer gives up, if you keep going you will succeed.
+- I'm not very good at creating worlds. I prefer to write about the world as it is.
+- I'm not happy unless I have a pen in my hand, it's really that simple.
+- As a children's author, reviewers are generally very nice to you. I only ever wrote one adult book and received such a kicking for it that I was in trauma for the next six months.
+- I start work at 7 A.M. and write all day, seven days a week. If I don't write, I can't sleep.
+- Until he lost all his money, my father was a successful north London Jewish businessman. He was unusual among his immediate family in that he was enormously cultured and had an incredible library.
+- My generation has left the globe in a mess.
+- I don't think my father was a bad man, all in all.
+- I love writing different things.
+- I feel very privileged to have reached so many kids because a life without stories, without the power of books, would be a very grey world, it's good to add colour.
+- I'm not a huge fan of prequels and sequels and the cynical rush to make money on the back of books by other writers who are now dead.
+- A children's author on a soapbox is not a pleasant sight but I have become drawn into issues, slightly unwillingly, relating to young people, literacy and youth justice: just look at the number of young people we have locked up in prison, and the uselessness of it.
+- If you look at Charles Dickens's time, there were so many different levels of society and everybody understood their place in it, it was that complex and simple. I'm not sure we have that now.
+- Once you get into the world of dystopia, it's hard to avoid plagiarism, because other people have had such powerful visions.
+- I'm a private victim of a peculiar household.
+- My favourite part of writing a book is thinking up the ideas, and that can start a long time before I actually sit down at my desk.
+- I vividly remember being 14. That was the age when I started to get happy: I started being a writer and stopped being a loser.
+- I don't really like the word 'hobbies.'
+- I do believe quite strongly in evil.
+- I had three brilliant English teachers at secondary school. They found the writer in me.
+- I believe that, by and large, people are good and everybody you meet is more likely to surprise you in a positive way than in a negative way.
+- Do I believe in the devil? I don't believe in a figure with horns and a tail.
+- I love the idea that magic and witchcraft and battles between supernatural creatures could be raging all around us but just out of our sight.
+- Sometimes I think the family I was brought up in was 100 years out of date.

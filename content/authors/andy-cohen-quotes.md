@@ -1,0 +1,63 @@
++++
+author = "Andy Cohen"
+title = "Andy Cohen Quotes"
+quotes_len = "57"
+description = "the best 57 Andy Cohen Quotes"
++++
+- Like when I host a party. I hope my guests get along. But if not, how interesting!
+- When I was working at Trio, I was pitched 'Queer Eye for the Straight Guy' and I knew, whoever gets this, this is a game changer. When I started at Bravo in 2005, it was a hit, and Season 1 of 'Project Runway' was in postproduction.
+- I would like a boyfriend. I'm a very happy person and it is the final, final piece of the puzzle. I'm looking for that shout-it-out-from-the-mountaintops, fall-in-love person.
+- You know, we've got so much on Bravo and coming up on Bravo, and I think we have so much more going on than 'The Real Housewives.' And I think 'The Real Housewives' is a great, you know, great addition to the portfolio. I think it brings a lot of viewers under our umbrella. And I think they stay and sample other shows.
+- In the case of 'The Housewives,' I call the 'Housewives' sociology of the rich. I think it's just fun to watch. It's guilt-free gossiping that you can have. It's like the modern-day soap opera, in my mind.
+- I love divas. Madonna, Mariah, Beyonce, Britney.
+- If you look at my life before I went into television, the struggle I went through coming out would be surprising to most people, given how comfortable and how out I am being the only late-night gay talk-show host.
+- You know, 'Project Runway' was a really special show, and we had a great five seasons with it. We loved that show, and we loved the stories that it brought to Bravo and the creativity. And it was a magic five seasons.
+- Fame does different things to different people. For some people it makes them a better person.
+- Jenny McCarthy was the one I thought could turn me straight. I thought that if I could just get my shot with her, it could happen.
+- Follow your passion. Be yourself, but check yourself before you wreck yourself.
+- Sometimes I get frustrated in traffic. I typically start going deep with my cab driver and Twitter feed - simultaneously - to take my mind off the gridlock. I enjoy live-tweeting my cab rides.
+- If you look at the people who make up the Bravo landscape from Jeff Lewis to Rachel Zoe and Padma Lakshmi and Tabatha Coffey and the 'Millionaire Matchmaker,' these are very strong personalities that people love to watch and that you... don't see anywhere else.
+- I love Jimmy Fallon; he's always a great time.
+- I started working at Bravo in 2005, when I was offered a job by Lauren Zalaznick, the network's chairman. She encouraged me to start a blog. I wrote behind-the-scenes gossip about 'Battle of the Network Reality Stars,' the first show I took on as head of current programming.
+- I'm big on being positive. I'm generally so positive and happy. I just always felt that I was exactly where I wanted to be. And things have continued to go in great directions.
+- The thing that's fun about the 'Housewives' is talking to your friends about it.
+- Dinner 'conversation' at the Cohens' meant my sister, mom, and I relaying in brutal detail the day's events in a state of amplified hysteria, while my father listened to his own smooth jazz station in his head.
+- I'd like to think, that were he alive today, Warhol would be painting the Housewives.
+- I fell in love with Erica Kane the summer before my freshman year of high school. Like all red-blooded teen American boys, I'd come home from water polo practice and eat a box of Entenmann's Pop'Ems donut holes in front of the TV while obsessively fawning over 'All My Children' and Erica, her clothes, and her narcissistic attitude.
+- Ultimately, it's not my job to judge the 'Housewives' - we don't editorialize on the show; we really leave it to the audience. We have a certain wink, which is the Bravo wink. We may linger on a shot or we may let something play out longer, but we leave it to you.
+- I run from Horatio Street down just past Battery Park City and back. It's amazing to run and see the Statue of Liberty and the ferries coming in. People think if you're not near Central Park, there's nowhere to go, but there's a whole ecosystem happening down here.
+- Susan Lucci was the biggest star in the daytime galaxy, and she served it up hot and fresh and chic five days a week. Before there was Joan Collins's Alexis Morrell Carrington Colby Dexter Rowan on 'Dynasty,' there was Erica Kane Martin Brent Cudahy Chandler Montgomery Montgomery Chandler Marick Marick Montgomery on 'All My Children.'
+- I didn't have a role model when I was younger.
+- I've really hung in there with my BlackBerry. The main reason I like it better than an iPhone is that I can type better. I saw Rachel Zoe using a white one and I was jealous. The risk, of course, is that it could look like a Lady BIC. I've just learned to own it though.
+- Amy Sedaris makes me laugh harder than anybody.
+- I absolutely love low-key restaurants.
+- I will be the 43-year-old guy in the jumpsuit. In my estimation and my image of myself is that I am 23 and can get away with it. If I didn't have the show, I would be in one right now. It would be denim, but I love a terry.
+- McDonalds used to be my favorite place to eat, until my metabolism changed in my late 30s. Before that, I would have no hesitation about walking into McDonalds and getting two cheeseburgers and fries and enjoying every last bite.
+- The one guiding principle over my 23-year career in TV has been as long as I'm having fun, I really don't care what the job title is.
+- I haven't fully moved over to the iPad. At any given time, I have about four DVDs in my pocket. I'm constantly screening 'Top Chef,' 'Housewives,' and all the other shows we have in development, racing to meet a deadline. So I pretty much bring my laptop everywhere.
+- I have a Viking stove. The color is butter lemon, and I had to wait several months for it, because that color wasn't available and I really wanted butter lemon! But I don't know that it's seriously ever been cooked on. I mean, I make tea every morning. Does that count?
+- I'm happy to be everybody's gay best friend.
+- When I was a 21-year-old intern at CBS, I was told I had crossed eyes and shouldn't try to be on air. That's when I decided I was going to be behind the scenes.
+- St. Louis has a lot of weird food customs that you don't see other places - and a lot of great ethnic neighborhoods. There's a German neighborhood. A great old school Italian neighborhood, with toasted ravioli, which seems to be a St. Louis tradition. And they love provolone cheese in St. Louis.
+- Anybody who really knows about the TV business knows that it would be impossible to just march in one day and say to your colleagues and bosses, 'Oh yes, I'm hosting my own show.'
+- I've been gay since the day I was born.
+- I love San Francisco so much. I call it the Emerald City and have been coming here since 1992. I have a few old friends that live here, and my aunt and uncle live in Oakland. I think it's a magical city - it's big, sexy and very 'cosmo' with a small-town feel.
+- I love 'Top Chef.' I think it rewrote the book on how food shows are presented on TV.
+- There's nothing I don't love about 'Mad Men.'
+- I talk, watch TV, spout opinions, schmooze, negotiate, talk some more, play games, and have a little cocktail.
+- I am a late discoverer of 'Friday Night Lights.' I cry every episode at least once. I love to cry - happy, emotional tears. I just love it.
+- I've been nominated for 12 Emmys, and we won - for 'Top Chef' - the only time I didn't go.
+- I'm a lifetime St. Louis Cardinals fan.
+- I read the 'Times' and 'Post,' but I have nothing against the 'Daily News.' I also fish around the Internet for entertainment news but find most of what I read to be untrue or partially true.
+- I wanted to tell a dream-come-true story about going from a closeted gay kid who loved pop culture to an out adult man making pop culture. I went from being told when I was 21 that I should never go on TV because of my crossed eyes to winding up being a 'Housewives' whisperer and talk-show host.
+- I'm an NRA-certified Expert Rifleman.
+- I always wanted to be an anchorman, but after college I wound up working behind the scenes at CBS News for 10 years.
+- The book is called 'Most Talkative,' because I was voted most talkative in high school. And I've never stopped talking. My mouth has been my greatest asset and my biggest Achilles' heel.
+- The Internet is for haters. Everyone wants to knock somebody down, but it's cool.
+- I work out at Will Space four times a week. It's a private training gym. It's owned by my trainer, Will Torres. I just came from there, actually. I turned Mark Consuelos onto Will, so he goes there too. Today we boxed. It's every kind of cross-training you can do.
+- TV was my hobby. I loved the glitz. I loved how hot everybody was.
+- I love a smart, well-written show, and '30 Rock,' well, you can't get any better than that. Tina Fey poos funny. There's nothing that she does that isn't funny. That show is an example of how brilliant she is. It's so smart. They've done some brilliant commentary about the 'Housewives' with 'Queen of Jordan,' their show-within-the-show.
+- I always knew I wanted to be in front of the camera. But even after 10 years behind the scenes at CBS News producing live segments, celebrity profiles, and breaking news, I still hadn't been given the chance to be on TV.
+- I am so proud of 'Top Chef' - I think it's got great cred.
+- It's so mental how I looked in the '90s. The fact that I thought my ponytail was a good thing - it was just terrible. Cutting it off was so monumental.
+- I never say I work in television, I say I get to work in television.

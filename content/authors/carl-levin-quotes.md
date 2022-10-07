@@ -1,0 +1,26 @@
++++
+author = "Carl Levin"
+title = "Carl Levin Quotes"
+quotes_len = "20"
+description = "the best 20 Carl Levin Quotes"
++++
+- While it is clear that we need to make some adjustments to protect Social Security for the long term, it is disingenuous to say that the trust fund is facing a crisis.
+- When a decision is made to go to war based on intelligence, it is a fateful decision. It has ramifications and impacts way beyond the current months and years.
+- If we have a chance of succeeding and bringing stability and democracy to Iraq, it will mean learning from our mistakes, not denying them and not ignoring them.
+- Sadly, the President's budget proposal for the upcoming year once again puts cutting taxes for the wealthiest Americans over addressing our country's severe fiscal problems.
+- The liberation of Iraq is a crucial advance in the campaign against terror.
+- We begin with the common belief that Saddam Hussein is a tyrant and a threat to the peace and stability of the region. He has ignored the mandated of the United Nations and is building weapons of mass destruction and the means of delivering them.
+- If they understand, which I believe they really are sensing, that the alternative the Republicans have been offering is to repeal what we've done, to go back to Bush policies - and if you asked the public what would you prefer, Bush economic policies or Obama economic policies, they take and prefer Obama economic policies.
+- The terrorist attacks of September 11th and the courageous actions of our armed forces in Afghanistan and Iraq remind us that friends of tyranny and enemies of freedom still exist.
+- The American people deserve a budget that invests in the future, protects the most vulnerable among us and helps to create jobs and economic security.
+- Safe storage and child access prevention laws are critical steps as we seek to reduce the occurrence of accidental shootings and suicides involving guns.
+- Common sense should tell us that there is no reason for civilians to have access to easily concealable handguns with the capability to shoot through body armor.
+- The intelligence failures with respect to Iraq were massive and have damaged our credibility around the world.
+- Even top caliber hospitals cannot escape medical mistakes that sometimes result in irreparable damage to patients.
+- It is of the utmost importance that our service members are adequately compensated for their duties, and that we offer them a quality of life that will enable them to continue to serve and to live comfortably.
+- We have a hope of succeeding if we learn from our past mistakes and pull together to make the hard choices.
+- The Constitution is a document that should only be amended with great caution.
+- Dr. Rice's record on Iraq gives me great concern. In her public statements she clearly overstated and exaggerated the intelligence concerning Iraq before the war in order to support the President's decision to initiate military action against Iraq.
+- I am 100 percent supportive of the stand-alone bill to repeal 'don't ask, don't tell' that Sens. Lieberman and Collins have now proposed, and indeed I will co-sponsor that legislation. It is time for this discriminatory policy to end, and I am willing to pursue any effective legislative path that could lead to that result.
+- Firefighters are essential to the safety and security of our local communities. We owe it to these men and women to provide them with better training and equipment so they can do their jobs more effectively and safely.
+- Restoring responsibility and accountability is essential to the economic and fiscal health of our nation.

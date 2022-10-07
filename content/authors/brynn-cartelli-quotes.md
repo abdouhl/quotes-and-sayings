@@ -1,0 +1,46 @@
++++
+author = "Brynn Cartelli"
+title = "Brynn Cartelli Quotes"
+quotes_len = "40"
+description = "the best 40 Brynn Cartelli Quotes"
++++
+- I have met friends that I will stay connected to for the rest of my life.
+- It's so important to just be nice to everyone and be respectful.
+- I did theater when I was younger, and I'm not the best actor ever - I haven't done it in a long time - but hey, if an opportunity presented itself, I would take it!
+- I want to start recording and writing as soon as I can and get music that I love out as soon as possible.
+- I want to do as much as I can - I'm young, and I want to get out there while I still can.
+- I am a very driven and hardworking person, and I am independent, and I feel that I have really good instincts.
+- It's really important to me that the music that I release is true to me and important to me.
+- I know when something is going to work for me, and I feel when it's not, so I am going to carry that into the music.
+- I don't want to be 'Brynn from 'The Voice'' forever.
+- Everyone deserves love.
+- Being on 'The Voice,' I have a voice. I'm speaking for my generation, and that's huge.
+- I hate when I get pinned down to a genre. I have a sound, a lane I want to go down, but I never want to be stuck in my song choices.
+- I love telling stories, and I'm a born storyteller. That's what I do, and that's what I want to continue to do.
+- It's definitely complicated, but it's all about the music. When people focus on other things, I think that's when it gets lost, and I would just rather focus on the music of it all.
+- I've always been a fan of Coldplay.
+- I can't just sing karaoke; I can't do anything to try to sound like other people. I have to find what I naturally sound like and emphasize that.
+- I'm just a hard worker, and I think that you don't need to have age to be a hard worker.
+- I feel that I am more aware of my artistry.
+- I'm going to go with this pop/soul genre that I'm really loving and have always loved. I hope it does well for me, and I'm really excited about the future!
+- I've grown up in a small town, and I played a lot of sports, so it was always between music and sports. People would ask me, 'What would you choose?' And I was always like, 'I don't know.'
+- If everyone loves you for the person you are, let alone your music is incredible, I think that's a really great place to be.
+- I want to make music that people will hear.
+- There were a lot of really special moments for me. When I first sang 'Fix You' by Coldplay, that was one. I love that song so much, and I love Coldplay, and I love what the song meant.
+- Music's always been a big part of my life.
+- When she started crying in my rehearsal, I felt so badly because I was like, 'I'm making Kelly Clarkson cry right now,' but it also felt really good because I thought, 'If she is feeling this, hopefully, America will feel this, too.'
+- I want to do music, and I want that to be the highlight of everything that I do. I want that at the forefront.
+- I've really never let my age get in the way of my music.
+- I wasn't sure what would happen to me after 'The Voice.' I was just excited to make music.
+- I love school, and I love learning, and school really does inspire me for a lot of my writing - just being in public school with people and watching things happen.
+- I want to go to college if I can. That's really important to me, and I really hope that I get that opportunity to do so.
+- I want to be my own artist and reflect my creativity.. I don't want to be turned into a pop princess; that's not who I am.
+- I want to do a darker, pop soul kind of feel.
+- I'm just really excited to get music out there that's not from the show, because it's cool to be able to break out and have my own stuff under my own name.
+- I could not be more thankful to those who voted me through and believed in me.
+- I wouldn't trade this experience for the world, and I hope I get to be a part of 'The Voice' for as long as I can.
+- Work hard, because it's obviously not always going to be easy. It's a really hard industry. Put yourself out there and put videos online, because that, honestly, is what changed my life.
+- Everyone connects differently with different things.
+- Doing a song that's sassy but kind of has that little flair to it, it's very me.
+- There have been contestants on 'The Voice' from past seasons that didn't even win, and I have been so inspired by them. To think that I am now one of those winners? I really, really hope there is a little girl out there that is believing in herself and knows that she can be here.
+- The support from back home has been more than I ever expected. They always knew me as the lacrosse player or the girl playing field hockey. Now they're seeing me on national TV, and they've been so supportive.

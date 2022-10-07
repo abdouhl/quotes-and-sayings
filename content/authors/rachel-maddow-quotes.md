@@ -1,0 +1,36 @@
++++
+author = "Rachel Maddow"
+title = "Rachel Maddow Quotes"
+quotes_len = "30"
+description = "the best 30 Rachel Maddow Quotes"
++++
+- I have a file of letters and bits of ephemera from friends who have died. I have had lots of friends who died of AIDS.
+- People who disagree on important issues don't agree on the facts.
+- Military preparedness is absolutely a form of strength.
+- If something is being done on a secret basis in national security, that's a great reason for elected officials to not talk about it. And that's a great way to shirk accountability for it with the public.
+- The problem that I think is reasonable to assert about Fox and its coverage is that they make up stories out of whole cloth and then make a big deal out of them.
+- When it starts to seem like you have popped into bed with a specific party, it makes it difficult for people to believe you are not doing someone else's bidding for them.
+- I don't think about people watching me on TV. I think it would stress me out.
+- In the little town where I live in Hampshire County, Massachusetts, we now have a 'Public Safety Complex' around the corner from what used to be our hokey Andy Griffith-esque fire station.
+- So this is the only TV show in America where I am quite confident that you, the audience, will share my excitement when I tell you that coming up in our next segment, we have the best graph ever. Best graph ever.
+- I would like to be a polyglot.
+- If the colonists hadn't rejected British militarism and the massive financial burden of maintaining the British military, America wouldn't exist.
+- I'm hopeless by e-mail, by phone, by text.
+- Having a place out of the city is a shortcut toward the mental reset I need.
+- It used to be that we disagreed over the basic facts we were fighting over, and we had different opinions about them. Now I think we accept different sources of authority. ... And people can establish credibility on their own say-so as long as nobody follows the trail and calls them out on it.
+- I'm not a screamer. I'm confrontational, but I don't think that translates into anger.
+- I have a constitutional weakness in which I am very easily distracted by flashing lights. If there is a TV on in the room, I can't have a conversation with you. I won't eat, I won't sleep, I'll just meld with my couch.
+- Pentagon dollars are essentially seen as a different kind of funding that doesn't have to stand for itself and make an argument for itself in the house of Congress.
+- It's not just the small-potatoes post-9/11 Homeland spending that feels a little off mission. It's the big-ticket stuff too.
+- The folks celebrating Jim Bunning are seeing him as an anti-government, anti-spending activist. But to embrace Jim Bunning is to embrace a strange record, if you really are a libertarian, if you really are a deficit hawk, if you really care about spending and responsibility.
+- I think that presidents don't give up power that has accrued to them by the precedent of previous presidents. Even when they say they would like to, I think once they get there they don't give it up.
+- I think service is honorable, and that was always inculcated in me.
+- I'm sure other people in the business have considered reasons why they're doing what they're doing, but I do think that if you're gay you have a responsibility to come out.
+- Gay people - generally speaking - have a responsibility to our own community and to future generations of gay people to come out, if and when we feel that we can.
+- As proud and capable as it is, I think the idea that the military can build new countries is a tall order, and it's the sort of thing that we would only expect from a military that we have superresourced and thought of as supercapable.
+- A handkerchief can never be put in another pocket after it has been in one pocket. I don't walk under ladders. I have items of clothing that are lucky for me. That rotates, but I am luck-oriented.
+- I'm a national security liberal, which I tell people because it's meant to sound absurd.
+- I think a lot of people of my generation are discomfited by the assertion of neutrality in the mainstream media, this idea that they're the voice of God. I think it's just honest to say, yes, you know where I'm coming from but you can fact-check anything I say.
+- My life is better with every year of living it.
+- The spy boom has been a beautiful windfall for architects, construction companies, IT specialists, and above all defense contractors, enriching thousands of private companies and dozens of local economies hugging the Capital Beltway.
+- I loved being on the radio. Being paid to talk? It's like being paid to eat.

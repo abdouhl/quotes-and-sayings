@@ -1,0 +1,34 @@
++++
+author = "Bethany Hamilton"
+title = "Bethany Hamilton Quotes"
+quotes_len = "28"
+description = "the best 28 Bethany Hamilton Quotes"
++++
+- I don't know how long I'll be competing, but I'll always be surfing. I'll be surfing until I'm old.
+- Doing everything with one arm, being well-known, and having a book and a movie, it's fairly abnormal. As far as just not having to worry about past experiences, I've healed very well.
+- One arm might handicap me a little in competition, but I just work with what changes I know I have to make, and I'm pretty used to it now. It mainly depends on the wave conditions... I only get half the waves everyone else rides, so mine have to be good!
+- Being out there in the ocean, God's creation, it's like a gift He has given us to enjoy.
+- Courage, sacrifice, determination, commitment, toughness, heart, talent, guts. That's what little girls are made of.
+- God created the heavens and the earth, the oceans and the waves for our enjoyment. Surfing is just my way of worshipping Him.
+- I'm a surfer at heart. Both my parents moved to Hawaii in the 1970s, where they met and became Christians. Then they taught me and my two brothers how to love the Lord - and how to surf!
+- I think it doesn't matter if you are the best surfer in the world. I'm going to try to be the best surfer I can be. It's not all about competing and being the best. It's more about having fun and just doing what you love.
+- To lose your everyday life of surfing and being creative on waves, enjoying the ocean - that's scary to me. It was essential to at least try surfing again and get out there and see how it went.
+- I believe in Jesus Christ, and I believe He gave me the passion and determination to continue surfing. You fall off the horse, and you get back on. I had to go for it.
+- When I was about five, I gave my heart to Jesus Christ, and since then it's just been a stronghold in my life. Really, through the shark attack and all the hard times that my family and I went through, it gave us unity and perseverance to push through all this crazy stuff that we never knew was going to happen.
+- It was Jesus who gave me peace when the shark severed my arm. I trust in Jesus whenever I'm going through a hard time. I see all the beautiful things that have come out of my situation. I'm able to share my story with young girls who have few role models, and I can help others cope with what they have been through.
+- Learning how to deal with people and their reactions to my life is one of the most challenging things... people staring at me, people asking rude questions, dealing with media, stuff like that.
+- Besides surfing, I play tennis, volleyball, I swim, I run hills, or I do high-intensity, high-interval workouts. I'm up at 5 A.M. every day.
+- Growing up, I was blessed to be part of a great church. This is where I met many friends who have encouraged me in my life to live strong for Christ. My church is a place where I can develop friendships with others that will encourage me in my walk with Christ.
+- I don't care to be famous. But at the same time, you look at all the role models these little girls have, and they don't have anyone to look up to. I mean, it's weird, but if I just hid out and didn't let myself be known, who would they look up to instead, you know?
+- Whatever your situation might be, set your mind to whatever you want to do and put a good attitude in it, and I believe that you can succeed. You are not going to get anywhere just sitting on your butt and moping around.
+- Surfing for me is more than my lifestyle; it's my passion, my love, and it's a part of me.
+- It's easy to look at the things of this world to solve our challenges and obstacles in life, but when we submit our lives to Christ, His grace, mercy, peace and love will bring true fulfillment to our lives.
+- I have a unique workout schedule. I concentrate on balancing with my core and my legs. Then, like any other surfer, I try to read the ocean. It's always changing and moving - doing its own thing - so you need to learn how it works and how to position yourself.
+- Love God; love others; do your best in all you do, even if you fall short!
+- We all need that extra friend outside of our immediate family to talk about that extra stuff you wouldn't normally talk to your parents about.
+- I enjoy hanging out with friends, going on hikes and playing tennis. I also enjoy Bible study and making dinners. I have a pretty mellow life away from the water.
+- Strive to find things to be thankful for, and just look for the good in who you are!
+- I guess I just like to challenge myself and push myself harder to do things that I don't think I can, to do things that other people do not think I can. It pushes me. I push my own personal limits.
+- Like, with one arm I know I can surf, but competitive surfing can be really frustrating, and sometimes you don't do as well as you want to. It can be discouraging at times. But whenever I do get frustrated, I just focus on God.
+- God will give us the strength to be able to handle things. I mean, you can try to do it on your own, and sometimes you can pull off some stuff, but in the long run, it's much easier with Him by our side.
+- I'm not a vegetarian by any means; I eat fish. But the problem with shark finning is they catch the shark, cut their fins and throw them back in the ocean, and to me, that's wrong. If you're going to kill an animal, you should use the entire animal and do it humanely. I'm definitely not a big fan.

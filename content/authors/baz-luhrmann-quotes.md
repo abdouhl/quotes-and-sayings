@@ -1,0 +1,55 @@
++++
+author = "Baz Luhrmann"
+title = "Baz Luhrmann Quotes"
+quotes_len = "49"
+description = "the best 49 Baz Luhrmann Quotes"
++++
+- Fitzgerald was a modernist.
+- In the '60s not everybody was wearing flowers in their hair and flowing caftans.
+- I feel like a member of any group comprised of outsiders.
+- Sydney is rather like an arrogant lover. When it rains it can deny you its love and you can find it hard to relate to. It's not a place that's built to be rainy or cold. But when the sun comes out, it bats its eyelids, it's glamorous, beautiful, attractive, smart, and it's very hard to get away from its magnetic pull.
+- Everything I make starts very personally.
+- I wouldn't take a directing job if I didn't think it was enriching life.
+- I mean the future has become old fashioned.
+- I've tried to make 'Strictly Ballroom' impossible to date. It does feel a bit '80s but I consciously made sure there was no technology in the movie that could date it.
+- I feel a kinship with anyone who feels that their road, their life or who they really are is not good enough. I really relate to that.
+- There's a whole system in Hollywood where the director never speaks to the studio, but I like to engage them in a discussion. I listen.
+- At a very young age I was allowed to go into the cinema and watch adult films.
+- One of the great things about Sydney is that it has a great acceptance of everyone and everything. It's an incredibly tolerant city, a city with a huge multicultural basis.
+- I've always loved the old epics that tell a simple emotional story, whether it's the tumultuous relationship between Rhett and Scarlett or Lawrence of Arabia's passion to get lost in a faraway place.
+- Some of the greatest relationship films of all time, the two stars have hated each other, but mostly you see that chemistry.
+- Ultimately, you have to pursue your own path, not someone's idea of the right path. You need to stay on your path.
+- I really believe musical form will go on. There's got to be a way of making musical form in cinema live again.
+- I grew up around jazz. I love jazz.
+- Opera was the cinema of its time, so to bring back that popular appeal, you just need to unleash its visceral immediacy and excitement. Most productions don't manage that - but when an opera does do it, you never forget it.
+- I often think to myself, at the end of an interesting life it's maybe not such a bad thing to spend your last days with your friends sitting by the blue, blue ocean reliving the story of your life while sitting in the dangerous sun.
+- A life lived in fear is a life half lived.
+- I love dancing.
+- Sydney in general is eclectic. You can be on that brilliant blue ocean walk in the morning and then within 20 minutes you can be in a completely vast suburban sprawl or an Italian or Asian suburb, and it's that mix of people, it's that melting pot of people that give it its vital personality.
+- The party is a true art form in Sydney and people practise it a great deal. You can really get quite lost in it.
+- I understand that anything actors are doing, good or bad, is motivated by fear.
+- The ugly duckling is a misunderstood universal myth. It's not about turning into a blonde Barbie doll or becoming what you dream of being; it's about self-revelation, becoming who you are.
+- If you wanted to show a mirror to people that says, 'You've been drunk on money,' they're not going to want to see it. But if you reflected that mirror on another time they'd be willing to. People will need an explanation of where we are and where we've been, and 'The Great Gatsby' can provide that explanation.
+- When I was growing up you would see big American films that really mythologised their landscape, that really showed the vastness and the drama of their country.
+- I do find walking is fundamental to my creative process.
+- I think dance in any culture, in any form, is a true leveler.
+- If Paris is a city of lights, Sydney is the city of fireworks.
+- All good, clean stories are melodrama; it's just the set of devices that determines how you show or hide it.
+- Fitzgerald coined the phrase the 'Jazz Age,' and now we're living in the Hip-Hop Age.
+- I am always worried when someone says, 'This is perfect.'
+- The food in Sydney is an Asian Pacific cuisine. It's eclectic but above all it's fresh, inventive and creative and that's what I love about it.
+- I always have a point of view. It may not be right, but it's my own.
+- I feel funny about owning art. I don't really want to say: 'Wow, come and see my Monet - it's in a dark room at the bottom of my cellar.'
+- When you're in theater or the circus or film - to me it's all one - affairs happen. People fall in love.
+- In terms of the mechanics of story, myth is an intriguing one because we didn't make myth up; myth is an imprinture of the human condition.
+- Look, I had a passion for comic books growing up.
+- Australia, to the rest of the world, is just far away, and Australia in the Thirties was the faraway of the faraway.
+- I mean, '8½' to me is such a great dissertation on the whole, you know, act of filmmaking and creativity.
+- I don't have fights with actors. In absolute honesty, I've never fought with any actor ever.
+- One of my great all-time loves in cinema, and I've seen it three times, is Bondarchuk's 'War and Peace.' Not a lot of people may have seen that film. It was made during the Soviet era.
+- My father made sure that I had lots of levels of education - from ballroom-dancing to painting, commando training, theatre and magic.
+- I never see things I make in the same way that the audience does. You can never do that.
+- You really think that on my films people tell me what to do? I don't think so. On my films I decide.
+- Western films don't do very well in India.
+- In the '80s, everyone wanted to be in opera. It was groovy.
+- Historically, epics are set in Africa or Asia or the Wild West, but if you make an epic today it's hard to disassociate from the contemporary realities of those places.

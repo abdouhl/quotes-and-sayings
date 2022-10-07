@@ -1,0 +1,25 @@
++++
+author = "Irvin D. Yalom"
+title = "Irvin D. Yalom Quotes"
+quotes_len = "19"
+description = "the best 19 Irvin D. Yalom Quotes"
++++
+- Sometime early in life, I developed the notion - one which I have never relinquished - that writing a novel is the very finest thing a person can do.
+- With almost every book I've written, my secret target audience is the young therapist. In this way, I am staying in my professorial role; I'm writing teaching stories and teaching novels.
+- I think all kinds of meanings in life transcend your self. They're linked to other generations of people around us, to our children and our family. We're passing on something of ourselves to others. I feel that's what makes our life full of meaning.
+- The ultimate goal of therapy... it's too hard a question. The words come to me like tranquility, like fulfillment, like realizing your potential.
+- The amount of death terror experienced is closely related to the amount of life unlived.
+- I always wanted to be a writer. Maybe, had I been brought up in another generation, I might have just gone into writing rather than medicine - which is not to say that I didn't also have a great attraction towards the idea of being a healer. Fortunately, I've been able to combine the two in ways I could never possibly have imagined.
+- I think everybody I've seen has come from some other therapy, and almost invariably, it's very much the same thing: the therapist is too disinterested, a little too aloof, a little too inactive. They're not really interested in the person; he doesn't relate to the person.
+- When people don't have any curiosity about themselves, that is always a bad sign.
+- I do not like to work with patients who are in love. Perhaps it is because of envy - I, too, crave enchantment. Perhaps it is because love and psychotherapy are fundamentally incompatible. The good therapist fights darkness and seeks illumination, while romantic love is sustained by mystery and crumbles upon inspection.
+- I don't want to be idealized by a patient because of what I've written.
+- We're not teaching our students the importance of relationships with other people: how you work with them, what the relational pathology consists of, how you examine your own conscience, how you examine the inner world, how you examine your dreams.
+- I'm a compulsive reader of fiction. I fell in love with novels when I was a teenager. My wife Marilyn and I... our initial friendship began because we are both readers. I've gone to sleep almost every night of my life after having read in a novel for 30 or 40 minutes. I'm a great reader of fiction and much less so of non-fiction.
+- Therapists need to have a long experience in personal therapy to see what it's like to be on the other side of the couch and see what they find helpful or not helpful.
+- We're passing on something of ourselves to others. I feel that's what makes our life full of meaning. It's hard to have meaning in a closet, encapsulated by nothing. I think you really have to expand yourself and your life and do what you can for other people.
+- During my childhood, Washington was a segregated city, and I lived in the midst of a poor black neighborhood. Life on the streets was often perilous. Indoor reading was my refuge, and twice a week, I made the hazardous bicycle trek to the central library at Seventh and K streets to stock up on supplies.
+- I wrote my first textbook in 1970. It was called 'The Theory and Practice of Group Psychotherapy,' and over the years, many students told me that they enjoyed reading it because there were so many stories in there; often just a paragraph or a page of something that happened in a group session.
+- I believe that a different therapy must be constructed for each patient because each has a unique story.
+- From the very early days of seeing patients, I noticed that many of them seemed to be concerned with issues of their mortality, and so the philosophy training I had taken began to seem rather important to me.
+- I have a lot of blurring between fiction and non-fiction in so many of my works. For example, my first novel, 'When Nietzsche Wept,' has a great deal of non-fiction in it. I didn't create many characters at all. Almost all of them are historical characters that actually existed.

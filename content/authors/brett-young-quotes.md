@@ -1,0 +1,64 @@
++++
+author = "Brett Young"
+title = "Brett Young Quotes"
+quotes_len = "58"
+description = "the best 58 Brett Young Quotes"
++++
+- I knew I would always be an artist, but when you move to Nashville, this is a writer's town. I moved here to focus on that and started pitching demos and immediately was asked to be an artist.
+- It's really hard to chase a lofty dream.
+- The first country song I ever heard was Tim McGraw's 'Don't Take the Girl.'
+- I was writing and playing in California for 11 years before I moved to Nashville.
+- My first concert was Boyz II Men and Mariah Carey.
+- I get to share the stage with some of the best.
+- I moved to Nashville with the same kind of mindset that I had in L.A., and that is to make sure you don't get outworked by anybody and make sure you're always writing songs and take every opportunity to play that you can.
+- I always loved music, I just never thought of it as a career. Baseball was always my thing.
+- The only way to have longevity is to have good songs.
+- I try not to take any liberties when it comes to being factual. Sometimes you have to, just to make the song sound good. But I feel like, personally, if you've lived it, then you shouldn't stretch the truth. It should be that experience.
+- John Mayer will be around forever, like the Eagles and Eric Clapton.
+- I'm personally a hopeless romantic. I always have been.
+- I think I realized my parents' relationship was special when I had my first girlfriend, and she came from a broken marriage. I watched how much closeness there was between her and her mom, and also how much bickering.
+- I love to be able to tell a whole story in three-and-half minutes.
+- I always say, 'If you want to make God laugh, tell Him your plans.' I couldn't be happier with where I ended up and how it worked out.
+- 'In Case You Didn't Know' was written in Mexico, actually, on a songwriter's retreat.
+- It's funny how God will change your plans for you when he's ready.
+- It's always helpful to put things down on paper. That's why I started writing.
+- I had the best example set by my parents for what a couple can - and, in my opinion, should - be.
+- I don't know what it is in me that refuses to quit, but I think it's kind of like, dare to dream.
+- If something's gonna make you happy, and you know it's gonna make you happy, and it's what you want more than anything in the world, don't let someone else discourage you and talk you out of doing it just because they're doubters.
+- I've never seen my dad come home from work and not walk straight to my mom and ask her about her day.
+- For me, I never really understood why certain lines had to be crossed in order to get a point across. There's a PG way to say everything, in my opinion.
+- I'm still obsessed with the beach whenever I'm home; when I'm on the beach, it feels like home to me.
+- Country music isn't about being better than the guy next to you - it's just making sure that you keep working hard enough to deserve the position that you get in.
+- While I don't feel like I'm an evangelist, country music is about to give me a platform, and so keeping it topically acceptable for everybody, I hope that sets some sort of example.
+- I have the same blankie that I've had since childhood.
+- In a very broad statement, or mentality, you just want as many fans as you can have of your music. You want people to write songs for and connect with and play shows for.
+- The fact of the matter is, if music is something that you want to do, you need to stick with it with the idea that you're going to do it until it works.
+- If I want people to connect to my words and my stories, I need to tell them where they came from. Because then, when you break into song, they have kind of a blueprint for why I wrote that song, so they can come to it with something they went through that helps them connect to it.
+- I've always been pretty in touch with what I'm feeling.
+- It is such a crazy idea that maybe something that I wrote or something that I put on a record would affect people at all.
+- There's a fundamental difference between how often men remember to say 'I love you' and how often women want to hear 'I love you.' For the most part, it's on the guy. He's not withholding it intentionally. It's just that we kind of miss the point sometimes, that even in the most nonchalant way, telling the person how you feel is important.
+- It might be a little embarrassing, but I never ever missed an episode of 'Dawson's Creek' growing up.
+- My dad's a pastor; I grew up in the church, and it's really easy to just have a healthy respect for what some people might be sensitive to.
+- Gavin DeGraw - his first record is the reason that I wanted to start writing music. The way that he says something that everybody says on a regular basis but he says it differently. It makes you kind of perk up and listen.
+- We've gotten to play shows where I'm the headliner, so people are buying tickets to come see me, and that's when you really learn, 'Okay, who's listening to this music?' That and social media. But I couldn't feel luckier about the fan base that is starting to grow... People have just been super, super supportive and awesome.
+- I have to be inspired to write a song.
+- In Nashville, everybody just wants to write the best songs. So it's a very inviting songwriting community.
+- My parents' example of a loving, caring relationship, I think, has affected my songwriting a ton and allowed me to start writing love songs that people could connect to without sounding like you're being cheesy, because they're coming from a real place, something that I saw coming up. I think they're a huge influence on my songwriting.
+- I like the idea of a relationship where you can need and rely on each other and not feel needy and not feel like that makes you not independent.
+- I turned on 'One Tree Hill,' heard the opening song, and went, 'I got to know whose voice that is.'
+- I tried to mix country music into my sets in L.A., and I noticed that was when people checked out. And I was like, 'That doesn't make sense. The genre that I love the most is the one that doesn't work.'
+- When I was young, I would just write poems into textbooks in class. Everybody needs that outlet. For me, I think it's less about learning about myself and more about just needing to get things out sometimes.
+- Californian artists are kind of willing to push the limits a little bit further just because that's kind of our mentality in that state.
+- The power of a label and radio and a booking agency and all that - you never know until you experience it the first time, but being able to have a song on radio, but then go play a show for people that have heard the song on radio, and having it sung back to you, is - I don't know how to describe it.
+- I've never been that comfortable with the acting thing. It's difficult for me to separate what's really going on. If there's kissing, that's kissing. I'm not acting; I don't know how.
+- I have always been a super-emotional dude.
+- I'm very approachable and want to meet everybody.
+- There is a lot of California in my... sound, and a ton of it is the laid-back nature of Southern Californians and the beach.
+- I think Valentine's Day is one of those holidays like New Year's where people develop such high expectations that even if it's a decent day, it doesn't live up, and it's disappointing.
+- There's room for everybody to have success, but the moment I start slacking is the moment people will forget about me.
+- I surfed until I was 18, and being the athlete that I am, I got really frustrated with how I wasn't really getting any better.
+- I say this all the time: I've always been really good at managing my expectations so that I'm not let down.
+- I don't really see why some of those topical lines have to be crossed to get a point across. I want a mother and daughter, a teenage girl and her mom, to be able to come to the show and both enjoy it on the same level.
+- My very first tattoo was a crown of thorns around my upper left arm that I have since gotten covered up, because I got it right before Pamela Anderson came out with 'Barb Wire.'
+- When it's your words, and then you watch it connect with an audience as the artist, I kinda reflect back on the writing process and why those words were important to me. And to watch people sing it back, I mean, that kinda means everything because that's the whole point for me - performance and songwriting - is to connect with people.
+- It is such a surreal feeling to have my first single go No. 1!

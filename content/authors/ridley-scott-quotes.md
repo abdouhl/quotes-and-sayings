@@ -1,0 +1,184 @@
++++
+author = "Ridley Scott"
+title = "Ridley Scott Quotes"
+quotes_len = "178"
+description = "the best 178 Ridley Scott Quotes"
++++
+- In science fiction, we're always searching for new frontiers. We're drawn to the unknown.
+- The people who really resurrected 'Blade Runner' was 'MTV.'
+- When you're doing a big movie, you're gone for 10 months to a year.
+- It doesn't matter how much faith you have or don't have. I just don't buy the idea that we're alone. There's got to be some form of life out there.
+- By going to a preview, a director becomes insidiously infected by the process, so by the end of it, you're thinking, 'It may be a bit too long.'
+- I had a quite unconventional childhood, in the sense that I traveled a lot and I went to 10 or 11 schools. I was completely confused academically, but wherever I went, I could paint. I painted an inordinate amount.
+- The Gulf of Mexico, they believe, is a huge asteroid. That was an impact zone, you know that? Yeah, for that big a thing to actually hit our globe, it would have had to adjusted the spin, the axis.
+- I would make a film with a political point of view if I agreed with it, and even, perhaps, if I didn't.
+- Try writing a book, dude. That's difficult.
+- I grew up in the North of England at a time when Stirling Moss was a hero. Everyone wanted to be a racing driver.
+- And I maintain good relationships with all the studios so I've never been bullied into any cut, frankly.
+- Anybody who does 90 takes has a problem.
+- Yes, obviously, there's this degree of wanting people to accept other people faiths and philosophies.
+- Sci-fi films are as dead as westerns.
+- Most people need the money all the time.
+- When you're watching a documentary, the danger is to romanticize.
+- I don't go to the cinema often anymore - I'd rather just pop in a disk and get the biggest monitor you've got, and if the quality is superb, I can watch a film, and if I don't like it I can pop it out.
+- Far from being dead, physical media has years of life left and must be preserved because there is no better alternative.
+- I am in a constant stage of development.
+- I think one of the successes of Gladiator is how we manage to turn on a dime the character from one thing to another where you believe he is one thing and he is something very different.
+- Taking a comic strip character is very hard to write. Because comics are meant to work in one page, to work in frames with minimalistic dialogue. And a lot of it is left to the imagination of the reader. To do that in film, you've got to be a little more explanatory. And that requires a good screenplay and good dialogue.
+- I would like to have a bit of a break and do a comedy.
+- Technology continues to bring us wondrous advances in filmmaking to improve how we view movies.
+- There's a big film industry in Egypt, and quite a big one in Syria, and there's a big Muslim community in Paris.
+- The U.K. has to keep investing in new technology, skills, and infrastructure to keep pace with international competition.
+- Stanley Kubrick's '2001' was the door that opened up the possibility of science fiction for me. Everything else up to then was fine, but didn't quite work for me.
+- When you're in the editing room, the dangerous thing is that it becomes like telling a joke again and again and again. Eventually, the joke starts to not be funny. So you have to be careful that you're not throwing the baby out with the bath water.
+- When you think about it, 'Avatar' is almost completely an animated movie.
+- In my view, the only way to see a film remains the way the filmmaker intended: inside a large movie theater with great sound and pristine picture.
+- The time it would take me to write a screenplay it would take me the time to make two films. I would rather make the movies, and I'm a better moviemaker than I would be writer.
+- If you circle above Central Park at night in a helicopter, you're looking down at the most expensive real estate in the world. It's the American Monopoly board.
+- Conscience, the power of conscience, can unearth all kinds of things.
+- I like Wadi Rum - it's the best view I've ever seen of what could be Mars.
+- The idea of flying in general does not appeal to me. I can barely understand why people want to fly at all, other than that it's occasionally necessary.
+- Dad entered the Second World War like any other man, trying to do the right thing.
+- Actors are all different. They're not all volatile. Some are sweet, some are volatile, but what is fundamentally in there is something that has to be paid attention to, in that they are, I would say, needy.
+- I think there's nothing worse than inertia. You can be inert and study your navel, and gradually fall off the chair. I think the key is to keep flying.
+- Audiences are smarter than ever; they know if filmmakers cheat an environment.
+- There's some politicians who still seriously believe that we haven't got global warming.
+- Sacred texts give no specific depiction of God, so for centuries, artists and filmmakers have had to choose their own visual depiction.
+- There's still a lot of investors wondering what to invest in. And, of course, I think entertainment looks attractive when you read the few films that make these insane amounts of money. What they don't know is they don't always do that.
+- Any period is fascinating: the more ancient, the better.
+- I think there are a lot of men who feel they're being emasculated by having the woman be in charge; I've never had that problem.
+- Business fascinates me. It's very creative.
+- There are some moments that are pretty distressing in 'Prometheus.' In fact, the last hour is pretty distressing.
+- What's interesting to me about Moses isn't the big stuff that everybody knows.
+- The story of 'Prometheus' is the idea that if you're given a gift from the gods, do not abuse it, and do not think you can compete.
+- I'm used to very strong women because my mother was particularly strong, and my father was away all the time. My mother was a big part of bringing up three boys, so I was fully versed in the strength of a powerful woman, and accepted that as the status quo.
+- The digital and theatrical markets are two different marketplaces.
+- 'Alien' is a C film elevated to an A film, honestly, by it being well done and a great monster. If it hadn't had that great monster, even with a wonderful cast, it wouldn't have been as good, I don't think.
+- Sometimes I find I'm wearing a divided, split brain in terms of drama and humor.
+- I was always amazed about how much I could finally squeeze into a thirty second commercial.
+- I'm a reader. I found out that, whether you're a studio head or a director, you must read your own material. You can't rely on readers.
+- I want to return to the epic idea of the grand, big Western, in the sense that 'The Searchers' was.
+- A hit for me is if I enjoy the movie, if I personally enjoy the movie.
+- My career seems to be a career of non-specific subjects which are all over the place.
+- I've seen some of James Cameron's work, and I've got to go 3D.
+- Unfortunately, we don't seem to learn from history, do we? And you'd think we would.
+- If you ever have a kid who doesn't know what to do, stick him in art school. It's amazing what evolves.
+- I had been very impressed with the voiceover of 'Apocalypse Now,' with Martin Sheen's voice. That was a great voiceover; it really internalized the Martin Sheen character, who was essentially fairly low key and didn't say a lot during the whole movie. But he thought a lot, so I always thought that was really great.
+- I'm agnostic because I went through the usual process of parents insisting you go to church, and yet they didn't. So there's me, sitting in the chairs, thinking, 'Jeez, why am I here? I'd rather be playing tennis, seriously.'
+- Scaring someone's the hardest thing to do, and that's why most of these scary movies are not scary. They're sick, but not scary. There's a lot of sickness out there, of people who then sit there and watch it, which I think is absolutely dismaying.
+- I think over time I've learned to stop being a screamer and get interactive; otherwise, you get killed in Hollywood. I stopped being a screamer shortly after 'Blade Runner,' kicking doors and things like that, because I wasn't actually getting anywhere.
+- I wanted 'Alien' to be all about claustrophobia.
+- I think Phil Dick was particularly interesting in that, first of all, he was a very modern man and a very modern thinker, but I don't know what demons drove him.
+- If you believe, you believe; if you're faithful, you're faithful. I don't care what your religion is. The same if you're agnostic. That should be accepted, too.
+- The ego is there, but I'm learning to channel it.
+- I didn't want to go down the route of spending a year of my life making a movie that would never be seen. I may as well go down a route making a film that a lot of people will see, which is the whole idea behind cinema.
+- I come out of TV. I come out of live television, BBC drama: that's where I started first as a designer, then a director. Then I went independent TV, then television advertising.
+- I don't get attached to anything. I'm like a good antique dealer. I'm prepared to sell my most valuable table.
+- You just don't know when you get all the paint across the canvas how it will turn out. When you step back after you've finished, you say, 'This one is not so good. This one is good.'
+- Cast is everything.
+- When I started the original 'Alien,' Ripley wasn't a woman, it was a guy.
+- 'The Duellists' won Cannes, but Paramount didn't know how to release a film about two guys in bizarre breeches, waving swords around. I actually think it's a pretty good Western.
+- I think sci-fi can easily be PG.
+- You always worry before your movie opens that no one is going to come out.
+- I'm really intrigued by those eternal questions of creation and belief and faith. I don't care who you are, it's what we all think about. It's in the back of all our minds.
+- I've got many letters from Muslim organizations thanking me for making 'Kingdom of Heaven.'
+- Egypt was - as it is now - a confluence of cultures, as a result of being a crossroads geographically between Africa, the Middle East and Europe.
+- I think if I'm going to do a science fiction, I'm going to go down a new path that I want to do.
+- MPC, Moving Picture Company, they're really excellent, they did the majority of the effects.
+- If I have to, I'll go and direct theater and talk till the cows come home.
+- Choosing location is integral to the film: in essence, another character.
+- Fire is our first form of technology.
+- The word 'comedy' implies slapstick.
+- 'Prometheus' was a great experience for me.
+- What you do, is you gradually become more and more experienced, and more and more realistic about dramatic tolerance, i.e. about how long the play should be.
+- One of the problems with science fiction, which is probably one of the reasons why I haven't done one for many, many years, is the fact that everything is used up. Every type of spacesuit is used up, every type of spacecraft is vaguely familiar, the corridors are similar, and the planets are similar.
+- I'm an Englishman who did a film on Mogadishu, 'Black Hawk Down.'
+- If 'formulaic' is somebody who is unlikely to succeed starting down a process and succeeding - then isn't that what most films are about? And art films are about people who aren't likely to succeed and then don't succeed.
+- Perhaps because of my background as a graphic designer, I'm drawn to rich and beautiful colors.
+- I think, at the end of the day, filmmaking is a team, but eventually there's got to be a captain.
+- I knew exactly what to do on Alien, it was funny.
+- If somebody's given me X amount of dollars to fulfill a dream, they've got every right to actually say something about it.
+- Doing science fiction at a high level is tricky. It's really tricky.
+- But Gladiator is one of my favourite adventures because I really loved going into the world. I loved creating the world to the degree where you could almost smell it.
+- I don't ever blink, honestly.
+- As soon as you're at the higher levels of budgeting, you've got to get the film made, and the only way to support the film is to have actors who can support the budget.
+- I started late. I didn't make my first movie until I was 40.
+- I always shoot my movies with score as certainly part of the dialogue. Music is dialogue. People don't think about it that way, but music is actually dialogue. And sometimes music is the final, finished, additional dialogue. Music can be one of the final characters in the film.
+- I get so used to working with writers that my prime occupation is development.
+- If you go back and look, a completely underrated film is 'Quest for Fire.' That was one of the most genius, simplistic but incredibly sophisticated notion of what it was. The evolution of that was just fantastic.
+- The whole process of making movies and writing screenplays is visceral and intuitive.
+- Sometimes, scenes are great without any music at all.
+- Fundamentally, I always find that most of the films that I've put out are essentially the director's cut. Part of the process with a director's cut is the leaving behind of certain aspects of the movie that we don't feel necessary because they aren't part of the dynamic of the story.
+- The best stories come out of the truth.
+- I do a pretty good job at casting actually.
+- The great attraction to 'American Gangster' is these two great characters who are absolute paradoxes within their own sphere.
+- On 'Black Hawk Down,' I was employing 1,000 Muslims. 'Kingdom of Heaven,' same deal except bigger, probably 1,500 Muslims.
+- Churchill strikes a note in my life because my father worked on Mulberry Harbour, which was the code name for the temporary concrete harbours which were towed across the Channel to make the D-day landings in France possible.
+- Sometimes you can do a TV show on a subject you just can't do in film. Either it's too long or studios will perceive it as not being commercial.
+- And anyway, it's only movies. to stop me I think they'll ahve to shoot me in the head.
+- They say, 'TV is not a captive audience,' but it definitely is. You can easily switch off the bloody television.
+- I've always avoided sequels, unless I felt there was something fresh.
+- Do what you haven't done is the key, I think.
+- I watch a lot of 'National Geographic.'
+- Once, I got slaughtered after 'Blade Runner' by Pauline Kael: three pages of slaughter. I was so offended, I would never read any more press.
+- It's everything and I always make decisions about the cast.
+- 'Alien' is a landmark. One of the really good science-fiction films.
+- I'm a very practical person.
+- How can you look at the galaxy and not feel insignificant?
+- You could have ten scientists in this room. You could ask them all: 'Who's religious?' About three to four will put their hands up.
+- The great film editor is not a cutter, he's a storyteller, right?
+- Are we the first hominids? I really, really, really doubt it.
+- I have a healthy competitive nature.
+- From time to time, there are people in the film industry who appear on the horizon with a unique vision. South African director Neill Blomkamp is one of those rare people.
+- A word on 'Kingdom of Heaven:' if you get the four-disc set, which is 3 hr. 8 min., you'll see why it's such a good movie. It was a real passion project, and it's the film I'm most proud of. I think it was treated incredibly unfairly.
+- Because I was a kid from north of England, the only films I had access to was not alternative cinema, which in those days would be foreign cinema; I would be looking at all the Hollywood movies that arrived at my High Street.
+- It's hard writing screenplays.
+- I don't make films for other people; I make films for me.
+- I want a certificate that allows me to make as big a box office as possible.
+- I've gradually realised that what I do best is universes. And I shouldn't be afraid of that.
+- The 3D world allows you to engage even more with a film because you're somehow drawn into the landscape or the universe of that scene. Even when it's two people talking at a table, you feel like you're a third party.
+- We can't terraform yet, but we know it exists.
+- People have no idea how physically tough doing a film is.
+- I was always aware that this whole Earth is on overload.
+- The very first film I ever saw was a pirate movie called 'The Black Swan' with Tyrone Power. And I thought that was great stuff. Of course, in those days, Technicolor was really Technicolor; there was no such thing as desaturation. Everybody looked super suntanned.
+- There has to be absolute trust between the tiger and its master, but its master must be the master - there must be no mistake about that.
+- Politics is very interesting and always leads to conflict.
+- I try to make films, not movies. I've never liked the expression 'movie', but it sounds elitist to say that.
+- 'The Man In High Castle' is one of Dick's most imaginative and captivating works, and certainly one of my favorites.
+- I'm a yarn teller. My job is to engage you as much as I can and as often as I can.
+- The hardest single thing you do is get the bloody screenplay right.
+- Oddly enough, I find it quite engaging to be working with a female when I'm directing. It's kind of interesting.
+- I tend to watch a lot of lower-budget movies to find out what's doing down there and find out who's coming up.
+- 'Blade Runner' was a comic strip. It was a comic strip! It was a very dark comic strip. Comic metaphorically.
+- I unfortunately do suffer for my art.
+- Digital is a different world because you are sitting at home and a hi tech piece of equipment today is within reach of most people, so they are watching a pretty hi tech version of whatever you've done.
+- When you're at a certain point in your time - age, that is, when you're older - you start to realize that, actually, what you leave behind you does count, and so you start to become fundamentally aware of your own destiny, which sounds very grand. It's not grand at all, actually.
+- I used to agonise over what to do next, but now I'm making a movie a year. It's insane, but it's only a movie after all. You just hang in there, and occasionally you might make something which you can call art... briefly.
+- Blade Runner appears regularly, two or three times a year in various shapes and forms of science fiction. It set the pace for what is essentially urban science fiction, urban future and it's why I've never re-visited that area because I feel I've done it.
+- I love designing, and I still do it.
+- Technology will need to make many more huge leaps before one can ever view films with the level of picture and sound quality many film lovers demand without having to slide a disc into a player, especially with the technical requirements of today's 3D movies.
+- I made the mistake of saying I was an atheist at one point, when I was doing 'Kingdom of Heaven.'
+- That's part of the policy: To keep switching gears.
+- History is only conjecture, and the best historians try to do it as accurately as they can. They try to accurately reassemble the facts and then put them down on paper.
+- The word 'religion' is only a label. What lies behind that, the most important thing of all, is the word 'faith'. You either have faith, or you don't have faith, or you have degrees of faith - and if you have degrees of faith, then you become agnostic. You're kind of in-between, or you're on the fence.
+- On rare occasions, Dad used to reminisce about when he met Eisenhower and how Churchill would pop in, in the late hours of the evening or night, carrying a cigar, when he'd obviously had a good dinner.
+- Some people like to do everything always the same thing. That's another way: To do the same thing.
+- I'm fundamentally a positive person. Otherwise, I wouldn't be doing some of the insane movies that I do.
+- As a filmmaker, deep blacks are essential, and in my experience, no technology captures those attributes as well as Plasma.
+- Life isn't black and white. It's a million gray areas, don't you find?
+- For 'Prometheus,' I came back to a very simple question that haunted me that appears in the first 'Alien,' and no one answered in subsequent Alien films: who was the 'Space Jockey' - the big guy in the seat? If you really go into that, it becomes the basis for a pretty interesting story.
+- I watched Someone to Watch Over Me the other night. I thought it was a really good movie. It's a great movie.
+- People say I pay too much attention to the look of a movie but for God's sake, I'm not producing a Radio 4 Play for Today, I'm making a movie that people are going to look at.
+- If studios don't get their money back, we don't have any movies. So it is important that films are successful, and I am fully supportive of that because I'm not just a director, I'm also not stupid. I've been in this business long enough and, to a certain extent, I'm a businessman; I know the importance of that.
+- It's very difficult to find good scripts in Hollywood any more.
+- I'll reshoot a corridor 13 different ways, and you'll never recognise them.
+- Your landscape in a western is one of the most important characters the film has. The best westerns are about man against his own landscape.
+- I am a science fiction enthusiast, really, deep down.
+- I like a film such as 'American Beauty,' and I like 'Spider-Man.'
+- I've got a terrible knee from too much tennis.
+- In film, it's very important to not allow yourself to get sentimental, which, being British, I try to avoid. People sometimes regard sentimentality as emotion. It is not. Sentimentality is unearned emotion.
+- Good FBI officers are not noticeable. You would never look at them.
+- Same thing with film, by the time you've finished shooting and you've really been into everything, you've touched up everything in the editing room. You've gone in there and taken little bits from everything.
+- Everyone is tearing each other apart in the name of their personal god. And the irony is, by definition, they're probably worshiping the same god.
+- The key thing is you can be the only person, your own critic.
+- I was one of those kids who tended to stay in on Saturday nights. My mother used to come and say, 'Why don't you go to the dance with the boys?' And I'm going, 'No, I'm perfectly happy.' I think my parents thought I was definitely weird.

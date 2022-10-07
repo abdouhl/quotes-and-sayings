@@ -1,0 +1,63 @@
++++
+author = "Isla Fisher"
+title = "Isla Fisher Quotes"
+quotes_len = "57"
+description = "the best 57 Isla Fisher Quotes"
++++
+- When you shoot an independent movie you have a very limited amount of time, and you don't want to be that actor, when a poor director is trying to get through a movie, that you're asking at every second to discuss performance.
+- I was raised as a tomboy with boys, and I never really feel like myself when I am really dolled up at premieres and showbiz events.
+- I auditioned for a movie recently, and when I went in, the producer said he'd told one of its stars, Naomi Watts, that he was auditioning me, and she'd said, 'She's so funny; she's a great actress - you should hire her.' What a lovely, kind, and supportive thing to do for another woman.
+- My mother worked when I was growing up, so I was under the impression I'd find it easy to be a working mum. But I found it very hard to be away from my family, even for short periods of time.
+- After 'Wedding Crashers' I was just surprised as to the lack of comedic female material there is. So I had to start working and getting stuff out there for myself.
+- I find weddings really boring. They give speeches, your aunt kisses you on the cheek, and you're at a boring table. But it's different when it's your own.
+- Growing up, there wasn't much emphasis on being nice or naughty. As a family, there wasn't much discipline. It was more relaxed at home, which I'm grateful for.
+- Comedy has always been important in my family. If you got in a good joke at the dinner table, it meant more than almost anything else.
+- I've never been a method actress; I've never been that person that wants to imagine horrible things happening in your own life in order to exploit them for your emotional being in the movie. I'm just not good at doing that.
+- I love Monty Python, Black Adder, Fawlty Towers. I'm a huge fan of British comedy.
+- I love good food and I love to eat in nice restaurants. I love Japanese food. I love Gordon Ramsay in London; he is pretty amazing.
+- I love religions and find them fascinating, and I find Judaism very beautiful. It's enriched my life enormously.
+- Women one hundred percent support each other in the movie industry.
+- I gained 65 pounds with my first baby and 70 with my second. I had severe morning sickness both times, so I mostly ate supersize bowls of white pasta with loads of butter and cheese because that was the only thing that took away the nausea.
+- I think there is nothing sexier than laughter lines.
+- You have to list all your special skills on a form when you get an agent. There's fencing, stage combat, horse riding, motorbike riding, Spanish, French, German, whatever. I just ticked everything. I talk about 10 languages according to that form. I even ticked the extreme sports box.
+- Am I disappointed occasionally by the lack of irony in some movies? Yes.
+- Anytime anyone compliments me on my figure, I'm wearing my Spanx undies.
+- I love marriage. I think it's a wonderful institution and it's the most important decision you make.
+- I'm happy with the idea of being a mum first and an actress second - I'm perfectly content for people to think of me as a stay-at-home mum, rather than an actress, if that is their perception.
+- I tell my girlfriends - 'Imagine if all the time you put into waxing and primping, you took all of that energy and put it into something useful.'
+- I just don't want to miss anything in the lives of my children while they are still young. It's why I don't audition for leading roles at all and why I say no to some of the supporting roles that I do get offered.
+- I never had the chutzpah to just come to L.A. and make it. I didn't have that confidence. I'm always surprised when I get a job.
+- If I'm stuck in traffic or have a bad moment in my day, I go back to my yoga practice, and I breathe.
+- When your parents divorce, it makes you grow up fast. I'd urge parents to strongly consider working things out. I'd work things out and I'd definitely stay put.
+- What I loved about breast-feeding was that bond of one-on-one time. The serotonin that's released calms you down and connects you to the baby.
+- I think audiences have always wanted to see women in the movies, but every time a movie like 'Bridesmaids' comes out, everyone says, 'Oh how funny, people do want to see women in the movies.'
+- All I know is that I've ruled out wearing fairy wings. When I was nine I wanted to get married in fairy wings, and now I realize that's not cool anymore.
+- When you're younger, being a redhead is... Well, my two brothers teased me no end.
+- I've had no helping hand in Hollywood. But in general, I've found that when it comes to getting jobs, what's meant for you can't pass you by.
+- Being proud of who we are as people is more important than cutting into ourselves to create this false idea of beauty.
+- I'm not actually very good at the maintenance thing. I don't buff, exfoliate, pluck, rinse, moisturise, suck, bleach... whatever all those women do.
+- I went to something like six different schools before the age of 12, so I was always the new girl and had to make friends quickly. It was difficult at the start because I was very bookish - I was literally sat in the corner reading books, with no friends.
+- Women should not have to adopt masculine traits in order to succeed. You should be able to stay as a woman, and in tune with your femininity, and still be equal.
+- It's a myth that you can have it all. You can't, but more importantly, I don't think you should want to. It sounds exhausting!
+- You can't underestimate how traumatic divorce is for the children.
+- Being a mother is by far my greatest accomplishment.
+- You can look in the mirror and find a million things wrong with yourself. Or you can look in the mirror and think, 'I feel good, I have my health, and I'm so blessed.' That's the way I choose to look at it.
+- I do consider myself to be a feminist.
+- In Hollywood, you feel a responsibility to look less disheveled than you are. But I'm a mom, and I'm not good at putting time into prepping.
+- An easy way to get people to like you is to make them laugh.
+- I think there is nothing sexier than a handlebar moustache.
+- You know, motherhood is my favourite topic in my personal life and I won't shut up about it, but it's not something I want to discuss publicly just because of the amount of attention it draws to a small person who didn't choose to be exposed.
+- You know, I didn't get to go to university because I've been acting since I was a kid.
+- I love acting, love it. It's the greatest fun in the world. I've never had trouble feeling extremely grateful.
+- I crashed my boyfriend's birthday when I was 12 years old. He didn't invite me and so I showed up.
+- Family is 100 per cent my top priority.
+- I'm definitely attracted to other Australians; I have a laid-back attitude to life that I feel is very Australian; I love a good barbie.
+- I don't really watch many heist movies. Actually, I have quite eclectic tastes, but I tend to watch just foreign films. I don't know why that is. I'm not particularly deep or anything, I just like foreign movies.
+- I've auditioned so many times and been told I'm 'not sporty enough' or I'm 'not sexy.'
+- I breastfed both my kids for two years so, you know it was very tiring emotionally and physically.
+- The most romantic thing a guy has ever done for me is starting a family. That's as romantic as it gets.
+- I don't like junk food, just because I don't like the taste of it, but I don't go to the gym - ever.
+- I think all married couples tend to run things by each other in every capacity and we're not different to them.
+- I love to cook. But I'm a bit rubbish. I tend to start something and then dip into a book or have a conversation and come back and everything's burnt.
+- I don't think one should incentivise the losing of teeth. I find the idea of a child getting an iPad, or a £20 note, for losing a tooth, utterly abhorrent. Fifty pence, or a pound at most, is what my children can expect from the Tooth Fairy.
+- I love 'Monty Python,' 'Black Adder,' 'Fawlty Towers.' I'm a huge fan of British comedy.

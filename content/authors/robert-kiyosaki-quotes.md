@@ -1,0 +1,242 @@
++++
+author = "Robert Kiyosaki"
+title = "Robert Kiyosaki Quotes"
+quotes_len = "236"
+description = "the best 236 Robert Kiyosaki Quotes"
++++
+- I explain the law of compensation like this: 'Returns are minimal in spite of massive effort at the start, yet returns can be massive with minimal effort over time.
+- In the world of money and investing, you must learn to control your emotions.
+- Most of us are aware of the sacrificial slaughter of Bear Sterns. Some people call it a bailout, but I call it a handout - a government handout to some of the richest people on Earth, paid for by American taxpayers.
+- At my lowest point, I was nearly $700,000 in debt.
+- Losers are people who are afraid of losing.
+- Even if the economy crashes, we will still burn oil.
+- I'm a cash flow guy. If it doesn't make me money today, forget about it.
+- Assets put money in your pocket, whether you work or not, and liabilities take money from your pocket.
+- You can't take care of charity unless you take care of yourself first.
+- Most businesses think that product is the most important thing, but without great leadership, mission and a team that deliver results at a high level, even the best product won't make a company successful.
+- So the Marine Corps really did teach me to conquer fear, and then to go for higher causes, higher purposes.
+- I have had a 'real' job for only four years of my life, which means I only collected a traditional paycheck for that very short period of time.
+- Few people realize that luck is created.
+- Unlike many of its European neighbors, Britain shares many of America's financial traits.
+- The Nasdaq bubble and crash were followed by the real estate bubble then subprime crash, which led to the unprecedented printing of trillions of dollars in an attempt to prevent a global depression.
+- My dad seemed comfortable with his decision to be a 'have-not,' but I knew that I wasn't.
+- As a bull market turns into a bear market, the new pros turn into optimists, hoping and praying the bear market will become a bull and save them. But as the market remains bearish, the optimists become pessimists, quit the profession, and return to their day jobs. This is when the real professional investors re-enter the market.
+- Our brains are either our greatest assets or our greatest liabilities.
+- Giving a poor person money keeps them poor.
+- Money and investing can be complex, confusing, and often boring subjects.
+- You do not have to be a rocket scientist to know that it is hard for a market to keep going up when more and more people are getting out.
+- Regardless of what our national credit rating is, people will always want a roof over their heads, food on their tables, fuel for their cars, and clothes on their backs.
+- The minute a Wall Street firm purchases your debt, your bank no longer has it on its financial statement, which then allows the bank to look for more credit card customers. That's one reason why you get so many credit card offers.
+- Jim Cramer is a very smart man. I watch his show. I just do not follow his advice.
+- I'm always amazed at how many people assume a business has to lose money before it makes money.
+- Until we have comprehensive financial education, we'll never see the end of our booms and busts.
+- When I started my last business, I didn't receive a paycheck for 13 months. The average person can't handle that pressure.
+- Good entrepreneurs are community builders, actively involved with their communities and dedicated to the community's well being. If you're dedicated to your community, it will be dedicated to you.
+- If you've lost your spirit, even living in the richest country in the world can't help you become rich.
+- Learn to invest in investments where you can achieve an honest, legal advantage over other investors. When it comes to investing, why play on a level field?
+- If you or I fail at business, we fail. If we cheat and fail, we go to jail. But if you're rich and politically connected, your incompetence may be protected by a government bailout.
+- I wasn't born a natural entrepreneur. I had to be trained.
+- Pricey oil makes clear that wealth really is energy in various forms.
+- The thing I always say to people is this: 'If you avoid failure, you also avoid success.'
+- In military school, on day one you must memorize the mission of the Merchant Marine Academy.
+- I'd rather be a victor than a victim.
+- Confidence comes from discipline and training.
+- I do know that throughout history, all paper money has eventually come back to its true value, which is zero.
+- It's time to start thinking differently about money and debt and start the healing process - and the process toward wealth and freedom. 'Freedom from Bad Debt' can get you started.
+- As long as you blame someone or something else - something outside you that's bigger than you are - as the source of your problems, the problems won't get solved.
+- I began playing Monopoly for real when I was 26 years old. Today, my wife and I have approximately 1,400 little green houses - each paying us monthly. You do not have to be a rocket scientist or have a Harvard degree to play Monopoly for real.
+- Tax season always means a deluge of tax advice. Unfortunately, most of it is futile and lightweight.
+- The average age of the world's greatest civilizations from the beginning of history has been about 200 years.
+- It's tough to negotiate from a position of weakness.
+- You have to be smart. The easy days are over.
+- Commodities such as gold and silver have a world market that transcends national borders, politics, religions, and race. A person may not like someone else's religion, but he'll accept his gold.
+- The power of our thoughts may never be measured or appreciated, but it became obvious to me as a young boy that there was value and power in being aware of my thoughts and how I expressed myself.
+- As a precious metal, silver is also money.
+- If you're going to be a winner in life, you have to constantly go beyond your best.
+- As you know, low demand and high supply means a drop in value of anything, including the dollar.
+- I mean, Hawaii is beautiful, but the world is full of beautiful places.
+- Most employees only want to know how much they get paid and how much time off they get - they probably don't have the mission in their souls.
+- This 90/10 rule holds true in almost anything financial. Take the game of golf, for example. Ten percent of the professional golfers make 90 percent of the money.
+- Many people will have nothing at the end of their working lives.
+- Socialists tend to want to pay people more money to do less work, and capitalists tend to want to provide better products at better prices.
+- In business, success often depends upon the relative age of your ideas.
+- There may be less of a chance of losing all the money you put into a mutual fund than there is of losing all the money you put into lottery tickets, but you're never going to win big in a mutual fund.
+- Jobs are a centuries-old concept created during the Industrial Revolution. Despite the reality that we're now deep in the Information Age, many people are studying for, or working at, or clinging to the Industrial Age idea of a safe, secure job.
+- The Spanish Empire eventually collapsed because of its expensive taste for warfare and conquest.
+- A lot of people are afraid to tell the truth, to say no. That's where toughness comes into play. Toughness is not being a bully. It's having backbone.
+- The problem with real estate is that it's local. You have to understand the local market.
+- The rich are those who play to win. The middle class plays not to lose.
+- Generous people can become more generous as they become richer, giving away vast fortunes to worthwhile causes as Bill Gates and Warren Buffett are doing.
+- Education is what you learn after you leave school.
+- I'm a real estate guy.
+- A true capitalist doesn't have a job, because other people and other people's money work for them.
+- All empires come to an end, and the American one is no exception.
+- We misjudge risk if we feel we have some control over it, even if it's an illusory sense of control.
+- One of the reasons so many people get burned in the market is because they start buying as they see prices going up.
+- This rise of the new global mega-rich is happening as established institutions are falling. The fall runs the gamut from the music business and traditional media to the Detroit automakers who find themselves obsolete, outmaneuvered, and out-priced by entrepreneurs in Silicon Valley, Mumbai, Shanghai, and even Siberia.
+- If you are the kind of person who is waiting for the 'right' thing to happen, you might wait for a long time. It's like waiting for all the traffic lights to be green for five miles before starting the trip.
+- When I watch professional football, I love listening to John Madden because I know he knows what he's talking about. He's been both down in the trenches and in front of the bench as a coach. He knows the game.
+- Money is kind of a base subject. Like water, food, air and housing, it affects everything yet for some reason the world of academics thinks it's a subject below their social standing.
+- I've had all six of my books reach the New York Times bestseller list, which is especially rewarding seeing as I flunked out of high school twice because I couldn't write. It just goes to show you that we learn from our mistakes.
+- Even though the risks of death are higher driving than flying, many people would rather drive simply because they feel they have more control driving. The facts are that only a few hundred people die a year flying, and 44,000 are killed a year driving.
+- The dollar has lost over 90 percent of its value since the Fed was created.
+- Whole new businesses will emerge around breakthrough products as revolutionary technologies accelerate capitalism's creative destruction of slower industries.
+- When President Obama speaks about raising taxes on the rich, he speaks about high-income employees and small business owners, not entrepreneurs who build big businesses.
+- When I was a kid, there were no credit cards. Instead, retailers offered layaway plans. My mom would go to a store, such as a furniture outlet, choose the sofa she wanted, and put it on layaway. That meant she put a little money down to hold the sofa, and every payday she'd pay a little toward the purchase.
+- If you look at anyone who has achieved great success and wealth, people like Warren Buffett, Oprah Winfrey, or Lance Armstrong, they have all focused intensely in order to win.
+- The rise in the price of gold is a sign that capitalism has stumbled.
+- I know the Federal Reserve Bank can continue to print more and more money... but city and state governments cannot.
+- Our global economy is much more fragile than many of us realize.
+- Academic qualifications are important and so is financial education. They're both important and schools are forgetting one of them.
+- The trained mind is a rich mind.
+- I am very concerned about the millions of baby boomers who are counting on the stock market to deliver them a safe, sound, long retirement. I am afraid the baby boomers who are counting on the stock market are in trouble.
+- Critics only make you stronger. You have to look at what they are saying as feedback. Sometimes the feedback helps, and other times, it's just noise that can be a distraction.
+- Intelligent people should learn from their experiences. With people on the street, the bad experience has beaten them.
+- Most people are happy being average. Most are happy being faceless in a sea of faces.
+- Demographics show that we are entering a battle between young and old. I call it the 'Age War.' The young want to hang onto their money to grow their families, businesses, and wealth. The old want the tax and investment dollars of the young to sustain their old age.
+- History reminds us that dictators and despots arise during times of severe economic crisis.
+- Many gold and silver experts will recommend you buy numismatic coins - rare and old coins. If you are not a rare coin expert, I'd encourage you to stay away from them. New investors often pay too much for rare coins that are not really rare.
+- 'Credit' is another word for trustworthiness.
+- Everything the working class has been told to do, the rich do not do. That is my message.
+- Remember that all financial markets are filled with good but not necessarily innocent people looking after their own self-interests before they look after yours.
+- Managing your own property can be a full-time job.
+- Strength and compassion are not mutually exclusive.
+- Every time I hear a politician mention the word 'stimulus,' my mind flashes back to high school biology class, when I touched battery wires to a dead frog to make it twitch.
+- The rich don't work for money - the rich invent money.
+- Prophets of doom have always taken risks in terms of ridicule and humiliation. If you stand on a street corner holding up a sign that reads 'The End Is Near,' passersby will laugh and heckle. People will say you're like Chicken Little, running around telling people the sky is falling.
+- I want parents to teach that academic intelligence is essential, but so is financial intelligence.
+- It's easier to aim to please and say what others want to hear than to form an opinion and fight for it, even if it means taking a risk or losing your job.
+- Success is not a stop sign.
+- Inside of every problem lies an opportunity.
+- The environmentalists say capitalism is killing our oceans, air, land, and forests. Capitalists argue that they provide food, fuel, and building materials for a growing world.
+- Finding good partners is the key to success in anything: in business, in marriage and, especially, in investing.
+- Many entrepreneurs do not realize that many of the problems their businesses face today began yesterday, long before there was a business.
+- I have a problem with too much money. I can't reinvest it fast enough, and because I reinvest it, more money comes in. Yes, the rich do get richer.
+- For people who live in the suburbs and must commute long distances to work, their wealth will sink as energy prices rise.
+- The idea of going to school and getting a job is the most destructive one in your brain.
+- I've actually taken companies public, I've actually busted companies, I've actually gone broke.
+- If I have cash and I can't figure a way to put it into real estate or my business, I hold it in gold and silver.
+- Every time the Fed implements 'quantitative easing,' a.k.a. printing more money, two things go up: taxes and inflation. When taxes and inflation go up, more jobs are lost.
+- If you want to thrive in today's economy, you must challenge the status quo and get the financial education necessary to succeed.
+- From 1945 to 1974, the Western world - including America - was more socialistic than capitalistic, more pro-labor than pro-business.
+- Warren Buffett is famous for talking about the 'intrinsic value' of stocks. But while many people parrot this phrase, few know what it really means.
+- Being politically correct means saying what's polite rather than what's accurate. I like to be accurate.
+- The size of your success is measured by the strength of your desire; the size of your dream; and how you handle disappointment along the way.
+- Financial freedom is available to those who learn about it and work for it.
+- I believe that one key to success is to accept truth, no matter how it's spoken.
+- If you want to know why the towers of American capitalism are crumbling, I recommend reading 'The Creature from Jekyll Island' by G. Edward Griffin.
+- Many novice real estate investors soon quit the profession and invest in a well-diversified portfolio of bonds. That's because, when you invest in real estate, you often see a side of humanity that stocks, bonds, mutual funds, and saving money shelter you from.
+- As a young kid, I really wanted to be rich.
+- You make more money if you're generous.
+- Unfortunately, in a recession, the people who suffer the most aren't the rich, but the wanna-be rich and the poor.
+- Life is better when people are working, happy, and spending money.
+- I don't like being told what to do and kissing you-know-what to get up the corporate ladder.
+- Trouble brews when we steal from the poor and give to the rich.
+- During the Enron debacle, it was workers who took the pounding, not bankers. Not only did Enron employees lose their jobs, many lost their retirement savings. That's because they were at the bottom of the investing food chain.
+- Many people aren't rich because they're liars.
+- A financial crisis is a great time for professional investors and a horrible time for average ones.
+- People clinging to job security, savings, retirement plans, and other relics will be the ones financially-ravaged from 2010-2020, the most volatile world-changing decade in history.
+- In the simplest terms, inflation occurs when there's too much money in the system. On the flip side, deflation occurs when there are too few dollars in circulation.
+- Quitting is the easiest thing to do.
+- Money has a language of its own.
+- World War II broke out in 1939, and many people credit that war with saving the economy.
+- In 1997, in Rich Dad, Poor Dad, I stated, 'Your home is not an asset.' Real estate agents sent me hate mail.
+- If you don't like the idea that most of the money spent on lottery tickets supports government programs, you should know that most of the earnings from mutual funds support investment advisors' and mutual fund managers' retirement.
+- An example of good debt is the debt on the apartment houses I own. That debt is good only as long as there are tenants to pay my mortgages. If tenants stop paying their rent, my good debt turns into bad debt.
+- Most people have the opportunity of a lifetime flash right in front of them, and they fail to see it. A year later, they find out about it, after everyone else got rich.
+- When President George W. Bush attempted to reform Social Security, that proposal was more unpopular with Americans than the Iraq war. People love their entitlements.
+- If you can ask a young man to give his life for his country, you can lead people.
+- Many U.S. investors are already investing overseas rather than at home.
+- I worked for Xerox for 4 years and after that I knew I was never going to be a corporate person. It wasn't my environment.
+- In 'Unfair Advantage: The Power of Financial Education' and 'Why A Students Work for C Students,' I reveal the secrets of the wealthy and what schools will never teach you about money.
+- Millions of Americans and people around the world, especially young people who face intense financial challenges today, haven't been taught how to take control of their financial future.
+- The greatest story of all is Colonel Sanders. He didn't start until he was sixty-six on a freeway bypass for his chicken shop. Anything is possible!
+- While the Chinese people, as a rule, are good people, my business dealings with Communist Chinese officials have left me disturbed and concerned about the rise of the Chinese Empire.
+- The problem with being an employee or self-employed is you pay the highest taxes.
+- It costs governments money to keep fuel prices low. Oil-rich Yemen, for instance, devotes 9 percent of its GDP to making sure its people don't riot when oil prices rise.
+- The state of the economy is not the issue when it comes to growing a business. The relevant questions are always: 'What business are you in? Furthermore, is it adapting to the times?'
+- I don't invest in ideas because ideas are a dime a dozen. I could steal the idea pretty quickly.
+- Something's very wrong with a nation that would rather spend money on war than take care of its children.
+- The best way to predict the future is to study the past, or prognosticate.
+- I did have two dads; one was a socialist, and one was a capitalist. I really decided I would rather be a capitalist.
+- It's human nature to blame someone else for your shortcomings or upsets.
+- My company survives because I've learned to respect the ideas of people younger than me and recognize when my wisdom is obsolete.
+- When people are lame, they love to blame.
+- You can only choose between rich and poor. The middle class is gone.
+- Face your fears and doubts, and new worlds will open to you.
+- Israel will not tolerate Iran developing nuclear power, even if Iran claims it is for peaceful purposes. If there is an attack, oil prices will go through the roof.
+- Getting rich is about fun. It's a game, and you have to treat it that way.
+- I've always wanted to live above my means because it inspired me to work harder.
+- Any time an investment company has to spend heavily on advertising, it's probably a bad business in which to invest.
+- Most small-business owners have no financial education when they started. They weren't trained to be entrepreneurs.
+- If I lost my job, I'd get a job at McDonald's.
+- Often, in the real world, it's not the smart that get ahead but the bold.
+- The Web and new technology offer more opportunities to reach a world market at a lower price. Today, a person can start a business at home and reach the world market.
+- The thing most people don't pick up when they become an entrepreneur is that it never ends. It's 24/7.
+- Most shareholders have little if any control over the companies in which they own stock, even if they own a million shares.
+- Deflation isn't good, and inflation is easier to cure than deflation.
+- If you want to go somewhere, it is best to find someone who has already been there.
+- Sometimes the hardest thing to do is to trust your team. It's a lesson I've had to relearn quite a few times.
+- When times are bad is when the real entrepreneurs emerge.
+- I resigned from the Marine Corps and flying in 1974, even though I loved them both. I quit because I no longer wanted to fight for peace. Instead, I believe we can build a more sustainable peace by working for prosperity.
+- You have to look for teachers. If you want to be a mechanic, go hang out with mechanics.
+- My partner Donald Trump says that married couples should always have a prenuptial agreement. True, a prenuptial is important if one partner is much richer than the other before marriage, but Kim and I don't have one.
+- People concerned about inflation today tend to buy big houses and nice cars.
+- My measure of success is whether I'm fulfilling my mission.
+- It was easy being healthy when I was young. I was full of energy, so sports and physical challenges were fun. But as I got older and the spring left my step, exercise became harder, and eating, drinking and watching TV became easier. By the time I was 50, I'd put on 50 pounds.
+- I believe that every one of us has a gift. And I believe that mine is the ability to take the complex and make it simple.
+- My family wasn't rich, so when it comes to money, I tend to think, 'Err on the side of caution.'
+- When you combine boring with fear, you have fun.
+- Ken Lay, the disgraced former chairman of Enron, found a way to escape his legal problems: He died after being convicted of fraud and conspiracy charges.
+- Gold is hoarded. It's estimated that 95 percent of all gold ever mined is still around.
+- Silver is used in the electronics industry and is consumed daily; stock piles of silver are dwindling.
+- Working hard to earn more money and then giving it away in higher taxes isn't financially intelligent, even if you do put some of it into a retirement account.
+- People say 'I want to be rich'. The question is, 'Are you willing to do what it takes?'
+- 'Socialize' means we turn more of our personal powers over to Big Brother, not free enterprise.
+- The problem is that the U.S. government is the biggest debtor in the world, and those depending on it to take care of them will only become poorer.
+- Although I don't like the way the Chinese do business, I continue to do business in China. I have to. They're the next world power.
+- If my businesses or my investments are not profitable, then I don't eat. And I like to eat.
+- When America stopped importing from China, China stopped importing from the rest of the world. This affects Asian countries as well as Australia, Brazil, and other suppliers of raw materials.
+- A short squeeze could happen with the U.S. dollar if lenders suddenly forced debtors to pay in cash.
+- We've all heard stories of lottery winners, rock stars, heirs and heiresses, and professional athletes becoming millionaire morons who wake up rich but are broke by nightfall.
+- We go to school to learn to work hard for money. I write books and create products that teach people how to have money work hard for them.
+- Bad debt is debt that makes you poorer. I count the mortgage on my home as bad debt, because I'm the one paying on it. Other forms of bad debt are car payments, credit card balances, or other consumer loans.
+- When I was young, people lived from paycheck to paycheck. Today, it seems like they live from credit card payment to credit card payment.
+- For something to collapse, not all systems have to shut down. In most cases, just one system is enough. For example, the human body is a system of systems. If just one system, such as the cardiovascular system, shuts down, death follows.
+- If you have faith in our leaders of commerce, don't buy gold. If you do not have faith in them, maybe you should buy gold or silver.
+- My rich dad believed we should all learn to take care of ourselves.
+- Real estate investing, even on a very small scale, remains a tried and true means of building an individual's cash flow and wealth.
+- The richest people in the world look for and build networks; everyone else looks for work.
+- By 2003, every fool was getting into real estate. The checkout girl at my local supermarket handed me her newly printed real estate agent business card.
+- In my experience, many people confuse being cowardly with being nice.
+- Many financial advisors recommend that you diversify for your own protection. What they fail to tell you is that it is also for their protection. Since most financial advisors cannot tell you exactly which stock or mutual fund is a great investment, they tell you to buy a bunch of them.
+- I would say raising capital is one of the weakest things for most entrepreneurs.
+- Everybody could be an entrepreneur, but very few will become very rich entrepreneurs.
+- The rich continue to get rich the same way they always have - by understanding how money works and making their money work for them.
+- People who lie to themselves about investing are the same as overweight people who blame their genes for their obesity.
+- When I was young, many people worked for a company with a pension plan that covered them for as long as they lived. If they didn't have a pension plan, they could count on Social Security and Medicare.
+- At the height of the Enron mania, the company's market value was $65 billion. Once the dust cleared, the final value was $0.
+- Start a part-time business and make as many mistakes as you possibly can while you still have your daytime job.
+- I am pro-education. I'm just anti the system.
+- An active investor is someone who actually lives off their investments as opposed to wages from a job.
+- French fries kill more people than guns and sharks, yet nobody's afraid of French fries.
+- What I invest in, while not risky for me, may be too risky for most people.
+- The more a person seeks security, the more that person gives up control over their life.
+- Today, medical devices such as catheters and stethoscopes use silver, and every hospital in the western world uses silver sulfadiazine to prevent infections.
+- Military school was great and especially great for leadership and then I spent two years in Vietnam.
+- If medical doctors can be sued for malpractice, shouldn't financial professionals practice under the same safeguard?
+- The subprime disaster was a result of financial bombs - derivatives - exploding in financial institutions such as AIG and Lehman Brothers, as well as banks and financial institutions throughout the world.
+- Fuel prices are at the center of our lives. They affect our ability to travel, stay warm, and feed ourselves.
+- If you must invest in paper, learn to be an options trader. Then you will know how to make money whether the markets are going up or down.
+- When you think about it, three of our biggest financial decisions in life are made at times of peak emotional excitement: deciding to get married, buying a home, and having kids.
+- I still consider myself a little, fat kid from Hawaii.
+- I just don't like mutual funds. I think they're a rip-off.
+- Over a 10-year period, 99 out of 100 new entrepreneurs will fail. Only one will be left standing as others get pushed out of the market or burn out from working so hard. It's really sad.
+- A game is like a mirror that allows you to look at yourself.
+- I do not live on false promises. I cannot afford to live on bad advice.
+- As capitalism falters, the rich move their money out of the country, violence increases, and politicians promising prosperity are elected.
+- That's correct, I flunked out of high school twice because I couldn't write.
+- When my book 'Rich Dad's Prophecy' was released in 2002, most financial newspapers and magazines trashed it because I discussed a looming stock market crash.
+- People invest in businesses that they believe have the leadership, mission and team to grow and operate profitably.
+- John D. Rockefeller apparently became more of a tightwad the richer he got. I don't know if it is true, but one story I read was about one of his sons having to wear his older sister's clothes in order to save money.
+- If you're working for a good company and you're happy there, and you're being compensated accordingly, and your work satisfies you, you should stay there.

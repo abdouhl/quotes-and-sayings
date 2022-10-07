@@ -1,0 +1,126 @@
++++
+author = "Conor Oberst"
+title = "Conor Oberst Quotes"
+quotes_len = "120"
+description = "the best 120 Conor Oberst Quotes"
++++
+- When I would first come to New York on tour, I hated the place.
+- To finish a song is the best feeling in the world.
+- The idea of forever is kind of ridiculous, which is unfortunate because it's kind of a nice thing to say, you know. I think it softens the blow of mortality and having to say goodbye to everything you know and everyone you love and all that kind of thing.
+- So much of listening to lyrically driven music is projecting your own feelings and experiences into the music.
+- Love's an excuse to get hurt.
+- The best feeling I ever get is when I finish a song, and it exists, and it didn't exist before, and now it's there, and it makes me feel a certain way.
+- It's very strange when people get so focused on what a song means, what actual events inspired a song. That gets people really excited for some reason... But that's what's great about music - however people interpret it, whatever they see, is what I want to be there for them.
+- I try to keep the idea that there's an audience in as little space in my mind as possible, but you can't erase it entirely, the idea that when you're sitting down to write a song, people are going to hear it.
+- There's a small amount of super-wealthy people that want to maintain their billions and billions of dollars. Those are the people who are really making the decisions.
+- In theory, I always think I should totally go back to school, because I don't want to start sinking slowly... I want to learn, blah blah blah. Then I think about actually going and sitting in classes and, man, it sounds terrible.
+- I really believe in the way the energy can consolidate in certain geographical spots. You can find it in a lot of different places, beautiful natural spots, or if you look at Islam or Judaism or Christianity, these ideas of holy places.
+- I like ideas, but I don't like being preached to.
+- I think there's a danger, for me at least, in retreating and going inward and depression. I have to stay diligent against that tendency.
+- Gabriel Garcia Marquez is one of my all-time favorite writers. I feel spiritual when reading his words, even though they're translated. I wish desperately that I could read it in its original language. I already feel like I'm going to church when I read him; imagine if I could read it in the original.
+- Art is essentially communication. It doesn't exist in a vacuum. That's why people make art, so other people can relate to it.
+- When I started writing songs, I was doing it for myself and a small circle of friends. And gradually, over the years, an audience became involved.
+- I'll write about myself, or people I know, or archetypal characters, but the goal is to get at some truth, not to necessarily convey my own experience as an individual to the world.
+- I'm proud that with 'Bright Eyes' we've always experimented and tried to make a different record every time out.
+- I have on many occasions spoken my mind from stage. I have offered organizations table space by the merch booth. I have donated a dollar-a-ticket, or the entire guarantee, to different causes. I have registered voters. I have played on behalf of political candidates.
+- There's a very fine line between one person's reality and another person's fantasy.
+- I would prefer to be a little nervous, because when you stop being nervous is kind of when you stop caring.
+- You can only really understand good if you have bad, so the idea of heaven or anything that happens for eternity, even if it's nice, I can't imagine it being nice forever. Even the idea of forever is kind of ridiculous, which is unfortunate because it's kind of a nice thing to say, you know.
+- I'm always fascinated when people really fervently believe, because I have such a hard time believing anything. When people have real faith in something, it's fascinating to me. And the fact that so many people, in surveys, so many people say they do. It kind of blows my mind.
+- If there's a criticism of 'Cassadaga' that I agreed with, it's that we left things in the oven too long, that songs were overstuffed, with too many ideas competing for space.
+- Screaming is bad for the voice, but it's good for the heart.
+- I keep my eyes closed a lot when I'm singing because sometimes it's distracting to see people.
+- I was raised Catholic, and I have an aversion to anyone who takes religion to the extreme.
+- The fact that anytime you think you really know something, you're going to find out you're wrong - that is the rule. The moments where you think you have something figured out, those are the exceptions.
+- It's human nature to wonder.
+- When everything is lonely I can be my best friend.
+- I've thought about the idea of, 'Can happiness and creativity co-exist?' So much of what I've done, I think, has been based on being dissatisfied or incomplete or lonely. The answer is, 'There isn't an answer, necessarily.'
+- Sometimes I daydream about having a farm and a wife and some babies and watching the grass grow, but you have to meet the right person for that.
+- I like the Alice in Wonderland sculpture in Central Park. I love how it's been rained on forever and looks worn down by time.
+- I always embrace the worst-case scenario.
+- There's a lot of optimism in changing scenery, in seeing what's down the road.
+- It's dangerous to buy into praise and criticism for what you do when you're trying to present your music to people. I don't ignore it completely, but I don't dwell on it too much.
+- The way my life's structured, I don't stay in a place for more than a couple months.
+- It seems like everything I do musically I tend to lose a few fans and gain a few fans, and it all kind of evens out.
+- I think there are some songs that stand the test of time better than others for sure. I think some songs go out of favour; I'll get sick of a song for a while, and I won't play it; then it'll make a comeback.
+- Life is always surprising to me. When you think it's going to get dull, it never really does.
+- I have a terrible memory in general, but one thing I've always been able to remember is my songs.
+- I like science fiction. Arthur C. Clarke, Philip K. Dick and Vonnegut, and I really like Margaret Atwood, 'The Handmaid's Tale.' And you know, so much of science fiction has to do with predicting what's to come, so I think that's really interesting.
+- They say it's better to bury your sadness in a graveyard or garden that waits for the spring to wake from its sleep and burst into green.
+- I know a girl who cries when she practices violin because each note sounds so pure it just cuts into her, and then the melody comes pouring out her eyes. Now, to me, everything else just sounds like a lie.
+- I think in a lot of ways unconditional love is a myth. My mom's the only reason I know it's a real thing.
+- People resist change; if they like something, then they want you to keep doing it over and over - but I think if you like what a particular band or artist does, then you should want to see what they're going to do next.
+- The only thing major labels can really offer is money.
+- I believe that vinyl will outlast CDs.
+- I have a car in Nebraska. When I bought it, they gave me a satellite radio, and there's an 'indie-rock' station. It's just nothing I'm interested in.
+- With science and reason throughout history, what people believed turned out to be false. So I like to keep an open mind to all perspectives and learn and become more fully realised as a person. I just feel we're never going to know what the full picture is.
+- The one recurring theme in my writing, and in my life in general, is confusion. The fact that anytime you think you really know something, you're going to find out you're wrong - that is the rule. The moments where you think you have something figured out, those are the exceptions.
+- I kind of go in waves with reading. Sometimes I read all the time, and sometimes I can't get settled enough to focus.
+- I prefer career artists that have spent time honing their craft, as opposed to, 'I won a karaoke contest on a reality show and now I have a record.' That's such a drag. The music that comes out of it is so poor.
+- No lies, just love.
+- If you think about the concept of reincarnation, it's essentially uploading yourself and your spirit into a new form, a new hard drive as it were.
+- When you look at what people consider success in the music industry, it's just terrible music.
+- When I was younger, I was somewhat of an idealist. I guess I'm a little bit more of a realist now. I think there's a lot that can be done to make the world a better place, but it's more about choosing your battles.
+- Once you realize that everyone is in the same boat, that everyone is just as insecure and childlike as everyone else, that all these jokers in D.C. ruining our world are just greedy kids grabbing for marbles - I think that realization means you're an adult.
+- When you're 16 or 17, I think like most people that age, the first time you experience certain things in life, whether it's heartbreak or death or love, obviously it's going to seem like a much bigger deal.
+- Why are you scared to dream of god when it's salvation that you want?
+- I try to make all my songs good. I don't ever write one to finish one. A lot of protest songs end up that way, driven by some kind of emotional response.
+- On every Bright Eyes record, there's some kind of sound collage that begins it. Some of them have dialogue, some don't. I like it because it can kind of slow down the attention span a bit. It's a way to draw you in to the rest of the record.
+- I think there's so much about Rasta culture that's interesting. Just the idea of preaching one-ness, that we're all in this together.
+- My main thing is just to keep writing. I've been doing some songwriting that's for my own record, I suppose.
+- I've been part of running a label since I was a kid, so I understand how it works. But the more and more I learn about it, the less and less interested I am in it.
+- I've cried, and you'd think I'd be better for it, but the sadness just sleeps, and it stays in my spine the rest of my life.
+- When I try to explain to people the big influences in my life, or at least when I first started, the most important ones were my friends who were also writing songs and were typically four or five years older than me.
+- If there's a song that stops meaning anything to me, then I'll quit playing it.
+- In many ways Bright Eyes is really a studio project. We form bands to tour, but it really is - you know, we take the songs and we figure out how to decorate them and it's all in the studio; we build the songs that way.
+- I think that, with anything creative, you should have the freedom to experiment, and that experimentation means not feeling totally responsible for how other people perceive it.
+- I went right from wunderkind to washed up. Old. Been around too long. That's just the way I feel. That's my internal dialogue.
+- We've all seen the power music has to spread messages of solidarity and hope.
+- I think we should be pushing for amnesty and a path to citizenship for every undocumented person residing in the United States who has not committed a violent crime, with a special emphasis on keeping families together.
+- Joe Arpaio needs no help from me getting attention. For years he has been a beacon of bigotry and intolerance for all the world to see. The list of human and civil-rights abuses he's committed in Maricopa County is long and well documented.
+- The worst thing you can do as an artist is to repeat yourself.
+- I'll never understand how destroying families through deportation benefits our society. How we treat the undocumented says a great deal about us as a people and whether or not we'll continue to fulfill the fundamental American promise of equality and opportunity for all.
+- I have many friends who are both Mexican and Mexican-American and others who, I guess you would say, are somewhere in between. The ironic thing is that all three of those categories often exist inside of the same family.
+- I remember having to quit school and quit my job. I just sort of moved all my stuff into other people's places. Within, like, six months, I was able to earn enough money from touring to rent a place again.
+- I've given up trying to understand what people think about me. It seems like a lot of people don't like the music we make and don't know me, or something.
+- If the world could remain within a frame like a painting on the wall, I think we'd see the beauty then and stand staring in awe.
+- I never camped as a kid, but I really got into camping and sleeping outdoors. I've also done some amazing river floats in New Mexico and Idaho. It's peaceful and awesome.
+- I don't really premeditate what I write my songs about; you know, they just kind of happen, and I can't start writing songs to please a certain group of people or propagate a certain message all the time. That's just not how my songwriting works - it just sort of comes out, and the songs are what they are.
+- I'm a real music fan, so I listen to all kinds of music all the time. I listen to a lot of what my friends or people I know are listening to. I'm always checking out new bands.
+- I used to work at a school as a teacher's assistant, and my mom is a principal at an elementary school. I don't know, I think that's a pretty good life, teaching kids.
+- When you write a song, the goal is not to convey the details of your life. You should write a memoir or something if that's what you're going to do.
+- I really just want to be warm yellow light that pours over everyone I love.
+- I've always been slightly preoccupied with death or whatever those kind of silly big questions people will tell you to not spend your time worrying about.
+- Let the poets cry themselves to sleep, and all their tearful words will turn back into steam.
+- I have a lot of friends that take that position of extreme cynicism, and I just can't let myself go to that place. It's just too easy, and it's just too defeatist.
+- My family is Catholic. I went to a Catholic school, that kind of thing, so that was my childhood for sure.
+- There's a major underlying idea as you grow up that you need to just save your money and get that affordable housing at the edge of town where you're away from the city where all the crime happens or whatever.
+- We must memorize nine numbers and deny we have a soul.
+- Pronouns really don't matter in a song - 'I' or 'he' or 'she' or even subscribing a lyric to an inanimate object.
+- There's all body types, but there's just one size.
+- Movement has been one of the few constants in my life, and I always feel a great sense of optimism when I set off to a new place.
+- To me, a political song is also a personal song. Most political activism has been driven by empathy for other people and the desire for a world that's less divisive. Even if songs aren't overtly political, they can make a listener more empathetic.
+- One of my favorite modern American authors is Denis Johnson. I'm deeply inspired by all of his work - I rip him off constantly.
+- I don't feel real confident expressing myself except when I'm writing. I feel kind of scatterbrained. I can see everything from both sides and that makes it hard to reach conclusions. Writing enables me to clarify things.
+- The first music I ever got into was the '80s alternative bands that my brother listened to, like The Cure and The Smiths and R.E.M. and Fugazi. I can remember specifically saying The Cure was my favorite band back in second grade.
+- My favorite rhymes are sort of half-rhymes where you might just get the vowel sound the same, but it's not really a true rhyme. That gives you far more flexibility to capture the feeling you're trying to express. But sometimes it's best not to have any rhyme.
+- Although Omaha is my birthplace and the place I grew up, I don't see myself spending extended amounts of time there. I feel almost more comfortable and more at peace in New York.
+- I like to feel the burn of the audience's eyes when I'm whispering all my darkest secrets into the microphone.
+- If you think about Protestant and Catholic or Shiite and Sunni, they are basically the same thing... one eats with their left hand, the other eats with their right hand.
+- Art is basically communication, and I think everyone who's a music lover has had that experience where a record or a recording has kept you company when no one else is around. And I think that is what I'm hoping that people get out of my music.
+- Music is unique because you can get behind enemy lines a little bit, get into people's houses and into their heads, on their stereos, and win hearts and minds.
+- I'm very interested in writing - it just takes so much discipline, whether it's short stories or novels.
+- I read the newspaper online. Mostly 'The New York Times.' I'll still buy papers if I'm getting on an airplane or the tour bus, though. I like physical things.
+- A boycott is, inherently, a blunt instrument. It is an imperfect weapon, a carpet bomb, when all involved would prefer a surgical strike.
+- When I run into a person or a kid that comes up and gives me the spiel about, 'Hey, I got your record at this time in my life, and it really helped me,' that stuff totally still rings true. If you're standing there talking to someone, it's really easy to tell if they're being authentic or not. And that's great.
+- I find that moving keeps me optimistic, the idea of what's going to be down the road a bit or around the next bend.
+- You can do a lot to shape the feeling of a song by the way you record it.
+- Considering our history, I can think of nothing more American than an immigrant.
+- I didn't used to think about politics much, or social issues. I was a teenager, writing about girls.
+- I enjoy recording and performing, but it's the songwriting that I love most.
+- One of my best friends, Mike, had a kid. Just seeing him go through it all was inspiring. It would be so nice to care about someone more than yourself. And Mike is a total delinquent, so if he can do it, I figure I can, too.
+- On good days, I can see the inherent goodness in people, and that human beings have a high capacity to learn and adapt. But things like the environment, nuclear weapons and ideas like peak oil - if you think about them too much, they can really freak you out.
+- Now I believe that lovers should be draped in flowers and laid entwined together on a bed of clover and left there to sleep, left there to dream of their happiness.
+- You can't manufacture inspiration, so a lot of it is still a waiting game for me. There's still a lot of mystery to songwriting. I don't have a method that I can go back to - they either come or they don't.
+- To outsiders it probably seems like splitting hairs, but to me, Bright Eyes is a simply the collaboration between myself and Mike Mogis and Nate Walcott. What you hear is definitely the sum of all our ideas and represents all three of us. But I still write the songs myself.
+- It's glorious to be able to go onto the Internet and hear any kind of music anywhere, from anywhere, and get it instantly. But there's also something glorious about having a record with a sleeve and looking at the artwork, putting it on the turntable and playing it, there's still something romantic to me about that.

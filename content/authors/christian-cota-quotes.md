@@ -1,0 +1,17 @@
++++
+author = "Christian Cota"
+title = "Christian Cota Quotes"
+quotes_len = "11"
+description = "the best 11 Christian Cota Quotes"
++++
+- I just want women to feel beautiful.
+- I'm a heel man. There's no doubt about that. I've always done heels for my shows, ever since the first in 2008.
+- For me, it's very interesting to take one object and really dissect it to as many layers as possible.
+- When you are alone, you need to take many decisions, and you can make mistakes.
+- I design for a feminine woman who appreciates art a lot, either as a profession or as a hobby.
+- I love presentations more than fashion shows. I love speaking to people and walking them through the collection.
+- I wanted to paint with shadows and capture what light would look like in clothes.
+- My mother and grandmother... they were my first muses. The way they dressed and carried themselves was an education in elegance. They defined the word.
+- Everyone wants to be a designer.
+- Usually all I care about is how elegant or over-the-top the pieces are, it's nice to really get to understand what the customer wants and needs as opposed to just focusing on the aesthetic.
+- When I was a kid, I loved figure skating. But in Mexico, they kind of push you toward hockey.

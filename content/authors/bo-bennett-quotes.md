@@ -1,0 +1,74 @@
++++
+author = "Bo Bennett"
+title = "Bo Bennett Quotes"
+quotes_len = "68"
+description = "the best 68 Bo Bennett Quotes"
++++
+- The concept of the 'good ol' days' must be one of our society's biggest delusions, top reasons for depression, as well as most often used excuse for lack of success.
+- A dream becomes a goal when action is taken toward its achievement.
+- The best way to lose a job is just not to care. When you do not care, it shows in everything you do.
+- Think of success as a game of chance in which you have control over the odds. As you begin to master concepts in personal achievement, you are increasing your odds of achieving success.
+- It's not people who resent successful people; it's resentful people who resent successful people.
+- Be friendly to everyone. Those who deserve it the least need it the most.
+- For every good reason there is to lie, there is a better reason to tell the truth.
+- A single question can be more influential than a thousand statements.
+- Spend some time this weekend on home improvement; improve your attitude toward your family.
+- Untapped potential is the difference between where a person is now and where he or she can be.
+- Success is not in what you have, but who you are.
+- Enthusiasm is not the same as just being excited. One gets excited about going on a roller coaster. One becomes enthusiastic about creating and building a roller coaster.
+- There is a misleading, unwritten rule that states if a quote giving advice comes from someone famous, very old, or Greek, then it must be good advice.
+- If you have not taken the time to define what happiness means to you, what have your spent your whole life pursuing?
+- An objection is not a rejection; it is simply a request for more information.
+- Without initiative, leaders are simply workers in leadership positions.
+- When it comes to success, there are no shortcuts.
+- As sure as the spring will follow the winter, prosperity and economic growth will follow recession.
+- Martial arts is not about fighting; it's about building character.
+- Faked enthusiasm is worse than bad acting - it is bad acting with the intent to deceive.
+- Traditional investment vehicles such as IRAs, CDs, stocks and bonds do have their place, but for the rich, they are used more as temporary storage facilities rather than life-long homes.
+- Every day, people settle for less than they deserve. They are only partially living or at best living a partial life. Every human being has the potential for greatness.
+- Not being in tune with your customers is like living in an alternate reality; the way you think your customers feel about your product is not always the same as what your customers really think about your product.
+- Most of us are consumed with our own thoughts and desires and are not always thinking about what other people may want. This is not necessarily being egocentric; it is just being human.
+- A rejection is nothing more than a necessary step in the pursuit of success.
+- You are not, nor ever will be, better than anyone else besides the person you are now.
+- Frustration, although quite painful at times, is a very positive and essential part of success.
+- I like to think of sales as the ability to gracefully persuade, not manipulate, a person or persons into a win-win situation.
+- Every economy is uncertain. Referring to this or any economy as 'uncertain' is an unnecessary and pessimistic redundancy.
+- An excuse becomes an obstacle in your journey to success when it is made in place of your best effort or when it is used as the object of the blame.
+- Enthusiasm is excitement with inspiration, motivation, and a pinch of creativity.
+- If you are going to ask yourself life-changing questions, be sure to do something with the answers.
+- Avoiding the phrase 'I don't have time...', will soon help you to realize that you do have the time needed for just about anything you choose to accomplish in life.
+- Peeves do not make very good pets.
+- The discipline you learn and character you build from setting and achieving a goal can be more valuable than the achievement of the goal itself.
+- Show interest in all people, not just those from whom you want something. Making people feel important and good about themselves is just the right thing to do.
+- Every minute you spend in your life is either spent bringing you closer to your goals or moving you away from your goals.
+- Diplomacy is more than saying or doing the right things at the right time, it is avoiding saying or doing the wrong things at any time.
+- If you are only doing what you are getting paid for, and doing it no better than the average employee, then your pay is most likely right where it should be.
+- The secret to having everything you want out of life is the realization that you really don't want most of the things you think you want.
+- Having a positive mental attitude is asking how something can be done rather than saying it can't be done.
+- It is not our mistakes that define who we are; it is how we recover from those mistakes.
+- Resume: a written exaggeration of only the good things a person has done in the past, as well as a wish list of the qualities a person would like to have.
+- While we are focusing on fear, worry, or hate, it is not possible for us to be experiencing happiness, enthusiasm or love.
+- Never expect people to treat you any better than you treat yourself.
+- The only place opportunity cannot be found is in a closed-minded person.
+- A dream collage is pictures of your goals. It is like your future photo album.
+- In sales, a referral is the key to the door of resistance.
+- Value people on their potential, not on their history.
+- If you think Abraham Lincoln became famous for inventing the town car, it is time to spend a few hours on history.
+- If you want plenty of experience in dealing with difficult people, then have kids.
+- Using rhetorical questions in speeches is a great way to keep the audience involved. Don't you think those kinds of questions would keep your attention?
+- Remember that it is not where you come from, or not even where you are; it is where you are going that matters most.
+- Those who improve with age embrace the power of personal growth and personal achievement and begin to replace youth with wisdom, innocence with understanding, and lack of purpose with self-actualization.
+- Anyone who wants to sell you overnight success or wealth is not interested in your success; they are interested in your money.
+- Success is about enjoying what you have and where you are, while pursuing achievable goals.
+- True popularity comes from acts of kindness rather than acts of stupidity.
+- Visualization is daydreaming with a purpose.
+- A good leader is one who can tell another how to reach his or her potential; a great leader is one who can help another discover this potential for him or herself.
+- People who come from dysfunctional families are not destined for a dysfunctional life.
+- Think before you act and act on what you believe.
+- A dead end can never be a one way street; you can always turn around and take another road.
+- Affiliate marketing has made businesses millions and ordinary people millionaires.
+- To me, living in the present means being aware of your conscious choice to focus on the past, present or future - it is not necessarily having to focus on the present.
+- Communication is about being effective, not always about being proper.
+- One's work usually occupies more than half of one's waking life. Choosing work that does not bring happiness will lead to a life that is mostly disappointing.
+- We can create the ultimate job security by becoming less dependent on the organization for which we work and more dependent on our own resources.
+- Not managing your time and making excuses are two bad habits. Don't put them both together by claiming you 'don't have the time'.

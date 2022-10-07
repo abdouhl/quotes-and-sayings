@@ -1,0 +1,106 @@
++++
+author = "India Arie"
+title = "India Arie Quotes"
+quotes_len = "100"
+description = "the best 100 India Arie Quotes"
++++
+- Even when it doesn't look good, it's always good. Even the worst thing, there's always something good that comes out of it. I've learned that.
+- I think anyone who is ever on TV is a role model for somebody.
+- I've always wanted my music to serve a certain purpose.
+- The thought crossed my mind about not wanting to alienate my fan base, but I don't know what would alienate them or bring them in, so I decided not to think about it.
+- If I don't have the right clothes, I feel weird walking out; I don't feel comfortable in what I have on. I have different colors that I want to wear on different days because it makes me feel different.
+- I love my brownness.
+- In my opinion, you just have to make the music. Make the music and work as hard as you can to get it out there.
+- With 'Acoustic Soul,' I saw my music as sparse. But I didn't do that because I was making a commitment to be commercial. That's what made 'Acoustic Soul' so difficult to produce. It took 2 1/2 years because I couldn't figure out what I wanted and still be commercial.
+- Sound is energy, and that energy resonates with your energy. And it gives you a certain feeling.
+- I hope that the things that I sing about will be an inspiration for people to be original.
+- I like Brandy a lot. She's a vocal prodigy.
+- You wash your hands when you shake a bunch of hands. You have to wash your energy when you're around people. It's hard for me to say self-care is washing, although I think it is. So I made music for self-care. That's what it's for.
+- It took me almost wanting to retire to realize that you need to ask for what you need. Everybody needs something different, but whatever it is you need, you need to ask for it and figure out how to get it.
+- I've spent my entire life trying to figure out why I was different than everybody else. Why is my voice so deep? Why am I so muscular?
+- Songs like 'Peaceful World' and songs that are responsible with their lyrics and talk about love and harmony can take the forefront and do something for real.
+- You need to take care of you and fortify yourself and then move out to take care of others.
+- Could a person really make a social contribution through music consciously? I mean, beyond making a person happy to hear the song and more making a social contribution consciously through your music? For me, Stevie Wonder is the paragon of that. And I didn't want to be Stevie Wonder, but I did want to do what he does.
+- I know that I pray a lot, and I take time for myself.
+- Every once in a while, I find something that I'm interested in just because of the singing, like the Goo Goo Dolls.
+- I write about my experiences, so a lot of times, I do write about people.
+- Between '06 and '09, I dealt with pain by eating. And I was like, 'Oh, crap, eating makes you gain weight!'
+- I wouldn't be back in my 20s for anything.
+- That's the kind of music I want SoulBird to represent: music with intelligence and heart, music that moves people in their souls and their bodies. Music with wings.
+- Denying any person their humanity is a game we should all stop playing.
+- Everything in my music has always been emotionally and spiritually motivated... But after I started doing yoga, the place where I came from changed drastically.
+- This celebrity culture that hypnotizes people into thinking a person is literally not real because you see them on television is a spell the watcher him- or herself must break.
+- I always felt like - I mean, I was told, really - I couldn't go too far with the productions because it didn't appeal to black radio. It wasn't until I decided I was going to do what I wanted to do or I was going to quit that I empowered myself. I took my power back.
+- There's just something creatively fulfilling about watching a movie and writing a song for it because it helps you put on another pair of shoes.
+- You deal with what comes to you. If it's something you don't like, you deal with it the best you can. If it's something that you love, you rise to the occasion.
+- Saying things on paper that I would never, ever say, and saying things to myself, admitting things to myself, about myself and my personality, just putting it on paper, is how I deal with emotional pain.
+- Nina Simone sacrificed so much to be as bold as she was about being black and about being female in an era where that could have cost her life.
+- I always loved music, but I didn't know if I could be the kind of artist that makes a difference.
+- The subconscious doesn't distinguish sarcasm and jokes. It just accepts what it hears. That's the power of words.
+- I don't want the world to get any worse. I want to make it better.
+- I loved her music and the fact that she was a classically trained pianist and that her voice was so unique, but what made Nina Simone my hero is that I had never seen anyone in the public eye who looked anything like me at all, ever.
+- At 16, I started really loving country music, and Collin Raye just had the most amazing ballads!
+- Now that I have better producer chops, a country album is something I want to do one day. I don't know who's going to put it out. But when I do, I don't think people will call it 'country music.' They'll probably call it 'neo-soul.'
+- I'm really judgmental, especially about things that I feel make my life harder.
+- I'm kind of like a folk singer mixed with soul, but I feel like if you really are a lover of hip-hop music, make the beat banging as possible and then put the message in so that people get the honey with the medicine.
+- If we can just focus our attention where it matters, we can effect change.
+- I didn't even listen to Bob Marley until I was 17.
+- It was challenging getting myself into the mindset to lose the weight. Once I got there, the weight dropped off quickly.
+- For me, the healing process starts with graciousness and forgiveness.
+- I like being a role model - people have told me that I am a role model for empowered women, but I don't see myself that way.
+- I want my music to be a contribution, and I want the people who love me on Earth and in Heaven to be proud of who I am, and I want to be proud of myself, and I don't want to look back and say, 'Oh God, why did I say that?'
+- One of the things that helped me to be confident is to be the kind of musician that I respect. I always liked musicians who wrote their own songs, and so I started writing my own songs.
+- In Denver, all we really had was pop radio, so I grew up on all that late '70s pop stuff - Billy Joel, James Taylor, Lionel Richie, Elton John, Steve Miller and Toto. Great love songs and really hooky and melodic music - I have all of that stuff in my heart.
+- I'm actually not a fan of the word 'woke.' I think the connotation of that means being socially aware, which is a beautiful thing to be. But it does not take into account being self-aware.
+- What I love about Christmas music is it stays around every year and comes back.
+- I am really excited to be partnering with Palmer's Cocoa Butter Formula. Aside from being a longtime fan of their products, they're a family business with a strong ethical foundation, and that makes us a great match.
+- I am on an album with theater icon Billy Porter called the 'Soul of Richard Rodgers.' Our duet is called 'Carefully Taught.'
+- I made a conscious decision when I was recording 'Acoustic Soul' to - and this is one of my mantras - follow the music and let the chips fall where they may.
+- Your soul is between you and God.
+- I was scared of failing, and I was scared of succeeding. I just wanted to be in a safe space and not grow too big or be too little.
+- I want to always be classy and honest, and I always want to have fun with music, and if I can't really express who I am through my music, then it's not really fun anymore.
+- What I love about Stevie Wonder is the way he makes people feel. He's one of the best examples of how music can heal.
+- In this era, soul is not a sound or a color: it's an intention.
+- When it comes down to the song writing, I'm just very slow - very slow. Because the songs are about my life, so I'm doing emotional work on myself.
+- Listening to 'Songs in the Key of Life' always puts me in a good mood.
+- Joe Sample was one of my heroes. I met him at the Curacao Jazz festival, and I fanned out like he was the Beatles!
+- I'm not just making rhymes and making melodies. I'm expressing my true life force, energy.
+- I was born in love with music. My mother is a singer. Many of my aunts and uncles on my mother's side are musical. My grandparents sang and played blues piano. It's literally in my blood.
+- I've never said anything that I didn't want to say on a record, ever.
+- To spread love, healing, peace, and joy is my mission in life - and so I speak up.
+- I had been on what seemed to be a hiatus to the outside world, but I was actually working very hard on my health, my emotional health, and my business.
+- I've been trying to arrive at a person who is self-defined and able to make my own mistakes rather than having other people make them for me.
+- Everybody has a spiritual body. Everybody has a physical body, and so your spiritual body is the stuff that holds all of your emotions like your body holds your organs, your food, your muscles, your water. Your spiritual body holds your emotional state and your mental state.
+- Our food choices show up on our body.
+- It's important to have a place where you can recharge. Everybody's is different, but I do think it should entail quiet because it needs to be where you hear your spirit most clearly. For me, that's the prayer room in my apartment. And since my home is 700 square feet, I mean the coat closet near the front door.
+- When I was growing up, I only saw really brown people on 'The Cosby Show,' and they were rich, and their parents were doctors. It wasn't like my home.
+- There's a difference in being opinionated and judgmental; I'm still trying to figure out what that fine line is - I think we are all.
+- I know the things I say go out of my own mouth and into my own ears.
+- 'Open Door' was a world music project and bilingual. It was in Hebrew and English, and it's great. I do think it's really beautiful. But it's very emotional and very dark - in a good way.
+- So many people have been abused. It's not rare; it's a very common human experience, and we survive.
+- Nobody looked like me when I was growing up. None of the kids were as big as me, or as serious as me, or listened to the same music.
+- When I perform, I'm just very much just being myself.
+- I always have something by Stevie Wonder in my CD player.
+- Just like the air you breathe or the water you drink, music shapes you. The trouble is, most people don't use it to spread love and healing. But I think music can make a social contribution if you're responsible with it.
+- I feel like I'm always gonna sing and write songs because it's me.
+- It's not my place to say how Zoe Saldana perceives herself, and I can't say how anybody else perceives her, either. I see her as a black person of Hispanic origin, but I don't even know what that really means, because I don't know anything about race and Hispanic culture.
+- I don't really consider myself a teacher. I think - like, I have opinions like everyone else, and I just share my opinions.
+- Basically, I listen to voices. If they write good songs and they can sing, I'll probably like it.
+- I always pray when I write songs that my spirit guides, or whoever is with me, inspiring me, would let me speak the truth.
+- In hindsight, I feel like I made the right decision to choose production that would get played on black radio.
+- I do believe in prophecy.
+- Obviously, I've been heartbroken. We all know what that feels like.
+- It's cool to hear my songs on the radio. But for me, that's just a way to get more people to have the option of choosing my music.
+- It's OK to wear white in the wintertime. Do what you want.
+- When someone is themselves through their music, it's soul music. James Taylor is soul music to me 'cause it's just him talking about him. It doesn't have anything to do with black or growing up in the church; it's where it comes from. It's just soul music.
+- Just to keep myself balanced, I do things like yoga and meditation.
+- If I were not a black artist but I was still singing, playing guitar, and singing ballads that are spiritual and cerebral, I'd be easier to market because people accept that from white female singer-songwriters faster.
+- Neo-soul is really less about a sound than it is about a look, in my opinion.
+- Music lives in my mother - she's played in bands in Detroit and toured and did the whole thing. So I have somebody who's done it all to just talk to. And we write songs together.
+- For the first ten years of my career, I felt suffocated. People constantly stood over me while I tried to create. And in 2009, I hit rock bottom. I couldn't find myself because I was looking to be defined by the music industry or by being number one on the Billboard charts.
+- Why not be a person who is loving towards humankind as a whole and people as individuals?
+- The thing that makes me feel most alive is knowing that there's something that I have to do that I'm afraid of.
+- Everybody has their own path. I got mine.
+- Some people say, 'If she's so real, why does she call herself with a made-up name?' Well, India is my real name. Or they say, 'If she's so real, why does she wear makeup?' I didn't know there was anything wrong with makeup.
+- There are a lot of men who like women with a brain.
+- I'm in show business, and I'm an entertainer, but I also see myself as an artist doing social and spiritual work.

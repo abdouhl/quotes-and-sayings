@@ -1,0 +1,23 @@
++++
+author = "Cindy Morgan"
+title = "Cindy Morgan Quotes"
+quotes_len = "17"
+description = "the best 17 Cindy Morgan Quotes"
++++
+- I'm a big supporter of the military simply because I'm the daughter of a Polish immigrant who fled Europe during World War II from Poland and lied about his age to join the Army simply because he was proud to be an American. And who isn't?
+- The geeks shall inherit the earth - I've always said that.
+- It's always great to see one of the actors I've worked with from 'Caddyshack' and 'TRON.' I run into them occasionally at events.
+- I'm fascinated with films that deal with strategy because there's a right way and a wrong way to get the job done.
+- I have a problem with bullying.
+- I landed the role in 'Caddyshack' auditioning, like everybody else. It wasn't a role I thought I'd get, so I had nothing to lose.
+- I love spending time with my friends and family. The simplest things in life give me the most pleasure: cooking a good meal, enjoying my friends.
+- To be a good producer, one needs to be able to eat lunch, and make ill-informed decisions.
+- The 'Tron' fans have a real passion. They know their stuff and what works and why it works. It is more than a movie: it is a philosophy.
+- Men think they already know me. But as they get closer and closer, they become that 14-year-old again. A lot of men do stammer and blush a little bit.
+- 'Caddyshack' touched people; so did 'Tron.' 'Caddyshack' is a lifestyle, and 'Tron' is more religious, spiritual, but both are very emotional responses.
+- I did one of the 'Amazing Stories.' That was the first time I got to play a character who was a dumb blonde. I actually channeled Judy Holliday.
+- I did two films that have a great following. One is 'Caddyshack,' one is 'Tron.' To tell you the truth, most people don't know that it's me in both films.
+- I was a cocky kid.
+- I come from a broadcast background where I just prefer a lighter approach to my performance.
+- I was nerdy girl who went to Catholic school and wanted to be an engineer. I was all set to attend the Illinois Institute of Technology. And then I took a hard left turn and studied Liberal Arts at Northern Illinois University, majored in Communications. Then worked in radio as a disk jockey and as the weather girl.
+- In sports, you play up to the level of your opponent, and I did some of my best work with Chevy, and I'm so grateful to have worked opposite him. He was a handful and a challenge, and he made me step up to the plate.

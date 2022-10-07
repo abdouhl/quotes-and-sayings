@@ -1,0 +1,59 @@
++++
+author = "Anne Mcclain"
+title = "Anne Mcclain Quotes"
+quotes_len = "53"
+description = "the best 53 Anne Mcclain Quotes"
++++
+- Risk is part of our jobs.
+- In space, everything is dependent on everything else and one hiccup causes a lot of ripple effects.
+- It's extremely humbling to look around the astronaut office, see how much experience there is, see how many lessons there are to learn and it's truly starting at square one.
+- Up in space we don't have a huge wardrobe.
+- You can accomplish whatever you want to. You just got to throw your hat in the ring. You've got to get out there and do it.
+- I tell you what, if you live in Spokane, I hope you wake up every day and you're thankful for the weather, for the trees, for the colors, for the greenery, for cars that stop when you're running and you go to cross the road and they stop. I love it.
+- I love getting back to Spokane and certainly love being involved in everything. I would love to be able to give back, for sure.
+- Fifty years after humans landed on the moon for the first time, America has driven a golden spike on the trail to new space exploration feats through the work of our commercial partner SpaceX and all of the dedicated and talented flight controllers at NASA and our international partners.
+- No matter what your passion is, you really can find it within the Army. The opportunities really are endless and the sky is not the limit.
+- I'm looking forward to getting to space, looking back to earth out the copula window. I think all of it is going to be a completely new experience that I can't quite predict.
+- Gravity is a really heavy force and you don't realize how heavy it is until you haven't felt it for six and a half months.
+- We go across lands, we go across water. And then the next logical step was to start flying just over a hundred years ago and of course, now we're going to look up at the stars and say what's next, what's out there?
+- The training flow for the space station is a year-and-a-half to two years.
+- The moon landing was such a magnificent accomplishment in U.S. space history. I think that boots on the moon was just one indicator of the rapid technology advancement and really just showed what we can do when all of us are dedicated to a single goal over a long period of time.
+- When you are finally in space and you're finally looking back at Earth and you realize for the first time in your life there's nothing standing between you and your dream, it's just so hard to describe the profound impact of that.
+- I think the more people that can go up to space and look back is great, but it's not just this overview and look back effect. There's also a lot of concrete gains from getting more people up in space.
+- Every day is a good day when you're floating. Your whole life you spend walking around Earth and then all of a sudden you get to fly like you've dreamed of.
+- You get this overview effect where you realize how small we are and how fragile our planet is and how we're really all in it together. You don't see borders from space, you don't see diversity and differences in people on Earth.
+- We have a great NASA support team that uplinks the nightly news. And if we have favorite TV shows or movies or sporting events, they can uplink those too. We also have access to the Internet just like we would on the ground. We have email. And we video-conference with our families about once a week. We feel pretty connected up here.
+- The most uncomfortable thing about going to space is coming home. It's a little strange to get used to gravity again.
+- My heart would race when I went to Pacific Science Center because I would pretend to be an astronaut, and now I get to come back and give back to the community that I think compelled me to where I am.
+- We're using the space station as a test bed for some of the technologies that are going to enable us to work autonomously in space and hit some of our deep-space exploration goals.
+- One of the coolest things to me about living in space was it really caused me to think about how the human body and mind can adapt to completely different environments.
+- You kind of just float inside of your sleeping bag and you attach your sleeping bag to the wall. Then our arms kind of float up. So, we look a little bit like zombies.
+- With so much conflict in the world, space exploration can be a beacon of hope.
+- Everything is better when you're floating. Every task you do is fun. You get up in the morning, get coffee, look around, and think, 'Wow, I'm floating!'
+- I think that my career and perhaps me being on the International Space Station can really show women and girls and everybody that hey, we're not just sitting at the table, we're leading the table.
+- I joined the Army out of a deep sense of duty, but wanting to be an astronaut feels more like my destiny.
+- It's really amazing how the human mind and body can adapt to new environments. How the once incredible can become so normal.
+- Army astronauts have a very proud legacy in the astronaut program.
+- But every crew that makes it to orbit is lucky. Spaceflight's not easy.
+- We humans were built for exploration, and we were built to do it together.
+- We're not up here visiting space, we're up here living in space.
+- My favorite thing to see that I've been surprised at is watching the moon rises and moon sets that just move so fast it's like it jumps off of the horizon and up and over us.
+- I still feel inside like a little kid from Spokane with a dream.
+- Spaceflight gives us a chance to reflect on the context of our existence. We are reminded that we are human before any of our differences, before all of the lines are drawn that divide us.
+- The astronaut corps is a very small part of a very large team that enables human spaceflight.
+- I grew up in Spokane, Washington, and I can't recall ever not wanting to be an astronaut.
+- No one cares about race or religion or nationality in space travel. We're all just part of Team Human.
+- I remember riding the Space Needle and going up in the elevator and being scared, but thinking, 'This is going to be like going up a launch tower,' and so I would sit there and try to face that fear.
+- The hardest part about this business is being away from the kids. But what I hope to teach him - and what I hope to teach all kids that are kind of looking at this - is that to achieve anything, it takes a lot of sacrifice.
+- I encourage all humans to do something out of your comfort zone that forces you to adapt. You'll be pleasantly surprised of your capabilities.
+- People are genuinely interested about what it's like to experience spaceflight and try to get some of our perspectives on it.
+- The folks at NASA really look at the world and try to envision how things can be better.
+- It's not a matter of if we're going to go to Mars, it's a matter of when.
+- When somebody says I wanted to be an astronaut my question is 'Did you apply?' And most people say no. And to me that's a self-elimination.
+- Sometimes we focus too much on our differences, but when we all look up into space, we see the same stars and we see the same sun. It really can be unifying.
+- I first told my parents that I wanted to be an astronaut when I was 3 years old.
+- Rugby has surprisingly helped me a lot as an astronaut and when I'm training in the space suit.
+- Something about exploration has fascinated me from a young age.
+- In the future we're going to have interplanetary, we're going to have two planets that human beings are living on.
+- When something looks really risky from the outside, what people are doing on the inside - they're not professional risk takers. But they're probably professional risk mitigators.
+- Our bodies are the subject of many experiments, but these experiments on the space station sometimes take years because in order for a scientist to get 10 data points, that can take six or seven years.

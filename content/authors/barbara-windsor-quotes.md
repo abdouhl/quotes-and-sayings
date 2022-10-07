@@ -1,0 +1,17 @@
++++
+author = "Barbara Windsor"
+title = "Barbara Windsor Quotes"
+quotes_len = "11"
+description = "the best 11 Barbara Windsor Quotes"
++++
+- I don't have any regrets about not having kids. I've just never had those maternal feelings. I am a nurturer by nature, but I nurture adults: my friends, the people I work with. I don't want to nurture children.
+- I check all my props, everything. Acting is something I love. I have done it since I was 13 but it had completely taken over my life absolutely.
+- I've been incredibly lucky. I've worked in two iconic shows, 'Carry On' and 'EastEnders.' If it all ended tomorrow - and it could - I'd just be terribly grateful. I've been fortunate enough to do what I love and get paid for it.
+- I miss 'EastEnders.' I loved it. But I was exhausted when I left. They asked me to go back recently - they've asked a few times. I am tempted! But my husband Scott says you have to really think about it. Because, towards the end, I was so exhausted and not sleeping at night. I'm not quite ready for it.
+- I found myself in the doldrums in the early Nineties. I was too old to play the dolly bird any longer and I looked too young to play a woman of my real age. No one ever saw me as the aunt, mother or grandmother.
+- 'EastEnders' has been wonderful to me and it's no secret that it changed my life all of those years ago. I'll be so sad to leave Peggy behind; she's such a wonderful character to play. I have had the pleasure of working with a marvelous cast and crew and have made many lasting good friends.
+- Jessie Wallace was the first time I erupted. She was late, she was young. She's not like that any more. I lost my temper. It was silly and I burst into tears and ran up to the producer. I said I had been terrible and amateur.
+- I am aware that I look good for my age. It's my genes. My dad looked incredibly young, so did my mother. And a younger husband helps. Scott is only 45. If he hadn't come along, I don't know what I'd have done.
+- I have had the most wonderful time on 'EastEnders' and I will miss you all. The show has changed my life and I want you all to continue the good work, because I'll be at home watching you.
+- I am not like my image; I take my work so seriously. Everyone thinks I just bounce in, but I study and everything has to be just right.
+- The beautiful thing is that ageism just doesn't exist on 'EastEnders.' The show saved me.

@@ -1,0 +1,106 @@
++++
+author = "Bhumi Pednekar"
+title = "Bhumi Pednekar Quotes"
+quotes_len = "100"
+description = "the best 100 Bhumi Pednekar Quotes"
++++
+- I take two hours to get ready. I believe in the power of make-up.
+- I work out four hours a day - I do a lot of swimming, dancing, and gymming.
+- I have had a very comfortable and beautiful life.
+- I don't have a problem with being overweight. That's fine. But there's a thin line between being unhealthy and overweight.
+- I think an actor without life experiences is empty.
+- I just want to work with talented people and learn from them.
+- I am constantly trying to push my boundaries and break the mould that has been made for leading actresses, and it is such great fun.
+- I have been fortunate to be around people that don't believe in misogyny at the workplace or in my family. But of course, it does exist.
+- I love wearing heels.
+- I was 12 when I decided that I wanted to see myself on the big screen.
+- I feel good when my films get all the love, respect, and appreciation. That is my driving force to do better work in future.
+- I'm a very big Shah Rukh Khan and Salman Khan fan. I've grown up seeing them, and they're larger-than-life in the true sense for me.
+- I am a Bombay girl.
+- I am not against being in a relationship, and neither is the case that I want to be in one. I just go with the flow.
+- Thank God for the Internet. Thank God for these amazing portals that are there. For instance, Netflix and Amazon. The kind of content the audience has got to see has gone up drastically, and because of this, the quality of work will go up, too.
+- I believe 'Sonchiriya' is a film that will be recalled with much pride and respect for many years from now. We all worked very hard to make it a special work, and the director Abhishek Sir is a genius.
+- I am an opinionated feminist. I can never say or do anything against women.
+- Just wearing expensive and glamorous clothes do not merit for me to do a film. There has to be a good story and a good role.
+- Alankrita is such a crazy filmmaker, and I loved 'Lipstick Under My Burkha.'
+- I come from a family where I have been empowered.
+- I get very excited when I get a chance to work with actors who are as passionate as I am.
+- I stand for body confidence and against fat shaming, but I will not support people who live on bad cholesterol.
+- When I was overweight, my back hurt, and my ankles would swell up. It wasn't the weight itself but the problems it brought along that bothered me.
+- I am a shopaholic, like to wear make-up, and believe in vanity.
+- Abhishek Chaubey has improved my craft, as I learnt so much on set.
+- I would love to play an urban working girl.
+- Fashion is nothing but wearing what is comfortable and also sporting clothes that make you feel confident.
+- As a perception on how I have perceived myself, I have always felt beautiful.
+- It's my biggest fear that one day I'm going to trip on stage.
+- I think people want to watch me in films, and that's why filmmakers want to work with me and tell stories.
+- I have always liked my body. Believe me, when I was bigger, I wore whatever.
+- When I go to sleep, I want to know that I have experimented as an actor, and I am constantly seeking to evolve.
+- Fashion is important in every girl's life.
+- 'Sonchiriya' speaks of the consequences of societal bias and the bloody consequences of revenge when human lives become casualty.
+- Even as a teenager, my sensibility was different because my parents introduced me to some amazing films. I grew up watching films like 'Kabuliwala,' 'Casablanca,' and 'Mandi.'
+- I have become a nicer person after every film I have done.
+- The kind of films I do, people assume that I am not a fashionable person, but I am an urban girl, and I have always been fashionable.
+- Yes, I am a very greedy actor. I love acting, and I want to do all kinds of roles.
+- I'm not skinny, and I like that.
+- I think, as an outsider, you are ready to deal with whatever comes your way.
+- Films are the largest and most impactful medium.
+- Hummus has been my saviour. I've used it in every form: on sandwiches, rotis, with veggies and meat.
+- Earlier, actors had a lot of power in their hands. And now, it has gone in the hands of the directors and writers, and that is how it should be. They are the visionaries, and we are the doers.
+- I believe a good chicken breast, if made well, is the best thing ever.
+- I am a couch potato!
+- Women, especially in rural India, have to undergo such suffering and pain. It is important for our cinema to address their pain, anger, and frustration.
+- I feel, in our culture, the girl with any sort of power is called 'difficult' or various words that are demeaning just because she has a voice, has confidence, and stands for her rights. It is sad, but it is the truth of our country.
+- If I don't stay true to my character, I would fail as an actor.
+- I'm friends with all my exes, as they were all friends.
+- After 'Dum Laga Ke Haisha,' I didn't know which way my life will head because my debut was with a very unconventional role.
+- Post-workout, I eat a protein-rich snack, like egg whites or chana, chicken, fish with some greens.
+- Cinema has the power to change the society. Through my films, the kind of characters I have played and will play, I am trying to do my bit in changing the patriarchal mindset.
+- I remember the first time I held a rifle - the metal was so cold, and it's so heavy. I also didn't know the amount of pressure I had to use. My first finger went numb for a week.
+- I have always had a flair for acting; maybe that's why I enjoyed casting so much.
+- It's never easy for an actor who doesn't have connections in the film industry and who has to start from scratch.
+- Commercial film is a film that makes a lot of money, and I have very high hopes from 'Sonchiriya.'
+- As a girl, the thought of gaining weight wasn't easy, but when I thought as an actor, I was very sure. That gave me the confidence, and I started training myself to gain weight, and then, as planned, I lost weight.
+- Priyanka Chopra - I have actually adored her since I was 10, maybe, when she became Miss India. She's just super strong, and I crush on all strong women!
+- Having born and brought up in Mumbai, I am as urban as urban can be, but my parents ensured that my sister and I understand social responsibility as well.
+- It's unfortunate how people assume so much about your life based on the work you do.
+- I want to be a part of films that have some kind of social comment and that will help people evolve.
+- I've always been an overweight girl, and I've never had an issue with that. I'm very comfortable with my body.
+- I am a compulsive shopaholic.
+- I am glad that 'Lust Stories' is coming on Netflix as opposed to the kind of commercial release it was going to get.
+- Actors don't make a project; a project makes the actors.
+- If you don't want to hit the gym, go cycling or skipping.
+- I feel that a heroine or a leading character is someone who stays back with you, and I would like to believe that all my characters have stayed with people.
+- I told my mother I wanted to be an actress, and the next thing I know is that I'm studying in a very expensive film school.
+- I make sure I travel with my girlfriends at least twice a year because that's the time I rejuvenate and disconnect from myself.
+- 'Son Chiriya' is a special film with lovely co-stars and a sorted out director.
+- Whenever I hear the narration for a new film, I have this process back home where my mother reads all my scripts.
+- I want to be a part of films that will be watched even after twenty years.
+- I am a modern day girl, and of course I have dated many guys.
+- These days, you don't need a song or glamour to make your film work. It is all about a good story.
+- I'm an independent girl. I come from a family where we were given freedom.
+- I have a strong personality - I know who I'm outside my work, and I'm nothing like the characters I portray.
+- Acting, for me, is a process of metamorphosis. It's about forgetting who I am and becoming someone entirely new.
+- As human beings, we need to evolve with time, and if you fail to do that, your existence will suffer.
+- Women face so much at various levels - it can be as simple as the common belief that a woman is incapable of doing certain things or the fact that even if you do something wrong to her, she won't speak up for fear of embarrassment... The time is here that we all should fight against such wrongs.
+- Just because I am an opinionated and strong girl doesn't mean that I don't believe in vanity.
+- My parents always told me that we won't get you married until you are independent. Women have always been celebrated in my house.
+- I love being an actor so much because, as a person, I would be conscious about pimples and weight because I love vanity, and I own up to it. I have been like that since I was a child, but where my characters are concerned, they are such confident women that I love celebrating my flaws on screen.
+- I am a young girl, and I am open to dating, but at the risk of sounding cliched, I really don't have the time for it.
+- The fact that we don't have censorship on the Internet really gives you a lot of freedom, as makers and creative people do what they believe in.
+- I've seen everything at a very young age... I am a strong, opinionated person who really belongs to this modern day and age.
+- The journey of shedding weight was tough, but the only good thing was it did not take a toll on my health.
+- I want to always break stereotypes. It is fulfilling as an actor to be able to do that, especially when you see people and the audience loving it.
+- If you mingle with real people, only then your craft can improve. I spend most of my time outside the vanity van, speaking to people. You never know what you can pick from a person.
+- When you are comfortable with your co-star, it reflects on screen.
+- Everywhere in the society, even my extended family, when they got to know that I am going to be an actor, they were very worried because there is a lot of negativity attached to my craft or being a heroine.
+- As a woman, my stance is that I'm a fighter, and in no way will I support any kind of injustice against women in our society.
+- I feel, as an actor, you should be in a position to mould yourself into different characters and should have the ability to change.
+- Abhishek Chaubey has been in my bucket list for a long time. When he approached me, I thought it's for a film he is producing, but I never expected my fourth film to be an Abhishek Chaubey film.
+- I absolutely hate math!
+- I have realised what my pitch is, and I'm in this industry for the pure reason that I love acting.
+- The sad truth of our country is that Indian women don't get a moment of rest.
+- Don't be lazy; workout and diet is the only way to get fit.
+- The chances of me getting trolled are very high because of the films I do. But I only read the good things.
+- I had a replica of a red outfit that Karisma Kapoor wore in some movie. I have worn that outfit on many occasions.
+- I'm very content with my work, and I never complain.

@@ -1,0 +1,14 @@
++++
+author = "Fabrice Grinda"
+title = "Fabrice Grinda Quotes"
+quotes_len = "8"
+description = "the best 8 Fabrice Grinda Quotes"
++++
+- Learn computer science. It's extraordinarily helpful. I like recommending learning economics as well so they think in terms of business, they have rational frameworks for looking at the world, but yeah, computer science is an amazing way to get into, even if you want to be CEO, having a tech background is helpful.
+- Forty percent of my portfolio is in the U.S. In the rest of the world, most of the places I invest in or invested in are Brazil, Russia, Germany with a little bit of Turkey, China, India, France and Israel sprinkled in there.
+- As an entrepreneur you keep trying things, and I try everything. I try business ideas, on our website we test everything, iterate, iterate, iterate.
+- Is the button white or orange or green or yellow? Does it say 'sell', or 'sell now', or 'on sale' or 'for sale'? You test, you test, you test and most of the ideas you try fail and so I would argue I failed my way to success.
+- If you're CEO of a company, you have to be a public person. You're speaking to the press, you're speaking to investors, you're speaking to employees, you're the public face of the company and so kind of naturally you become more extroverted, more outwards facing.
+- I actually think the one who is underestimated in terms of impact he's had on society is Bill Gates. The reason is that with the innovation of software, he really allowed the computer revolution to take hold.
+- I could have probably been just as successful by not going to college, but it was the most intellectually stimulating environment that I was ever in.
+- The most important impact on society and the world is the cell phone. Cell phones have actually been one of the primary drivers in productivity improvements.

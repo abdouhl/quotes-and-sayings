@@ -1,0 +1,94 @@
++++
+author = "Arthur Schopenhauer"
+title = "Arthur Schopenhauer Quotes"
+quotes_len = "88"
+description = "the best 88 Arthur Schopenhauer Quotes"
++++
+- In the sphere of thought, absurdity and perversity remain the masters of the world, and their dominion is suspended only for brief periods.
+- The greatest of follies is to sacrifice health for any other kind of happiness.
+- In action a great heart is the chief qualification. In work, a great head.
+- It is only a man's own fundamental thoughts that have truth and life in them. For it is these that he really and completely understands. To read the thoughts of others is like taking the remains of someone else's meal, like putting on the discarded clothes of a stranger.
+- A man's delight in looking forward to and hoping for some particular satisfaction is a part of the pleasure flowing out of it, enjoyed in advance. But this is afterward deducted, for the more we look forward to anything the less we enjoy it when it comes.
+- Politeness is to human nature what warmth is to wax.
+- We forfeit three-quarters of ourselves in order to be like other people.
+- They tell us that suicide is the greatest piece of cowardice... that suicide is wrong; when it is quite obvious that there is nothing in the world to which every man has a more unassailable title than to his own life and person.
+- In our monogamous part of the world, to marry means to halve one's rights and double one's duties.
+- It is in the treatment of trifles that a person shows what they are.
+- A man's face as a rule says more, and more interesting things, than his mouth, for it is a compendium of everything his mouth will ever say, in that it is the monogram of all this man's thoughts and aspirations.
+- Great minds are related to the brief span of time during which they live as great buildings are to a little square in which they stand: you cannot see them in all their magnitude because you are standing too close to them.
+- To find out your real opinion of someone, judge the impression you have when you first see a letter from them.
+- Martyrdom is the only way a man can become famous without ability.
+- Will minus intellect constitutes vulgarity.
+- The two enemies of human happiness are pain and boredom.
+- Patriotism, when it wants to make itself felt in the domain of learning, is a dirty fellow who should be thrown out of doors.
+- The man never feels the want of what it never occurs to him to ask for.
+- To free a person from error is to give, and not to take away.
+- Religion is the masterpiece of the art of animal training, for it trains people as to how they shall think.
+- Obstinacy is the result of the will forcing itself into the place of the intellect.
+- There is no absurdity so palpable but that it may be firmly planted in the human head if you only begin to inculcate it before the age of five, by constantly repeating it with an air of great solemnity.
+- After your death you will be what you were before your birth.
+- Men are by nature merely indifferent to one another; but women are by nature enemies.
+- Every man takes the limits of his own field of vision for the limits of the world.
+- It is only at the first encounter that a face makes its full impression on us.
+- A man can be himself only so long as he is alone, and if he does not love solitude, he will not love freedom, for it is only when he is alone that he is really free.
+- The fundament upon which all our knowledge and learning rests is the inexplicable.
+- To live alone is the fate of all great souls.
+- Every parting gives a foretaste of death, every reunion a hint of the resurrection.
+- A man can do what he wants, but not want what he wants.
+- We can come to look upon the deaths of our enemies with as much regret as we feel for those of our friends, namely, when we miss their existence as witnesses to our success.
+- The alchemists in their search for gold discovered many other things of greater value.
+- If we were not all so interested in ourselves, life would be so uninteresting that none of us would be able to endure it.
+- Great men are like eagles, and build their nest on some lofty solitude.
+- Hatred is an affair of the heart; contempt that of the head.
+- All truth passes through three stages. First, it is ridiculed. Second, it is violently opposed. Third, it is accepted as being self-evident.
+- As the biggest library if it is in disorder is not as useful as a small but well-arranged one, so you may accumulate a vast amount of knowledge but it will be of far less value than a much smaller amount if you have not thought it over for yourself.
+- The difficulty is to try and teach the multitude that something can be true and untrue at the same time.
+- Nature shows that with the growth of intelligence comes increased capacity for pain, and it is only with the highest degree of intelligence that suffering reaches its supreme point.
+- Satisfaction consists in freedom from pain, which is the positive element of life.
+- The wise have always said the same things, and fools, who are the majority have always done just the opposite.
+- The brain may be regarded as a kind of parasite of the organism, a pensioner, as it were, who dwells with the body.
+- National character is only another name for the particular form which the littleness, perversity and baseness of mankind take in every country. Every nation mocks at other nations, and all are right.
+- Each day is a little life: every waking and rising a little birth, every fresh morning a little youth, every going to rest and sleep a little death.
+- Music is the melody whose text is the world.
+- Journalists are like dogs, when ever anything moves they begin to bark.
+- The more unintelligent a man is, the less mysterious existence seems to him.
+- To buy books would be a good thing if we also could buy the time to read them.
+- Boredom is just the reverse side of fascination: both depend on being outside rather than inside a situation, and one leads to the other.
+- The discovery of truth is prevented more effectively, not by the false appearance things present and which mislead into error, not directly by weakness of the reasoning powers, but by preconceived opinion, by prejudice.
+- It is with trifles, and when he is off guard, that a man best reveals his character.
+- Wealth is like sea-water; the more we drink, the thirstier we become; and the same is true of fame.
+- Every person takes the limits of their own field of vision for the limits of the world.
+- Every nation ridicules other nations, and all are right.
+- The word of man is the most durable of all material.
+- Honor means that a man is not exceptional; fame, that he is. Fame is something which must be won; honor, only something which must not be lost.
+- Just remember, once you're over the hill you begin to pick up speed.
+- Almost all of our sorrows spring out of our relations with other people.
+- There is no doubt that life is given us, not to be enjoyed, but to be overcome; to be got over.
+- Suffering by nature or chance never seems so painful as suffering inflicted on us by the arbitrary will of another.
+- Sleep is the interest we have to pay on the capital which is called in at death; and the higher the rate of interest and the more regularly it is paid, the further the date of redemption is postponed.
+- Talent hits a target no one else can hit; Genius hits a target no one else can see.
+- Honor has not to be won; it must only not be lost.
+- Rascals are always sociable, more's the pity! and the chief sign that a man has any nobility in his character is the little pleasure he takes in others' company.
+- I've never known any trouble than an hour's reading didn't assuage.
+- Treat a work of art like a prince. Let it speak to you first.
+- Money is human happiness in the abstract; he, then, who is no longer capable of enjoying human happiness in the concrete devotes himself utterly to money.
+- Friends and acquaintances are the surest passport to fortune.
+- Wicked thoughts and worthless efforts gradually set their mark on the face, especially the eyes.
+- Will power is to the mind like a strong blind man who carries on his shoulders a lame man who can see.
+- If you want to know your true opinion of someone, watch the effect produced in you by the first sight of a letter from him.
+- The greatest achievements of the human mind are generally received with distrust.
+- It is a clear gain to sacrifice pleasure in order to avoid pain.
+- Change alone is eternal, perpetual, immortal.
+- Because people have no thoughts to deal in, they deal cards, and try and win one another's money. Idiots!
+- The doctor sees all the weakness of mankind; the lawyer all the wickedness, the theologian all the stupidity.
+- It's the niceties that make the difference fate gives us the hand, and we play the cards.
+- Newspapers are the second hand of history. This hand, however, is usually not only of inferior metal to the other hands, it also seldom works properly.
+- The first forty years of life give us the text; the next thirty supply the commentary on it.
+- Reading is equivalent to thinking with someone else's head instead of with one's own.
+- For an author to write as he speaks is just as reprehensible as the opposite fault, to speak as he writes; for this gives a pedantic effect to what he says, and at the same time makes him hardly intelligible.
+- Every possession and every happiness is but lent by chance for an uncertain time, and may therefore be demanded back the next hour.
+- Opinion is like a pendulum and obeys the same law. If it goes past the centre of gravity on one side, it must go a like distance on the other; and it is only after a certain time that it finds the true point at which it can remain at rest.
+- Compassion is the basis of morality.
+- The longer a man's fame is likely to last, the longer it will be in coming.
+- With people of limited ability modesty is merely honesty. But with those who possess great talent it is hypocrisy.
+- Buying books would be a good thing if one could also buy the time to read them in: but as a rule the purchase of books is mistaken for the appropriation of their contents.

@@ -1,0 +1,50 @@
++++
+author = "Blake Mycoskie"
+title = "Blake Mycoskie Quotes"
+quotes_len = "44"
+description = "the best 44 Blake Mycoskie Quotes"
++++
+- Life is more fun when you stop caring what other people think.
+- I always thought that I would spend the first half of my life making money so I can spend the second half of my life giving it all away. And one of the defining moments of my life was when I realized that I could do both at the same time with TOMS.
+- I try and sweat every day even though I can't always get to the gym. I do a lot of running, which is a great way to see a city, and I try to bike to work.
+- I think sometimes we forget what we have, and occasionally it's important to remind ourselves.
+- Exercise your purchasing power as a consumer, volunteer and bring joy to those in need, and share your experiences, tell your stories, and inspire others along the way.
+- I never thought I would be in a position like this, where my words and experiences are now inspiring others to follow suit. It's challenging at times, but I can only look forward to the future of business and philanthropy.
+- I love what I do, but it is hard to have a personal relationship when you're never home.
+- Instead of squirreling away your earnings early in your career, spend on experiences that will enrich your life - like diving with great white sharks. It can expose you to influential people who could open doors for you.
+- I think once you start traveling, you don't stop.
+- I feel a deep sense of responsibility to share everything that we've learned from TOMS, so that others can learn from both our mistakes and the counterintuitive principles that have guided our success.
+- The future of TOMS is really creating a whole new business model of this one-for-one giving and expanding the TOMS model from shoes into other products as well.
+- Music is such an important part of my life.
+- A very big passion of mine and that of the people that run our production is finding factories that have fair labor practices and treating them more like partners in our family than people just who are going to produce for us.
+- I think the word 'social entrepreneur' is a really good description of what I am. What that means me to is that you have the entrepreneurial gift and spirit to create something out of nothing.
+- I would have never imagined that I'd become a shoe salesman so that I could give away shoes. I mean that idea is ludicrous.
+- We are all human beings and I believe that we all should have equal rights.
+- One thing I'm so grateful for is sidestepping the usual venture capital, private equity route. My friends who have gone that way are many times beholden to their boards of directors, to 'sell' ideas to a team.
+- I always have my journal with me. It was handmade by a guy at the San Telmo market in Buenos Aires. If you go there he can make you one. It's leather and bronze and I'm able to replace the paper when it runs out. It has a lion on the cover that I say is there to protect my thoughts.
+- I can honestly say that TOMS is my future. I mean I have no desire to start any other company for as long as I live because this is the perfect blend of business and philanthropy to me.
+- Traveling as much as I do, I get lonely sometimes. I have friends now in cities all over the world, so I get to be social, but it's hard to have the deep meaningful relationships, especially an intimate one. With my guy friends, I can show up once a month and go to dinner with them and they're happy.
+- When I accept an invitation for a public speaking engagement, my purpose is to share the TOMS story and our giving mission. In no way do I believe this means I endorse every single aspect of that organization. That may be naive, and you may disagree, but it is my sincere belief.
+- I believe each of us has a mission in life, and that one cannot truly be living their most fulfilled life until they recognize this mission and dedicate their life to pursuing it.
+- As entrepreneurs, we often get pressured into hiring an industry executive. While it's good to hire people with experience, it can also be a stumbling block because they think about the business the same way everyone else does.
+- I would never want to take TOMS or myself into an issues debate. That's not what we're about. We're about helping people.
+- It may sound too good to be true, but once you've seen the happiest people in your life who have nothing, you really start rethinking what the world, and society, tells us that we need to be happy.
+- Stuff can't make you happy.
+- If you have a sense that your money is somehow, even indirectly, contributing to a cause that you find morally problematic, then it seems somewhere between reasonable and obligatory for you to vote with your dollars.
+- I've been blessed with a lot of things in life, but God did not give me rhythm. Still, I love to dance - which past girlfriends always found hilarious.
+- When you're buying a pair of TOMS, if you don't feel like you're part of a community, then I've failed.
+- Most people yearn to contribute, make the world a better place and have success.... all at the same time... Make sure to give your business a background, a mission and a story. That might be the most important step part of any venture. And remember, giving may be the best investment you ever make.
+- The idea of community and helping others has always been a part of who I am. Growing up, my parents always made sure that my siblings and I were doing our part to serve our local community.
+- A lot of people like the idea of companies being socially involved in their community, but if you want big companies to get involved in social issues, what makes you think they're going to come down on your side?
+- Anyone can make a difference, so you don't have to have it be some huge, global campaign... you can start small, and that's just as important.
+- Almost every morning I write in my journal. I've been keeping it for a long time - I've filled more than 50 books. I write about what's going on in my personal and spiritual life or what's going on at work. It helps me keep things in perspective, especially when things get crazy or I get stressed or we have obstacles.
+- Walk away from anyone who is unduly focused on vacation and compensation. It's a sign of potential trouble. No matter how talented you are, if you don't really want to work at TOMS, you'll never work out here.
+- The goal isn't how much money you make, but how much you help people.
+- Giving feels good, but it's also good for the bottom line. Charity is a viable growth strategy for a lot of companies. Our customers get excited to be a part of what we're doing. If you ask anyone wearing Toms how they first heard about us, most won't mention an advertisement; they'll say a friend told them our story.
+- I don't get jet lagged that much. I'm so used to traveling and being in different places every day that I can sleep anywhere.
+- I'm not a late-night person. After 10 P.M., I'm falling asleep. If I'm out at that time, I'll be the one falling asleep at dinner.
+- People often ask me what I consider my goal to be at TOMS. The truth is that it's changed over the years. When we first began, the goal was to create a for-profit company to help the children that I met in a small village in Argentina.
+- You know, you hear people talk about soul mates? That one person that you see, and that's it for you? Well, TOMS is the business equivalent of a soul mate for me.
+- Giving builds loyal customers and turns those customers into supporters... You can find passion and profit and meaning all at once, right now.
+- I credit my grandmother for my sense of style. She was known for wearing bright, outrageous things because it made people happy and she thought it made her more approachable. When you wear a brightly colored shirt or pants, it shows you don't take yourself too seriously and it puts everyone around you at ease.
+- With TOMS, I found a way to create sustainable giving and consistently help those who are in need.

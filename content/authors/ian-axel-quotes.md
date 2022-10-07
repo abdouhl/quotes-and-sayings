@@ -1,0 +1,15 @@
++++
+author = "Ian Axel"
+title = "Ian Axel Quotes"
+quotes_len = "9"
+description = "the best 9 Ian Axel Quotes"
++++
+- There are people we look up to, like Lady Gaga and what she's built. She's not afraid to own who she is.
+- It's different for every song. But for 'Say Something,' I think it was Chad who had an idea on guitar, and I had an idea on piano for different songs, and we just married them together. We bounce things off each other constantly and kind of massage all these ideas into a three and a half minute pop song.
+- I'm a big fan of piano-based rock music like Elton John, Ben Folds, and even Queen.
+- We met because Chad was in one of my classes, and I was looking for someone to write music with. I knew that he wrote his own music, and he seemed nice, so I found out he was going to be in a practice room, practicing his trumpet. He'd already said he was too busy to hang out or hear any new people or work on any music, so I stalked him.
+- When you're listening to the radio, you're hearing dance beats, all the bells and whistles, and 'Say Something' makes you quiet and forces you to listen.
+- Producers on Broadway approached us with an original script after relaunching ourselves as 'A Great Big World,' and wanted us to write the music. They asked us to make the music we would sing if we could, and so we can go a little crazier. We refer to it as 'our music on steroids.'
+- I feel that when Chad is in the room, I can tap into this other thing where music comes from. I don't know. It's just this really magical, special connection and relationship.
+- We never thought 'Say Something' would be a holiday song. I'm still surprised that it's resonating at this time of year. Maybe that's why it's working so well - it balances out all the joy.
+- I started writing songs when I was real young, when I was 3 years old. The piano spoke to me - I don't remember when I wasn't playing piano. My second grade talent show was the first time I performed my own thing. I dressed up as Dracula and played a song called 'Monster Rock' that I wrote. And I won.

@@ -1,0 +1,22 @@
++++
+author = "Celia Hammond"
+title = "Celia Hammond Quotes"
+quotes_len = "16"
+description = "the best 16 Celia Hammond Quotes"
++++
+- You only get one life. You have to do what you feel is right with it.
+- The thought of being alone when time goes on is a little bit scary sometimes, but not really.
+- Even though I need only two or three hours' sleep a night, there are never enough hours in the day.
+- I work 18 to 20 hours a day, seven days a week, so I don't have time for a social life. Or any life outside work.
+- The majority of cats are very gregarious - they love each other so much; they enjoy living together and grooming each other.
+- Multiple cat households are a good thing.
+- Everyone says I should leave it. But of all the cats I have saved, the one I remember is the one I can't catch.
+- It's the bedsit culture: people get a cat, and then, in a few months, when they move on or go travelling, they just throw the animal out. It's so discouraging.
+- A lot of friends have given up on me.
+- If someone was out all day, we wouldn't give them just one cat, because they would be lonely - we would give them two cats.
+- On collar wounds, we normally manage to save them, but they can take weeks to heal because they're so deep, and they sort of grow into the flesh under the arm.
+- People buy a cat and think, 'Oh that's a beautiful collar. I'll put that on,' but that doesn't make them a responsible pet owner.
+- Take one female cat over a seven-year period. If all the kittens survived and bred, she would be responsible for 21,000 cats - they are such prolific breeders: you can see how important it is to neuter.
+- When I was young, I preferred dogs, but when I moved into a flat when I was 18, it wasn't practical to have a dog. So I got a couple of kittens, and that was it.
+- People simply shouldn't buy puppies without a breeding certificate.
+- People's financial situation has changed, and they surrender their cats all the time, because they're downsizing or moving to a property where they are not allowed to have pets.

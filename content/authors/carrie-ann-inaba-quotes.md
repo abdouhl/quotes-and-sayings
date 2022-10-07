@@ -1,0 +1,33 @@
++++
+author = "Carrie Ann Inaba"
+title = "Carrie Ann Inaba Quotes"
+quotes_len = "27"
+description = "the best 27 Carrie Ann Inaba Quotes"
++++
+- I don't need that much to live - we don't need that much to have a wonderful life. I learned that from animals.
+- Love is the one thing in life that makes everything worthwhile.
+- I love soup 'cause I don't like to cook. It's so easy to prepare, and it fills you up and gives you all the nutrients you need. It's a well-balanced meal, but you don't have to do a lot of preparation.
+- I love the show 'Damages!' I am truly addicted.
+- JLo and I did not get along well when we worked together. I don't think there's love lost. I don't know if there was a lot of love from the very beginning.
+- My grandmother used to cook for eight every day - sitting down lunches and dinner, the way you do it in Italy, you sit down. And when my parents could afford their own place, I went with them but still my mother used to work but used to come back from work to cook lunch for my father, come back from work, cook dinner for my father and me.
+- I have this firm belief that I am who I am for a reason. If I change something, I'm cheating myself of whatever it is I'm supposed to learn from my body. You know, I'm legally blind. I'm 20/750, since I was in fifth grade. I wear glasses and contacts. But I won't even get LASIK.
+- When I'm in New York, I have a wonderful hair and makeup team. We've just been laughing all day today. In work, I believe that you really need to choose people that you get along with because work is life, so you may as well enjoy your time. I'm lucky. I have great people around me, and we laugh all day.
+- Somehow when I express my voice, I feel that much more vulnerable. For instance, if I used the wrong word, or if I said something and somebody could take the word and misinterpret it.
+- I went through this phase where I thought pink and purple matched. To dance class, I'd wear purple tights and pink leg warmers and paint my shoes purple. It was really odd.
+- I'm very lucky because I love fruit and to this day, that has saved me because I'd much rather have fruit than cookies.
+- I love fresh fruit and vegetables. I'm not a strict dieter. I don't think that anything in life should be so regimented that you're not having fun or can't enjoy like everybody else. Just know that fresh food is always going to be better for you.
+- I have arthritis. The space around my spinal cord has become compressed.
+- I love pets and I love animals, and I just got a new puppy, a new rescue named Peanut. She's a tiny little Chihuahua mix.
+- I come from a dancing background, and I know it's stereotypical, but I would dance because I wasn't comfortable speaking to people.
+- I really do want to have a child.
+- I started my career as a singer in Japan, but left it all behind to focus on my dancing career.
+- I've always gone out with much younger guys. But I rushed into relationships before really getting to know the person. What would come up as a warning sign within the first two weeks of dating would usually be the exact reason the relationship would end!
+- During the first couple of years of 'Dancing with the Stars,' I would go to Jack in the Box in my ball gown after the shows and get the Taco Nachos with cheese as my reward.
+- I wasn't a ballet baby. My first dance class was in an outdoor pavilion when I was three. It was called 'creative movement.' The teacher gave us chiffon scarves in beautiful colors. She turned on some music and said, 'Now go dance.' So for me, dance has always been about self-expression.
+- My poor vision gives me a soft-focus morning. For the first half hour, I kind of wander through my house, and everything is a blur. I put my contacts in when I'm ready to deal with the world.
+- I do a one-hour workout called Drenched, a cardio-boxing fitness routine, Monday through Friday. There are usually between twenty-five and fifty people there - everyone from stay-at-home moms and professional martial artists to teenagers and seniors. They play great dance music. When I can, I take two classes back-to-back.
+- I'm considering going back to school to become a registered dance therapist.
+- I've really become super active in rescuing animals, and it has made my life feel so much better. I can't even express to you how happy it has made me.
+- One of the best gifts you can give to an animal is a donation of a blanket to your local animal shelter during the winter months.
+- I've never been supercritical about my body.
+- Often, I dream about work. For instance, the night before the Oscars, I dreamt about the Oscars and I dreamt about who I wanted to interview. Interestingly, one of the people I really wanted to interview was Keanu Reeves, and then we got him. We had never interviewed him before, so that was lucky. Or maybe it was fate - I don't know.

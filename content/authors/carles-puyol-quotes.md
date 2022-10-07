@@ -1,0 +1,27 @@
++++
+author = "Carles Puyol"
+title = "Carles Puyol Quotes"
+quotes_len = "21"
+description = "the best 21 Carles Puyol Quotes"
++++
+- World Soccer Stars presents a great opportunity to celebrate the arrival of football, and from what I know, football is the next emerging sport in Pakistan.
+- I've been lucky enough to play in the final of a World Cup before, but it's always an amazing experience to walk out at a packed stadium.
+- I don't want to be an invisible coach. I want to provide guidelines to solve problems, coming from the base I have, as I had to work a lot considering I did not play at Barca until I was 17.
+- The power which football has is enormous. Football moves the masses.
+- I'm not a big fan of revolutions. People nearly always call for them when a team that's triumphed a great deal goes a year without winning anything. For me, however, the experience gained in previous victories is important.
+- I've been lucky enough to play for the Spanish national team and Barcelona, two sides who've shown that you can play good, attractive possession football and win major titles.
+- Many people have told me I could be a coach, but it doesn't appeal.
+- It's frustrating to see part of your body not responding - even more so given the way I am and the way I like to train and always give 100 per cent. You experience sadness, anger, and powerlessness... you really want to do something, but you can't. In the end, however, you have to be honest with yourself and those around you.
+- I could never have dreamt of the kind of career I had, but I was always happy with the ball in my hands or at my feet.
+- Every player dreams of winning the World Cup, and there are very few who are fortunate enough to actually do it.
+- My job will be to transmit - using my experience, my knowledge - with the intention of making the player more professional. I want to be a 'life-coach' who helps them to think, to make decisions, to manage their emotions with intelligence in difficult situations.
+- My memories from childhood always involve a football.
+- Champions League is a very tough competition.
+- For me, it's hard to separate being a fan from the feelings you have for some of your team-mates.
+- Those of us involved in football must be aware of the power we have to help. We also have a responsibility to return to society all that society has given to us.
+- For me to be able to play football was a gift.
+- Development has to start from the base; the kids need to be playing, and the institutions have to come forward. There needs to be focus on grassroots.
+- Sometimes I played as a goalkeeper with my brother and his friends - they were all older, and nobody wanted to go in goal, so it had to be me!
+- I was one of those players who loved to train and tried to enjoy every day, every session, every game.
+- Winning one Champions League title is a dream come true, so just imagine winning three!
+- What matters most is that the team always comes ahead of the players.

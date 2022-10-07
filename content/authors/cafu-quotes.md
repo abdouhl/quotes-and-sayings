@@ -1,0 +1,91 @@
++++
+author = "Cafu"
+title = "Cafu Quotes"
+quotes_len = "85"
+description = "the best 85 Cafu Quotes"
++++
+- What our children are missing today are good role models.
+- Of course Neymar is someone that is very important, not only for Brazilian football but for the world of football, and it will be amazing to see him playing in a World Cup and showing all of his skills.
+- Ronaldinho and I are two totally different players. He is an attacker and I'm a defender, so there is no comparison. I did not feel any pressure, because I love to play my own style.
+- Wayne Rooney and Michael Owen form one of the best attacking duos in football, both are very quick and deadly.
+- I have a trophy room in my home and at the center is the replica of the World Cup.
+- Even today, despite everything I've achieved, I still get criticized. I don't know why, I've never done anybody any harm.
+- I saw James Rodriguez play for the Colombian national team. I saw him play for Real Madrid and for Bayern, too. For me he's a fantastic player, a sensational player, intelligent, a player, who, if you let him play the way he likes, for sure, he'll do a lot for the Premier League.
+- I had a great time at Roma, but Milan have made me feel like a young boy again. When I signed for them I was as excited as I was when I signed my first ever contract.
+- It's impossible to put into words. When you see that trophy coming towards you in the hands of the officials... the gold becomes more gold, becomes more shiny than you ever thought. You feel the best in the world. I have no other way to put it into words.
+- Nobody can ever truly replace Cristiano Ronaldo, because he was unique, a one-off, who created an unbelievably legacy of success at the club. But what I see in Vinicius is special too, I believe he is the best candidate in football to replace Cristiano and to conquer the world with Madrid.
+- Dani Alves would be a great signing for AC Milan. He is one of the strongest full-backs in the world.
+- Brazilian people and South African people are very similar in all respects. They are very warm and friendly.
+- I have played against the big England players - Steven Gerrard, Frank Lampard, Wayne Rooney, Ashley Cole. I never like to point out somebody because they are all great players with experience.
+- For me, winning the Champions League would be an incredible feeling and winning that trophy was one of the reasons I joined Milan.
+- When you have the ball, you don't have a problem.
+- Firmino is a great player. He can play either side and has powerful contact with the ball in any position.
+- I am a big fan of Frank Lampard - his movement is so elegant.
+- The best form of defense is to have the ball.
+- Without a doubt, winning the World Cup is the highest prize in football. It's the peak - the maximum that you can reach.
+- Maybe I will end my career here in Milan, but there is a possibility of going back to Brazil.
+- In my adolescence, everyone would like to play in Italy: Roma, Milan, Lazio, Juventus, Sampdoria, Napoli.
+- The beginning of a career is hard for many players, often because of the ordinary day-to-day problems that football and life bring.
+- Zinedine Zidane, he was absolutely fantastic.
+- Of all the players at the World Cup I don't think it is too much to compare Ronaldinho with the great Pele.
+- Saint Petersburg has a fantastic historical atmosphere.
+- My stamina was my strength.
+- I sincerely believe that sport, particularly in the hands of young people, has the power to change the world.
+- I think Neymar has everything to be the best player on the planet.
+- I'm the only player in history to have played in three consecutive World Cup finals.
+- I've played in many stadiums in the world and won many trophies.
+- When you go to a World Cup, you must be ready to play at any time.
+- As for Rivaldo, he was a genius. Come on! It was so wonderful to see him with the ball. He played with the same style as Falcao. Rivaldo was brilliant.
+- But I loved playing in midfield. In midfield you always have a sight of goal, you're always participating in all the plays.
+- Leading a group of players who want to win is much easier than leading a group that doubt themselves, aren't committed or are divided.
+- Pele was the best of his era, Diego Maradona was the Pele of the Eighties, and Ronaldinho is the Pele of our time.
+- To play for the England national team, you have to be very good, and to play at Liverpool, you have to be very, very good.
+- Mistakes are a risk but recovering from them shows a lot of personality.
+- Ozil is fantastic. One of the best in the world. Not only a great player but a great human being.
+- I really love football and for this reason alone, I trained hard every day, building up good stamina and energy.
+- It's not just the goalscorer who should be the best player in the world. It is totally wrong that some great players never won the Ballon d'Or because of their position.
+- I always think if you are not a hard worker, you will get nowhere in English football.
+- It's been hard for me since the beginning. I have to overcome obstacles every day.
+- What impresses me most is Bastian Schweinsteiger. He is a complete player who has been an enormous help to his team, Bayern.
+- I am absolutely sure that whoever comes to Brazil will be mesmerized with the country.
+- Being a world champion is out of the ordinary.
+- England are one of the teams that are a traditional power and have won a World Cup before. They are not going there just to play and take part. It is not crazy to think they can go there to win.
+- No, no, Gary Neville was a fantastic full back. He would genuinely get to the by-line. He played without fear. He was a leader.
+- I am truly honored to be selected as a Special Olympics Global Ambassador.
+- I would have loved to play for Liverpool, Manchester United or Chelsea.
+- I have changed quite a lot since I came to Milan and I think I have become a more all-round footballer.
+- When I signed my first contract with Sao Paulo I still wasn't sure that I was going to have a successful career. Even after you turn professional the competition is so intense, and as I was a bit older than some of the other players, I thought that it would be harder for me.
+- To be the first player in the world to take part in three successive World Cup finals is very important.
+- I am kind of a cold guy and I don't suffer much because of the past.
+- Everything I have, I owe to Jardim Irene. I want the children to see me there, that I'm giving them attention, so that they can have a good role model.
+- It would have been great to play in England.
+- The FIFA Confederations Cup is a major event, and a success in this tournament can make a team stronger.
+- The transition from football to futsal is very difficult, as this is a shorter and faster version. We have no time to think, but I'm trying to adapt the best I can.
+- Azzam is an amazing yacht. I was hoping for more wind to really see what she could do but I enjoyed the racing tremendously.
+- Thank God Brazilian goalkeepers are now learning to play with their feet, because that was the big problem.
+- You know I played till I was 38 and that at a very, very high level. It's sad to be out but I keep myself fit with training in the gym every day.
+- After I signed pro forms in 1991, I went on to be chosen for a Paulista state championship select XI, then for Brazil at youth level, then for the full squad, and then finally I became a World Cup winner.
+- I hope Milan will become the model to follow for Italian teams - it would mean that we had gone far in the Champions League!
+- I wanted to be the best footballer I could be and also in the best shape possible.
+- Technically, Neymar is the best player in the world.
+- Right backs now should be the highest paid players in every team! Strikers just have to score. Midfielders, they pass. Goalkeepers make saves. Full backs have to mark, cover centre backs and midfield, get forward and cross, take shots and provide the link to strikers.
+- Neymar is the best Brazilian out there. He is on another level than the other Brazilians.
+- Ronaldinho is a phenomenon, and so is Cafu! I am twice World champion and led Brazil to a World Cup triumph in 2002.
+- The athlete of the century, he scored more than 1,000 goals, and won the World Cup three times. He was complete. I don't need to say anything more. Pele is Pele. No one can beat him.
+- All the titles have been memorable. I don't have one that was more memorable or less memorable. They are all important titles with various teams.
+- South Africa and Brazil are very similar. We have the same social problems, same issues and same growing economies.
+- England is a team that is used to playing in World Cup finals.
+- Pele revolutionized football. Pele stopped a war. Pele united countries, united families.
+- African soccer has grown to the extent that the majority of its players are playing for European teams and that is very good as they are becoming role models for the youngsters on the continent.
+- Football has given me a lot of great opportunities, so now I am trying to put that to good use. I have a foundation in Brazil that supports 750 children, and am hoping to do something similar in the Middle East with a soccer academy.
+- The one team I would not like to play is Roma. I played there for so long and I admire the club and the crowd, so I don't want to play against them.
+- I had my chance in the World Cup Final and, wow, it was the opportunity I needed to show the whole world what I was capable of.
+- I was rejected a lot in the early days - I think I heard the word 'no' nine times - and I began to think that maybe I wasn't going to make it as a professional, let alone play for the national team.
+- In 1994, the critics said I was too young, in 1998, that I couldn't cross the ball, and in 2002 that I didn't know how to defend.
+- With Neymar on the pitch, whether he wants it or not, eight opponents will stay connected to him.
+- I was born in 1970. In 2002, I became a world champion. I was captain. I had the honor of receiving the World Cup Trophy from no less than whom? Pele! Man! If I say any more I'll cry. It's really emotional!
+- If African teams can realize the importance of team spirit they will know that they can win a World Cup.
+- It was funny, a lot of people who rejected me as a player, later said, 'Oh, we did it to help you.' I met a coach years later who said, 'I didn't take you at that time for your own good!'
+- Ronaldinho is very complete. He's a good header of the ball, he strikes it well with both feet, he dribbles, he scores.
+- Each player becomes the best in the world in their own time.
+- In Sao Paulo, I won everything. Milan, I won everything. Roma, I was league champion.

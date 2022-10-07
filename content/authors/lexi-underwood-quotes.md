@@ -1,0 +1,40 @@
++++
+author = "Lexi Underwood"
+title = "Lexi Underwood Quotes"
+quotes_len = "34"
+description = "the best 34 Lexi Underwood Quotes"
++++
+- My mom and dad have two very different tastes in music, so they were playing everything from Prince to the Beatles to Aaliyah.
+- I can't control how other people are going to react. I can't control what other people are going to say to me.
+- A dream role of mine that I'm currently talking to some people about - I'm trying to get an Aaliyah biopic made, but a proper one, and see if we can get the family's permission and get all the rights to all the music.
+- I have a playlist on YouTube of guided meditations, I have meditation books, my crystals and crystal sound-healing bowl.
+- I've always been taught to never wait for somebody to give me the opportunity, but to create opportunity for myself.
+- If you're passionate about it, speak up about it. Just show up, do your part, and make your voice heard, because at the end of the day, all we have is our voice and our platforms and our character.
+- I love doing photo shoots and interviews. I never feel like I'm wasting my time or I never feel tired. It's all just been fun.
+- I went into the audition room with the mindset that 'Little Fires' was going to be my last audition. I put my all into it, but I didn't get my hopes up.
+- Ever since I was little, I was so infatuated with everything concerning the arts.
+- The best piece of life advice I've ever been given is to not take every no to heart - especially with my Little Fires Everywhere audition story.
+- I remember the first time that my Nana introduced me to Eartha Kitt. Seeing a fierce Black woman on screen being unapologetically confident - just her essence that she had was so captivating.
+- I'm not from L.A., I'm from D.C.
+- Music is a big part of my sleep routine. I listen to peaceful and calming music every night, and have my go-to playlists and albums I play at night.
+- Don't be afraid to speak out about what you're passionate about because your voice matters and your voice can, at the end of the day, make a difference.
+- I begged my parents to let me go to LA for three months just to try it out. Three months turned into five years.
+- Growing up, usually when I saw a black female on television, she was either a broken character or sidekick.
+- For me, growing up, one of my biggest fashion inspirations was Aaliyah.
+- I had my own documentary that I filmed in D.C., which is where I'm from.
+- The first time that I ever experienced a microaggression was probably in kindergarten. It's something that starts off from such a young age.
+- A way into a creative mind is to really step into their shoes. Do what they love most or try out their art.
+- I was in ballet classes, I took singing lessons, I started taking acting classes as a hobby. When I was younger, I had my mind set on dancing or singing.
+- Because when you have all white men in the writers' room trying to tell the perspective of cultural appropriation or what it's like to be black or Asian in America and not necessarily knowing what it's like, that's when everything gets mixed up.
+- Whether it's microaggressions or blatant racism, it's always been a fight. We've been fighting oppression for 400 years and it will continue to be a fight.
+- I want to push that no matter what race you are, you're never just a sidekick or broken character. You're the main character, you're the funny character, you can be whatever you want.
+- Young Black actresses were not necessarily given the space in Hollywood to fully see ourselves.
+- And then I always find myself going back to watch 'A Different World' reruns. I bought each and every single season of 'A Different World', so most of the time, if I'm watching TV then I'm watching 'A Different World'.
+- You can't do people wrong. You can't do people dirty or put people's life in jeopardy and expect to walk away freely and just continue to live this happy and prosperous life. That's not how the universe and the way of life works.
+- Celeste Ng is such a gifted writer.
+- I keep a notebook on my bedside table and write poetry every night before I go to sleep. It's been something I've been doing since I was in the second grade, when I was encouraged by my teacher.
+- I've been meditating since February 2019, and it's something I do every night.
+- When I was younger, there weren't many people that were open about going through anxiety, so I never knew how to deal with it.
+- I go to sleep super late and then I wake up super late. It's something that I need to stop doing.
+- In black and brown communities especially, mental health is not normalized. No one talks about that kind of thing.
+- Every time I'm feeling anxious, I go to my little meditation corner in my room and write down whatever I'm feeling. If I'm feeling terrible, I write that I'm feeling terrible and I accept that and I keep going, but I'm not going to wallow in that moment.

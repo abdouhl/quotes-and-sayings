@@ -1,0 +1,57 @@
++++
+author = "Alexander Mccall Smith"
+title = "Alexander Mccall Smith Quotes"
+quotes_len = "51"
+description = "the best 51 Alexander Mccall Smith Quotes"
++++
+- There is this intimacy still in Botswana. It's a country of just under two million people, and there's this sense of connectedness, in that people tend to be related to one another.
+- I just focus on getting the first scene right, with a few lines about the overall plot, and then the book grows organically.
+- Writers obviously have to bear witness to the harsh face of the age.
+- Serial novels have an unexpected effect; they hook the writer as well as the reader.
+- I would never inflict my bassoon on anybody really other than the long suffering audiences that come to the concerts of The Really Terrible Orchestra; which actually is really terrible.
+- Fiction is able to encompass books that are bleak and which dwell on the manifold and terrible problems of our times. But I don't think that all books need to have that particular focus.
+- As a writer, I have readers who will have a range of political views. I don't think they look to me for political guidance.
+- Wherever I go in the world, people all know about Scotland Street and are always asking me about what's going to happen to the characters next.
+- Any author of fiction will tell you that characters don't need to be told what to do.
+- Who can't like pigs? They're wonderful creatures! I've always liked pigs.
+- That my philosophy of life is, as far as possible, one of enjoyment. I'm not nihilistic.
+- I'm very interested in tea. I wouldn't mind being involved in some aspect of the tea industry.
+- Manners are the basic building blocks of civil society.
+- It's through the small things that we develop our moral imagination, so that we can understand the sufferings of others.
+- I have three older sisters, so we were a reasonably large family and, in general, a happy one.
+- But you cannot expect every writer to dwell on human suffering. I think my books do deal with grave issues. People who say they are too positive probably haven't read them.
+- My wife Elizabeth and I started The Really Terrible Orchestra for people like us who are pretty hopeless musicians who would like to play in an orchestra. It has been a great success. We give performances; we've become the most famous bad orchestra in the world.
+- I am capable of being idle.
+- My Botswana books are positive, and I've never really sought to deny that. They are positive. They present a very positive picture of the country. And I think that that is perfectly defensible given that there is so much written about Africa which is entirely negative.
+- The Okavango Delta is an astonishing sight: the great Okavango River, rather than flow towards the sea, flows inland, into the sands of the Kalahari.
+- The wider your readership, the greater the chances of offending your readers.
+- I think people in Botswana are pleased that my books paint a positive picture of their lives and portray the country as being very special. They've made a great success of their country, and the people are fed up with the constant reporting of only the problems and poverty of the continent. They welcome something which puts the positive side.
+- Well, I'd say all of us are a combination of moods and emotions. In my day to day life I don't go around skipping, but at times one can feel sheer exhilarating joy at the world.
+- Botswana is actually very peaceful. It's democratic. It never was in debt. They've been fortunate, they've had diamonds.
+- You're always told by your publisher that you must only write one book a year and some years you should perhaps write none at all.
+- New York is a wonderful place to be up, an awful place to be down.
+- Baboons take a bit of getting to know but, apparently, once you break the ice, so to speak, they are complex and interesting creatures with elaborate societies.
+- Oh I love gadgets and I pride myself on keeping at the cutting edge of technology.
+- I write four books a year. I'm very fortunate that I write quickly; around 3,500 words a day. Being strict about delineating my writing time and personal life, as well as keeping distractions at bay, is the only way I can accomplish this.
+- You do not have to ladle on the impasto to make a point about human frailty or ambitions.
+- A very powerful theme in fiction is that of loss.
+- I would certainly never consider myself a Renaissance Man; I'm not fit to look at the dust from the chariot wheels of many of those who have gone before me.
+- Every novel presents a slice of life. A noir policier for example presents one slice, one that perhaps addresses social dysfunction or some sort of pathology, while mine present a slice that is more upbeat and affirmative.
+- My parents were very supportive and always encouraged us. My father was a gentle, nice man. My mother was quite a colorful character and a keen reader who encouraged me to write.
+- The point of opera is that people are moved by the emotions and music.
+- I've always had a creative urge and I get immense satisfaction from creating something because it feels like I'm making sense of the world and imposing order on it.
+- Painters aren't expected to paint bleak pictures, are they?
+- Every single day, I get letters - very moving, overwhelming letters - testifying how much my books have meant to people in times of crisis in their lives, when they were very ill, say. If I ever doubted that writing could play an important part in people's lives, I don't doubt that now.
+- I'm interested in character and dialogue and exchange of ideas.
+- The local community is very important in one's life; the feelings of identification with a place and people.
+- With '44 Scotland Street' I found myself having to work out how a daily novel works, and it is completely different to a conventional novel.
+- Many of my books are written from a female perspective. I rather enjoy the take that women have on the world, and certainly I enjoy the conversations that women have.
+- I've also long since realized that the way to really engage children is to give out prizes; it's amazing how it concentrates their minds.
+- Writing fiction, I really just sit there and it just comes.
+- Edinburgh used to be a haughty city.
+- As a writer I've learned certain lessons. One of them is to be careful about how you put a view, and to bear in mind how easily and readily you'll be misinterpreted.
+- If you lose sight of the smaller accomplishments, you end up with an imbalance in your life.
+- As a writer, you have to realize that people want to like the characters, so you have to be careful to keep them involved.
+- I've certainly always had a very high regard for Botswana and so I paint a very good picture of the country and I've never pretended to be painting an entirely realistic picture.
+- It seems to me that we're in danger of losing sight of certain basic civic values in society by allowing the growth of a whole generation of people who really have no sense of attachment to society.
+- One of the most destructive things that's happening in modern society is that we are losing our sense of the bonds that bind people together - which can lead to nightmares of social collapse.

@@ -1,0 +1,106 @@
++++
+author = "Ryan Tannehill"
+title = "Ryan Tannehill Quotes"
+quotes_len = "100"
+description = "the best 100 Ryan Tannehill Quotes"
++++
+- I want the ball in my hands.
+- When you get down, your game plan changes a lot and what you're trying to do is eliminated.
+- There are definitely plays that I wish that I could have back.
+- That's the job of a quarterback, to go out there and be confident with the communication of the play, in the huddle and with my play.
+- Everything in your preparation, in your mind is we're gonna win this game. You don't really even think of the other side.
+- I'm going to play the quarterback position the way coaches install the plays; I'm going to go through the reads just like they install it.
+- I have to take care of the football, that's what it comes down to is really - just eliminating the turnovers.
+- When you're the starter, there are certain things that you're able to do as far as leading and stuff like that. So, really having to kind of take a step back in a leadership role I would say is the toughest role for me.
+- I'm my own player.
+- I have a lot of competitive juices, and I want to go out and compete on the football field every day.
+- I think the tone that the head coach sets transcends to the team.
+- It's fun, being able to study the game the entire day.
+- I love playing on Sundays.
+- I love playing football.
+- I'm confident in myself as a player.
+- I believe in myself a whole lot.
+- I don't want to be making tackles.
+- A quarterback should be leaders of the team.
+- You just have to be smart and know where you're at within the game and find the right time to be aggressive and take a shot. If it's not the right time, then move on to the next down.
+- Some throws we're just trying to make in practice to see if it's something we want to move with on during the season.
+- You never know what can happen.
+- That's what we're here for as quarterbacks is to help our team win, lead the offense down the field and put points on the board.
+- It's about consistency.
+- There are always things that I am looking to improve upon, but I think I am learning from every rep and filing those reps away.
+- Don't try to anticipate or worry about something you can't control.
+- You always get better as the season goes on, as far as conditioning and the flow of the season.
+- That's the nature of the business. If you're not doing the job good enough then they're looking to replace you.
+- In those long-yardage situations, the percentages are low.
+- It kind of sucks being the guy taking the knees at the end, because everyone wants to see some action - no one wants to see you taking knees in the Pro Bowl.
+- My wife gives me a hard time, whether it's playing games with people we don't know too well and I'm intense. I could probably turn off a few people to probably being around me because of that.
+- I want to finish my career as a Dolphin and win a championship here. That's what they brought me here for and that's what I came to do.
+- Obviously, you have to play well to keep your spot.
+- It's part of my role to push the guys around me to be the best they can be. I think that's part of being a leader.
+- I want to be a great player someday.
+- The ultimate factor in judging quarterbacks is winning games.
+- Honestly, all I care about is winning.
+- If you play scared, your decision making slows down and that's when you run into more trouble.
+- You see receivers getting open, the O-line blocking, and when that's happening, playing quarterback is a lot of fun, man. You get to sit back, and deliver the football, and let your guys make plays.
+- I think there's a lot that goes into an offense, obviously.
+- We desire to win, doing the little things right.
+- You face distractions, you face adversity in life and you have to be able to handle it, you have to be able to fight through it and become a better man and become a better player because of it.
+- I love going out and competing.
+- To see my name on the back of an NFL jersey for an organization like the Miami Dolphins, I couldn't be more excited. It's the moment of a lifetime.
+- It's always a dream to sign a big contract, but the main dream is winning a championship and holding that trophy up with your teammates.
+- I've seen how this thing goes, the waves, the ins and outs of the season.
+- It's slanderous to report things I didn't say, to degrade my reputation, it's sickening to me.
+- That's the big thing - having the other guys' respect in the locker room. You can't come in with no respect and try to own the place.
+- I do what I love and have people around me that I care about.
+- I want to try to get guys going, and get guys playing together and make everyone around me better.
+- I try to get better each and every day, learn from my mistakes, make good decisions, and put the ball in the right location.
+- Quarterbacks are the leaders of the team, and I want to try to get guys going. That's a job of a leader. That's a job of a quarterback.
+- Getting to the playoffs and going to a Super Bowl is the goal.
+- It's about how you handle yourself, how you take care of your business, how you present yourself in front of the team, how you hold other people accountable. And ultimately, performing.
+- I'm a competitor.
+- You can't go out there and play scared.
+- I'm not a guy who really gets caught up in outside noise or opinions, or anything like that.
+- It's fun to go out and play and not think about it.
+- It's a fast game, and you've got to play fast.
+- I have to make sure that we're in the right plays and I can get the ball out quickly and get into our playmakers' hands.
+- I have a lot of belief in myself.
+- We just have to move forward and learn from past experiences.
+- Everything is different when you're not in the starting position.
+- As a competitor, you love that. You love having to go earn a victory.
+- I'm going to go out and compete every day.
+- The passing game is timing and trust, expecting those guys to be in the right spot at the right time.
+- I'm confident.
+- I'm definitely rooting for the Heat.
+- That's kind of a classless move to celebrate when a guy is injured.
+- I think I have all of the things you look for in a QB. The drive, the leadership, the intangibles, as well as what you look for in a QB.
+- We have to be able to execute early in games, whether it's a block, whether it's a throw, whether it's a catch, we have to be able to make plays.
+- I've just tried to do everything I can personally to be the best quarterback I can be, whether it's doing extra work for my rehab, extra work in the film room, on the board, extra work out on the field with my drops and footwork.
+- Nobody likes to sit on the bench.
+- Guys are going to get dinged and banged up.
+- I can't say I've always been a Miami Heat fan, but ever since I got down to Miami, I'm a fan of many Miami teams.
+- I think I have a lot of learning to do, but that's what the game is for.
+- I love being on the field.
+- Whether football or board games, I love to win.
+- I don't listen to the critics.
+- Christ is the anchor of my life.
+- I know what I can bring to the table wherever it is.
+- Teams that can run the football, stop the run and take care of the football will win in the playoffs.
+- You don't want to be an iron fist all the time; at least I don't. I like to pick my spots and have a reason for everything that I do.
+- I can say you do get some things out of losing a game.
+- I wasn't a huge pro fan growing up; I wasn't loyal to any one team. Don't really know the divisions, even really the conferences. I know most of the conferences, but some of those, I really have no clue.
+- I definitely wanted to be playing the quarterback position.
+- Whatever it takes to win, that's what we're going to do.
+- I have a ton of confidence in myself. You have to, to play this position.
+- The more confidence you get as far as games under your belt, time spent with the guys, time in an offense, dealing with all the bull crap that you deal with in this profession. At some point you're kind of like, 'Screw it. I'm going to be me and do everything I can to win and if they don't like it, then oh well.
+- It feels good to go out and execute the game plan, have some fun, have some long sustained drives and convert third downs.
+- Everyone has a bad day now and then.
+- It's the playoffs. Everything kind of amps up a little bit.
+- Every guy is a little different, how you talk to him, how you handle him and hold him accountable, every guy is a little different.
+- It's a tough situation as a defender to be put in. I understand what they're doing trying to protect quarterbacks. I've been on the receiving end of a few of those where you appreciate them trying to take care of you a little bit, but I do see the conflict that it puts a defender in.
+- Game days are a lot of fun, especially when you win.
+- I love practicing with the guys.
+- Whether it's third down, man vs. man or red zone, a lot of the game comes down to one-on-one matchups.
+- Your personal time with God is huge, your quiet time, your study, prayer, but being around other Christian followers... and the church just feeds you. You come away feeling rejuvenated, you get a great message.
+- Whenever we have penalties and take a 10-yard penalty down the red zone, it gets tough.
+- The competitive spirit never dies.
+- I want to make it tough on the organization to not play me.

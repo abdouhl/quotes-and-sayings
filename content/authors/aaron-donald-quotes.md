@@ -1,0 +1,105 @@
++++
+author = "Aaron Donald"
+title = "Aaron Donald Quotes"
+quotes_len = "99"
+description = "the best 99 Aaron Donald Quotes"
++++
+- You never know what's going to happen in the draft. You just wait until your name gets called and then things happen.
+- If anything, it just motivates me to work a little harder. Anytime your organization invests a big amount of money like that into you, you want to do everything and more to thank them.
+- When I'm retired someday, when I'm done playing football, that's when I'll be relaxing and look back at some things.
+- It's always good to show that what you're doing is who you are, what you see on film in the regular season is what you're seeing at the Senior Bowl.
+- My senior year I felt I put a lot more time into the offseason to make a lot more happen. Going out my senior year, I felt like I did everything I wanted to do and more. I felt like I dominated and I feel comfortable going to the next level and that I'm ready.
+- You got to become a student of the game. You got to learn the game before you can go out there and play fast.
+- The more experience you got the more things you are able to go through, and the ups and downs through a season that you had I don't think it can do anything but make you that much better.
+- At the end of the day you never know what team still wants what player. You just never know with the draft.
+- Just have to be smart. Can't hurt your team.
+- It ain't just one guy, it's a team game, and I'll get myself better, I'll keep working on my technique and trying to find ways to free myself and keep making plays.
+- It's a headache, chasing a guy around. I'd rather play against a quarterback that sits still.
+- My family, ain't no more struggling to pay this bill, pay that bill.
+- Pitt will always be my school and I'm honored to be able to support the Blue and Gold.
+- Any time you win you're going to be happy. But any time it's a great divisional opponent, when it's a usual dog fight, to come out on top at their house is a really good feeling.
+- Like I always say, man, anytime you got playmakers around you it makes your job easier.
+- I'm always going to be my worst critic.
+- I've got a good team, got great agents that I know are going to handle the business side, and I trust those guys.
+- As long as somebody is making sacks, I'm happy.
+- Anytime you're rewarded for the success you have, you're going to be happy because you put the body of work in. A lot of hard work. A lot of training. A lot of things you do behind the scenes.
+- I've got leverage on a guy that's 6-6, and I'm strong enough to push 600-plus pounds off on a double-team.
+- It's an offensive league.
+- I've got family, people that really care and want to see me succeed and push me.
+- Anytime you get rewarded for all the work you put into this game, you're going to be happy about it.
+- I always tell my dad he was training me to be a pro before he even knew it.
+- Leaving a legacy behind is huge.
+- I'm going to try and do my job and try to make as many plays as I can and help my team win.
+- It doesn't ever hurt to try different stuff.
+- I love football, but being away from it is tough.
+- I love L.A., but Pittsburgh just is home. This is what I know. This is where I was born and raised. This is what molded me to make me who I am.
+- There are a lot of good football players in the league. You just try to keep yourself grounded.
+- As long as we're winning, I'm fine.
+- God just blessed me with quickness and speed, I guess.
+- I'm just playing my game and trying to help my team win. Whatever happens, happens.
+- People are going to doubt Aaron Donald and they're going to like Aaron Donald. But at the end of the day, my job is to make plays and let them speak for me.
+- You have guys that are all over the field that are making a lot of plays, you'll win a lot of games in the NFL.
+- You have to watch out because being an athlete and playing at the college level with the opportunity to go the NFL, you're under the microscope and everybody's watching. There are people that look up to us. So you have to watch out for what you do and who you're around.
+- A lot of my success, and a lot of who I am now, is because of my dad, and the way he raised me and taught me how to have a work ethic.
+- I'm just a guy. There's nothing special about me.
+- All I can do is play football, put it on film.
+- I'm just a football player.
+- Any time you get a Hall of Fame player that even knows my name, you're going to be pumped up about that.
+- Yeah, I think about the Hall of Fame.
+- We just have to try to play ball. We go week-to-week trying to find ways to win games. That is what it comes down to.
+- You always want to have success, but you never think it will be as big as it is.
+- I don't care if it was 2 o'clock in the morning after a night game. I had to break down the film by myself before I watched it with the team. I wanted to see everything I did wrong and did right or I wouldn't be able to sleep.
+- You've got to have positives and negatives about you. I think that's a good negative, that the only thing they could say about me is my size.
+- You can never be satisfied until you are done playing this game. So I'm just working.
+- Any time you go on the field, you want to dominate as a unit.
+- You've got to try to find ways to dominate in any way - it ain't about getting sacks, it's about making the big plays. If that's pressing the quarterback, making them throw a pick - whatever you've got to do to try to dominate the game.
+- The word thank you ain't enough. You've got to show it, so just go out there and play at a higher level, and instead of saying thank you, show it.
+- I don't see myself as somebody special. I just see myself as Aaron, the same guy I've been all my life.
+- I'm just going out there and doing my job, so whatever it is - if it's a hard slide protection, if it's a double team, or even a triple team or a chip - whatever it is, I'm just finding ways to win, so that's about it.
+- Once you start worrying about things, you get down about yourself, whatever it may be.
+- I want to be great, I want to be mentioned with the best to ever play the game.
+- It's a lot more fun when you're winning than losing.
+- When plays present themselves, I can't miss 'em. I got to make 'em.
+- After games, you think about the play you missed.
+- Pittsburgh's home. This is where it all started. This is always going to be home. I always have to get back to Pittsburgh and get some work done.
+- I feel like I've got a lot of football things I need to work on to have that success that I want to have in this league.
+- I never let nothing ever get to me. Everyone is entitled to their own opinion.
+- If you play against a Peyton Manning, that's a great quarterback, but I'd rather have that quarterback that stays still. You have a better chance of getting to him. The mobile quarterbacks, they do a lot of different stuff.
+- I'm always getting doubled; I just have to find ways to beat it. Can't use that as an excuse. Still got to get to the quarterback someway, somehow.
+- When my name is called I'm going to go in there and give it everything I've got.
+- I know you ain't gonna win every single one-on-one, but in my mind, I'm supposed to.
+- I'm a football player, you know? My film talks for me.
+- That's what you dream about. How you not going to think about making the big play, the game-changing play?
+- It's what you work for and grind for. Just to get out there and play the game and try to help your team to win. And in doing that, you just help yourself.
+- Big-time players make big-time plays in big-time spots. That's who I want to be.
+- It's definitely tough on the pass rushers when they say you're taking a quarterback down and you fall on top of them and it's roughing the passer. Ain't really much you can say, it's just tough.
+- I grew up with a lot of friends that had a lot of abilities to do a lot of different things and chose different routes and it wasn't a great outcome for them.
+- There's always room for improvement. That's my mindset.
+- I have experience at every position... I think that's a plus for me.
+- You visualize making a game-changing play, that's what you're here for.
+- My main focus is playing football and giving it all I got. I'm trying to go out there and make plays and help my team win.
+- It's not that hard to be good, you can be good off raw talent. But I feel like it's that extra step, doing work and putting a body of work in and doing things when nobody else is watching. When nobody else is telling you to do it, you're pushing yourself to do it.
+- I still want to make more plays, but you know it's going to come. You gotta keep playing, playing hard, continue to study, continue to get myself better, working on my technique, and it will come. Just gotta keep working.
+- I fell like I'm a well-rounded football player.
+- Obviously you've got God-given talent to do things that a lot of people can't do but I actually put the body of work in to get stronger, get faster, trying to work on my technique, trying to do little things that people usually don't do, just trying to improve my game.
+- It's the same thing I have been doing since I was 5, playing the game of football. Going out there when my number is called and trying to make plays.
+- Any time you're rewarded and can be a part of history, it's a special moment.
+- Any time you can get the ball back to the offense and they put points on the board, you can win games.
+- Experience is everything in this league.
+- It's a whole different world once you get into games. You have people actually trying to hit you, the speed of the game's a lot faster, you have a lot of different things you need to check and see. It's a whole different world up there once game time comes.
+- I'm just going to go play football - fly around and make some plays. That's all that matters.
+- I feel I can rush the passer well. I feel like I can play the run even better than what I did starting off to when I got in my senior year as far as making plays in the backfield and just being able to break down film a lot better.
+- All I can do is do my part and keep trying to open up eyes with what I did on the football field, what I did in my career. Just go out there and try to compete and shock a couple more people.
+- McVay is a great coach and I think that he's smart.
+- I feel like I'm an inside guy, I feel like I'm a three-tech or nose tackle.
+- I was a big Steelers fan.
+- It's my mindset that I'm not where I want to be. I still want to be better, and I just want to stay humble about it. It's not an act. It's just how I am.
+- I'm able to see things and react certain ways, I try to slither through there and try to make a play.
+- That's my main goal: to win a world championship.
+- I'm a competitor; I like to try to be the best at everything I do.
+- My main goal is trying to win the Super Bowl.
+- The big-time player makes big-time plays in big-time games and that's what we need to keep doing.
+- We always think we can get to the quarterback, put pressure on him.
+- You never know what can happen.
+- It was a dream come true to play for the University of Pittsburgh. My experience as a Panther is something that influences my life every day and I want to pay that forward.
+- When I have one-on-ones, I usually win those.

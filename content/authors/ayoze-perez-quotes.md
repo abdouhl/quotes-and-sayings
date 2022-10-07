@@ -1,0 +1,23 @@
++++
+author = "Ayoze Perez"
+title = "Ayoze Perez Quotes"
+quotes_len = "17"
+description = "the best 17 Ayoze Perez Quotes"
++++
+- My first winter was also quite hard because you are not used to how cold it is. But I just tried to adapt as quickly as I could and I think I did well. I was speaking English after six months.
+- I am the first one that knows when I am not doing well or I am doing well.
+- It has been three great years; good moments, bad moments, like football is. I'm really proud of the decision I made. Newcastle is home.
+- Things could be done better over there at Newcastle, but Leicester have given me the opportunity to do great things hopefully.
+- I had never driven in England on the left side of the road. I had never driven an automatic car.
+- One hundred per cent, to play for Spain is my dream.
+- I had never cooked. I had never wanted any other food that wasn't from my mum. Her food is special.
+- Being confident is a really important part of being a footballer. I know my own ability and what I can achieve.
+- At home is where you have to be stronger and get more points and make the other team feel uncomfortable.
+- Going back to your country and playing for a big team and being able to enjoy playing La Liga would be a good thing for my career.
+- You never know what can happen in the future. But I can't say anything bad about Newcastle.
+- Yeah, football can change a person's life, it changes a lot of people's lives. You can see the kids we work with. You can you make their day just by them meeting you, that's lovely, that's great.
+- I believe in career cycles and when one is close to ending you start to plan things. It's the moment for a change.
+- My idea is to return to Spanish football, I want to play for a big club in La Liga, that would be great for my career.
+- Every person has their own opinion and I respect that. Not everybody is going to like you.
+- I think how football works, the way you have to look at football, that is the difference between Leicester and Newcastle. There is big motivation here to keep growing and to get better here at Leicester. I didn't feel they had it at Newcastle.
+- Being in Newcastle is a very different way of life to Tenerife. The climate is very different but the city itself is beautiful and I love being here.

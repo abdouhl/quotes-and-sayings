@@ -1,0 +1,14 @@
++++
+author = "Cormac Mccarthy"
+title = "Cormac Mccarthy Quotes"
+quotes_len = "8"
+description = "the best 8 Cormac Mccarthy Quotes"
++++
+- If you think about some of the things that are being talked about by thoughtful, intelligent scientists, you realize that in 100 years the human race won't even be recognizable.
+- People apparently only read mystery stories of any length. With mysteries, the longer the better, and people will read any damn thing. But the indulgent, 800-page books that were written a hundred years ago are just not going to be written anymore, and people need to get used to that.
+- My perfect day is sitting in a room with some blank paper. That's heaven. That's gold, and anything else is just a waste of time.
+- I don't know why I started writing. I don't know why anybody does it. Maybe they're bored, or failures at something else.
+- I remember in grammar school the teacher asked if anyone had any hobbies. I was the only one with any hobbies and I had every hobby there was... name anything, no matter how esoteric. I could have given everyone a hobby and still had 40 or 50 to take home.
+- Even if what you're working on doesn't go anywhere, it will help you with the next thing you're doing. Make yourself available for something to happen. Give it a shot.
+- I felt early on I wasn't going to be a respectable citizen.
+- The notion that the species can be improved in some way, that everyone could live in harmony, is a really dangerous idea. Those who are afflicted with this notion are the first ones to give up their souls, their freedom. Your desire that it be that way will enslave you and make your life vacuous.

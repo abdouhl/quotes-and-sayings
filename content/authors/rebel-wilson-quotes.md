@@ -1,0 +1,82 @@
++++
+author = "Rebel Wilson"
+title = "Rebel Wilson Quotes"
+quotes_len = "76"
+description = "the best 76 Rebel Wilson Quotes"
++++
+- I studied law at university and was sort of grooming myself to go into that kind of career. I filmed 'The Wedge' while studying, which was very difficult, but I'm proud I completed my degree.
+- I had a great career in Australia, so it was a hard decision to move to America. But in 2010, I was asked to audition for the part Melissa McCarthy ended up playing in 'Bridesmaids.'
+- I come from the rougher side of Sydney. I don't know whether you can compare them to the projects, but in Australia, it definitely is the rougher side.
+- I think 'Bridesmaids' has changed things socially and culturally. Before, it was really difficult for women to do scatological humour without seeming gross.
+- When you're a kid, you don't want to be teased.
+- I used to watch some of the reality shows about models, and then, weirdly, now I try to incorporate into my fashion shoots the skills I learnt from watching those shows. It's like, thanks Tyra, 'cause you've given me, like, all the cool tips. Like how to smile with your eyes.
+- Even when I'm playing someone named 'Fat Amy.' I'm all about confidence and attitude.
+- 'A League of Their Own' had some special meaning for me, I guess - it's about women joining together and being empowered, but also about sisters sticking together even when there's drama and struggles. I'm really close to my two sisters and my brother, so I liked that about it.
+- Work hard to achieve integrity in your work and your relationships with the people you work with.
+- I try to be healthy. I train three days a week with a trainer. But I do like to eat, clearly. And I do eat dessert every day. If I cut that out, yes, I would lose weight.
+- My family keeps me pretty grounded. Like if I try anything diva, they're like, 'Oh shut up. Go and do the dishwasher.'
+- When I came to America I thought, 'Wouldn't it be awesome to get into one movie?' And then I get cast in 'Bridesmaids' as my first job here and it's such a huge movie.
+- Most people who know me know I'm not switched on all the time. I don't like to be like that in real life, because it's draining.
+- There are so many glamorous actresses, but you know what? In the real world, nobody looks like that.
+- I'd love to do Broadway or the West End. I'm sure doing eight shows a week is gruelling, but I did a lot of stage shows in Sydney and I love performing live.
+- I'm more of the girl who's always in the friend zone, and I try to help if my other friend wants to get with someone. I can be a bit cheeky and say stuff that embarrasses my friends, but I'm normally the girl who guys like to be friends with, so I become friendly with the guy and then go, 'Oh, this is my other friend.'
+- I do notice on Twitter that a lot of girls write to me, and they either say, 'I want to be your best friend,' or they say, 'I have a total girl crush on you.' I'm like, 'Awww.'
+- At first I moved from Sydney to Melbourne, because most of the comedy was shot in Melbourne, and then from Melbourne to Los Angeles - and you have to sacrifice stuff.
+- I do acting for the awards... and cash money.
+- I remember my first taste of American big movies was 'Ghost Rider.' I'm in two little scenes. But for those two little scenes they had 400 extras, upside-down stunt cars, and a fire brigade.
+- I come from a family of professional dog-showers, one step above carnies, but I didn't want to join the family business.
+- If I get two lines in the script, I somehow turn it into 20. I've got a bit of a bad habit of doing that, of just embellishing my little moment.
+- I went to a Christian high school, so I went under my middle name. I don't think they would have accepted me in the school - 'This is Rebel'... so I have two middle names, Melanie Elizabeth, and I went under those. But Rebel's way cooler.
+- Up until the age of 12, I went to dog shows every weekend. Mum showed beagles. It's a really competitive and eclectic world filled with characters who wear interesting outfits - similar to 'Toddlers & Tiaras,' but with dogs.
+- No one in my family is in show business, unless you count dog shows as show business.
+- I think I appear very innocent and soft, but I'm actually very dark and edgy. It's a weird dichotomy.
+- I am the type of girl with zero fashion sense, but I am getting into it now. It's becoming important for me. I saw a lot of girls were beginning to notice what I wear, and I feel a kind of responsibility because there aren't any women in Hollywood my size and age.
+- I'm constantly moving and constantly travelling, and so it's really hard to maintain a relationship in that kind of environment.
+- Sometimes my mum is very disapproving of my comedy.
+- I think sometimes girls look at Victoria's Secret models and think that they have to model themselves after that, but I really don't think that's the best; even though they are called 'models,' they're not the best people to model yourself after.
+- In 'Night At The Museum 3,' with Ben Stiller, I was only given a couple of lines. If you are in guys' comedies, it's not like you are ever going to just get handed some jokes and a brilliant role.
+- At school, nobody thought I was smart and I became smart. Nobody wanted to be my friend and then I had lots of friends.
+- In comedy, it's not the glamorous, beautiful people that are great at comedy. They're either every man or every woman, they're either quite tall and lanky or shorter and fatter or have a big nose. They have something physically about them that makes them into a comic stereotype.
+- In Australia, I wrote lots of little plays and put them on, and then I worked on a few different TV shows, like the Australian equivalent of 'SNL.' I would write and perform all of my characters.
+- I'm trained in musical theatre and 'Pitch Perfect' is the first movie where I get to really belt out. I beat Adele for that role.
+- I wasn't an extroverted kid. I was very academic and very introverted.
+- I have a lot of celebrity friends. But they're all Hollywood friends. You can't call them if you fall over and break your leg, but if you're having a BBQ and wanna chitchat, you hang out with them, or you go to their house.
+- What they do in America in all those sitcoms is hire glamorous girls and they're never that funny... that's because they've never had to develop a personality because they're hot.
+- I was in an a cappella group in high school.
+- All comedians have to use their physicality, so I use my size.
+- I'll often use my real stuff in my writing because it comes across as more authentic.
+- I don't think I could ever go skinny. I just don't think, physiologically, that is going to happen. I do eat healthily for a week, and then I go, 'Nah, they have these beautiful ice-cream sandwiches.' I don't think my emotional eating is ever going to change.
+- I do notice that when I come in to meet casting people, they love that I'm Australian. Maybe it's our good work ethic.
+- The more I know about America, the better I'll be at performing American characters and American stories.
+- I like to take things one step at a time, because the entertainment industry is very uncertain.
+- Some people think success is overnight. I suppose, considering I came from Australia, it has been pretty quick. But I have a background in stand-up and improv, so I've really had to prove myself.
+- I remember just sitting down one day and going, 'I should have friends.' And then I developed a sense of humour. By the end of high school, I would say I was the most popular girl.
+- I'd love to do a court-room drama. I loved 'Ally McBeal.' That was one of the main reasons I went to law school.
+- Get ready for 'Les Mis 2'... I'm playing 'Fat Cosette.'
+- I never thought I'd be the type of girl who'd be doing, like, fashion shoots.
+- I like to have the stamina to work 16 hours a day. I may eat a lot, but I am very healthy.
+- I think that women out there should just be happy with how they look, and they shouldn't really try to conform to any stereotype. Just be happy and, hopefully, healthy.
+- I was planning to go into law or politics. I was well known for my public speaking. I went to an all-girl boarding school with uniforms. It was very posh for someone like me who came from a world where my parents showed beagles and sold dog products out of a yellow caravan.
+- All my family has very good mathematical abilities - like, so dorky. I was the dork then in school - on any maths exams I'd get 100%. I just knew how to do maths and most people would hate it, but for some reason it just came.
+- For a comedienne, you have to have a little tragedy or a dark side, just not too much. Otherwise it's too disruptive.
+- Because of my filming commitments in America, you have to sign contracts where you can't change your physical appearance.
+- I love rapping. I do. My styling's similar to Missy Elliott - I think she's so dope. In a weird way, that's how I first learned the American accent: doing American rap songs.
+- When I was just a girl in Sydney, no one thought, 'Oh, she's going to be a movie star.' No one. I had to get by with actual skill and talent.
+- Where I come from, out in the suburbs, I didn't know anyone who was a professional actor. And girls that looked like me? No girls like that were on TV.
+- You see other actresses who are like, 'Oh, I can't really eat much lunch today because I've got that scene in my underwear'... I'm a little bit chill. But you know, what you do need is stamina.
+- As a kid, I never thought I'd be an actress. Never, ever, ever, no way. I was really shy - bordering on social disorder shy - and I was really academic.
+- People ask if my parents are hippies, but they're actually very conservative. A girl called Rebel sang at their wedding, and that's where my name came from.
+- I think Russell Crowe is a brilliant actor.
+- I love it when the director says, 'Rebel, just do whatever you want.' I'm, like, 'Yes!'
+- I think some of my darkness comes from my dad. There is definitely convict history on that side of the family, a lot of dodginess. But with the darkness can also come entrepreneurialism, genius traits.
+- In 'A Few Best Men,' I play a lesbian character. I played the lesbian sister of the bride who ends up kissing a dude at the end, but she was, like, a full-on lesbian in that. And I beat out famous Australian lesbians for the role.
+- People think you're really confident because you're an actress or whatever, but I'm, like, the worst. Although the good thing about being recognizable is that people approach me, which is good.
+- I love talking in an American accent. Even though it hurts my face after a few hours.
+- I wrote my own play, 'The Westie Monologues,' about where I'm from in Australia, and it was very successful. From that, I started getting offers from television.
+- I really like writing from real-life experiences. Audiences seem to prefer the stuff I couldn't have made up.
+- I was sporty in high school. I played tennis and hockey, and was basketball captain. Then I went to university and stopped doing sport and started eating ice cream.
+- I don't ever want to be too unhealthy because writing in a show, starring and producing, you need a lot of energy.
+- I'm always ripping clothing. It's so embarrassing.
+- I contracted malaria in rural Mozambique. I was a youth ambassador for Australia. For a year after high school, you give positive speeches about Australia and as part of it I traveled to lots of different countries.
+- When I was younger I did karate and martial arts, and I think it's really cool for girls to have those kinds of abilities.
+- I caught malaria, and the medicines caused a hallucination. I dreamt I won an Oscar for acting. I know it sounds stupid, but it was so real, and I just knew then it would happen.

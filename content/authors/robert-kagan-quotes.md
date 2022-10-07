@@ -1,0 +1,18 @@
++++
+author = "Robert Kagan"
+title = "Robert Kagan Quotes"
+quotes_len = "12"
+description = "the best 12 Robert Kagan Quotes"
++++
+- The thing that I would say is that U.S. power is not eternal. I am not saying that it won't come to an end. Because it will.
+- I think most Americans believe that although it's better not to use military force if you can avoid it, that the world simply doesn't provide us the luxury of giving away military force as an important tool of foreign policy.
+- I left Russia in 1993 optimistic that democracy had taken hold despite the obstacles.
+- Britain has taken itself out as a major player in the international system, at least for a while, with the kind of cuts that they've made in their national security budget.
+- Americans are from Mars, Europeans are from Venus: they agree on little and understand each other less and less.
+- In my view, America has never had the opportunity to enter paradise. Europe enjoys the paradise it enjoys, in part because the United States provides the overall security that allows Europe to live in a system where military power is not a major issue.
+- When it comes to setting national priorities, determining threats, defining challenges, and fashioning and implementing foreign and defense policies, the United States and Europe have parted ways.
+- Based on all criteria - military power, economic influence, cultural dominance - America remains number one, even though other, new players are increasingly challenging it in that role.
+- I believe it is still true that conflicts among major powers usually stem from geopolitical rivalries but rarely from economic competition.
+- Under our Constitution, military leaders have no choice but to endorse the president's decision after giving him their best advice.
+- It is true that I have known Straussians almost all my life. And the one thing I was taught about them from the earliest age is that they are wrong.
+- Well, I think he's right to notice that there is a difference in attitudes and even in the broadest sense of world view between Eastern Europe and Western Europe. Which is old and which is new is an interesting question, and I almost think that maybe he's got it backwards.

@@ -1,0 +1,105 @@
++++
+author = "Bob Mortimer"
+title = "Bob Mortimer Quotes"
+quotes_len = "99"
+description = "the best 99 Bob Mortimer Quotes"
++++
+- I remember when I worked at the solicitor's - you'd go in, talk to your mates for a bit and then get down to work. With us the talking to your mates part never stops.
+- We live very ordinary lives.
+- There are a lot of famous people who started out with us and became stars and I wouldn't swap my life with theirs for one second.
+- I had three bypasses in one go, using arteries harvested from my leg and the right side of my chest.
+- There's nothing better than just staring at a buttercup, struggling to make an impact on the world.
+- My doctor told me that I would have had a heart attack on stage.
+- With everything, 'Shooting Stars' included, we'll just have some words on a card to prompt us - 'How would Rod Stewart die,' that kind of thing - and we'll just run with that idea, as if we were talking to each other, messing around. And I'm no scholar of these things, but I think that's what double acts should do, isn't it?
+- I hate dinner parties, you know, can't stand them. Friends don't bother inviting me any more, because they know I won't come. I could never think of anything to say between courses - it's a confidence thing, I suppose.
+- I worked in a chicken factory, in a steel foundry, I worked on the bins for a year or so. It started as a summer job, but I stayed on because I liked it very much. I liked it that it made you very fit, doing all the lifting and that, so I could wear short-sleeved t-shirts, which I'd never been able to do before!
+- I used to like getting cups and putting tiny bits of food and liquids in them. I'd grow mould plumes in the dark wardrobe of my little back bedroom. Not to eat them, mind - just to admire the growing power.
+- I have always been a bit of a recluse, but I really was after the heart thing. And everyone knew.
+- There is a theory in showbiz circles that mentally you remain the same age as when you first tasted fame, and I think there is a grain of truth in this.
+- I get tempted to do a reality show because I enjoy them so much.
+- I don't think 'Shooting Stars' has ever successfully been replaced.
+- Performing in front of an audience gives you an extra ten per cent energy and the chance to react to the instant feedback.
+- I don't know much about history.
+- When they told me I had to have a heart operation, my main memory is standing in my kitchen and thinking what I would really miss was my little tea towel. Not for one minute did I think, 'Oh, I'm going to really miss performing.' The things you're going to miss are your wife, your egg cup, your seat that you sit in to watch TV.
+- I come from the era when that continental stuff, the skimmed yogurt and a croissant, was a healthy start to the day.
+- I like having something I can watch every single night. It suits my habits.
+- It can be very lonely knowing that you have things to say but you daren't say them. Knowing that you could contribute to something but you don't dare quite do it.
+- It's like cooks don't watch cooking programmes - I suppose maybe comedians don't watch comedy shows.
+- I was a solicitor once, so I'm truly grateful because I know what it's like to have a proper job.
+- I never craved having people leave a show saying, 'He's really intelligent, isn't he?' I didn't watch Tommy Cooper and think, 'Oh, he's so bright.' He just made me laugh.
+- I don't think old posh is as intimidating as new posh, is it?
+- Rheumatoid arthritis generally happens when your immune system attacks your joints, but I've had it attack my iris.
+- After heart surgery you can go two ways, you can kind of get scared, shrink on to your sofa and keep yourself safe, or you can engage with life again. I probably was in danger of taking the first option.
+- Between the age of 30 and going fishing, none of my friendships had any of that magic dust of when you were young. There was a sort of functionality to them, just keeping in touch. 'Oh, I should invite so and so, I haven't seen them for ages.
+- I was just a toddler when my dad died in a car crash. With my mum, Eunice, being a young widow with a large family, she really struggled money-wise.
+- The more cynical commentators on our careers would say that the northern accent has been the basis of our success. There's a certain authenticity to the voice - which isn't to my credit; I was just born there.
+- I sometimes wonder, with the Oxbridge comics, the broadcasters seem to say, at some point, now I trust you to do a documentary, you can be the voice for a maths show, or whatever. I don't think we're ever considered in that way.
+- There are quite detailed rules with sitcom. When people can leave scenes, act structure, joke rhythm. You can't not have a straight man.
+- I've started to get iritis, which affects the eyes. But I'm not going to give in.
+- We miss 'House of Fools' a lot. We always enjoyed doing that; it felt a bit like a different and fresh show for British TV, so we always feel attached to those sort of things.
+- Families At War' is a show we are very proud of. It was a great show.
+- I eat a tin of sardines every day.
+- Darts is bad.
+- I saw Alan Davies on a show from the London Palladium and he did a nice routine about having kids or whatever. I couldn't do that.
+- I'm not a fan of stand-up comedy, personally. But some of them are incredibly skilled.
+- I was so young when my dad died that I didn't think it had affected me. I had such tiny memories of him, just little glimpses, I thought I had been unaffected. But then I realised, somewhere in my late 40s I think, that probably the defining thing in my whole life was losing my dad.
+- We've always been a slightly specialist interest, and as you get older, for specialist interest programmes I think broadcasters are probably looking for younger talent, really.
+- I don't feel scared about death, I just feel so frustrated and sad to think I won't see how stories end. My children's story. My wife's. The football. All the stories going on in the world that you're going to miss the end of.
+- I hardly do any exercise because of my arthritis and my joints.
+- I hate every moment of live performance.
+- We can write idiots quite well.
+- A lot of comedians want people to listen to them. I don't think we've ever been that bothered about whether people would want to listen to us.
+- We miss 'House of Fools' a lot. It felt a bit like a different and fresh show for British TV.
+- Having an audience in the studio makes you perform rather than just act.
+- I don't believe in credit or loans.
+- I am allowed one matchbox-sized piece of cheese a week.
+- Funnily enough, 'Shooting Stars,' that stupid little panel show, is the most influential thing we've done.
+- Before I had my heart problem, if I was asked to do something I would look through a mental file looking for reasons why I could say no.
+- When we first did 'Big Night Out,' there was no chance of someone doing a little show in a pub then being on telly. There was a little Oxbridge route in and an old-fashioned variety route.
+- Catterick' was originally a movie. That was what we intended for it and we had the money for it and everything. But we couldn't be bothered - I know that sounds terrible, but it's the truth. At a later stage we went back, split it up and made it into the TV series. But, yeah that was supposed to be a movie and we just didn't bother.
+- I think 'the Mighty Boosh' are quite good.
+- They asked me to go on 'Hell's Kitchen' but I'm banned from reality TV by my wife. She's not up for that kind of tomfoolery.
+- When I was about 13, I went to see this band called Free, who I'd never heard, and I just fell in love with them. I found my heroes. I stood at the front with my chin on the stage.
+- If you want the best audience, make your way up North to be honest.
+- When you have a house full of children, there's never a quiet moment, so I like getting out in the garden for a bit of time to myself.
+- My shyness probably defined the first 30 years of my life, really. It's a crippling thing. It can be very lonely knowing that you've got things to say, but you daren't say them.
+- I don't fish but had always wanted to after doing it as a kid.
+- I played for Middlesbrough's youth team. At the age of 16, I went into a shed at the training ground and was told that they weren't signing me on, so that was the end of that dream. Football was my life. I played football when I got to school, football every break and football as soon as I got home.
+- That's the thing, you see, we were never good enough to write proper punchlines.
+- I spend a lot of money on the little things that make me happy, like 3 falafels from M&S to eat on the train on the way up to Edinburgh, but I do keep a close eye on the bigger picture. I don't flash the cash ridiculously on expensive things.
+- When you've had a heart thing, a lot of the problems are psychological.
+- I look at stuff like the 'The Whole 19 Yards' and it reminds me of my childhood watching shows with Mike Reid and kids climbing over obstacles.
+- In broadcasting, there's a lot of longevity offered to people like Griff Rhys Jones and Stephen Fry, who are polymaths more than comics. We're comics first and foremost.
+- I was the youngest of four boys, raised in North Yorkshire.
+- I want people to watch us and think, 'They're idiots. They're clowns,' I want them to watch us and think Tommy Cooper or Spike Milligan.
+- I go on 'Sunday Brunch' and Simon Rimmer's mashed potato is like heaven.
+- Shooting Stars' changed panel shows a bit for ever, I think.
+- I wouldn't wish it on people but there is a positive side to a near-death experience. People used to ask me do you fancy doing this or that - and it was like I had a file of reasons in my head for not doing things. I would riffle through it until I found one. But I've dropped that.
+- You can have a mate for 30 years, it's easy.
+- Throughout my entire three years at Sussex I never spoke to another law student. I talked in tutorials but as soon as they finished I was away back to my room to listen to my records.
+- Our comedy is just falling over, funny faces, arguments, all the comedy basics, really.
+- Laughter is the only currency I've really ever known. Ever since I was a boy.
+- When I was young, having a heart bypass was, 'Woooh!'
+- Comedy, if it didn't save my life, certainly gave me a very different life.
+- After your heart fails, you just feel really vulnerable for a while. You just want telly and your little house. Then, suddenly, three, four months have passed.
+- After my triple bypass I got my sheet of healthy and unhealthy foods and I was like, croissants!?! Literally as bad as lard.
+- Our new programmes have always just been different vehicles for the same sort of comedy.
+- We've ignored audiences all these years. We've just amused ourselves and hoped enough people would want to eavesdrop to make it all viable.
+- I'd always wanted to do something about football, so I did the podcast.
+- House of Fools,' that was the first thing I was sad that we couldn't do any more.
+- The wife and the kids provide my exercise, but I have to be careful because I have rheumatoid arthritis all over my body.
+- We're not scientific comedians, thinking like, 'Things have moved on, we need to do this, we need to reflect the world in this way.'
+- Other people just look so comfortable with a book in their hands - I never feel like that.
+- I love 'Big Brother.' I adore it. What can I say. It just suits me fine.
+- At one point I was putting 17 sugars in my tea. I know it's unbelievable and I do wonder sometimes what my mum was thinking to allow it. The weirdest thing was that if I had 18 teaspoons it was too sweet.
+- I can't remember ever cooking food to impress a woman. The idea's quite cheesy and sort of makes my skin crawl. But I sometimes make a special effort to impress my cats, with chicken liver or something. It's tricky to know if a cat's impressed. They might give me a little look, a glimpse at least. That's cat ownership for you.
+- You know the thing I liked about fishing when I was 14 was being out with your mates mucking about, throwing bread around, getting a bit wet maybe.
+- You see idiots on the net but on TV you can't really find them.
+- The best part of our lives is just every day when we are writing.
+- I didn't think I had time for fishing before I fished.
+- I've been brewing my own beer with this ex-army bloke.
+- I thought I had a chest infection and went to the doctor - five days later I was under the knife. It came completely out of the blue. My arteries were 95% blocked.
+- After I had my heart operation I got really into heart stuff. I did think it would be lovely to go on 'Strictly' just so people could see I wasn't finished. But, sadly, now I couldn't because of my joints. I'd be hobbling around.
+- I'm not that interested in other people, and I don't have any friends, so I'm not really the ideal candidate for Twitter.
+- I come from an era when if you are told that you need a triple heart bypass it sounds pretty terminal. But I think it's quite a normal operation these days.
+- I am increasingly of the mind that all fat is good.

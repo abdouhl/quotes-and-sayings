@@ -1,0 +1,27 @@
++++
+author = "Bob Ney"
+title = "Bob Ney Quotes"
+quotes_len = "21"
+description = "the best 21 Bob Ney Quotes"
++++
+- In recent years personal injury attorneys and trial lawyers have attacked the food industry with numerous lawsuits alleging that these businesses should pay monetary damages to those who, of their own accord, consume too much of a legal, safe product.
+- In my view, there is nothing more vicious and outrageous than the abuse, exploitation and harm of the most vulnerable members of our society, and I firmly believe that our nation's laws and resources need to reflect the seriousness of these terrible crimes.
+- In addition, the Protection of Lawful Commerce in Arms Act provides protection for those in the firearms industry from lawsuits arising out of the criminal or unlawful acts of people who misuse their products.
+- Effective use of Braille is as important to the blind as independent mobility, knowledge in the use of adaptive technology, and the core belief that equality, opportunity and security are truly possible for all people who are blind.
+- All of us deserve a greater peace of mind, knowing that our children are better protected wherever they are.
+- We not only have a legal obligation to honor our commitments, we have a moral obligation to provide the coverage we promised to provide to these people.
+- Along with you, I have witnessed the unfortunate rise in gasoline prices that has accompanied the summer driving season and the more recent spike in prices due to Hurricane Katrina.
+- I have the utmost respect for those who have come to this country legally and have contributed to the great melting pot that is America today. But those who have crossed our borders illegally have broken the law and the law ought to be enforced.
+- Before we move forward with new efforts to lower the barriers to international free trade, we must review the consequences of the policies of the past and address the problems of the present.
+- Homeowners and business owners across the country agreed to pay premiums, communities agreed to adopt building codes to mitigate flood dangers, and the Federal Government agreed to provide insurance coverage to policyholders after a disaster.
+- Opening the Arctic National Wildlife Refuge stands to not only increase the United States' oil reserves by nearly 50 percent, but it will create thousands of good U.S. jobs.
+- Yet, when child sex offenders are brought to justice and serve time for their offenses, they are often released into unsuspecting communities and left free to resume their sexual attacks.
+- Nearly 100,000 sex offenders remain unregistered, and are moving freely about the country; the risk that they may strike again grows every day.
+- Louis Braille created the code of raised dots for reading and writing that bears his name and brings literacy, independence, and productivity to the blind.
+- The bottom line in my view is that America's mothers and fathers deserve to have confidence in law enforcement's ability to ensure that their children are being raised in the safest possible environment.
+- It is outrageous to know that security procedures are apparently so lax at the Department of Veterans Affairs that a single bureaucrat had the ability to put the personal information of over 26 million Veterans at risk for sale to the highest criminal bidder.
+- In the immediate aftermath of the hurricane, I sent a letter to EPA Administrator Stephen L Johnson urging him to waive regulations to allow for the early sale of winter grade fuel to help with gasoline shortages and gasoline prices.
+- Common sense solutions to lowering your gasoline bills can go far. Carpooling, taking fewer or shorter road trips, and ensuring that your tires are fully inflated can all help stop the pinch at the pump.
+- This week I was proud to join with my colleagues to help pass two important, common-sense pieces of legislation that will limit the frivolous lawsuits by trial attorneys and personal injury lawyers that clog our courts and hurt our small businesses.
+- I have worked closely with many of our county commissioners, mayors, local transportation officials, and others to determine project needs in the 18th District, and they deserve a great deal of thanks for today's victory on the House floor.
+- After two years of hard work and debate, Congress has passed a highway bill that will help fuel our economy by creating roughly 500,000 new jobs, as well as address many critical transportation needs in Ohio and the 18th Congressional District.

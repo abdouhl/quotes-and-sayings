@@ -1,0 +1,101 @@
++++
+author = "Clarence Seedorf"
+title = "Clarence Seedorf Quotes"
+quotes_len = "95"
+description = "the best 95 Clarence Seedorf Quotes"
++++
+- When you play against Barcelona and other great teams in the world, you can lose. It happens.
+- Football is part of my life, but it is not all of my life.
+- To make a difference within the football environment means to make a difference in the world.
+- I'm not Zidane and not Rui Costa, but I have qualities - I can create assists - but I have to step up a level to become like those two.
+- All the games we play are worth the same because we can aim to get points in the league. Milan wants to fight until the end in the league and wants to compete with everyone until the last match day.
+- Luck is a factor that a lot of people underestimate.
+- What I always say is that young people need older people to develop their game, grow as people, and understand what Real means.
+- I think that you cannot have everything in life, and sometimes you just - destiny wants you to take another path.
+- Why does everyone love the Champions League? It's because it's exclusive. Even if you win it, you only play 13 games in that competition in a season.
+- My humbleness and the work I do each day speak for me.
+- I think that there's still a lot of prejudice going on. I don't really think it's only an issue of football. I think football is a mirror of society.
+- If I was happy with three trophies, then suddenly I had to have four. If I was happy with four, then I had to have five.
+- Unfortunately, results are the only thing that some people look at, but there is more to defining success than just stats.
+- People don't come to the stadiums for every match because if there is a game every three days, it is difficult. You need to make games more exclusive and make them more special.
+- I have spent half of my career at Milan.
+- I began training the young players at Nova Iguacu and at Boavista, and I enjoyed it. I had always wanted to be a coach, and this accelerated the process.
+- I am a winner - and I like to win - but I cannot think that, if I lose, I did not do a good job, because there are other external factors involved.
+- I am aware of my own position and my responsibilities to youngsters watching us. You are a role model.
+- When we're playing, I really shape my body to receive the ball - even before it gets to me.
+- I wish I could hug all the fans one by one.
+- You cannot leave the pressure and responsibility on young people in general. Young people must enter a safe and protected environment to be able to pass and fail so, little by little, they can adapt.
+- I would love to play in the Premier League; which player wouldn't? I am happy at AC Milan, but never say never.
+- We need to educate young people, give them the possibility to understand that the diversity is positive, to feel and experience it, so that they can then join forces in promoting more diverse world.
+- I played over 130 matches, including four finals, so there have been many great moments.
+- Education is the key solution for change, for peace, and for help in the fight against racism and discrimination in general.
+- When the results start to come your way, the confidence rises, and we start to play better.
+- When you have ambition, then it's never enough to win.
+- The secret in life is to make every obstacle into an opportunity.
+- I'm on a mission partly to make a difference in the world for the better, starting with the kids. They are the future.
+- I was born a trequartista, and have adapted myself to playing in other roles.
+- I have been fortunate to work with many great coaches and also in different countries, and I have taken a bit from all of them - Dutch, Spanish, Italian, and Brazilian football.
+- Everyone dreams of playing for Madrid, but we all know that it can be life or death.
+- Unfortunately, the life of a player is not forever.
+- Rijkaard was my idol, but we have different qualities, even if at the beginning we played in the same position.
+- For me, winning isn't just about lifting the cup, the trophy - it's about giving your maximum, on and off the pitch.
+- Globalisation has changed the world, and football is the perfect instrument to set an example and to help adapt to this new world.
+- I think about Milan from morning to night, and there is certainly no lack of effort and desire on my part.
+- Scoring goals comes and goes with time, but the most important thing is that we continue creating chances. The entire team must work, and we then have to score goals.
+- I believe in a European League. I would like to see more quality in the game, and fewer games mean more quality.
+- Coaching is not easy.
+- My last game, scoring a goal, was incredible.
+- My dream is to get the young people off the streets, to make it possible for them to play football in the stadium instead.
+- Everyone dreams of winning a European Cup final, and I was lucky to do it at just 19.
+- Football can help carve a more diverse world.
+- I have the quality and the experience and can give that little bit extra to the squad.
+- The most important thing for me is to value the players and try to improve them individually in order to improve the team.
+- There's no guarantee of winning, even if you are the best players and the best team.
+- There is no racism in Italy.
+- Real Madrid has a lot of high expectations, not only in terms of results but also with nice football and a lot of goals.
+- You have to want to improve all the time.
+- I'm sure I will win a title with Inter.
+- Players must understand that if they go after more lucrative contracts, then they forfeit their chances of playing in the national team.
+- If you are lucky, you go to a team like Porto to mature. And if things don't go well for you, others take your place.
+- Coming back to AC Milan was like I'd never been away, actually: you know everybody; everybody knows you.
+- If you're a talented player, and you're 20 years old, you should be playing in the UEFA Champions League or in the elite European teams like AC Milan, Juventus, or Chelsea.
+- Great moments of entertainment, great football, unforgettable evenings. I think that's what it's all about: experience, emotions, and the special touch that the Champions League brings on and off the field.
+- Of course African teams are underachieving when you think of what their potential is.
+- Players don't trust most of the people around them.
+- We try to bring in the best players for Cameroon: not just best in terms of talent but those who are motivated and who know what it means to play for this nation.
+- I think I'm outspoken, but I think people respect me for that.
+- The DNA of AC Milan is something I have inside me.
+- If I could have played on another five years, I would have stayed here because Botafogo have a young, competitive team. We've improved not only technically but also as a team. Even after me, Botafogo will remain great.
+- Let's say that the teams I played in were all excellent. I played with many, many great players and incredible teams.
+- Bolatelli is an exciting player, but his stupid attitude sometimes attracts attention from the crowd - nothing more, nothing less.
+- You can not always think about winning everything and forever.
+- But I think we have to enjoy the moment, because when it stops, it stops. And I think that as long as I'm fit, I need to be on the pitch, running.
+- If a club has the cups it has, you have to think that Real Madrid is always capable of reaching the final and winning it.
+- Good, young players don't compete in China or in Asia.
+- Every time you win a cup, it's special, but it's a dream come true when it happens at a club where you started in the youth set-up, surrounded by friends who formed an incredible generation of players.
+- Who doesn't want to work in the Premier League?
+- Once you stop wanting to improve, you start to slide. And if you want to keep winning, if you want to stay at the top, that's not something you can afford to do.
+- Many times, my role was to work as a link between the coaches and the players; it was to be a leader. That was something natural for me.
+- Who does not talk cannot be judged. Who does not shoot the penalty cannot miss.
+- When I am in Holland, I feel negative feelings. That must change.
+- I'm going to stop playing football after 22 years.
+- Having the opportunity to join the FOX family as a soccer analyst in their Moscow studio for what will be my third World Cup is amazing.
+- Madrid is a club with very high demands.
+- Managers lose more than they win until they get to the big 10 clubs; then, they start winning a bit more than they lose.
+- When I went to AC Milan, they were four points away from the relegation zone, and by the end of the season, we were just one goal away from being in the Europa League.
+- Companies and football teams have become successful precisely because of how diverse they are.
+- The best players want to play for the best clubs in Europe and appear in top competitions like the Champions League.
+- When I make criticism, it's constructive. It's not right only to focus on the negatives.
+- I've been playing football for 23 years and with more than 30 nationalities; that has been a pleasure.
+- What I strive for is that everywhere I go, I leave a positive impact.
+- I had a great time with Botafogo, and I am sure they will acquit themselves very well in the Libertadores.
+- As a player, I've always been interested in understanding the coaches' minds, in seeing how they made a group function.
+- I am very satisfied with what I've done in my career and with what I managed to do with Botafogo.
+- It has been an honour to defend the colours of a historic club like Deportivo.
+- Humanitarian work is something I've felt from very young, and I'm going to do that for sure.
+- I like to take on challenges.
+- Football is not just what you do on the field.
+- Every player needs to be happy and proud to play for Cameroon.
+- Every player can still grow - there is no limit to that. Even when I was 38, I improved myself in certain things, and that is what I will always do with my players to help them get the best out of themselves.
+- If a guy has five good games and then starts to go out, drink, sleep late, live the wrong kind of lifestyle, then his performances will always suffer.
+- Winning the Champions League is a very particular feeling, but it's really the journey that makes it special.

@@ -1,0 +1,16 @@
++++
+author = "Alexandre Aja"
+title = "Alexandre Aja Quotes"
+quotes_len = "10"
+description = "the best 10 Alexandre Aja Quotes"
++++
+- I'm a huge fan of movies, and I watch DVDs all day, and I like to be able to watch DVDs that are different from what was in theaters. Whether that's uncut or a director's cut. I think it's an awesome way to rediscover the movie.
+- In Europe, there is no horror movie. It's very hard to make a slasher or gory movie. There is no audience for that.
+- When I approach a story or movie, the story is the most important thing.
+- I think the violence in 'The Hills Have Eyes' and 'High Tension' is much more traumatic than 'Piranha.'
+- The most important thing when you do a movie is that you find an audience that really understands what you want to do and is really supportive of it.
+- Spring Break is very strange. I grew up in France, so I don't know Spring Break. That doesn't exist in Europe.
+- A movie like 'The Last House On The Left' would be very hard to do in Europe.
+- Growing up in the eighties, you could go from one style in a movie to another style, and that was okay. In the nineties, you had to obey your niche. You had to follow the code and never step outside of exactly what you're doing.
+- Me, as a moviegoer, before being a filmmaker, I try to think about what movie I would like to see.
+- When you do a slasher film, you find yourself repeating the same kind of scene, then it becomes not very challenging and not very interesting.

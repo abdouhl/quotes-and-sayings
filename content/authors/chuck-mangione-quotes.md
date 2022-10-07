@@ -1,0 +1,37 @@
++++
+author = "Chuck Mangione"
+title = "Chuck Mangione Quotes"
+quotes_len = "31"
+description = "the best 31 Chuck Mangione Quotes"
++++
+- I was blessed to work with The Jazz Messengers when the two piano players were Keith Jarrett and Chick Corea.
+- Whether it's string writing or whatever, I try to write for what each instrumentalist can do best.
+- I do not mind having written the song at all. I just wish that I had written it in a different key, as the high d is hard to play. I am glad that I wrote something that brought joy to millions of people.
+- Not compromising the music, but there is a way, by just showing the people that you're sincere and honest with what you're doing, and by talking to them.
+- There's not much in the way of written-down arrangements - just things that Gerry and I have worked out, from playing spontaneously together and hanging on to whatever seems to fall in right.
+- With four people you can create one very strong kind of energy, but if you can get 65 people working together, and swinging together, that's a whole other kind of energy.
+- We may play in a contemporary rock vein, use standard bebop themes, and many other things besides.
+- The hiatus you spoke about happened in 1998. I was somewhat numb from being out on the road every night. I had to stop because I was emotionally and physically drained.
+- I can count on one hand the number of instrumental hits there have been over the last ten years.
+- Most recently we've been working in concert situations rather than clubs. because there aren't too many rooms there like Ronnie Scott's, that are pure music rooms, where people come specifically to listen to music.
+- In 1994, I started touring again and I recorded two albums for Chesky Jazz.
+- I made many studio albums and I think the danger of studio recording is that if you do not watch out, you come out with a perfectly sterile performance.
+- As for the symphonic activities... when I was a student at the Eastman School of Music, I became exposed to a lot more musical forms, elements, opportunities, and I fell in love with strings and their uses.
+- I am glad that I wrote something that brought joy to millions of people.
+- To do it always right, that is what music is to me.
+- A studio recording is perfection, but emotion and passion come only when you turn on the machine and go for the groove. If you do that with no mistakes, it sounds beautiful.
+- Not with the Rochester Philharmonic, but I formed my own orchestra, made up of musicians from the Eastman School, where I'm on the faculty now, direct the Jazz Ensemble and teach improvisation classes.
+- I write music people enjoy playing and listening to, and I have a group that loves playing the music.
+- To pay 60 musicians for rehearsal and performance is quite something, and I decided I wouldn't be able to handle that kind of situation financially again, unless somebody else was taking care of that end of it.
+- I have been recording for five decades now.
+- Then I loved the fact that we were actually recording live.
+- My music has always been strong in melodic content.
+- My goal was never to sell many records.
+- Brazilian music has many of the ingredients that I strive for in my own music: Strong melodies and a disciplined but intense rhythmic concept, and interesting harmonies.
+- My brother had a big band in high school; after that we continued to play together, eventually forming a group called the Jazz Brothers, that recorded for Riverside Records.
+- I tend to not want to put labels or categories on the music, only because people come with preconceived ideas about what they're going to hear, or won't come for this reason.
+- Because I don't believe music can be free unless it has something to be free from.
+- 1972 was a year of many pleasant and rewarding experiences for me:
+- Music is meant to be a beautiful thing.
+- I find it very difficult to compose when I'm not playing.
+- What's happened - in our country, anyhow - is that the young people have shied away from the formality of the concert hall, that tie - and - tails philharmonic image.

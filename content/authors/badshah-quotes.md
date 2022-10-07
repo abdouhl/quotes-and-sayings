@@ -1,0 +1,106 @@
++++
+author = "Badshah"
+title = "Badshah Quotes"
+quotes_len = "100"
+description = "the best 100 Badshah Quotes"
++++
+- I come from a humble background, where my family was struggling to be called middle class.
+- Somehow, I don't see myself doing a lead role.
+- I want my fans to listen to my music. Period.
+- I think if you are a talented person, your story makes you a bigger star rather than the art.
+- Bollywood goes through these phases. Whatever makes money is quickly lapped up by all. They all want to play safe.
+- The shopping centres that have come up in Noida are amazing. There are amusement parks and other good family outing spots.
+- Whatever script comes to me, I like everything.
+- I go out of my way to help people, but I don't tell people. Goodness is not about beating your own drum.
+- Artistes never make their image. Image is made by the fans and the artiste's job is to fight that perception.
+- I have always said and maintained that I think being an RJ is the most difficult job in the media business. To have that energy and animation in your voice alone, to capture your audiences through your show, is entertainment in the true sense.
+- Hip hop minus plugged sounds can be a very different experience.
+- Bollywood is a tough place to be in and survival isn't easy.
+- I studied hard and completed my engineering. And I also pursued music that was my passion.
+- When I started listening to rap music, I loved the fact that there were stories being told in 16 bars.
+- I have never deliberately tried to hurt someone's sentiments.
+- I think the debate around nepotism is futile because I am an outsider and I know that there is no compensation of talent.
+- I am extremely excited to be working with Major Lazer on the Tuborg Open Project, which is an amazing platform for global and cultural amalgamation of music.
+- Whenever there's a crying kid, I have to make sure that the kid stops crying.
+- The image that is on screen is very different from who I am in real life.
+- My music comes before my stardom, so the pressure of handling fame does not matter.
+- I was offered Vicky Kaushal's role in 'Lust Stories,' which I had declined.
+- While I hope that people like my work, I don't think an artist should be afraid of ­people not liking his work.
+- I feel it is important to remember who you are if you want to make it in life - and I try not to forget that fact even for a moment.
+- I want to thank Bollywood for accepting me and loving me the way I am and my songs. Bollywood has given me the reach.
+- I want to be a family entertainer.
+- I feel I do not have script sense. Like Kartik Aaryan has a very good script sense.
+- I would never ever dare to objectify anyone who has fed me, protected me or loved me.
+- I think of myself as a reporter. I just rhyme my reports and give them a beat.
+- Shah Rukh Khan's stardom always inspires me. His sensibilities, way of life and the way he does business, I love him for that.
+- I'm a hardcore performer. The rest follows.
+- I have always been a very determined and stubborn person about what I want.
+- My father was a government officer and for him, the ultimate dream was to see me become an IAS officer.
+- I never really liked kids before, and kind of hated them. I just didn't like them. I don't know why. All that has changed ever since my daughter was born, and I have started loving kids now.
+- I think that I can act.
+- If one is hardworking and has faith in one's talent, I think it just adds to one's confidence.
+- It's fine if you are on TV and people are taking pictures with you but where is the money? That is what parents are concerned about.
+- My lines are witty in nature and I love to be surrounded by people who are witty.
+- I think you have to be a father to understand those feelings... that happiness of being a father.
+- Whenever I work on a song, my focus is on the listeners who follow my type of music.
+- I am reserved; I don't speak much.
+- I feel an acting stint would help me widen my reach as a singer. Being an actor would let me reach out to people who may not have heard my kind of songs.
+- I have been a huge fan of Major Lazer for a long time and they have done a phenomenal job in redefining dance music across the globe.
+- In India we are creating mainstream hip hop music, than what real rap music is. The lyrics aren't that personal, since most of the music is catering to Bollywood. It's just trivial. It's a fashion here.
+- I stick to Hindi rap. That is my USP. It gives an Indian essence to my music despite the foreign influence of the genre.
+- I am a qualified civil engineer but academics never attracted me as I was a sleepoholic when I was in college.
+- For me, safety is a huge parameter for a city's progress. If your city is safe, it is progressing.
+- Bollywood is just like any other industry. It is just that people in this industry are constantly in the public eye.
+- The first rap that I wrote was about my Maths teacher, and as expected, he didn't like it, but the students loved it!
+- I don't prepare for a live show.
+- I rather create better music and let that talk, than me going out and dissing other musicians in public.
+- Bollywood gives you an immense reach. The stars have a huge fan base. The amount spent on promoting a film is incredible. To be part of such productions, in some way or the other, is a blessing for any artiste.
+- I don't want people abroad to see India like it's shown in a film like 'Slumdog Millionaire.' We are at par with the world.
+- The thought about changing my genre of music does cross my mind, but then I remember why I started making music in the first place or why people started liking my kind of music.
+- You need to have a heart to help others and separate yourself from your money.
+- The hard part of being a celebrity is staying one!
+- The trouble with indie music in India is it continues to be overshadowed by Bollywood.
+- I want to write music based on my life, my past experiences and heartbreaks.
+- My lyrical content is all about entertainment.
+- If celebs try to do something good, people think it is a publicity stunt and if they do without showing it, they don't get credit.
+- The whole idea of performing before an audience is fun and organic.
+- I don't take myself seriously, I don't think of myself as a star.
+- Once you know the background of an individual, you can connect better with his or her music.
+- Art is subjective and, as an artiste, if our artistic work is not appreciated by the majority, it hurts.
+- I just want to focus on creating more music.
+- Everything is temporary. I don't know how long will I have my time here in the industry. I want to concentrate in making good music. That will be my biggest satisfaction.
+- Rap always has that undertone of rebellion and I just wanted to explore it. I felt there was a rebel within me who was against everything - the education system and teachers, and even my parents.
+- I got into rap because I can't sing. If I could sing, I'd be a singer.
+- Time has changed and artists release more songs in a short span of time and that's where the auto-tune steps-in. One doesn't have to record a song multiple times to make it better.
+- I am a very chatpata guy.
+- Downloading a song for free is the easiest way to get all kinds of music. Everything else is tough and I am sure, even if people wanted to buy music, they won't be able to because they will not understand the way to buy music online. It is a very complicated process.
+- I would love to act in films if people think I am right for a particular role.
+- Yes, I've been lucky to work with some of the biggest stars in the film industry, but I've worked hard and fans have loved my music.
+- I was born in Delhi but grew up in Chandigarh, so I write about the machismo of Punjab because it was around me.
+- Trust me, the person who sings his/her heart out, laughs loud and dances like no one is watching, is the beautiful one.
+- It's an incredible experience to interact with fans in first person, get immediate responses to your music and see the madness that your music creates.
+- So many kids meet me and they get disappointed. They ask me to wear shades and behave in the way I do in my songs. Then I have to explain it to them that I am like this in real life, more composed, chilled out and cool.
+- I mean even I don't know how to buy music online. I go on a music- streaming site or an online music store, there are so many steps you have to go through, before you get to download the song. Then, if I have made my account, then I forget my password daily.
+- I am not a businessman, I am an artist.
+- Both the industries, be it Bollywood or music, have been really kind to me.
+- Money is a resource for me and it is needed to make music.
+- Rap or hip-hop music emerged in the West because of the atrocities against the Blacks. Their lyrics had a certain style of rebellion and it was quite personal.
+- Earlier in our country, rapping was not considered as a proper art form, as it is not a song. But now, incorporation of rap in Bollywood songs, is giving rappers a chance to show their talent and it is coming to the mainstream.
+- I don't have an MBA, I don't have a qualification in music, but I am doing both - business and music - and I am doing quite well.
+- Hindi film songs are the best of everything - whether it is lyrics, melody and talented singers.
+- Of course, I have been influenced by my Punjabi and Hariyanvi roots.
+- Never have I ever come across any woman who is imperfect!
+- Indians have a huge misconception when it comes to rap. It isn't just about heavy beats; it is about poetry.
+- I live in Chandigarh and people have become more conscious there. Especially the younger generation, they are very aware and proactive. People take pain to stop and throw trash in dustbins.
+- Confidence is the biggest swag, and that comes with success, which is subjective.
+- When I bring my music to a live audience, I know right away whether it is being appreciated or not.
+- As a successful artist it is my job to give the indie scene as much of a push as I can.
+- I don't see anything wrong in using auto-tune.
+- When you act you realise acting is not that difficult - the other technicalities are, like the mark, angle, light, etc. So you just not have to memorise your lines but keep in mind the mark, the angle and light. It is difficult.
+- Haters will be haters, you have got to acknowledge them and move on as the ratio of love to hate is too high.
+- Criticism is for real. The amount of hate that I get is.
+- God has made all of us in a certain way, and we are all unique. I see no reason to find fault in that.
+- An album takes a lot of work and energy and dedication to make.
+- It's hard to find parking space in Delhi and the traffic sucks there.
+- I grew up in an age when there was no Internet and only popular songs used to come to India.
+- I am comfortable doing independent music; it gives me more freedom as an artiste.

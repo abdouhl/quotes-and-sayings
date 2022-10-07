@@ -1,0 +1,106 @@
++++
+author = "B. J. Armstrong"
+title = "B. J. Armstrong Quotes"
+quotes_len = "100"
+description = "the best 100 B. J. Armstrong Quotes"
++++
+- I was very fortunate to come into sports representation with Arn Tellem; he has helped me understand the business in the same way that we help out clients find solutions to their problems.
+- I have pride, and my pride won't allow me to accept losing by 30 points four games in a row.
+- I learned this lesson very quickly when I came into the NBA: Almost all the media and accolades go to the No. 1 guy. But if you're building a team, the most important player is the No. 2 guy. Because if the No. 2 guy wants to be the No. 1 guy, you have a major problem.
+- Like I've said all along, whatever's good for the team is good for me.
+- Whether you're playing sports, starting a business or anything else in life, you need to identify your talents. Your responsibility is to find what you do better than anyone else. Once you identify what that is, you need to put yourself in the best position to succeed.
+- All the other things that happen, they don't resonate with him other than winning the basketball game. That's just who he is. He's just a humble kid and he's just trying to go out there and do his thing. I wish I could say some secret formula or training method, but sometimes you got to let things be. That's who Derrick Rose is.
+- It is interesting that I have gone through the process of representing clients as an ex-athlete. I am certainly not naive to think that the possibility of corruption isn't there.
+- Players who create advantages for their team at one end or the other are rare.
+- Tim Duncan was a marvelous player. He played the game from the four, the five position. He was one of the unique players, like a Michael Jordan, who could get to spaces on the floor you that you couldn't do anything about.
+- The city of Detroit is always home, and I'm very proud of where I'm from.
+- To be honest with you, I just want to be true to the game of basketball, and that's what I've always tried to do.
+- If there was ever a true emotion of a Chicago Bull, Derrick Rose embodies it. Because he is Chicago. That kid will do anything for the city of Chicago.
+- M. J. was M. J. His body of work speaks for itself. We've seen his career, we've dissected his career and had the chance to watch it. That's done.
+- It didn't work out for me at Golden State, in terms of wins and losses. Still, I tried to exhibit what a competitor is all about.
+- Greatness is empowered in a system where you pass the ball, not pound it.
+- My signing of Derrick Rose was like anything in life, I think it was just luck. I played in Chicago. Derrick is from Chicago.
+- In 1989-90 I became one of the group known as the Jordanaires, a.k.a. the Bulls. From the day I arrived in Chicago, I knew what everyone else on the team did: Michael Jordan was a phenomenal talent.
+- For all that Michael Jordan could run, jump and entertain, he is best known for one thing: He won. If you want to be a great player in this league, you have to focus on one thing - the bottom line, which is winning.
+- For every LeBron James that jumps onto the scene, or every Derrick Rose that does really well in year one, you have a lot of others that take time to transition. Those guys are just brilliant in their own way, but a lot of other guys need a little help along the way.
+- Somehow you get past languages. I don't speak Mandarin. I don't speak fluent Italian. I don't speak German. But it's amazing how when you need to get something done, it finds a way.
+- LeBron James has proven he can lead by example. My wish for LeBron is to understand the following: He's an exceptional leader because he leads by example. The next step on the road to Legend, which he's already on, is to trust he's the best player in the best system anywhere in basketball.
+- It takes an inner strength to succeed.
+- I'd rather play bad and win than play good and lose.
+- The one thing I didn't expect was to learn how much of a sense of humor Jerry Reinsdorf has. He's really funny. I never got a chance to see his sense of humor when I was working for him or playing for him.
+- Who says a center can't make the pass into the post? Michael Jordan, effectively, was a post player and you saw with the championship teams players able to do multiple things.
+- Playing sports is a craft that has to be worked on and perfected just like anything else.
+- Individual success comes as a result of team success.
+- I've learned how to function in chaos.
+- I grew up as a point guard, and as a point guard you learn how to navigate situations.
+- Character and class are character and class. Either you have it or you don't.
+- It's really the city of Detroit that I owe the thanks to and all the people along the way, so many people that played a role in my success in giving me the dreams and aspirations to go to college and do the things that I did.
+- I just go out there and play and work hard.
+- My previous experiences taught me my true passion was working with the players. I love the business. I love sports. I love everything about the team aspect. But I have this deep appreciation for the players and their perspective.
+- There's a way to win, and a way to play, and when you play like that, the ball's moving and guys are looking for each other, the game is fun.
+- I can score with the first team or the second team. It really doesn't matter with me because I can create my own shot.
+- I don't wish stardom on anyone. When I hear people say, 'this guy's a star,' I always say, 'good luck.'
+- Every now and then you have to be a little nasty, a little aggressive on the floor. That's part of being a basketball player.
+- With my face, everybody always thinks I'm so young, this little guy.
+- So much has been said about Michael Jordan as a basketball player, but when I played with him, the Michael I knew was just Michael. I guess more than anything is that I got to experience the human side of the so-called gladiators, warriors and heroes that we worship.
+- The more time you play, the more confidence you get. The more confidence you get, you get a little success.
+- If your best players are taking a shortcut, they're going to have problems holding everyone else accountable and responsible.
+- Tremendous teammate, that's what comes to mind when I think of Scottie Pippen. He was a very caring teammate who was always concerned about the team. The way he played and expressed himself on the floor exemplified who he was as a player.
+- I wanted to learn how the business worked. I wanted to see how people got drafted, how players got traded, how they got picked up in free agency, how the salary cap worked, how do you manage an organization, how do you negotiate contracts. The Bulls gave me an excellent opportunity to answer all the questions that I wanted to ask.
+- Greg Anthony's a good player.
+- Having a mentor gives someone a huge advantage in life.
+- Since I've been a part of this league, I can't recall when they've actually made rules that have actually helped to improve the game of basketball.
+- I can create offensive situations for myself and I can create situations for other people.
+- I'm from Detroit, but Chicago is a second home for me.
+- He was so confident. But underneath that, behind the scenes, I knew Michael Jordan was a country kid from North Carolina, and it was that simple to him. He was a young man, at heart, who wanted to be one of the guys who loved to play and was willing to do whatever was necessary.
+- To point the finger at one guy, at each other or at the coaches, won't do any good. It's not supposed to be the coach. It's our team. The coaches can do a phenomenal job preparing you, but it has to come from within.
+- I was very lucky to be in the right place at the right time and play with Michael Jordan.
+- Sometimes you have to be very bad before you can be very good.
+- With my teammates, I'm more open, funnier than people see me.
+- Either you change with the times or you get rolled over.
+- Michael Jordan was going to do whatever was ever necessary, and certainly I can say without question, he was going to achieve and stop playing whenever he wanted to stop playing.
+- Anytime the coach gives you the ball and some encouragement, you get a sense of freedom.
+- Scottie's game changed with where he was at physically. He wasn't the same player at 21 as he was at 30. Both he and Michael aged gracefully in this league and that's the beauty of being a professional player. You continue to grow and continue to change your game, but you do it to be just as effective.
+- I don't know what position Scottie was; he was just a basketball player. He could dribble, shoot, pass and rebound. Defensively, he was excellent. He had quick hands and quick feet with a great understanding of the game. He could do it all.
+- Winning covers a multitude of sins. If you play bad and you still win, everyone says that's the sign of a good ballclub. But when you play bad and you lose, all of a sudden you have problems and everyone wants to know why.
+- My adult life, I grew up in Chicago. When I go back there, I always have fond memories.
+- When you're going out with the attitude that you want to win, you can't get caught up in the style of play.
+- When things are going good, I get nervous.
+- Now that I've had a chance to play for a team where we won 30 or 35 games, you understand how special winning is.
+- When I played, I would never, ever try to run Reggie Miller off the line because I knew Reggie. If I ran at him, and I was trying to run him off the line, I was going to get kicked.
+- I just happen to love problems. Because I see problems as opportunities.
+- The fact that Phil Jackson asked a young kid when he didn't have to and said, 'Hey, do I have permission to coach you?' Those are very powerful lessons that you learn. That's only happened to me a couple times in my entire career, that coaches would actually ask me that question. That just lets me know that he saw me for who I was.
+- To me, that's the brilliance of Michael Jordan. He was an incredible, amazing individual player who matched his talents to the team, matched the team's talents to him, and he lived in the middle of those extremes. I don't know how you do that.
+- A true champion walks off with his head high.
+- Being an only child, I was alone a lot and I had to make up games.
+- This is to LeBron James: If you want to be the best, get rid of the comparisons. Get rid of all the comparisons that are out there. That's what Michael Jordan did.
+- Understanding is the solution to every problem.
+- He made the game look easy. But being Michael Jordan, and all that came with it, that wasn't easy.
+- Michael was the first person to show me what it meant to be a star... but you cannot be that star and not accept all the things that came with it.
+- I had played on the police athletic league, but my father had a unique thing, he always said, 'Before you start going to basketball camp and doing all the things, you should learn about yourself first before somebody else starts telling you how to play.'
+- When you're losing by 20 to 30 points night in and night out, that's no fun. You can't accept that as a player.
+- I've been around enough athletes to know when someone is working, someone's not.
+- Being an NBA general manager really is a lot of pressure. There's so much that goes into the job.
+- In the back of my mind, I always knew I wanted to be in the sports representation business. Being an ex-player, I knew that those were the people I wanted to work with.
+- Society is fast - fast food, fast cars, fast everything.
+- No one beat Michael Jordan. No one. You could say a lot of different things, but the man was unstoppable. He was unstoppable. And I will continue to say that.
+- Jordan never stepped out on the court to have a good time. He stepped out there to establish that he was the best.
+- I'm what you would term a lifer. Basketball is what I love. It doesn't matter where I'm doing it or in what position I'm doing it. I just love contributing to the game.
+- I always say, to this day, that the Air Jordan guy was great and God bless him. But I'll always just remember Michael, the guy.
+- Isolation basketball will always be part of the game. But the system has to be predicated on ball movement and, more importantly, player movement.
+- Just because you're the coach, you don't automatically have the authority. You have to work the people. You have to gain the trust of the people.
+- One thing I can say about Michael Jordan, nothing was going to deny him to achieve what he wanted to achieve. That includes the Bulls' front office, the league, or whomever. The man just had an undeniable spirit about himself.
+- To me, the All-Star Game is just another step. I try to take all my experiences and put them together. To make the NBA was something, and then to be recognized as an All-Star - although I don't consider myself a star. I see myself as just trying to reach my potential as B. J.
+- Moral victories are really more for coaches than players.
+- Michael Jordan was the greatest practice player I've ever seen.
+- Every time he steps on the floor, LeBron has to establish that he's the best. Every year is an opportunity for him to raise his level to the best of the best.
+- When you come into this league, everyone tries to put you in categories - 'this is what he is' or 'this is what he can do.'
+- Guys are more apt to test me than they are to test a Charles Barkley. I think I have to go out and prove myself all the time, and that's fine, because I've had to prove myself my whole life.
+- I played, but I never got a chance to see how the business worked. How the NBA offices and other teams worked. I learned that when I was an assistant General Manager for five years.
+- Jordan had phenomenal talent. He had phenomenal understanding. But he also had a mentality that I haven't seen. He had a sense of urgency every time he stepped on the floor.
+- I remember as a young player I had this dream of playing in the NBA.
+- If I could do anything, I'd ride horses all day.
+- You learn a lot of about people in failure.
+- Winning is the easiest thing that I ever did in the NBA, but being able to come to the realization of what it means to compete in this league no matter what - win, lose or draw - was the most difficult thing.
+- Most players will tolerate their coach, just like the coach will tolerate that player to do what they got to do, but Steve Kerr is unique. Players want to play for Steve Kerr. Everyone who's played in this league, who's coached in this league, who's been a general manager understands exactly what I'm saying - he's one of them.
+- As a parent, when I fail to listen to my kids, when our kids stop bringing us our problems, we have all failed as parents and as leaders.

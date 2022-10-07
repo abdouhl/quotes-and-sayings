@@ -1,0 +1,42 @@
++++
+author = "Ichiro Suzuki"
+title = "Ichiro Suzuki Quotes"
+quotes_len = "36"
+description = "the best 36 Ichiro Suzuki Quotes"
++++
+- I want to keep playing until I am at least 50.
+- I think there's sexiness in infield hits because they require technique.
+- You should seek approval from yourself.
+- My father was just an amateur; my mother is not even an athlete herself.
+- I feel like I should be more in touch with the nuances of this game.
+- When I think about it, if somebody was to pass Pete Rose's record just playing in Japan, that would be a bigger accomplishment because of the few games they play over there.
+- I collect autographed major-league baseballs.
+- I was kind of influenced by the hip-hop culture.
+- Personally, I don't like the term 'success.' It's too arbitrary and too relative a thing. It's usually someone else's definition, not yours.
+- The more that Japanese players go to the big leagues to play and succeed, the more that will serve to inspire young kids in Japan to want to become baseball players when they grow up.
+- I've made far too many mistakes. That's the way I feel.
+- If I ever saw myself saying I'm excited going to Cleveland, I'd punch myself in the face because I'm lying.
+- I think, mentally, you sometimes need a break. But for me, my body is built so that if I don't work out, that's when I put more stress on my body and get more tired.
+- It's very tough for a ballplayer to get proud and keep his dignity.
+- I heard that in the United States the level of baseball was the highest in the world. So it was only natural that I would want to go there, as a baseball player.
+- The Japanese have a strong tendency to suppress their own feelings. That's the Japanese character. They kill their own emotions.
+- If I'm in a slump, I ask myself for advice.
+- There's not much difference between love and hate.
+- When people get placed upon a pedestal - when they start chasing after that person on the pedestal - they become mannequin-like.
+- Nobody knows what the future holds.
+- As long as the ball is thrown by a human being, I have the confidence to hit any pitch, no matter how fast it comes.
+- Many people have this image of me. For a long time, I cared about that.
+- For me, I pride myself on every aspect of the game.
+- I like to read the news, but when I pull up a Japanese site, and an article comes up with my face, I never read it.
+- When I'm being interviewed, presumably it's because people want to know how I feel about something or what my motivation is, not because they want to hear what I sound like in English. I wouldn't be true to the task if I responded in my unrefined English.
+- Seattle has always been home.
+- There is nothing I will miss about Japanese baseball. Off the field, I will miss my dog.
+- I believe that, as an athlete, how you got to the age of 42 makes a big difference. I have learned about my body; I haven't gone off only talent until I was 42.
+- We have to connect to our fans through the media, and when you talk about that, it's got to come from your heart. And when it comes from your heart, it has to be absolutely consistent. There's a big risk you take without an interpreter because, as professional baseball players, we are here to perform baseball, not to learn a language.
+- For me, if I stay on the couch all day - or even one day - I'll be more tired doing that than going out and giving my body a workout.
+- When you retire from baseball, you have until the day you die to rest.
+- Chicks who dig home runs aren't the ones who appeal to me.
+- I like things that other people don't have. I like to be different from others.
+- I love how the Mariners function as a team. That feeling is important to me.
+- People striving for approval from others become phony.
+- Equipment has heart, human heart, inside it.

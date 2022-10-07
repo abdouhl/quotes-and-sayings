@@ -1,0 +1,106 @@
++++
+author = "Caris Levert"
+title = "Caris Levert Quotes"
+quotes_len = "100"
+description = "the best 100 Caris Levert Quotes"
++++
+- You can't judge somebody when they're doing well: You've got to judge them when they're going through adversity.
+- You can't really take things people say on TV seriously. A lot of times they do it just for conversation.
+- This is what you dream about when you're a kid: You dream about March Madness, you dream about the NBA playoffs.
+- I've been through a lot, not only with basketball, but with life in general.
+- I was the oldest male in the house from when I was a sophomore in high school, so I definitely had to grow up a lot quicker.
+- I was always told failure to plan is planning to fail, so I've always been a huge guy on planning.
+- I try to look at each situation and try to find a positive out of each one.
+- I feel like it's just a mindset, a mentality. Whether you're starting or coming off the bench, I feel like my game is very versatile, so I can do both things.
+- For me, the most important thing is to get my body healthy and make sure I live a long life.
+- There are ups and downs in basketball, we all know that.
+- I went through the foot injuries, as well as other things, that have kept me grounded.
+- You know that's pretty much your role as the rookie: Defend and rebound. Those are the two main things.
+- I do things like the float tank, which helps me get into that mindframe of calmness. I take that really seriously.
+- When I wake up in the morning, I just take 10-15 minutes and just chill in there, eyes closed, and just visualize and meditate.
+- In the second group, we all know we can play, we all know we can impose our will on the game just like the first group can.
+- My dad pushed me really hard as a kid because he understood that I could be great. He saw the drive that I possessed, and the talent, and he didn't want to see it go to waste. So he pushed me. When he passed away, I had to push myself. And I wasn't going to be denied.
+- I'm kind of a clean-cut guy - I've got a little bit of a baby face.
+- Just going through a full year of the NBA teaches you a lot of different things.
+- I think that my jump shot could be more consistent. That's something I'm working on.
+- That's the main thing we're focusing on, not necessarily looking bigger but just getting stronger. I've developed my body a little bit but gotten a lot stronger.
+- I feel like I've always been a pretty good ballhandler. It's kind of like second nature to me.
+- What I can't wait to show the world when I make my NBA debut is a player who can handle, shoot, go hard to the hoop, and defend.
+- I love it here in Brooklyn, and I want to play here a long time.
+- I'm just used to playing on the ball or off the ball. At Michigan we did a lot of both so for me, it's just a matter of being productive when I'm on the court.
+- There's a lot of people out here who have the same dreams I had when I was their age that are really talented, and a lot of kids look up to us and really are watching every move that we do. For us it inspires us to be great.
+- I've always wanted to be the best at anything I've ever done, and basketball's no different.
+- Being in Ann Arbor, if I wanted to go from my apartment to the gym, I could get on the bus and it would be a two-minute ride, or a 20-minute walk.
+- Preparation is very important for me.
+- Defense wins championships. I love being viewed as that guy.
+- Getting into the paint is easy. Seeing if the help comes is easy - they either come or they don't. The hard part for me is seeing early where it's coming from and when - and if I can still finish, or if I should pass it off. Deciphering all that without overcomplicating it has been a challenge.
+- The biggest thing for me is just playing hard every possession.
+- I gave up red meat and pork - I love burgers and steaks so it's been tough.
+- After my dad died, all I wanted to do was work as hard as I possibly could to accomplish all the things that I knew would have made him proud.
+- I can play as a one, a two, or even a three.
+- I always feel like I'm supposed to be where I am.
+- I'm a worker, I'm someone who loves getting better and embraces the grind.
+- I feel like I can adjust, and I can play pretty much any role that I'm put in.
+- For me, it's whatever happens, happens. I'm just excited to play basketball. It's a blessing.
+- I would say from a young age, basketball had been something I've loved.
+- I've always felt like I've had the tools to be a good defender - long and quick, still working on my strength - I feel like I've had the tools, I just have to go out there and do it.
+- Michigan is a very special place and the college experience only comes once.
+- I try to take on the challenge and lead the second unit. If we're up five, trying to push that lead to 10 or push it to 15, make our mark on the defensive end.
+- After everything I've been through, I'm well-equipped to overcome challenges, believe me.
+- I feel like when people see me locking in on defense, it kind of challenged everybody else to do the same thing.
+- Usually I get a feel for cities real quick, but Brooklyn is different. It's something new every day. But that's what makes it so special, that's why there's no place like it.
+- In college, I would eat a lot of Five Guys and burgers. Everybody eats differently, but that's not the best for your digestive system, and I've learned that over the years.
+- Don't take any possession for granted.
+- The work I've been putting in, I've kind of just been preparing myself for every situation. I've been doing a lot of off-the-ball shooting, catch-and-shoot shots. And preparing myself to play on the ball as well.
+- I think any time you put in a lot of work and you're trying to believe in a process, be dedicated to that one-percent-better mentality, you need to understand you may not see the fruit to your labor tomorrow or the next day or the next week.
+- I had big dreams and I really knew I wanted to do big things, but I wasn't sure how I was going to go about doing it.
+- Nobody is irreplaceable; guys get moved every single year. For us, we just have to be prepared for any situation.
+- I'm not really worried about anybody else but myself, honestly.
+- I feel like every single year I've gotten better and I want to continue with that trend.
+- I'm from the Midwest, so I know what Indiana basketball is all about and I'm very blessed to be a part of it.
+- I'm a competitor.
+- There's just so much free time. In college, you've got study hall, classes, film - all that stuff. In the NBA, it's just practices, games and that's it.
+- I always had a lot of confidence that my dream would come true, I just didn't know how.
+- I feel like I'm a lot more mature than some people are.
+- You just have to stay the course, you can't get too high or too low on yourself. There is always going to be those highs and those lows, but you have to stay even keel yourself.
+- I'm not musically inclined.
+- Myself, my little brother and my cousins have all been victims of racist police or prejudice, getting pulled over in a car and having to search the car for no reason.
+- I don't really like fruit, so I drink a lot of smoothies to get my fruit intake up.
+- I'm kind of versatile and I can play with the ball and without the ball.
+- The thing that wakes me up in the morning is tryna maximize my day, every single day.
+- Definitely, if you're just going into the game focused on one thing, then you'll definitely be better at that one thing.
+- As a point guard, I'm a coach on the floor. I know that.
+- I know I can be great. I don't really worry about that word 'star' too much though, 'cause I feel like that's very subjective to the audience. But I know I can be great. I have the will, the want-to. I feel like God has blessed me with the physicals, I feel like for me it's all mental.
+- I can get hurt walking down the street.
+- Well, on Easter of sophomore year of high school, me and my brother found my dad dead on our living room floor.
+- Starting, coming off the bench, whatever it may be, I feel I can adjust and I can play pretty much any role that I'm put in.
+- Oh we battled. Dad would beat me every time. I don't think I ever beat my dad in 1-on-1. I'd cry in front of my friends, everything. That didn't matter to him. He kept on beating me anyway. He was so competitive.
+- One moment my dad and I were swapping stories about the basketball games; a few hours later he was gone. Forever. Just like that, with no goodbyes.
+- I focus on myself and getting better every day.
+- I try to look forward, not try to go back.
+- Basketball is a fun game.
+- U-M has provided me the chance to live my dream of playing college basketball and to earn a Michigan degree.
+- I try to play with the same confidence whether I'm starting or coming off the bench.
+- Things happen, you have bad shooting days, the defense kind of figures you out.
+- Kids are fun, so they ask all types of questions.
+- I've got a great support system with my family and my teammates.
+- My versatility is my greatest asset, and I bring a unique skill set to the court.
+- You can run as much as you like or ride the bike as much as you want, but playing in an NBA game is way different than any type of conditioning that you're going to do off the court.
+- I'm pretty competitive, but I used to be a lot more competitive when I was younger.
+- Obviously as a player, it's good to feel wanted, and it's good for other people to acknowledge what you've been doing on the court.
+- I play hard. That's how I play the game.
+- I think that a lot of people are like, 'Oh, he only - he got hurt in the college season, where they only played 40 games. How is he gonna play 82 games in the NBA season?' They don't really look at the fact that in college, you practice way harder than in the NBA.
+- I think as I've matured and learned more about food, I've stopped eating as much for taste. I eat and drink based on what I need in my body.
+- I dress how I feel that day. If I'm feeling tired, you might see me in a hoodie. If I'm feeling like I want to dress up, you might see me in a button-down. I try to mix it up with my shoes, but I don't really look at it as competitive, like, 'I want to dress better than this guy.' I'm just myself.
+- Three games in four days, that's the NBA.
+- When I'm shaving, I'm thinking about what I need to accomplish that day. If it's game day, I'm thinking about schemes, thinking about my matchup for that game. If it's practice, I'm thinking about what film we're going to watch. Or if it's a recovery day, I'm thinking of what body parts are aching and what I want to work on.
+- Manu played in All-Star games, started on the bench, ran the second unit and closed games.
+- I love to play the game. But I think health wise, that's the most important thing.
+- College is a lot different than the pros.
+- I never lost confidence in myself.
+- That comes with playing basketball, just nicks and bumps and things like that.
+- There are pictures of me holding a basketball before I could even walk or talk. I feel like it's something that I've been manifesting since I was a child. It's a dream come true.
+- At Michigan, my defense was kind of up and down because I played a lot of minutes and I was kind of scared to foul.
+- I just have a lot of fun playing the game.
+- I've been through things in life that are way worse than a foot injury.
+- You want to be able to play for a championship, play for your city, play when it matters.

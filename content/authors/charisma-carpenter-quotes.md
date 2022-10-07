@@ -1,0 +1,41 @@
++++
+author = "Charisma Carpenter"
+title = "Charisma Carpenter Quotes"
+quotes_len = "35"
+description = "the best 35 Charisma Carpenter Quotes"
++++
+- Let me tell you, hitting 40 is not fun.
+- No, I'm a horrible singer, I'm awful.
+- When you gain 50 pounds during pregnancy like I did, you fear that you'll never get back in shape.
+- You can take the girl out of Vegas, but you can't take the Vegas out of the girl.
+- This is funny because I just had a job over the summer for VH1, a project I did called Strange Frequency where I got to play a Goth rock band singer.
+- You know, nothing is ever happily-ever-after. Ever.
+- I had my heart set on becoming an English teacher, but stumbled into acting after meeting a theatrical agent in my dad's restaurant in San Diego.
+- Social media is a double-edged sword. I've gotten in trouble for announcing, too soon, something that the network or the studio wanted to do, and it steals some of the thunder, so to speak.
+- I'm a mixed breed and hope to live longer because of it.
+- I had been warned not to get on a motorcycle, sort of. I think there is a clause in most general basic contracts to keep yourself in one piece and not alter your looks without telling them first.
+- I don't mind playing the same character, but if it's not well done, then I'm not interested.
+- I had developed a sitcom with UPN, but it wasn't picked up.
+- When movie people go over into television, it's a little bit of a shock. It's much faster-paced. Everything is really last-minute. You won't know your schedule for the next episode until the last minute.
+- I really wish I could sing so I could front a band, because that would be a dream come true, totally. I want to sing. Can't do it though.
+- My ex-husband and I, even though we're not together, we are 100 percent together in raising our kid. We communicate a lot and where I drop the ball and need him to pick it up or vice versa, he's there.
+- My heart is in television, just because it's been so good to me.
+- Sometimes decisions get made and it ends up being God doing for you what you couldn't do for yourself.
+- The road Cordelia has travelled, the journey she has taken up to now has been such a joy to play as an actress, because there have been so many chances to do so many different emotions.
+- There are so many heroes just walking around in everyday life. It blows me away.
+- I wrapped that Monday and started on my third episode for Miss Match on Thursday of that same week and we just wrapped yesterday cause it was split over the holiday.
+- Most of the time I meet my trainer at the gym and we do a lot of everything: weights circuit with cardio, football drills, sprinting with weights on the treadmill.
+- On 'Buffy' I wasn't all that high on the totem pole as far as responsibility and screen time.
+- I don't think that they know fully what's happening with Miss Match so therefore I don't know how many more if any, if the show's even gonna keep going.
+- I am a single mom and I'm the breadwinner and I have to work and I have to do these things and that's just the way it is. I don't think my son even knows any different.
+- It's been a difficult thing because some great opportunities have come and I've just been holding my breath and praying... I'm basically gambling hoping something will come along this season and if not, I don't know what the future holds.
+- Sure, I'd take the responsibility of queen any day.
+- I think essentially the meaning of life is probably the journey and not really any one thing or an outcome or a result.
+- So I begged, half way into season two, for them to let me cut my hair.
+- Cause I was such a novice and thank God that Sarah was as seasoned as she was because she was really a great leader in that regard in the sense that she would communicate really well with the crew.
+- Oh heck yeah, I totally would love to have a Phantom Dennis in real life.
+- So, I'm happy to do that because it's a wonderful working relationship but I will be going out for pilot season for half hour work and that's the gamble I'm taking.
+- When I was first starting out, and I was less established, I was really concerned about being typecast.
+- There's a pretty good chance that you're going to go down when you're on a motorcycle or if you're sky diving or whatever, but that happened before I even got this job, and I haven't sky dived since.
+- I think essentially the meaning of life is probably the journey and not really any one thing or an outcome or a result. I think it's kinda the process and I think that if you can find happiness in the process then maybe that's it.
+- Well, they know that I'm not very anxious to get into one hour again.

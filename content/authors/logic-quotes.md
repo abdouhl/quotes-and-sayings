@@ -1,0 +1,106 @@
++++
+author = "Logic"
+title = "Logic Quotes"
+quotes_len = "100"
+description = "the best 100 Logic Quotes"
++++
+- You literally cannot deny the fact that rock and roll was born because of blues, and blues is black man's music.
+- I'm no longer the young guy in No I.D.'s studio asking for Kanye beats.
+- I've been working a lot with No I.D. and Hit-Boy.
+- It wasn't the best childhood, but I did my best to make it good on my end... I didn't let it pull me down.
+- I've been blessed enough to have my eyes open because of music, first and foremost.
+- Money will not give you happiness; it's part of the key.
+- I would like to think that I'm a gentleman and a nice guy.
+- I think if you pick up a microphone and you rap, you're a rapper.
+- I'm just here to say, 'Just be a good person, and really respect others.'
+- Obviously, deep down, I want people to enjoy my music, but the only people I want to enjoy my music are the people who want Logic to win and are fans of me.
+- Anybody who loves what they do, they're constantly doing it all the time. So I'm constantly working.
+- Nobody knows this, but the first actual purchase, after I signed my deal and called my bank account and heard how much money was in there - 'cause I was so broke and hungry - was Taco Bell.
+- Forever, for me, it was just about trying to make it and become a known person and loved and revered in hip-hop and the culture. But then ,I even realized that that isn't really important. What's mainly important is just the fans and the connection that you have as a man and an artist.
+- Be not scared to use your voice.
+- As much time and effort, emotion, anger, love, joy that you put into another human being, you're not guaranteed to receive that back. And that's OK. That's alright.
+- There are certain artists that get into the little circle in hip-hop, and everybody is talking about them, and they are buzzing. But they can't go out and sell out tours, perform in front of 3,000 people a night, and things like that. We did things backwards; with Visionary, we got all the fans first.
+- If you listen to a woman, you'll know what she wants.
+- I was raised in a black household and grew up with black homies.
+- I don't want to be looked at as just that guy with the best mixtape of the year. I want to be, all-in-all, an incredible musician.
+- When I was, like, 18, that's when I started to really take my own craft seriously and just noticed people were enjoying it. And when I put out my first mixtape, that's when I realized I could make this a career.
+- From tours to mixing, mastering, graphics, artwork - I've done out of pocket.
+- Stand and fight for those who are not weak but have yet to discover the strength that the evil of this world has done its best to conceal.
+- I'm not Tupac or this prophetic dude or anything like that. I just want to make music and have fun.
+- Everyone's going to like something that's different.
+- I was a little nervous that people wouldn't take to 'Under Pressure,' because my style and what I embodied had previously been the braggadocious '90s fun rapper type. Before this album, I didn't rap about my life much.
+- I'm proud to be black and white and look the way I look. I'm proud to not speak down on women or glorify things that are unimportant.
+- People try to tell me like that, 'Oh, you shouldn't be proud,' or, 'You're not this,' or, 'You aren't that,' or whatever the hell. I'm just kinda here to say, like, who is anybody else to tell me who I am or what I've gone through or what I haven't gone through?
+- Hate is ugly.
+- Everyone is beautiful, and the world isn't equal - and we need to fight towards that.
+- On the song 'Buried Alive,' it's almost like the instrumental is a therapist.
+- I want y'all to know that all of the music I make is for the people that truly appreciate it and care about it.
+- One thing you get from me is peace, love, and positivity.
+- I grew up on Wu-Tang and Tribe and Nas, all the raw, very New York-driven music. Then when I got older - in my late teens, early twenties - and that's when I started to listen to Drake and J. Cole, and so it wasn't just East-coast.
+- Fans tend to think that if you fall in love with an artist... and then he gets bigger, and he grows, and he starts to make a different sound, 'He's changing on us.' But with me, I created all types of sounds from the get go, so you can never say I'm changing; you can never say I'm going mainstream or I'm selling out.
+- I know who I am, and I know my story, and the things that I talk about are authentic and real, and I always say this: I'd rather be hated for who I am than loved for who I'm not.
+- I think artists are interested in what people think of them.
+- Sometimes I watch movies. I don't party. I don't go out. It's just me and my homies in our circle. I stay away from everyone and everything so I can just continue to remain who I am.
+- Tell that boy Drake he don't want it with me in 'Fortnite.'
+- I'm the kind of guy who'll go to a courthouse and get married, but for women, it's different. It means a lot to them.
+- I'm not gonna do the same album over and over and over again.
+- We're human. Enjoy yourself. You work hard every day; you deserve to turn up on the weekends with your friends.
+- I'm a relationship guy. I'm not about that 'rapper life.'
+- My mother was a good woman.
+- My mother was racist.
+- The biggest part of why I am where I am today is not only because people can relate to me and my story but because I hit the road and actually saw them face to face and shook their hands.
+- I'm proud to be biracial, and there's a lot of people that say things like, 'I don't see color,' and I completely understand that, but I think different is beautiful, but I think our difference shouldn't separate us, and for me in this era, in this time, in everything that we're going through, my whole thing is just about unity, man.
+- Not to sound cliche, but some of the first things that I bought were for my homies and my team: making sure the people that helped me and ensured my security and safety during my come-up, while I was broke, had the opportunity to be okay.
+- When I grab the microphone, I am the greatest rapper, musician, and artist that ever lived, ever, in the entire universe - but when I put that microphone down, I am a man with so much to learn, personally and professionally.
+- I sacrificed a lot of things growing up.
+- Everything I do creatively is never for money.
+- I love movies. I own, like, every movie, ever.
+- All I've done since I was young was hone my craft.
+- I got songs about being broke, being on welfare, being poor, Section 8.
+- I don't care if you're Christian, you're Muslim, you're gay, you're straight - I am here to fight for your equality. Because I believe that we are all born equal, but we are not treated equally, and that is why we must fight.
+- I just do what makes me happy.
+- Producing isn't just making beats on a beat machine. It's bringing together these string players with this flute player and this singer, and telling them to all work in the key of C major... You bring these people together and let them all cook.
+- I enjoy certain things, but I don't go out; I don't party. I just like watching movies, making fun music, and having a good time hanging out with the people who helped me get here - I'm a really simple guy.
+- You have to respect people for what they do. Just because you don't like it, it's like, I don't like heavy metal too much, but I can still respect it.
+- Lyricism is about painting a picture. It doesn't have to be a bunch of punchlines.
+- I've invested a couple million into touring, and that's paid off.
+- Women are as precious as they are stronger than any man that I have met.
+- Black is beautiful.
+- I don't party. I don't drink. I don't smoke.
+- If you're right, than be right. There's no need to hurt others.
+- Just because you got money doesn't mean you're gonna be happy, and just 'cuz you can buy everything in the world doesn't mean you're gonna find your purpose.
+- I don't know how I'm really perceived in the world.
+- If you don't wake up and have your own thing, whether it's writing or reading or traveling or acting or dancing or singing or being a mother or a father, something that drives you, then it's all worth nothing. One of the key elements in happiness is purpose.
+- I wake up every day, make awesome music with awesome people, and tour the world, which is incredible.
+- I wear my inspirations on my sleeve.
+- I'm not the rapper that's too cool to tweet and talk to fans.
+- Success doesn't make you happy.
+- I wake up every day, I deal with hundreds of thousands, or millions, of dollars. I fund my tours by myself. I do merch by myself. I employ people. I have my own successful company.
+- Black folk who don't realize I'm mixed will treat me like I'm some racist person, or when white people find out I'm black, they treat me with racism, and I don't feel like I belong or fit in anywhere.
+- I grew up on Section 8 housing, food stamps, welfare, and dealing with social services. I never had a Christmas. I never had a birthday.
+- I spent six figures of my own money to get a tour bus and do a fan tour for my second album. I surprised fans at their houses, and we'd eat food and play video games.
+- I like to always do my best to make music catchy, so I think a very catchy melody is cool.
+- I want to be known for what I am, black and white, because I'm proud of both.
+- Ever since I was a little kid, I would always rap. I just loved it. But when I really got into it seriously was when I saw 'Kill Bill.'
+- I turn down really well-paid shows all over the world because I want to spend more time with my wife and myself.
+- I'm not just going to get a deal; I'm going to get the deal. And in my deal I got by signing with No I.D. to Def Jam, I got full creative control, the money was great, the contract was good, and I got to create the album that I wanted.
+- It's really cool to come from nothing and essentially be a nobody and make yourself somebody.
+- I was really scared to make this album and to make this song. Because I didn't want to talk about it. For me, it's even deeper than just '1-800.' 'Everybody' as a whole... I was terrified.
+- On the second half of 'Under Pressure,' I talk about my family, and there are voicemails on my phone from when I was on the road that actually make up the second half of the nine-minute song. I transcribe them and rap them as if I were my sister, my brother, or my father.
+- My girlfriend has to beat me up to get me to relax because I work all the time.
+- There's a lot of other rappers that aren't what they claim to be, and they get a pass because they're black.
+- I was so scared because I was thought I had to work, work, work, because I thought I might only be around for five years. I thought I wasn't good enough to last.
+- I'm not the dude with the message. I'm a human being with different sides, different shades and different emotions, different feelings.
+- I realized that everybody is a critic. They're going to say they hate you, they love you, they this, they that, but at the end of the day, no matter what, I have to be confident in myself as a man and an artist.
+- You can't put my talents in a box because my talents have put me in a mansion, and I'll be damned if anybody in the world can tell me what I can or cannot do, because they're scared to do it themselves.
+- I'm literally fighting for the equality of every man, woman and child regardless of race, religion, color, creed, and sexual orientation and here to spread a message of peace, love, and positivity.
+- My mother was crazy.
+- I truly believe that if I'm out partying and not in the studio, there's somebody out there who will be. When I'm asleep, somebody else is working. So, I have a lot of sleepless nights.
+- Everybody has culture, even white people have culture, but its different with me. So in high school, I was hanging out with the black and Hispanic kids. I'm not hating on white people. I hang with white people, too, but that's where I felt most accepted because I could relate to them more.
+- I skipped school starting in tenth grade. I started doing badly and failed every class but English, so they kicked me out of school. They gave up on me.
+- No I.D. executive-produced 'Under Pressure' and helped me find the Logic sound that's evolving every day.
+- Drake doesn't realize, in many ways, he was like the big brother I never had. He set the example and paved the way for me to be myself. Now, whether I'm at the Grammys or whether I'm here or there or whatever, he'll show me love... People don't realize what that's like, what that means.
+- I have seven brothers and sisters, and I'm the only one who looks white because my mother has had children by all black men, and then my father has children with other women as well.
+- If you come to a Logic show, you get all creeds, colors, religions, and sexual orientations.
+- I'm very weird with my money.
+- By the time you get what you always wanted, you want something else.

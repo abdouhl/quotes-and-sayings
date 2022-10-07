@@ -1,0 +1,31 @@
++++
+author = "Bill Moyers"
+title = "Bill Moyers Quotes"
+quotes_len = "25"
+description = "the best 25 Bill Moyers Quotes"
++++
+- Hyperbole was to Lyndon Johnson what oxygen is to life.
+- Today, the practice of medicine in an urban, technological society rarely provides either the time or the environment to encourage a doctor-patient relationship that promotes healing.
+- For the first time in our history, ideology and theology hold a monopoly of power in Washington.
+- When I learn something new - and it happens every day - I feel a little more at home in this universe, a little more comfortable in the nest.
+- Our very lives depend on the ethics of strangers, and most of us are always strangers to other people.
+- We see more and more of our Presidents and know less and less about what they do.
+- There are honest journalists like there are honest politicians - they stay bought.
+- As a student I learned from wonderful teachers and ever since then I've thought everyone is a teacher.
+- War, except in self-defense, is a failure of moral imagination.
+- Democracy belongs to those who exercise it.
+- Secrecy is the freedom tyrants dream of.
+- At a time when the cost of health care is skyrocketing, the potential economic impact of mind/body medicine is considerable.
+- Ideas are great arrows, but there has to be a bow. And politics is the bow of idealism.
+- Creativity is piercing the mundane to find the marvelous.
+- I own and operate a ferocious ego.
+- I work for him despite his faults and he lets me work for him despite my deficiencies.
+- Every once in a while, a book so possesses me that I happily give up a couple of consecutive nights of sleep - as well as the evening news broadcasts and latenight talk shows - to finish it. That's what happened when I opened the novel 'Shadow Tag' by Louise Erdrich.
+- The printed page conveys information and commitment, and requires active involvement. Television conveys emotion and experience, and it's very limited in what it can do logically. It's an existential experience - there and then gone.
+- This is the first time in my 32 years in public broadcasting that PBS has ordered up programs for ideological instead of journalistic reasons.
+- We don't care really about children as a society and television reflects that indifference to children as human beings.
+- America's corporate and political elites now form a regime of their own and they're privatizing democracy. All the benefits - the tax cuts, policies and rewards flow in one direction: up.
+- What's right and good doesn't come naturally. You have to stand up and fight for it - as if the cause depends on you, because it does.
+- When my brother died in 1966, my father began a grieving process that lasted almost twenty-five years. For all that time, he suffered from chronic, debilitating headaches. I took him to some of the country's major medical facilities, but no one could cure him of his pain.
+- Democracy may not prove in the long run to be as efficient as other forms of government, but it has one saving grace: it allows us to know and say that it isn't.
+- Someone asked why I invited Jon Stewart to be the first guest on the 'Journal''s premiere in 2007. 'Because Mark Twain isn't available,' I answered. I was serious.

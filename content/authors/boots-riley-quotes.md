@@ -1,0 +1,106 @@
++++
+author = "Boots Riley"
+title = "Boots Riley Quotes"
+quotes_len = "100"
+description = "the best 100 Boots Riley Quotes"
++++
+- What I like about music is that you make a song, you've got your ideas in it, and people make that song part of their life - they hang out with their friends to it, they get in arguments to it, they get married to it, they get divorced to it. It's in their world, and it takes on its own life.
+- A lot of us don't get a sense of our personal power. I know the vast difference that one person can make in changing things.
+- Sometimes my influences are really on my sleeve. So I just make sure to wear a lot of sleeves.
+- People want something that's relevant to their lives. They want something that means something to them, and they want something where it seems like people have thought about what they're saying.
+- Many people feel that unions aren't militant enough for them and don't do anything.
+- The crux of our power isn't only in our voice. It is in our economic function in society.
+- If the only time you bang the drum is when it's time to get someone elected, and you don't get involved in a mass movement, then you're working against real and substantive change.
+- People want things that address their everyday reality, and that goes for stuff that isn't political - with singer-songwriter music, people want things that touch them.
+- Making movies seemed so impossible as far as getting my ideas funded.
+- I can run the gamut with beats that no one else would think of. I'm not a trained musician, so I focus on what feels right before I dispatch to writing.
+- I think art is communication. To that extent, it can be the words between the words. It has a possibility of communicating something more than people can do with prose or just talking.
+- I listen to everything from The Cure and The Clash to Prince and George Clinton.
+- There are a lot of people out there doing cool work. I went to South Africa with Talib Kweli and the Roots for a couple of weeks. And even a lot of the groups that aren't called 'political' or 'revolutionary' have a lot more to say than what you hear on the singles.
+- If I want to get my ideas out, I have to be involved in the mechanism that the world is ran by.
+- No one has a copyright on working-class struggles.
+- I'd been working since I was eleven so I could buy my own comic books. I was that kid knocking on your door, selling subscriptions to the paper and crying because I wasn't going to sell that last paper that would allow me to go to Disneyland.
+- I thought my parents were always having card parties - and they were - but they were actually also having meetings to organize people. My older sister would be part of youth organizing, and she'd have dance parties. People would be dancing and talking about how to improve their neighborhood.
+- I'm not trying to make a speech on CD because who wants to buy that?
+- My training was with some old British communists who had organized unions in the '60s and '70s. And their philosophy was, if you can't drink a pint with a man, how are you gonna get him to go on strike and risk his life?
+- One time, someone came up to me and said, 'I know so-and-so. They're a professor at Harvard. They're a big fan of your work.' But that doesn't impress me more than any other people feeling that way.
+- Either I'm really into the organizing, or I'm really into the music. As I've been going, I've been able to figure out ways to even it out a little more.
+- The point is, is that when you elect a politician, it has nothing to do with their personality. Politicians perform a function, a role in government. And the role of city government is not one that serves the people, unless the people make them do what the people want.
+- For me, the association with rock is one of force and anger and aggression. And definitely, in the past, I've made songs that attack like that. But what I usually try to appeal to is peoples' everyday feelings, the things that they're going through as they deal with the system on a one-to-one level.
+- There are a lot of leaders that talk about ending things like oppression - whether it's discrimination or getting a job - but the reason for all of this stuff is somebody's making a profit off our backs. That's the reason why black people were brought here in the first place. It was a profit motive.
+- I used to get worried about writing a love song, because everyone else is doing them, and there are already enough of them out there. But I came to realize that there's a reason for that: Love is powerful, one of the most powerful emotions there is.
+- The album 'Party Music' is a beautiful album, and people need to hear it.
+- That existential crisis is something you rarely see portrayed by black characters; the idea that people think about their own existence and that they have hopes and dreams is taken away from people of color in their representation.
+- You can't get much done by yourself. Speaking as someone who made a movie - and it took hundreds of people to make it happen - I can say that.
+- The tech world is not a new phenomenon; it's a new era.
+- The Obama campaign decimated the newly regenerated anti-war movement in 2008. And he definitely isn't anti-war.
+- The Occupy Wall Street movement, in general, by putting this idea out there that the one percent is leeching off the 99 percent, is making a new discussion, making people figure out how to withhold their labor and come and put their issues on the table with the ruling class all over the country and all over the world.
+- We're told, 'If you want to change the world, vote.' And really, if you want to change the world, there's a lot more things that you can do.
+- Capitalism and people who control the market have a large hand in everything. It doesn't have anything to do with figuring out what the crowd wants to hear. It has to do with the media deciding what they think people want to hear.
+- If I wasn't rapping about politics, then I might have been just another person trying to sell albums, and I might have sounded like everyone else out there.
+- There's this zeitgeist happening, and people are more open to 'Sorry to Bother You' being a hit with 'Get Out' being out there. But that zeitgeist is also happening because of the movements going back to Occupy and Black Lives Matter. Usually, film is years behind. It just so happens that, this time, everything is lining up.
+- I've always been about, how do I get my ideas out to the most people?
+- I want my music to be not only representative of other people's lives but also contributing something to the struggle that people are going through.
+- Rarely, someone comes around that is influenced by so many things but is looking for a new way to do something.
+- Because of my politics, I don't necessarily think that the independent capitalist is that much better than the multinational capitalist; it's just that the independent capitalist hasn't grown as big yet.
+- A lot of libertarians and ultra-capitalists like to put out this idea that competition makes for better creativity. But it's just because we don't see all the creativity that's been crushed.
+- I just look at music as a retreat from organizing. It's like a tug-of-war with me. Music can be effective, but it's not any good if there isn't a grass-roots movement going on to support it.
+- I've never really subscribed to the theory that repression breeds rebellion. I don't think that's really true.
+- The things you have to do to be effective - like forming a union at a fast food joint or a telemarketing company - aren't going to work unless you do things like solidarity strikes. Solidarity strikes are illegal. They've been illegal since the '40s, and they were made illegal because they work.
+- I think voting is the lowest form of political action that you can do. A lot of times, it keeps people from doing stronger things.
+- I don't need to be validated by academia, because that presupposes that academia is a pure endeavor and not guided by market forces, which is not the case.
+- The Coup does not support the American flag.
+- When people listen to Jay-Z, they're working all day or trying to work and pay their bills, and what they hear is someone who's free. Who doesn't have to worry about the electricity. But all we're taught is that those who are rich deserve to be rich because they worked harder than the rest of us, or they're smarter.
+- My father is from North Carolina, and he got rid of his drawl really fast. He's very much about speaking correctly, enunciating in certain ways.
+- There's the part of me that's the organizer, part of me that's the artist, part of me that's the person who, even with those two things, wants to figure out what my place in the world is. How to engage with it and whether my life has any meaning.
+- A record is a commodity, but so is a hamburger. Just because I work at McDonald's doesn't mean I reap the benefits of that commodity. That's the reality with most artists in the record industry: They're getting paid a subsistence wage so they can keep producing a commodity for the record label.
+- I've gotten stopped for reckless eyeballing, for staring too hard. These officers think they're Tarzan and this is a jungle, that all the animals need to be tamed.
+- I was actually really good at telemarketing.
+- When we were doing shows in the mid-'90s, the audiences were 95% black. What's happened now is the gentrification of hip-hop. A lot of cities passed ordinances that made it hard for black audiences to gather in large groups. Clubs are more open to hip-hop now 'cause it's the same crowd that goes to rock shows.
+- What I wanted to do is put forth, musically, the idea that there's hope that we can change the system.
+- You can't co-opt labor issues if you are in the working class.
+- I'm not a classically trained composer, and I can't sing very well.
+- 'Redistributing the wealth' - that phrase gets used so much that you almost get numb to it.
+- It's nice to be recognized for what you do, but that doesn't satisfy what I wanted out of this music, which is for people to hear it and get involved in movements and campaigns.
+- In Chile, they had penas, where the community would come together to sing and plan how they were going to overthrow the government. There's a real hopefulness in that community style of organizing.
+- I was in an organization called Progressive Labor Party and International Committee Against Racism. And I was - I started out helping to organize a farm workers' union in Central California.
+- I think most people would love for us to be a socialist society.
+- The opportunism of electoral politics makes people lie to each other.
+- I was born in Chicago. I moved to Detroit until I was six and moved to Oakland at that point. And then we had a couple years in Stockton and Pasadena. And by the time I was 13, I was back in Oakland.
+- I grew up around politics. I organized my first campaign when I was 14, a walk-out in my high school to protest the year-round school schedule.
+- The United States is going to keep on with its imperialist ways.
+- There's a very thin line between rock and funk. Funk is like a dirtier blues, and so is rock. They're close cousins.
+- If people come to a record store, and they can't find your album, they buy something else.
+- Art can end up answering questions or asking questions. But when it's not connected to actual movements, it doesn't ask the right questions.
+- We all - even at a base level, even a Republican - understand that the people with the money are the ones with the power. We all learn that.
+- If we created a society based on love, it would be a society without exploitation.
+- My father joined the NAACP when he was 12, in the '50s. He was part of the organizing efforts that led to some of the first sit-ins in North Carolina.
+- The Box would not play 'Takin' These' because we had a scene where we were taking furniture out of Rockefeller's mansion and giving the stuff out on the street for free.
+- This idea of 'cool capitalism' is still capitalism. It doesn't matter if Elon Musk quotes Nas.
+- I have a problem with superheroes in general because, politically, superheroes are cops. Superheroes work with the government to uphold the law. And who do the laws work for?
+- With a movie, you have the power of putting out an idea about the world and for people to take it seriously.
+- You make art, you make it from what you know, and that's the best way to make art. You get lost in the details and make something that feels like it's yours.
+- Music is first for me. How the music makes me feel, it's like energy. It has to match my life. What's happening around me or to me. That's where it comes from.
+- I used to be mad, at first, that I couldn't sound like Ice Cube. And I think that was probably one of the best things for me.
+- Trying to get somebody to read your script and you're a musician? That's the last person whose script you're gonna read!
+- Oakland has always had artists attempting to define the immense beauty and ridiculousness around them.
+- The goal with a show is to push forward the passion in a visual and sonic way. It all comes out in a trance-like way, fast and pulsating. Then people can go home and think about the lyrics later.
+- I just make music based on what I believe.
+- Going to school in San Francisco, you're not going to meet as many people that are making films as you would if you went to film school in New York or L.A.
+- A lot of organizers tell me that while they are making signs or doing whatever they do, they are listening to the Coup.
+- The truth is, every movie is a message movie. It's just that most movies have messages that are in lock step with the status quo.
+- The ultimate credo of capitalism is to exploit people. It's not like this is just an incidental problem; it's inherent in the system.
+- Every progressive movement in U.S. history has been portrayed negatively by the media at the time it happened.
+- I think I'm a little superstitious.
+- I think that in order to make revolution, you need to make reforms, but you should make these reforms with revolution in mind.
+- I think it's important for us not just to edit the culture that capitalism creates but to create the material basis for a culture that we want.
+- I chose to do art in the way I always do it, which is with all the crazy contradictions of life in there.
+- If you tell a story that's only allegory, then it doesn't help you at all. If it doesn't bring some emotional charge, then it's just talking about something.
+- I always have thought that part of being involved with life is the same thing as just wanting to kick it with your friends, and being involved with life on a deeper level is wanting to change the situation that you're in.
+- If what you want is actual change, then what has to be built is a mass movement that is militant and can use direct action to slow or stop profit. A movement that can do that can demand whatever it wants.
+- I try to find creative ways to put ideas out to make the ground fertile for organizers.
+- Any collective action is made up of individuals who one day decided not to sit and watch anymore.
+- That punk approach of 'We don't wanna get big' is really a bourgeois thing. It's not a tactic of people that actually have been successful at changing things.
+- Until we can democratically control the wealth that is created from our labor, there isn't real democracy.
+- The folks that are suggesting Occupy move to electoral politics are ignoring history, ignoring what actually creates change. People get involved in electoral politics because they think there is no movement that can create change.
+- I want to fight the McCarthyist state that's developing in this country so my kids won't live in a world where people are afraid to speak out.

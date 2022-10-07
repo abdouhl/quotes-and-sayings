@@ -1,0 +1,39 @@
++++
+author = "Chris Matthews"
+title = "Chris Matthews Quotes"
+quotes_len = "33"
+description = "the best 33 Chris Matthews Quotes"
++++
+- Someone needs to talk sense to the president. But these people are not world travelers. This president, much as I like him, had all the opportunities in the world.
+- Well, the right-wing policy with regard to Israel - the people who don't want to deal with Arafat, who don't want a Palestinian state - the whole sort of right-wing view is consistent with the view toward Iraq. It's the same policy and the same people.
+- It doesn't serve an American interest. It really doesn't really serve Israeli interests - it serves the interests of the political party that's getting the votes of the settlers on the West Bank.
+- I mean, the idea that Bar could have sent him off on a Grand Tour. But he wasn't the least bit interested. Why? Why isn't he interested in the world? Because here's the bad news for him: He's in the world now.
+- Sarah Palin - now don't laugh - is writing a book. Not just reading a book, writing a book. Actually, in the word of the publisher, she's 'collaborating' on a book. What an embarrassment! It's one of these 'I told you,' books that jocks do.
+- They were unable to stand up and say: 'Here's our policy. It's Unite the world against terrorism.'
+- The difference between me and them is that I'll look at Jesse Jackson and I'll see four Jesse Jacksons, and they'll just see one, the clown ambulance chaser.
+- You don't say, like the Bush crowd, 'I got this guy over here and I don't like him and I'm gonna get him, whether you back me or not.'
+- And then there's Israel - a lot of people support Israel, and it's important to Israel to take out Iraq. So it's all mixed together. It's a combination of motives.
+- Just look at who won the third debate between Bush and Gore. I knew Bush won, because people liked him more. People just didn't like Gore. But all the journalists thought Gore won big, he cleaned the guy's clock.
+- Reagan was all about America, and you talked about it. Obama is, 'We are above that now. We're not just parochial, we're not just chauvinistic, we're not just provincial. We stand for something.' I mean, in a way, Obama's standing above the country, above - above the world. He's sort of God. He's going to bring all different sides together.
+- We supported the contras. We're not against all opposition to government, or all paramilitary operations.
+- And on the war, I think my numbers would be a lot higher if I were out there beating the drum for this war. In fact, I don't think it, I know it. But I can't be for the war.
+- You don't know whether he's thought through how this is going to affect the Middle East.
+- We've got to recognize that when we march into Iraq, we're setting up the card tables in front of every university in the Arab world, the Islamic world, to recruit for al-Qaida.
+- I don't know why his lawyers didn't tell him, 'You don't have to answer any questions about your private life, Mr. President. Let them sue you. Take the heat. You don't have to answer.'
+- My audience is much more center right, or centrist.
+- I mean, if somebody said to me, junior year of college, you can go anywhere, your old man's paying for it, I'd have been gone in a flash. But I had to work. Every summer my mother would say, 'Get that job and hold on to it until August 30.'
+- I don't believe he had a responsibility to even answer that question - you have no responsibility to answer personal questions that people have no right to ask you.
+- Unity is the most important thing on the road to stamping out terror. You need global rules of law and order, and they have to be enforced. Start with that principle.
+- Once it was suggested that Saddam Hussein might give his weaponry to terrorists, or might use weapons himself in the region, then it became hard for the Democrats to say, 'Well, that can't happen.'
+- I tell my staff, we're riding a tour bus around, and we're going to stop and look at some weird stuff - but we're taking our viewers around safely. They're just looking out the window at it. I'm trying to create a sense of comfort for my center audience.
+- We've always had a dual role in the region - friend of Israel, and honest broker. We've given up the honest broker role completely.
+- Why didn't we recognize how much it bothered them spiritually and politically?
+- Keep your enemies in front of you.
+- Then the administration tied it in to the regional dispute between Israel and its enemies, as if that's about international terrorism. No, it's not.
+- Five years from now, 10 years from now, there's going to be a huge Islamic population in the world, they're going to be nationalistic, they're going to be religious, and they're going to be militant.
+- I'm not just gonna go after the black Jesse Jackson they all want to make fun of, but I know the wrong people are gonna laugh at that. I don't want to play to that crowd. I don't.
+- You know, there were 29 Democratic votes for censure in the Senate. And if the Republicans had any sense, they would have censured him before the '98 midterm election, and they would have won the election.
+- C'mon. He'd be embarrassing upstairs at the White House. So I think she'd have a hard time. I think a woman president would have to be very conservative to get elected.
+- I can't find a reason to be for this war. I've looked, and I can't, so I'm not.
+- The Democrats just don't have a foreign policy that they're willing to defend, that they're willing to use to take down the president's. We're dealing with the power of suggestion here.
+- I know one thing: There are a billion Islamic people in the world today, and there will be about 2 billion by the time we're dead. They're not going to give up their religion.

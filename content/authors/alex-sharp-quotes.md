@@ -1,0 +1,44 @@
++++
+author = "Alex Sharp"
+title = "Alex Sharp Quotes"
+quotes_len = "38"
+description = "the best 38 Alex Sharp Quotes"
++++
+- I've always found it hard to do what I'm told - I'm not very good at conforming.
+- It was always my dream to live in New York.
+- I just feel it's a shame to let fear get in your way and stop you achieving things.
+- I don't like doing things that are easy!
+- I was really interested in observing people. From a young age, I wouldn't listen to what an adult was saying - I was obsessed with other people's body language.
+- I played a very complex, multidimensional character - Piglet in 'Winnie-the-Pooh' - at age 7 in England.
+- My education was seeing and touching the world. I would read about the history of a castle with my mother - who was a teacher, so she home-schooled me - and then she would take me to the castle, and we would climb on it, and then I'd write creatively about it that night.
+- I think controversy is an interesting thing in that it usually goes hand in hand with starting conversations that surround taboo or under-discussed topics that need to be discussed and need to be less in the shadows, in my opinion.
+- I haven't felt anchored my entire life. But I kind of like it.
+- When I entered normal school, it was hard for me to adjust sometimes. I was so unused to just sitting down in a classroom and copying off the board - simple things.
+- Broadway doesn't pay that much.
+- I've been to the Met Ball and the Tonys, but Cannes is particularly huge. Every time at these big events, it's just - whoa. Because at the end of the day, I'm a guy from Devonshire who grew up on a farm who loves his dog.
+- To give a good interview, I often found it's a bit like acting, except it's yourself, so you have to be yourself.
+- 'To the Bone' is autobiographical. It's written and directed by a woman; it's starring all women, apart from me and Keanu, who are in lesser parts, and it's produced by women.
+- That's what I'm drawn to: playing characters that are completely different.
+- I've grown as an actor. I am more confident within my art form. I have also grown as a person. I am more compassionate, generous, and less judgmental.
+- As an actor, you spend years getting ready for an opportunity to arise, and when it does, you're ready for it.
+- Be less afraid to be different.
+- You can do a good job when you play it safe, but you can't do a spectacular job. You have to risk it and be in danger of looking like an absolute fool.
+- Elle Fanning is my official stylist. If I'm buying a pair of sneakers or a suit, I just do what she tells me to do. She's my red carpet expert.
+- I might not have been academically gifted - I was bad at maths, and science was a struggle - but I was good at English literature and became hooked on theatre.
+- At school, I had to work really hard to get a D in maths. And I wasn't slacking off; I actually did work quite hard.
+- I'm very good at reading people - and very bad at math.
+- I'm pretty careful about making sure that when I choose to do something, it's for the right reasons and that I really connect with it and care about it. So if the right musical came along, yes, I would totally do it!
+- I'm interested in so many different things and art forms.
+- It was nice to have a break from acting - there's a lot more to life than acting. And that's important - to be a good actor, you have to know that and to live that.
+- Darren Criss is a legend.
+- I'm not good at picking people up, I'd rather just get to know someone. I'm not an 'opening line' kind of guy; it's not really my scene. But at school, I was good at talking to girls. I wasn't good at making moves, though.
+- Acting is a different beast on screen. I'm excited to explore that. But, of course, it's an honor to be part of the Broadway community. It's a dream just to be here.
+- Coming out of Juilliard, I honestly was expecting and willing to be breaking my neck, hustling, and being unemployed for a decade, two decades. I was gritting my teeth, but I was so down to do that.
+- I can be rather obsessive - especially when it comes to breaking through to the next level as an actor.
+- I'm saving money like there's no tomorrow because, when I was at Juilliard, I had so little. They gave me a full scholarship because I didn't come from a wealthy family or anything.
+- We all feel at some point of our lives that we're different, that we don't fit in.
+- When you start a conversation about something that is under-discussed and you use art to convey it, I think that is incredibly powerful but is always going to create waves.
+- Sometimes you catch people's eyes during the show, which is horrible and awkward. I can always see the people in the front row, and sometimes you get people who are fast asleep. Maybe they had a long day at work, but that's an expensive nap.
+- I spent the first seven years of my life in a caravan traveling around Europe and the United States because my parents were just obsessed with traveling.
+- As an actor, I've been taught to just stay with your scene partner, and whatever they do, let it affect you, be spontaneous.
+- I got rejected from all the good drama schools first time.

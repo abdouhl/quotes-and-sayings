@@ -1,0 +1,86 @@
++++
+author = "Franklin D. Roosevelt"
+title = "Franklin D. Roosevelt Quotes"
+quotes_len = "80"
+description = "the best 80 Franklin D. Roosevelt Quotes"
++++
+- If we can boondoggle ourselves out of this depression, that word is going to be enshrined in the hearts of the American people for years to come.
+- If civilization is to survive, we must cultivate the science of human relationships - the ability of all peoples, of all kinds, to live together, in the same world at peace.
+- Nobody will ever deprive the American people of the right to vote except the American people themselves and the only way they could do this is by not voting.
+- If you treat people right they will treat you right... ninety percent of the time.
+- I do not look upon these United States as a finished product. We are still in the making.
+- Whoever seeks to set one religion against another seeks to destroy all religion.
+- Physical strength can never permanently withstand the impact of spiritual force.
+- The only limit to our realization of tomorrow will be our doubts of today.
+- Prosperous farmers mean more employment, more prosperity for the workers and the business men of every industrial area in the whole country.
+- If I went to work in a factory the first thing I'd do is join a union.
+- We are trying to construct a more inclusive society. We are going to make a country in which no one is left out.
+- I think we consider too much the good luck of the early bird and not enough the bad luck of the early worm.
+- There is a mysterious cycle in human events. To some generations much is given. Of other generations much is expected. This generation of Americans has a rendezvous with destiny.
+- Remember you are just an extra in everyone else's play.
+- The overwhelming majority of Americans are possessed of two great qualities a sense of humor and a sense of proportion.
+- The only sure bulwark of continuing liberty is a government strong enough to protect the interests of the people, and a people strong enough and well enough informed to maintain its sovereign control over the goverment.
+- There is nothing I love as much as a good fight.
+- The point in history at which we stand is full of promise and danger. The world will either move forward toward unity and widely shared prosperity - or it will move apart.
+- It is common sense to take a method and try it. If it fails, admit it frankly and try another. But above all, try something.
+- Take a method and try it. If it fails, admit it frankly, and try another. But by all means, try something.
+- We continue to recognize the greater ability of some to earn more than others. But we do assert that the ambition of the individual to obtain for him a proper security is an ambition to be preferred to the appetite for great wealth and great power.
+- Art is not a treasure in the past or an importation from another land, but part of the present life of all living and creating peoples.
+- It is the duty of the President to propose and it is the privilege of the Congress to dispose.
+- Let us never forget that government is ourselves and not an alien power over us. The ultimate rulers of our democracy are not a President and senators and congressmen and government officials, but the voters of this country.
+- In our personal ambitions we are individualists. But in our seeking for economic and political progress as a nation, we all go up or else all go down as one people.
+- But while they prate of economic laws, men and women are starving. We must lay hold of the fact that economic laws are not made by nature. They are made by human beings.
+- When you reach the end of your rope, tie a knot in it and hang on.
+- This generation of Americans has a rendezvous with destiny.
+- Don't forget what I discovered that over ninety percent of all national deficits from 1921 to 1939 were caused by payments for past, present, and future wars.
+- The only thing we have to fear is fear itself.
+- No group and no government can properly prescribe precisely what should constitute the body of knowledge with which true education is concerned.
+- I ask you to judge me by the enemies I have made.
+- Human kindness has never weakened the stamina or softened the fiber of a free people. A nation does not have to be cruel to be tough.
+- Put two or three men in positions of conflicting authority. This will force them to work at loggerheads, allowing you to be the ultimate arbiter.
+- Favor comes because for a brief moment in the great space of human change and progress some general human purpose finds in him a satisfactory embodiment.
+- A nation that destroys its soils destroys itself. Forests are the lungs of our land, purifying the air and giving fresh strength to our people.
+- Are you laboring under the impression that I read these memoranda of yours? I can't even lift them.
+- I believe that in every country the people themselves are more peaceably and liberally inclined than their governments.
+- The truth is found when men are free to pursue it.
+- Not only our future economic soundness but the very soundness of our democratic institutions depends on the determination of our government to give employment to idle men.
+- The test of our progress is not whether we add more to the abundance of those who have much it is whether we provide enough for those who have little.
+- There are as many opinions as there are experts.
+- We must lay hold of the fact that economic laws are not made by nature. They are made by human beings.
+- War is a contagion.
+- I am neither bitter nor cynical but I do wish there was less immaturity in political thinking.
+- Men are not prisoners of fate, but only prisoners of their own minds.
+- In politics, nothing happens by accident. If it happens, you can bet it was planned that way.
+- The school is the last expenditure upon which America should be willing to economize.
+- I am a Christian and a Democrat, that's all.
+- The United States Constitution has proved itself the most marvelously elastic compilation of rules of government ever written.
+- No government can help the destinies of people who insist in putting sectional and class consciousness ahead of general weal.
+- It takes a long time to bring the past up to the present.
+- In our seeking for economic and political progress, we all go up - or else we all go down.
+- A reactionary is a somnambulist walking backwards.
+- We have always held to the hope, the belief, the conviction that there is a better life, a better world, beyond the horizon.
+- Democracy cannot succeed unless those who express their choice are prepared to choose wisely. The real safeguard of democracy, therefore, is education.
+- True individual freedom cannot exist without economic security and independence. People who are hungry and out of a job are the stuff of which dictatorships are made.
+- There are many ways of going forward, but only one way of standing still.
+- A conservative is a man with two perfectly good legs who, however, has never learned how to walk forward.
+- Confidence... thrives on honesty, on honor, on the sacredness of obligations, on faithful protection and on unselfish performance. Without them it cannot live.
+- Those newspapers of the nation which most loudly cried dictatorship against me would have been the first to justify the beginnings of dictatorship by somebody else.
+- When you see a rattlesnake poised to strike, you do not wait until he has struck to crush him.
+- It is fun to be in the same decade with you.
+- More than an end to war, we want an end to the beginning of all wars - yes, an end to this brutal, inhuman and thoroughly impractical method of settling the differences between governments.
+- Happiness lies in the joy of achievement and the thrill of creative effort.
+- To reach a port, we must sail - sail, not tie at anchor - sail, not drift.
+- Yesterday, December seventh, 1941, a date which will live in infamy, the United States of America was suddenly and deliberately attacked by naval and air forces of the Empire of Japan. We will gain the inevitable triumph, so help us God.
+- Be sincere; be brief; be seated.
+- It is an unfortunate human failing that a full pocketbook often groans more loudly than an empty stomach.
+- Competition has been shown to be useful up to a certain point and no further, but cooperation, which is the thing we must strive for today, begins where competition leaves off.
+- Self-interest is the enemy of all true affection.
+- The nation that destroys its soil destroys itself.
+- It isn't sufficient just to want - you've got to ask yourself what you are going to do to get the things you want.
+- Here is my principle: Taxes shall be levied according to ability to pay. That is the only American principle.
+- The virtues are lost in self-interest as rivers are lost in the sea.
+- I pledge you, I pledge myself, to a new deal for the American people.
+- I'm not the smartest fellow in the world, but I can sure pick smart colleagues.
+- One thing is sure. We have to do something. We have to do the best we know how at the moment... If it doesn't turn out right, we can modify it as we go along.
+- Rules are not necessarily sacred, principles are.
+- Our national determination to keep free of foreign wars and foreign entanglements cannot prevent us from feeling deep concern when ideals and principles that we have cherished are challenged.

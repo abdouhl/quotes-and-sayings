@@ -1,0 +1,69 @@
++++
+author = "Lil Wayne"
+title = "Lil Wayne Quotes"
+quotes_len = "63"
+description = "the best 63 Lil Wayne Quotes"
++++
+- I was still in school after I dropped my first solo album.
+- The more time you spend contemplating what you should have done... you lose valuable time planning what you can and will do.
+- I don't want to be understood because if people understand me, they get tired of me.
+- A lot of women don't know how to love because there's deep reasons for them not knowing how to love. And what I mean by deep reasons is deep and dark reasons.
+- I just feel out of this world sometimes.
+- The most bizarre thing I've ever read about myself is that I was dead. That was kind of weird to read that I'm dead - mostly because I was reading it.
+- Everybody know, I don't do no promoting. I don't ever have to promote nothing, that's the beauty of Lil Wayne.
+- I like people that enjoy life, 'cause I do the same.
+- I'm a gangster, and gangsters don't ask questions.
+- I always do my rap from the outside looking in. Like I do my rap as if I'm looking at me rap.
+- I am very humble, and I am very gracious and very grateful for everything that happens to me and about me and around me.
+- I'm kinda mad that I had to wait 28 years to jump on a skateboard.
+- I always knew I couldn't sing, but I also knew I had a voice that isn't heard by many, and that I could learn how to stretch it and make songs sound good.
+- I don't think life is about a pace, living slow or fast. I think you just live, y'know what I mean?
+- I'm blessed and I thank God for every day for everything that happens for me.
+- My aim is just to make good music every single time.
+- I believe in God and his son, Jesus.
+- Hate is only a form love that hasn't found a way to express itself logically.
+- Don't judge me. You wanna judge me, put on a black gown and get a gavel. Get in line with the rest of them that's about to judge me. I got court dates every other month. It's me against the world - that's how I feel.
+- I'm always creative.
+- If I have a rap album I'm dropping, then I want it to be the best rap album.
+- I know it's an experience that I need to have if God's putting me through it.
+- I look at things as 'Everything is meant to be.'
+- I always believe that to be the best, you have to smell like the best, dress like the best, act like the best. When you throw your trash in the garbage can, it has to be better than anybody else who ever threw trash in the garbage can.
+- I believe music should reflect yourself in some way and not just yourself at the given time. I feel that when you die or when you're going, someone's supposed to listen to that music and know everything about you. And I just try to get that across.
+- Don't make an opinion on me if you don't know nothin' about me.
+- I feel like everything I do is successful and productive. It's gonna be hard to tell me I'm slipping.
+- I've been criticized for the things I chose and things I've chosen to do.
+- I believe that music is another form of news. Music is another form of journalism to me so I have to cover all the areas with my album.
+- I don't have to prove anything.
+- Where I come from, the block become your daddy.
+- I just always expect the best because I'm a competitor and if I'm competing, then obviously I'm trying to be better in everything.
+- I'm so greedy, I'm hungry, I'm young.
+- I like being misunderstood.
+- Honestly, I don't listen to nobody else's music but my own. It's kind of like sports to me. You don't see Kobe Bryant at a LeBron James game - he just works on his own game. And that's what I do. I only listen to me, so I can criticize and analyze and all those things.
+- I don't think nothing. I just do my work.
+- I go wherever my creativity takes me.
+- I do not consider myself a literal genius.
+- Trying to tear down the past prohibits you from building up your future.
+- You're either living or you're dead.
+- Jail didn't make me find God, He's always been there. They can lock me up, but my spirit and my love can never be confined to prison walls.
+- We're here to live. We're here to do, we're here to be.
+- I don't like to stop. I believe you stop when you die.
+- Things I say have value and I would love for you to value them, however you get it.
+- I love to work.
+- I have accomplished all that I have set out to accomplish and more.
+- You supposed to be able to do anything in this world. That's what Martin Luther King told me.
+- Miami has embraced me and I love them for that.
+- I don't look for signs. But when things happen, I say, 'OK, something must be right.' Or 'OK, something must be wrong.'
+- One thing about a skater: they never quit. So a skater, to sum it up, is awesome.
+- I'm not an example for how people should live their lives. Never in my life would I ever set out to be an example for people on how to live their lives. If you need an example for how to live, then you just shouldn't have been born. Straight up.
+- As long as people remember me forever, that will be enough for me.
+- Nothing scares me but God.
+- I'm an addict, I'm addicted to success. Thankfully, there's no rehab for success.
+- I am my city. Nobody from my city wants to hear about my city.
+- I want to be a skater.
+- Let me do me.
+- I watch ESPN all day long.
+- I want to make sure my family's straight.
+- Life is a lot like skateboarding.
+- I don't think I've ever googled myself.
+- They say I'm the Hottest MC in the Game. If you label me that, I will live up to it. Trust me.
+- I don't take nothin' from no one. I do what I wanna do. And I'm gonna do that until the day I die. And if I can't do that, then I'll just die.

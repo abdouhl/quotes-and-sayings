@@ -1,0 +1,13 @@
++++
+author = "Candice Glover"
+title = "Candice Glover Quotes"
+quotes_len = "7"
+description = "the best 7 Candice Glover Quotes"
++++
+- Love is one of my favorite things to talk about. Every song will be about losing it or finding it, seeing a guy and not knowing if you want to tell him how you feel yet. I guess I'm a hopeless romantic.
+- It's funny because ever since 'American Idol,' people look at me without makeup and think I'm 15 years old - they think I'm really young and quiet and shy, and that I've never been in a relationship and have never been in love or anything.
+- I remember, when I was younger, it was such a big fantasy for me. Now that I actually have a career and have made an album, it's really surreal.
+- In every interview, when they would ask me who should be a judge, I would always say Harry Connick, Jr., so I think I had something to do with him becoming a judge! He has a blunt, dry sense of humor. You never know if he's joking or not, and I think that's going to catch a lot of people by surprise.
+- My main focus is to help people through music.
+- I'm such a perfectionist.
+- Before I won 'American Idol,' I'd never been in a professional studio at all. I'm getting more used to it. I'm really weird, though: I sing way better in a crowd of 3,000. It's easier than singing in front of 2.

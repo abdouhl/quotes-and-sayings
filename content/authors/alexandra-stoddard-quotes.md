@@ -1,0 +1,54 @@
++++
+author = "Alexandra Stoddard"
+title = "Alexandra Stoddard Quotes"
+quotes_len = "48"
+description = "the best 48 Alexandra Stoddard Quotes"
++++
+- I love people and care about them, and I felt I had a gift to cheer people up. If I could get into their homes and make their environment more attractive, they'll be happier, and it would be very rewarding for me.
+- Our home, just like our garden, evolves. We experiment, try out different things and new colors until we feel content. Try to keep the metaphor of home as garden in your consciousness.
+- You can't be a resource for others unless you nourish yourself.
+- I find it soothing to take something wrinkled and make it smooth. It feels anticipatory. It's what I do before a celebration. And nobody bothers me when I'm ironing.
+- Your past is something you cannot change. You can't live it; it's dead.
+- If we have authentic, honest, earthy materials in our houses, we'll be more authentic, honest and natural.
+- My grandfather was a Methodist preacher, and my father was an unsuccessful businessman. We didn't have status or wealth.
+- When I was little, I got to pick my hair ribbon from my mother's collection that hung over her dressing-table mirror. I have an entire room of ribbons in my New York apartment.
+- Happiness is the first principle of life. Happiness basically means well-being. It is always good and always a choice... We need to make the choice to be happy in a particular situation, just as it is, and at a given moment.
+- I get all dressed up in fuchsia, looking like a clown, and show pretty pictures to people.
+- I like people to really get a feel for the house before they do anything to it.
+- Feeling at home with ourselves and being able to create a spirit of place that nourishes us physically, emotionally and spiritually is a goal worthy of our highest priority.
+- How we feel about ourselves as we read the newspaper, set the table, wash the dishes, recycle the trash and wash our clothes... is essential to our overall happiness and well-being.
+- I find that through all my work, I really get to see and feel energy, health and vitality between people and their surroundings and how they interact with each other.
+- Being a mother and grandmother is the best of the best in my life. My grandchildren multiply the joy my daughters bring me.
+- I don't want to go anywhere; I don't want to leave anybody behind. Happiness is right here, right now, in this world, in this room. I am happiest wherever it is that I am.
+- I want to listen to Beethoven and Mozart. I want to read the best minds. I want to live with uplifting art. I don't want to live a grubby life.
+- Unused rooms are such bad feng shui, really bad energy.
+- I have my clothes made in Hong Kong, but I love Shangai Tang in New York.
+- Unhappy people make me feel like I've done something wrong.
+- I urge readers to experience things that they love and give up things that are not working.
+- You can sometimes avoid costly mistakes. Paint a corner of the room a certain color to see how the light affects it. Or buy just one yard of an expensive fabric to see how you like it in your room.
+- A home should be an intimate autobiography of the things that you like. One of the things I'm so keen on expressing is that, if you don't do it for yourself, if you're always seeking affirmation from outside, you'll never have a home. It'll just be a house.
+- We can finish a house, but never a home. Once you fall in love with a house, you find continual pleasures in fixing it up and making innovations that satisfy your creature's comforts.
+- I'm an interior designer from the soul. It's not about just putting things in a room. It's much deeper and broader. It's about self-discovery.
+- You're not going to be dreary on the inside if you're not dreary on the outside.
+- When you leave a beautiful place, you carry it with you wherever you go.
+- Being a decorator allowed me to see what about people's environments made them happy. And what things they could do to have more light and color and joy in their daily lives.
+- I want to inspire through example. I hope my books motivate others to open doors and windows that will help them to embrace their own truth, light and joy.
+- We have to establish time boundaries and learn how to say no.
+- I want my readers to find their own way.
+- Each of us must become impassioned, finding meaning and self-fulfillment in our own life's journey.
+- If we could make our house a home, and then make it a sanctuary, I think we could truly find paradise on Earth.
+- I think of myself as the little girl Renoir painted with the watering can. I loved the garden colors.
+- I feel very strongly we are spiritual beings in a physical body, and we should make our surroundings as beautiful and soulful as possible.
+- Style really comes down to what makes you feel good.
+- Colors are important. People are in clinical depression whether they are on medication or not. Neutrals are another form of medication.
+- We can live closer to our dreams if we are willing to dream them. And we can create a life as we want it to be.
+- Be mindful of the very moment you are living. Start exactly this second. You don't wait until the children get out of the house or when the sun comes out. Create something better.
+- Don't feel you have to buy something to sit in or at. Buy something you are emotionally attached to and build your design around that. One Matisse cutout poster could provide you with your whole color scheme!
+- Make your physical surroundings as beautiful as possible.
+- My mantra is: Let there be happiness in my soul, and let me share it with the world.
+- When I'm the happiest, my desk is not neat. It has lots of pens and the books I love. It gets messy when I'm in the flow. So many houses are so neat.
+- Put a picture of yourself as a child in view somewhere, to remind yourself to be playful.
+- The home is the center of your soul; it's a total reflection of your inner life. If you have a dreary home, it means you are dark inside.
+- We can raise our sights high when we're willing to break free from being conformists who live a conventional life simply because we are too afraid to express our uniqueness.
+- You learn to give up what's not working and surround yourself with things you love - not what's correct or proper.
+- My message is that happiness is the first principle of life. But you must choose it. We all have pain, but suffering is a choice. You can be happier if you make some changes in your life.

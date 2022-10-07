@@ -1,0 +1,16 @@
++++
+author = "Roger Craig Smith"
+title = "Roger Craig Smith Quotes"
+quotes_len = "10"
+description = "the best 10 Roger Craig Smith Quotes"
++++
+- If I don't get enough sleep, my brain gets fatigued, and the voice suffers. If I'm doing some retail work and trying to read and record legal copy, I start sounding like I had a few too many the night before.
+- Most of the time with video games, you're recording by yourself.
+- I grew up playing games, and I remember Christmas 1981 when my dad got us an Intellivision, and we all sat around and played 'Astrosmash' for hours on end. It was a big part of my youth.
+- Just to be involved in anything Disney, whether it's 'Avengers Assemble' or 'Planes' or straight-to-dvd work, it's great.
+- My favorite job is the next one. It's such a gratifying experience getting to creatively keep trying something new and push things in a different direction.
+- The only way to describe my involvement in 'Planes' is that it's an absolute dream come true for me. Getting to be a bad guy in any project is fun, let alone being a Disney villain. I can't imagine anything getting better than that!
+- I'm a fan of characters wherever they come from. Truth be told, I wasn't a big comic book fan growing up. Maybe that helps me bring a fresh perspective to things because I'm not trying to match anything that's been done in the past.
+- Some people work very closely with a director or a producer on something, and from the get go, they're collaborating. But typically, it's just go in for an audition, do the best you can, and if the phone rings a couple of days after the audition and you get the part, that's great.
+- The Internet is a bastion of negativity, and we get to sit there and voice our cute, little, important opinions.
+- I started doing standup when I was in college, and I would incorporate a lot of characters into my act.

@@ -1,0 +1,28 @@
++++
+author = "Fabian Delph"
+title = "Fabian Delph Quotes"
+quotes_len = "22"
+description = "the best 22 Fabian Delph Quotes"
++++
+- Sometimes when you stare adversity in the face you've got to go back to those basic principles of football and do them right.
+- I see ghosts all the time. Genuinely. I think I've seen about four.
+- I feel like if the mentality is there then why not aim to win every game? We are not here just coast through games. We need to go into games thinking we are going to win.
+- I never thought I'd be playing 60 games a season for City, I knew I would be playing half of that if I was lucky. I knew at a club with that much power and resources there would always be a flood of players into the team.
+- I've represented my country and played in the Premier League a long time so I am pretty realistic and confident in what I can bring.
+- I can be very emotional, so when it's the build-up to a game I enjoy that side of trying to help push the team and get them fired up.
+- Gael Clichy who was at the club does a lot of meditation and he recommend it to me because I was such an all-action guy.
+- I wear my heart on my sleeve and I am known for getting a little bit emotional at times.
+- The Everton fans seem to know football, seem to understand it, it seems to be in their blood and they really back the team.
+- I was a vocal presence in the dressing room as an 18-year-old at Leeds.
+- I want everybody including myself to be working just as hard towards the same goal, and if that's not happening I think it's only right to voice that opinion instead of going into your shell and not speaking about it.
+- I meditate and I have cut out red meat. For me it is just breathing techniques, learning to be still, to control your thought processes, it calms you down. It wasn't about dealing with the pressure of games - I've always been all right in matches.
+- I'm hungry. I don't like losing. I see myself as a winner.
+- I'm an intense guy, I want to do more and my mind is racing at 100mph.
+- When I was at Villa and I was captain there and I had the opportunity to go to City, it played on my mind I wouldn't be as pivotal. So initially I didn't want to go, but a lot of things happened behind the scenes and I realised I had to go.
+- I just want everyone I am playing with to be fully switched on, really on it. You don't have to be the best player in the team to have an effect on the players around you.
+- Every time I have played against Everton, whether it was home or away, straight away the first thing that comes to mind when you see the fans is passion.
+- I always talk about being a team player, I think I'm really good team player. I was a big voice in the changing room before games and nothing really changed for me.
+- There's nothing worse in my book than going home with energy left over. I like to go home knowing I've put a shift in, feeling that I've pushed myself to the max.
+- When you go a goal behind the pressure drops off you and you feel like you can play more so when we go ahead we need to be switched on and that is when we need leaders on the pitch.
+- It is definitely what my aim is to get everyone to do their part and take on that responsibility of being a leader - whether you are playing or on the bench or if you have not made the team.
+- I'm a very traditional English guy who believes in hard work and dedication and giving it absolutely everything.

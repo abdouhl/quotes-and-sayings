@@ -1,0 +1,44 @@
++++
+author = "Roger Deakins"
+title = "Roger Deakins Quotes"
+quotes_len = "38"
+description = "the best 38 Roger Deakins Quotes"
++++
+- On 'Sicario,' we storyboarded key sequences but not everything.
+- There are some sequences in films that I think work filmicly, that stand out to me, but that's much more to do with the staging and the cutting and the mood of the thing as a sequence, the way everything comes together.
+- I don't really believe in the mystery of cinematography - what happens in the camera is what the cinematographers create and all that nonsense - I want the director to see what I'm trying to do.
+- I love the writing of Walter Tevis and what he views as the possibilities of science rather than science fiction.
+- The little town I was brought up in, I'd go to the film society to these very extreme sorts of films that you wouldn't normally see in the movie houses. But I never dreamed that I would get into the position to be shooting movies equivalent to the ones I loved as a kid.
+- I've always been a fan of Westerns, but my favorite kind of Westerns mostly were Sam Peckinpah's Westerns, and they mainly took place in the West that was changing.
+- There's so many films from around the world, I emphasize, that are so beautifully photographed, but they don't get the recognition.
+- Some of what I consider my best work, and some of the best films that I've ever worked on, kind of disappear without a trace. There's no accounting for it. Something connects, or something doesn't.
+- The biggest challenge of any cinematographer is making the imagery fit together of a piece: that the whole film has a unity to it, and actually, that a shot doesn't stand out.
+- I like simplicity. I like using natural sources. I like images to look natural - as though somebody sitting in a room by a lamp is being lit by that lamp.
+- I've always painted or drawn pictures or taken still photographs; now I shoot movies. It's just about making images, really.
+- Some of the smallest things on a smaller film, to me, are greater achievements than on a big film when you have the resources and the time and everything else.
+- I don't really like watching 3-D.
+- I don't do that virtual reality stuff. I'm not even into 3D, actually... I've been offered it. I just don't want to.
+- I always had an interest in seeing people within their environments.
+- If I bring anything to the Coen Brothers' films, it's my ability to change tack and create a different mood from film to film.
+- I did a few documentaries as co-director and cameraman. I started off shooting a film about the war in Rhodesia. Then I did a film about an 'around the world' yacht race with a friend, and we spent nine months on a yacht. The film was about how people get on in confined spaces under extreme stress.
+- My time in documentaries was very educating, in terms of life experience as well as the filmmaking side of it.
+- People confuse 'pretty' with good cinematography.
+- I shot film with the Coen brothers on 'Hail, Caesar!' That's fine. I'm sentimental about film; I've shot film for forty years or something.
+- Every scene is a challenge. There are technical challenges, but often it's the simplest challenge where you feel a sense of achievement when you pull it off.
+- If you shoot with a billion cameras, then there's no perspective. You want to use one shot at a time, so it's better to discover what that is before you shoot, rather than trying to make something in the cutting room, and then it just becomes generic.
+- My dad was a builder, so I didn't have any connection to the arts at all. I never really considered film as a career, but I knew I didn't want to be a builder.
+- I don't study any films. I'll watch them, but I don't study anyone else.
+- I don't approach films purely in context of genre.
+- I came up, I suppose, a fairly traditional way. I went to art college. I always wanted to be a stills photographer, really, when I was younger, and I briefly worked as a stills photographer.
+- I love everything that Cormac McCarthy has written.
+- When I left art college, I was a still photographer for a year.
+- There's nothing worse than an ostentatious shot. Or some lighting that draws attention to itself, and you might go, 'Oh, wow, that's spectacular.' Or that spectacular shot, a big crane move, or something.
+- I do think observing is important in learning.
+- I think that lens flares can work really well under certain circumstances. Personally, I am trying to get rid of them most of the time. I don't like artifacts that draw attention to the surface of the image.
+- I'd done a big movie that I wasn't happy with, and I was moving out of London when I got approached about Barton Fink, because my agent said the brothers were in London. We hit it off immediately, and suddenly I found myself on the way to America!
+- I love reading different scripts and helping create different looks, different environments. Sometimes you go to meet a director over a particular script, and they'll say, 'I want you to do this because I want it to look like Shawshank,' and I'm like, 'Well, I'm not that interested in doing that again.'
+- What's seemingly a simple thing can actually be the hardest to achieve.
+- I couldn't imagine 'True Grit' in 3D. I think the idea is sort of absurd.
+- I loved movies ever since I was a kid.
+- I think technology has advanced so far now that there are some cameras on the market that give film a run for its money. It's all about flexibility in capturing images, and digital or film, it doesn't matter to me.
+- I feel every shot, every camera move, every frame, and the way you frame something and the choice of lens, I see all those things are really important on every shot.

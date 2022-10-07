@@ -1,0 +1,65 @@
++++
+author = "Rene Russo"
+title = "Rene Russo Quotes"
+quotes_len = "59"
+description = "the best 59 Rene Russo Quotes"
++++
+- I didn't have a father growing up, and I was raised with all women, and I didn't really understand men. I thought they were like women, right?
+- My mom worked for Lockheed Corp. in Burbank as an inspector of airplane parts. To help make ends meet, Dee, a friend of my mom's from Lockheed, moved in. She was a lovely person and helped with our care for many years.
+- My mom said my whole childhood... was stop and go.
+- I didn't want to be an actress when I was younger - not even when I was older, to tell you the truth.
+- I'm not the kind of person that would step on people just to get where I wanted to be, but I have crossed moral boundaries when I've either been afraid or desperate.
+- Beauty and youth can stay inside, but it doesn't outside.
+- I thought 'Thor' would just be fun.
+- I never thought I could model, and I certainly never thought about acting. It's just something that happened to me.
+- I think early in my career, I didn't choose films that were crappy films, necessarily, but I didn't go out and campaign for smaller, better roles.
+- Strong and in control - I don't necessarily feel that way. I'm a little bit more scattered in my life. I'm more of a street girl, in a way.
+- I think acting is something that came natural.
+- 'Tin Cup' was great because I loved the comedy aspect of it, so that was good.
+- I'm a California girl, and I'd love to restore a sense of place to Southern California.
+- Being married, I would say most relationships are pretty codependent in some ways.
+- Every day, every birthday candle I blow out, every penny I throw over my shoulder in a wishing well, every time my daughter says, 'Let's make a wish on a star,' there's one thing I wish for: wisdom.
+- If I had to design a career for myself, I would have done comedy.
+- I didn't know who Avedon was. I was 18 years old. I dropped out of high school in the 10th grade. I had no idea.
+- Oh, my gosh, I've never seen a film unless, you know, if I have to go and do ADR, loop-loop. But I don't watch after. I'm too critical.
+- I'm so proud of myself. I thought, 'I've got to learn about American history.' I literally took two months off and watched every documentary known to man. I really didn't know Benjamin Franklin was so cool.
+- I came out of a culture when there wasn't tweeting and everyone with a camera in their hands. I didn't grow up with it, so I'm not always thinking about it, but there have been times when I looked over, and I saw that someone was recording my conversation.
+- I was inspecting eyeglass lenses for a while. And I worked as a concession girl in a movie theater. And I was ironing before that. I always had some kind of a job. And then I started modeling.
+- I work out five days a week for 20 minutes; I only do one body part a day.
+- If something comes around that would be a challenge, then that would be wonderful. But if it's a watered-down version of something I've already done, I'd rather do something else.
+- I think all writers are different. I've been with a few writers; they're all different.
+- I am self-conscious, and I'm aware of my body. But I struggle with America's limited idea of what perfection is.
+- In June 1972, I went with friends to see the Rolling Stones at the Los Angeles Forum. After the concert, as we crossed through the parking lot, a guy in a brown Mercedes stopped in the middle of the street and got out. He came up to me and asked if I had ever modeled.
+- I can say that when you model,when you get to a certain age, that's it for you. I remember there was a time where I was like, 'What am I going to do with my life?' I am a high school dropout who's only modeled. So there was desperation with that.
+- I have nothing against younger women and older men on screen. What is sad is that so many women over 40 who have so much to give aren't being considered to play opposite men their own age or younger.
+- I had to fend for myself from the time I was 17 years old. I was a high-school dropout. I wasn't quite living on the streets, but I didn't have a lot of hope.
+- He was an amazing - John McTiernan really was an incredible director, probably the best I've worked with because he constantly busted me when he wasn't getting what he wanted.
+- I understand that there's a certain energy in youth, no question, in terms of pursuing jobs. But there is wisdom in age. It's too bad that the two can't come together because I do think that people are dropped from what they're really good at too soon.
+- I didn't set out wanting to be an actress. That's not what I did. I didn't go to class striving to become an actress. I just basically - honestly, I didn't have anything else going.
+- I don't love getting up at the crack of dawn and having makeup put on my face for three hours - like, I really don't like it - and then having a part that's just not that challenging.
+- I think I was pigeonholed pretty early on. And I started late in my career. I was 33.
+- I've got a drought-tolerant garden; I've got a company - crazy as it sounds, we make yogurt. There are actors who have to act no matter what, but I don't want to do it just for the sake of doing it.
+- By high school, I was already tall - 5-foot-8 - and one day I made the mistake of wearing green tights. The football players all started calling me the Jolly Green Giant.
+- I envy my daughter's childhood.
+- In high school, I was very unpopular.
+- I have an unusual face.
+- I'll be honest with you: I'd rather have BAFTA over an Academy Award any day. Because it's just cool.
+- I was a high-school dropout; I was a loner.
+- I do love acting the two seconds that you are in front of the camera - and this is going to sound like I'm complaining, and I don't want that because I'm blessed to even have a job - but there is a lot of down-time when you're just sitting in your trailer.
+- I always thought I'm kind of a tough girl.
+- Maybe it's that I'm naive, but I don't think of myself as an age.
+- I was raised in a lower-income family, and we were wild.
+- I was never the kind of person who cared much what people thought about me.
+- I had never seen a Marvel comic.
+- I loved 'Tin Cup' because even though that character had her own career and was strong, she was pretty confused. I think she was my favorite character because she was well-rounded. She didn't have it all together.
+- For me, when I did 'Thor,' they changed my lines at the last minute, and then I had to speak with an English accent - and it was horrifying. I was in front of a crew of 250 people on my first day - never happened to me before.
+- I would have loved to do romantic comedies. That's what I think I would be best at.
+- I always go into a film situation depressed and fearful.
+- When you are desperate, it's usually because of fear.
+- I'm always drawn to melancholy personalities.
+- Unfortunately, I think depression and anxiety are really hard to live with. And what people don't need is to feel bad about themselves because they decide to go on medication.
+- That's a really good question - what is it like living with a writer? I guess it depends on the writer. You know what? They live in a fantasy world a lot of the time. My husband lives in a fantasy world.
+- I don't know much about sports.
+- I always try to find some part of a character that exists in me and plug that in.
+- We all do things where we don't care about other people. And we deal with it in whatever ways we can, denial or make excuses.
+- I grew up in Burbank - but not the Burbank of valet parking and TV studios. In the late 1950s, there was a small apartment complex on Elmwood Avenue that rented mostly to families on welfare. I lived there from age 3 to 11 and again from 14 to 18 with my mother, Shirley, and my younger sister, Toni.

@@ -1,0 +1,23 @@
++++
+author = "Rachel True"
+title = "Rachel True Quotes"
+quotes_len = "17"
+description = "the best 17 Rachel True Quotes"
++++
+- Editing is a natural extension of the collage making. It's actually one of the few areas that women were able to excel in in the film industry from the beginning.
+- For six months I'd do movies and make it all about me. Then the other six months, it's not about me and it doesn't matter what my hair looks like or what anything looks like.
+- Even befor doing this film, I've always been interested in mythology.
+- In the end, I play a lot of friends and I really think it's about time that some ethnic girls get out there in the lead part. So we're developing something.
+- So now I feel I'm lucky in the respect that I can sort of pick a little more carefully, which is tricky because as a black actress, there aren't that many roles to pick from.
+- We filmed one scene on the beach and there was definitely weird energy around, and we were followed around by a white owl to several different locations, and little things like that, or certain mishaps would happen and you'd have to wonder what that was about.
+- I like to make collages - paper collages.
+- When you work on a movie, you just have no idea how it's going to come out; you hope it's good, but you don't really know, and you don't see it until about six or nine months afterward, and I saw it and was pretty pleased.
+- I'm actually developing a project so that I can have a lead.
+- If you're fortunate enough, you get to a position where you can be a little pickier about your roles.
+- Which is not to discount everything I've done in my past; everything I have learned tremendously from.
+- Which is why I felt I was truly blessed this year, with leads in two nice films, and also the luxury of being able to do a studio film and an independent afterwards was fantastic.
+- Sometimes I wonder why I'm not working at McDonald's and how come I have the life I have. I don't know. But I'm happy that I have these choices. That's kinda sappy, huh? But whatever, acting beats pumping gas.
+- And I can relate to that, because I went to an all white school, so I knew what that was like. And it was hard at the time, but anything that's difficult you learn from, don't you?
+- As far as developing a career as an actress, I think it's a fine balance between trying to just work, and also be true to yourself.
+- I don't think I'm a follower, frankly.
+- That's double-edged: it's amazing that they're bringing me in and showing people new ideas, and at the same time it's a little hard because seventy percent of the time or even higher I'm not going to get those roles.

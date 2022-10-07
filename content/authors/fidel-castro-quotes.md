@@ -1,0 +1,137 @@
++++
+author = "Fidel Castro"
+title = "Fidel Castro Quotes"
+quotes_len = "131"
+description = "the best 131 Fidel Castro Quotes"
++++
+- It is a fundamental principle of criminal law that an imputed offense must correspond exactly to the type of crime described by law. If no law applies exactly to the point in question, then there is no offense.
+- Even in the United States, the enslavement of African descendants continued until the presidency of Abraham Lincoln. That brutal form of slavery was abolished there hardly thirty years before it was abolished in Cuba.
+- We do not need the empire to give us anything.
+- I neither will aspire to nor will I accept, the position of president of the council of state and commander in chief.
+- Even Gaddafi's adversaries assure us that he stood out for his intelligence as a student; he was expelled from high-school for his anti-monarchic activities. He managed to enroll in another high-school and later graduated in law at the University of Benghazi at the age of 21.
+- Twenty-six million Russians died in the defense of their homeland against the Nazis.
+- When at just 27 years old, Qaddafi, colonel in the Libyan army, inspired by his Egyptian colleague Abdel Nasser, overthrew King Idris I in 1969, he applied important revolutionary measures such as agrarian reform and the nationalization of oil.
+- The kings of Spain brought us the conquistadores and masters, whose footprints remained in the circular land grants assigned to those searching for gold in the sands of rivers, an abusive and shameful form of exploitation, traces of which can be noted from the air in many places around the country.
+- I have always fought for concrete facts, for justice.
+- You may agree or not with Gaddafi's political ideas, but no one has the right to question the existence of Libya as an independent state and member of the United Nations.
+- None of us has any personal interest above the interests of the country. Our country is more important than our careers.
+- Chavez, who came out of the ranks of the Venezuelan Army, is methodical and tireless. I have observed him over the course of 17 years, since his first visit to Cuba. He is an extremely humanitarian and law-abiding person; he has never taken revenge on anybody.
+- I don't think it is so difficult to solve the problems between Cuba and the United States; it all depends on whether there is a dialogue, a discussion, or if the prejudices and hatred of people like the extremists and terrorists from the Cuban community, who try to impose their policies, prevail.
+- Obama has no way to conceal that Osama was executed in front of his children and wives, who are now under the custody of the authorities of Pakistan, a Muslim country of almost 200 million inhabitants, whose laws have been violated, its national dignity offended, and its religious traditions desecrated.
+- General Giap was one of the most brilliant military strategists of our era, who in Dien Bien Phu was able to place missile launchers in remote, mountainous jungles, something the yankee and European military officers considered impossible.
+- Cuba never had advisors in Vietnam. The military there knew very well how to conduct their war.
+- I am a Marxist Leninist and I will be one until the last day of my life.
+- Religious faith, like political belief, should be based on reasoning, on the development of thought and feelings. The two things are inseparable.
+- For revolutionary Cubans, to cooperate with other poor and exploited peoples has always been a political principle and a duty towards humanity.
+- The lies of the empire and the treason of the quislings shall be defeated.
+- Although we resolutely supported the armed struggle against Batista's tyranny, we were, on principle, opposed to any terrorist action that could cause the death of innocent people.
+- Someday, the capitalist system will disappear in the United States, because no social class system has been eternal. One day, class societies will disappear.
+- The United States tyrannizes and pillages the globalized world with its political, economic, technological, and military might.
+- None of us is designed for the role we must assume in a revolutionary society, although Cubans had the privilege of Jose Marti's example.
+- They talk about the failure of socialism but where is the success of capitalism in Africa, Asia and Latin America?
+- In my next incarnation, I want to be a writer.
+- The squandering of oil and gas is associated with one of the greatest tragedies, not in the least resolved, which is suffered by humankind: climate change.
+- My idea, as the whole world knows, is that the capitalist system now doesn't work either for the United States or the world, driving it from crisis to crisis, which are each time more serious.
+- Every citizen has the real right to receive general education and professional training at no cost, something that the United States has not been able to ensure for all its inhabitants.
+- Mubarak was oppressing and pillaging his own people. He was an enemy to the Palestinians and an accomplice of Israel, the sixth nuclear power on the planet, associated with the war-mongering NATO group.
+- Cynicism is something which has become symbolic of imperial policy.
+- The fact is, when men carry the same ideals in their hearts, nothing can isolate them - neither prison walls nor the sod of cemeteries. For a single memory, a single spirit, a single idea, a single conscience, a single dignity will sustain them all.
+- Homeland or death! Socialism or death! We shall overcome!
+- The unyielding resistance of the Cuban patriots is symbolized by our 5 Heroes. They shall never back down! They shall never surrender!
+- Experience acquired in the heroic battle against Batista's tyranny showed that the enemy, no matter what his strength, could not defeat the Cuban people.
+- I will never retire from politics, the revolution, or the ideas I have.
+- The U.S.S.R. had absolutely nothing to do with the triumph of the Cuban Revolution.
+- The people respect and believe in men who fulfill their duty.
+- I never saw a contradiction between the ideas that sustain me and the ideas of that symbol, of that extraordinary figure, Jesus Christ.
+- We are proud of the history of our country; we learned it in school and have grown up hearing of freedom, justice and human rights.
+- When the Revolution triumphed in 1959, our island was a true Yankee colony. The United States had duped and disarmed our Liberation Army. One couldn't speak of developed agriculture, but of immense plantations exploited on the base of manual and animal labour that in general used neither fertilizers nor machinery.
+- Social struggles have been taking place throughout millennia, since human beings, by resorting to wars, were able to take hold of a surplus production to satisfy the essential needs of life.
+- The United States never stopped conspiring against the Arab world, which holds the largest oil reserves on the planet.
+- There is not Communism or Marxism, but representative democracy and social justice in a well-planned economy.
+- I became a Communist by studying capitalist political economy, and when I had some understanding of that problem, it actually seemed to me so absurd, so irrational, so inhuman, that I simply began to elaborate on my own formulas for production and distribution.
+- What prevails in every corner of this globalized world is the real struggle of our species for its own survival.
+- There is plenty of building material and more than enough manpower to make a decent home for every Cuban. But if we continue to wait for the golden calf, a thousand years will have gone by, and the problem will remain the same.
+- The human being is a strange mixture of blind instinct, on one hand, and conscience, on the other.
+- Any negotiated, peaceful solution to the problems between the United States and peoples, or any people of Latin America, which does not imply force or the use of force, must be addressed in accordance with international principles and norms.
+- The Revolution did not assume a socialist nature because of support from the U.S.S.R.; it was the other way around: support from the U.S.S.R. was produced by the socialist nature of the Cuban Revolution. To such a degree, that when the U.S.S.R. disappears, Cuba keeps on being socialist.
+- Peoples do not defy repression and death, nor do they remain for nights on end protesting energetically, just because of merely formal matters.
+- The existing world economic order constitutes a system of plundering and exploitation like no other in history. Thus, the peoples believe less and less in statements and promises.
+- I am not a communist and neither is the revolutionary movement.
+- It constitutes a superhuman effort to lead any people in times of crisis. Without them, the changes would be impossible.
+- Chinese combatants, men and women, inheritors of a millennial culture, are people of uncommon intelligence and an invincible spirit of struggle.
+- Our Revolution emerged where it was least expected by the empire, in a hemisphere where it was used to acting like an all-powerful master.
+- Nature teaches us that tens of billions of light years may have passed, and life in all of its expressions has always been subjected to an incredible combination of matter and radiation.
+- How can we help President Obama?
+- Cuba came to be the last country to get rid of Spanish colonialism and the first to shake off the heinous imperialist tutelage.
+- Our position is that we do not accept conditions of any kind which may affect the independence and sovereignty of our country just with the view to solve economic problems existing between the United States and Cuba.
+- Soon, I'll be like all the others. The time will come for all of us, but the ideas of the Cuban Communists will remain.
+- I am Fidel Castro and we have come to liberate Cuba.
+- To our brothers in Latin America and the world, we must convey that the Cuban people will overcome.
+- The last time I visited Qaddafi was in May of 2001, 15 years after Reagan attacked his rather modest residence where he took me to show me how it had been left.
+- I can assure you that my first and foremost interest is my country.
+- I think that a man should not live beyond the age when he begins to deteriorate, when the flame that lighted the brightest moment of his life has weakened.
+- Men do not shape destiny, Destiny produces the man for the hour.
+- Venezuela, given its extraordinary educational, cultural, and social developments, and its vast energy and natural resources, is called on to become a revolutionary model for the world.
+- Many things shall change in Cuba, but they shall change because of our efforts and despite the United States. Perhaps that empire shall crumble first.
+- It doesn't sound too good to say I am the son of a landowner, so let us rather say I am the grandson of exploited Galician peasants.
+- Christ didn't choose the rich to preach the doctrine; he choose 12 poor ignorant workers - that is, he chose the proletariat of the times.
+- I am a just man.
+- No one even knows one percent of the fabulous history of Man; but thanks to history, we know about occurrences that go beyond the limits of the imaginable.
+- As we know, while our species remains alive, everybody has the sacred duty to be optimistic. Ethically, any other behaviour wouldn't be admissible.
+- North Americans don't understand... that our country is not just Cuba; our country is also humanity.
+- We have always been prepared to negotiate with the U.S. government everything that has to do with bilateral relations, on a basis of the strictest mutual respect for the sovereign rights of each country. We will never try to ask the government of the United States to change its economic and political system.
+- During the second half of the twentieth century, I had the privilege of living through years of intensive erudition, and I realized that Canadians, located in the northernmost region of this hemisphere, were always respectful towards our country.
+- England was the first true colonial power to use its dominion over a large part of Africa, the Middle East, Asia, Australia, North America, and many Caribbean islands, in the first half of the 20th century.
+- The death of Abdel Nasser on September 28, 1970, was an irreversible setback for Egypt.
+- We are political animals, as, not without reason, affirmed Aristotle, who perhaps influenced humanity's thinking more than any other ancient philosopher through his almost 200 treatises, according to reports, of which only 31 have been preserved.
+- At the age of 6, a teacher full of ambitions, who taught in the small public school of Biran, convinced my family that I should travel to Santiago de Cuba to accompany my older sister who would enter a highly prestigious convent school. Including me was a skill of that very teacher from the little school in Biran.
+- No thieves, no traitors, no interventionists! This time the revolution is for real!
+- We do not exploit our dolphins for profit.
+- No political event can be judged outside of the era and the circumstances in which it took place.
+- I was not the son of a worker or lacking in material or social resources for a relatively comfortable existence; I could say I miraculously escaped wealth.
+- Never have we stolen the intelligences of other peoples. On the contrary, in Cuba we have trained tens of thousands of doctors and other top-level professionals, for free, in order to send them back to their own countries.
+- Born to a tribal Bedouin family of nomadic desert shepherds in the region of Tripoli, Gaddafi was profoundly anti-colonialist. It is affirmed that his paternal grandfather died fighting against the Italian invaders when Libya was invaded by them in 1911.
+- The people of Egypt are an intelligent people with a glorious history who left their mark on civilization.
+- The traditional stand adopted by the Cuban Revolution, which was always opposed to any action that could jeopardize the life of civilians, is well known.
+- The Cuban model doesn't even work for us anymore.
+- The equal right of all citizens to health, education, work, food, security, culture, science, and wellbeing - that is, the same rights we proclaimed when we began our struggle, in addition to those which emerge from our dreams of justice and equality for all inhabitants of our world - is what I wish for all.
+- More than 820 million people in the world suffer from hunger; and 790 million of them live in the Third World.
+- A revolution is a struggle to the death between the future and the past.
+- The revolution is a dictatorship of the exploited against the exploiters.
+- Condemn me. It does not matter. History will absolve me.
+- Every country must be absolutely free to adopt the type of economic, political and social system that it considers convenient.
+- The revenues of Cuban state-run companies are used exclusively for the benefit of the people, to whom they belong.
+- If you calculate 15 minutes a day to shave, that is 5,000 minutes a year spent shaving.
+- Some time ago, the United States was an English colony. If an Englishman were asked if the United States would be independent, he would have said no, that it would always be an English colony.
+- Xi Jinping is one of the strongest and most capable revolutionary leaders I have met in my life.
+- I don't think anyone has been slandered more than the Jews.
+- Sorry, I'm still a dialectical materialist.
+- Without a tutor to help me in the study of Marxism-Leninism, I was no more than a theorist and, of course, had total confidence in the Soviet Union.
+- The world has not yet reached the point which, in my view, is an essential condition for the survival of our human species: access by all the peoples to the material resources of this planet.
+- The Soviet Union, the socialist camp, the People's Republic of China, and North Korea helped us resist, with essential supplies and weapons, the implacable blockade of the United States, the most powerful empire ever to exist.
+- Marx and Engels never talked about murdering the bourgeois. According to the old bourgeois concept, the judges were the ones who judged, and the executioners were the ones who executed.
+- I see Libya as a member of the Non-Aligned Movement and a sovereign State of the nearly 200 members of the United Nations.
+- I believe Karl Marx could have subscribed to the Sermon on the Mount.
+- Senator McCain is Israel's most unconditional ally in Mossad's machinations, something that even his worst adversaries would have been able to imagine. McCain participated alongside this secret service in the creation of the Islamic State, which has appropriated a considerable part of Iraq as well as a third of Syria, according to its affirmations.
+- The Arab population of Palestine are victims of genocidal actions; their lands are confiscated or deprived of water supplies in the semi-desert areas, and their homes are destroyed with heavy wrecking equipment.
+- I was born in a territory called Biran, in the eastern region of Cuba. It's known by that name, although it has never appeared on a map.
+- Something must be done to save humanity! A better world is possible!
+- Following the missile crisis, detente started to gain ground between the United States and the Soviet Union, so the international political climate improved after that.
+- Oil has become the principal wealth in the hands of the great Yankee transnationals; through this energy source, they had an instrument that considerably expanded their political power in the world.
+- I would not vote for the mayor. It's not just because he didn't invite me to dinner, but because on my way into town from the airport there were such enormous potholes.
+- I barely need to reiterate what you already know: the close links that exist between our people and the people of Venezuela and Hugo Chavez, the promoter of the Bolivarian Revolution and the United Socialist Party he founded.
+- A revolution is not a bed of roses.
+- I find capitalism repugnant. It is filthy, it is gross, it is alienating... because it causes war, hypocrisy and competition.
+- The prestige of the international financial institutions rates less than zero.
+- Capitalism is using its money; we socialists throw it away.
+- Nothing in the world is irreversible, not even capitalism.
+- The United States is supplying the most modern and sophisticated weaponry to Israel to the tune of billions of dollars every year.
+- Defending peace is the duty of all.
+- At times, I've referred to Christ's miracles, and have said, 'Well, Christ multiplied the fish and the loaves to feed the people. That is precisely what we want to do with the Revolution and socialism.'
+- Reactionaries often describe both Marx and Lenin as theorists, without taking into consideration that their utopias inspired Russia and China - the two countries called upon to lead a new world which will allow for human survival if imperialism does not first unleash a criminal, exterminating war.
+- I almost laughed about the Machiavellian plans of the presidents of the United States.
+- NATO's brutal military alliance has become the most perfidious instrument of repression known in the history of humankind.
+- There is nothing that compares to the Holocaust.
+- On one occasion, I accompanied my father to Pinares de Mayari. I was eight or nine years old. How he enjoyed talking when he left the house in Biran! There he was the proprietor of the land where sugar cane, pasture, and other agricultural crops were planted.
+- I began revolution with 82 men. If I had to do it again, I do it with 10 or 15 and absolute faith. It does not matter how small you are if you have faith and plan of action.
+- The universities are available only to those who share my revolutionary beliefs.

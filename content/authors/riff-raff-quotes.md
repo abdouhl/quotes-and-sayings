@@ -1,0 +1,90 @@
++++
+author = "Riff Raff"
+title = "Riff Raff Quotes"
+quotes_len = "84"
+description = "the best 84 Riff Raff Quotes"
++++
+- I can't skateboard. I don't know how to do that!
+- The Internet gives the public a chance to see what the real deal is! There ain't no hiding.
+- I don't represent anybody and I don't hold anything at such a high arc that I gotta manage by somebody's rule. I don't ever do good with rules.
+- I can't change me and I can't change other people's thinking. All I can do is continuously get better. So if I'm doing that, even if somebody doesn't like me or respect me, I don't care.
+- Vanilla Ice sold ten million records. For him to be on MTV, it made me feel like it could be done.
+- Icons speak icon language.
+- I used to play video games and all that, but I don't really play video games that much.
+- I've always freestyle-d and did random songs.
+- Regardless of anything I say, some people try to take the fact that I'm an artist away from me.
+- I can remember being a kid and watching Vanilla Ice and it made me smile... I love it. I love that. I can remember seeing Vanilla Ice and then through time he stopped being Vanilla Ice.
+- My favorite book was 'The Giving Tree.'
+- I'm gonna be me. Always.
+- I quit school. I don't do good in following police guidelines or restrictions. For someone to put rules on a genre of music or put me in a category of rap, I can't even see how you can do that.
+- To be truthful, when I'd be on the bus when I was a little kid, like fourth, fifth grade, we'd always be free-styling and playing around.
+- I don't care about perception I care about cars, girls & money.
+- Radio and TV don't have the power like they used to. With the Internet, people can pick. You can't hide talent no more.
+- I love Tom Ford. I love Harrison Ford, too.
+- I'm not, like, 'comedy rapping.'
+- I have country songs, I have rock songs, I have songs that don't even sound like songs.
+- Growing up I loved this brand, and if someone would have told seven year old me that I would be selecting color combos with the originator of Gecko I would have cried.
+- When I was growing up, like from 2003 to 2004, I didn't even go outside, I just watched '106 and Park' everyday. Reruns of it.
+- I'm the Most Lyrically Flamboyant Artist of All Time.
+- I do whatever I feel like doing cause it's in my brain.
+- I'd like to be on the cover of Forbes for 12 months straight.
+- I've had no money, I've had a lot of money, I've lost a lot of money. I've been back and forth with everything. That's why other people's input doesn't really matter to me, because nobody's put me where I'm at.
+- I just know what an icon does, and that's whatever you want to do and it's trendsetting. You know? It's real cutting-edge.
+- If somebody wants to get inside my brain and figure out what I'm chasing, what I'm after think Richard Branson, think Madonna, think Lady Gaga.
+- I didn't finish high school but I feel like if I was in college I could debate with anybody.
+- I've been super-fresh since elementary school. I'd lay out all my clothes, my Jordans right there, I know what cologne I'm gonna wear, my boxers match my socks.
+- Now am I flamboyant? Am I over the top? Maybe.
+- I love wrestling.
+- You can't make somebody buy an album. I buy people's albums though.
+- I mean, I'm about having fun. I'm not about what other people say.
+- I want to stay consistent and drop an album every year, so in the long run, you can see that I'm an actual artist.
+- I hate Los Angeles. I hate traffic. I hate people.
+- My mom was a pilot, and my dad wrestled polar bears.
+- At one point in time I was eating sushi like five days a week.
+- I got a restless mentality, I got to move around.
+- I care about the here and now. I care about what's in front of me. Am I having fun or not? That's all I care about. I just do what I want.
+- Somebody's trying to sell you a Mercedes and he pulls up in a Civic with mustard stains on his shirt, dipping a pretzel in some cheese? Nobody wants to hear what you say unless you look like somebody.
+- I'm the most underrated, most hated, greatest of all time.
+- I'm not one of those rapper guys that spend nights in the studio. I hate being in the studio.
+- Everyone wants to label me, but I don't want to be labeled as a rapper or a movie actor.
+- As a kid, my favorite adventures were to skip school and go into the sewage drains and talk to the turtles and open up packs of Topps Stadium Club baseball cards.
+- I don't even know how to deal with myself so I don't know how to make people happy. I can't even make myself happy.
+- I want to own a hotel, like Donald Trump.
+- There's no right or wrong answer in an interpretation. It's all in the person who's interpreting, and how you feel about something.
+- Whenever Jamie Foxx was on 'In Living Color' and then you saw him sing, it didn't take away from either of those things.
+- I'm from the future, I'm from the past, but I'm also from the present, because I'm a gift.
+- I saw the EDM world and wanted to be in that more than the hip-hop world.
+- Tattoos aren't fun unless you're an idiot. It's not fun to get tattoos.
+- I constantly have people who quit their jobs just to go on the Internet and try to stop me at any and all costs.
+- It goes to extremes - from people saying I'm the best of all-time to people saying, 'I hate that white boy.' Who cares? At the end of the day, if people don't like you, they're not your friends anyway. They're not going to be supporting you by buying your tickets and CDs and clothes.
+- I never wanted to be a rapper. I want to be in the movies. I want to own buildings.
+- People always think I just focus on rap, but I listen to every type of music. If I like a song it don't matter what genre of music it is. I might listen to Duran Duran, I might listen to Sublime, maybe Red Hot Chili Peppers.
+- I need everything first-class. If it's not a private plane, I need everything first-class. Flights, I need hotel suites, I need the best hotel in town, the top of the line best hotel suite.
+- My first tattoo was on my right shoulder/tricep, it says 'The City of H-Town.'
+- I'm not the average person so when somebody sees me it's going to be bipolar: it's one or the other, you're going to love me or hate me.
+- I watched a lot of MTV growing up.
+- I was supposed to have a talk show on MTV.
+- People started hitting me up on Twitter cuz I was getting millions of views on YouTube and WorldStarHipHop.com and they saw me on MTV with Soulja Boy.
+- I've been waiting for the right opportunity to have a sitcom because I've been on TV like 10 times, but it was all reality shows, semi-acting like that.
+- My name is whatever anyone wants it to be.
+- I love country music.
+- I make a lot of money. I wear a lot of jewelry. And the reason I buy so much jewelry is to show you that it's not a joke. You walk around with $20,000 on, you not to be played with.
+- I'm 20 years ahead of social times. What does that tell you? That tells you that when I was four that I was thinking the same as the average human on 24.
+- I've been playing basketball since forever. The highlight of my high school career was scoring 51 points with 13 threes in a game.
+- I like to go one week with braids, and on the eighth day take it down, wash it, condition it. Then every two days wash it and condition it.
+- Harmony Korine is a Rocket Scientist who purposely went on a 8-year vacation to let everyone catch up.
+- Whoever's on TV, that's who's famous back in the day.
+- I've always had great ideas.
+- I don't always get along with people who are super professional.
+- I don't take... I mean I take money and I take life seriously, but I don't take something like music seriously.
+- James Franco is a coach, therefore he doesn't need coaching or guidance.
+- I don't got nobody writing my lyrics and that's why I freestyle.
+- I love MTV. I watched 'Beavis and Butthead,' 'Wayne's World,' 'Yo! MTV Raps.' And they used to have music videos on there. When I got the chance to be on MTV, I took the first opportunity.
+- My dad was like a street basketball player. He had a real mysterious life.
+- You ain't gonna know about me by talking about the past. Haters care about that. My fans, they care about where I'm going.
+- I'm ready for movies, TV and everything. That's what I want to do.
+- It's like this: I've had the same mentality since I was five years old.
+- I'm rap-game James Franco.
+- If I buy a new car, I rip the rearview mirror off because I don't like to look back.
+- Swisha House presented this vibe of candy-painted cars and big chains. I always had a fascination for flashy, expensive things.
+- I drop videos off the cuff... I don't stop.

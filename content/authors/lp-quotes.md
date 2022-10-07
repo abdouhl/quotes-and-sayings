@@ -1,0 +1,75 @@
++++
+author = "Lp"
+title = "Lp Quotes"
+quotes_len = "69"
+description = "the best 69 Lp Quotes"
++++
+- I've written for Rita Ora; I've written for Chiddy Bang - there's been a few.
+- When I wrote for myself before as an artist, I probably wrote about 15, 20 songs a year. I thought that was a lot. Then, when I first started writing for the people, I wrote, like, 65 songs in a year for two years in a row.
+- You could have written the biggest hit song, and all eyes are looking to you to write another one. It's not a thankless job; it's just an endless job.
+- It is very hard leaving home for life on the road. The toll that it takes is actually immeasurable, and you can think all you want about what it does to your relationships, but the way it actually plays out is very deep and very unique to those personalities that are involved.
+- You go to a studio with a guitar, people are like, 'Oh this girl's going to write this song on a guitar.' Or wants to, or whatever. You go with a ukulele, people are just like 'Eh, well, whatever.' They don't really care. It's a very non-threatening kind of instrument.
+- I'm always working my own thing. A few times a week - I try to not go too crazy - I'm working with some other artist. But I'm constantly working my own stuff, and my own stuff seems to come in little bursts.
+- If Hillary Clinton had been president, we'd have had a false sense of security. Trump has brought everything to the light - racism, homophobia. It's one of our darkest points, because we should know better.
+- My thing with New York was that it felt so insular. When I went to L.A., everybody I knew was a cool, amazing musician. In New York, they'd be hunkered down trying to form a band. But in L.A., guys in bands were also playing with other artists, touring with other artists, and collaborating with other artists.
+- I appreciate good work no matter where it's coming from.
+- I'm a very emotional singer and songwriter.
+- If you leave songs sitting around, you do yourself a disservice. You have to put them out there.
+- Every artist wants to connect with the listener.
+- When the major labels didn't work out the first time around, it taught me not to force things. You gotta let it flow.
+- I have a working-class approach to music.
+- I'd love to do something with Bruno Mars because I love his voice and the playful and intelligent way he delivers a song.
+- It's 'LP' personally and professionally. Even my girlfriend calls me 'LP.'
+- It's interesting when you write something for somebody else, and then you're like, 'Oh man, I just laid my whole trip on them, and they don't even know!'
+- I like diversity. I'd like there to be all levels of gay and straight, all different variations of gender, all colors, all creeds. I'm into seeing that.
+- There is a pop element to what I do, but I'm going for a deeper, more left-of-center vibe. That's the sound I've always been looking for.
+- No matter what, if you write a song that's great that everyone expects to be a hit, then everyone's going to be expecting another one from you. If you write a song that no one notices, you're going to want to write one that someone will.
+- When I first got into the major label system, they were like, 'Hey, you're great - now write with a million people so we can get songs.' That was something I hadn't done before, and the songwriters I was working with had worked on some massive numbers - like 'True Colours.' One of the guys wrote 'Livin On A Prayer.'
+- I feel like how I live my life is my own political statement.
+- I would wear sunglasses all the time if it wasn't looked down upon in certain situations. I always thought I'd be someone who wore sunglasses like Roy Orbison.
+- I guess I just feel very comfortable with being myself.
+- I think everybody needs to find out who they are and who their, like, inner superhero is, or who you like to be. The world would be a better place if everyone was doing what the hell they wanted to do and being who they wanted to be.
+- I found New York too... 'vertical,' closed off, I didn't feel the muse like I did in L.A. Maybe it's the weather?
+- I'm very accepting of how people live their lives.
+- I think that people relate on matters of the heart.
+- I know all too well what it takes to have a hit: A little bit of luck, a little bit of work, a little bit of talent.
+- I like to make broader strokes with politics in my work.
+- I look on the outside how I feel on the inside.
+- The first time I wrote a song, I couldn't really believe - 'Can you just do that? You're just allowed?' I never thought about songs on the radio and who wrote them.
+- I write too much to ever keep everything just for myself.
+- I studied Paul Simon's 'Slip Slidin' Away' and 'Still Crazy After All These Years.' I wanted to explore adult themes, portraying the hurt that's in even a good relationship.
+- Pop is like a puzzle: to write a perfect pop song, you never know, and there's so much that can happen in a second with a song.
+- I do rock the sunglasses. To a rude point, at times. But I don't care, it's my first defence. I'm shy, so I've gotta have something. I need some protection, man.
+- If you like it live, you know that you're probably going to like the record, usually.
+- I think one of the people that's done the most for the gay movement is Ellen DeGeneres.
+- I only want to write a song with the people who want to write a song with me.
+- 'Pop' is not a bad word. What's more interesting than changing the chemistry in a room in three minutes with a song?
+- I'm a songwriter-singer. I'm very vocal oriented, of course, but songwriting - no matter whether it's for myself or another artist - is of paramount importance to it all.
+- I was having a nice anonymous little time as a writer. I really was on the writer path. I was sort of minding my own business. I loved making a living in music.
+- I feel like emotional content is the most important of any song, for any artist.
+- With Joe Walsh, that was kind of random. I'd written 'Hi-Roller Baby' for myself while I was at Island/Def Jam; literally, four years later, it got cut. Songs can be around for a long time.
+- I don't think a good singer or a great singer is either of those things without a great song.
+- The two years I spent solely writing for other people kind of took me away from myself.
+- The myriad of ways that a song can be interpreted is astounding to me, and it's part of the allure of writing.
+- I have a lot of stories about being mistaken for a guy.
+- Music really matters in politics.
+- I think I have a different view of what pop is and what can be acceptable in that realm. I feel good about that. I want fans to see that not everything's so black and white with genres.
+- Trying to launch a career as an artist is like trying to run through a crowd holding hands with five people. It's so difficult.
+- I have worked with artists who are super-young and new and experiencing success, and I feel bad because I can see it in their eyes that they truly think that is it for the rest of their life. And I am like, 'It may be, but you have to work at it, and even if you do, it may not be, so enjoy what is going on right now.'
+- I have a retro feel to my work, to my person, but I also have a futuristic view of what's possible. We can have people in pop that have more diverse looks and attitudes.
+- I just want to feel free. If someone feels inspired by it, then fine.
+- When I'm singing my songs on stage, I feel like I'm doing a rock show, even though I don't think all my music is particularly straight up rock.
+- I definitely felt the love from L.A. from the get go. People appreciate good music out here.
+- I feel like Canada is really good at nurturing their artists, and America's not so good at that. The artistic community is so important to a country.
+- It's interesting what a new song can do to the other songs. A new song can be the grout of the record, tie the songs together, and define a new room in the house, helping the other rooms make sense.
+- I'm not looking to be a gay poster child. If you're gay, and I inspire you, I don't want to put that down. But I'm not looking to be your gay savior.
+- Jeff Buckley songs are kind of random but so catchy.
+- Songwriting is what I am trying to stay good at and get better at.
+- The thrill of writing songs for other people, when you get that right, that person's soul speaks to that song; you've done them a favor and the world a favor. That's what writing is all about - you're always trying to get the real picture.
+- 'Girls Go Wild' was born out of a Joshua Tree excursion with some close friends after coming home from a long bit of touring.
+- My mom died before she knew I was gay, and my dad thought it was a phase, then realized it wasn't.
+- When I see someone great live, what I think is, 'I can't wait to hear the record.'
+- To me, rock and roll is not a perfect science.
+- I do have a little setup at home. I use Pro Tools and a Neumann mic. Neumann's are my favorite.
+- I was done with my second major label deal, and I was doing a lot of urban sessions, and I had an acoustic itch. And you know, I picked up a ukulele. I always wanted one. And it just resonated with me. I would wake up with this uke in my hand. For me the ukulele just opened this door in my heart.
+- I think Pride, it means ultimately, finally, being able to live with freedom in some ways. Or, at least, that's what we're striving for.

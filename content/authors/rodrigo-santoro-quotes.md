@@ -1,0 +1,26 @@
++++
+author = "Rodrigo Santoro"
+title = "Rodrigo Santoro Quotes"
+quotes_len = "20"
+description = "the best 20 Rodrigo Santoro Quotes"
++++
+- I actually have a piece of the wardrobe of most of the characters that I've played. I always ask for something.
+- I tend to - every time I step onto the set until the time I go back to the hotel, I just try to be in character all the time.
+- My mom and my dad are still together, but so many of my friends who got married just a few years ago aren't. Maybe it's that we compare ourselves to our parents' generation, thinking, 'Who's still together, and are they happy?'
+- I love both the sun and the moon, day and night. But I enjoy the day the most because I live in Rio and I can play sports.
+- In film, you're always using your tools, your body, your voice, your emotions, but onstage, you use them in a different way.
+- When you shoot a movie, the camera is always taking, taking, taking and not giving anything back.
+- I take a role because it makes sense to me, rationally.
+- I never make a choice thinking about the results. I'm never gonna take a role or a project thinking where this could - what this could bring me or something like that, because you've got no control about anything, actually.
+- In life, usually, even if you live in a big city, you can count on your fingers on one hand how many real friends you have; that's human.
+- I am very fortunate, very grateful for everything that has happened to me, everything I've done, all the opportunities, so I'm very happy.
+- When you act against a blue screen, you have to imagine what's not there.
+- I need to surf - surf and yoga. Whenever I'm in L.A., I go down to San Diego to surf for the weekend, and I always come back perfect.
+- I don't want to be in a position where I'm playing roles I'm comfortable with and making money, but doing it without feeling like I'm growing.
+- It's hard, the green screen; it's a different way of working.
+- Definitely as an actor, the experience you have, at least I'm talking for me, my experience as an actor is you go to the set and know what you're going to do, know your lines, you rehearse, you do your scene, you go back home. As a producer, for the first time I saw the whole picture in a completely different way.
+- Sometimes in Brazil, I work harder to make characters different and believable and to overcome the persona I have.
+- The distance, being far away from your home, from your family, that's not easy. There are times when you say, 'Wow, what a fight, what a battle.'
+- There is a friend of mine that is very into the comic book world, and he showed me '300,' and I looked at it, and I said, 'Wow, that could be a great film.'
+- When I walk around, I look at people and observe people.
+- I'm a spiritual person. I'm not very religious. I was raised Catholic, but I am influenced a lot by Buddhism and Hinduism.

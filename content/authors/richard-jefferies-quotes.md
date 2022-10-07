@@ -1,0 +1,46 @@
++++
+author = "Richard Jefferies"
+title = "Richard Jefferies Quotes"
+quotes_len = "40"
+description = "the best 40 Richard Jefferies Quotes"
++++
+- Now is eternity; now is the immortal life.
+- The workman in the true sense of the word - the artist in guns - is either extinct, or hidden in an obscure corner. There is no individuality about modern guns. One is exactly like another.
+- Do you always do as you would like to do were it in your power? I find that circumstances force me often to act in a manner quite opposite to what I should prefer; I am, of course, judged by my acts, but do they really afford a true key to my character? I think not.
+- The old Greeks dwelt on the tendency of human affairs to drift downwards irresistibly to unhappiness. Guilt - that is, untoward and often involuntary actions - pulls generation after generation heavily as lead down, down, down.
+- There are people in this servile world who will endure any trampling, and at the first beck rush delightedly to proffer their assistance.
+- The cottages erected by farmers or by landlords are now, one and all, fit and proper habitations for human beings; and I verifly believe it would be impossible throughout the length and breadth of Wiltshire to find a single bad cottage on any large estate, so well and so thoroughly have the landed proprietors done their work.
+- When even the most strictly logical mind looks round and investigates the phenomena attending its own existence, perhaps the first fact to attract attention by its strongly marked prominence is the remarkable loneliness of man. He stands alone.
+- The heart has a yearning for the unknown, a longing to penetrate the deep shadow and the winding glade, where, as it seems, no human foot has been.
+- The heart looks into space to be away from earth.
+- The impression left after watching the motions of birds is that of extreme mobility - a life of perpetual impulse checked only by fear.
+- If every plant and flower were found in all places, the charm of locality would not exist. Everything varies, and that gives the interest.
+- An inspiration - a long, deep breath of the pure air of thought - could alone give health to the heart.
+- Every woman likes her own way, but no woman can endure to see another woman master even over a man who does not concern her.
+- It is easier to speak to those who have had similar experiences than to those who are as yet ignorant.
+- Give me power of soul, so that I may actually effect by its will that which I strive for.
+- I believe in the human form; let me find something, some method, by which that form may achieve the utmost beauty.
+- Many labourers can trace their descent from farmers or well-to-do people, and it is not uncommon to find here and there a man who believes that he is entitled to a large property in Chancery, or elsewhere, as the heir.
+- No tyrant, however evil, has yet lacked ready hands to execute his most abominable will. To read how eagerly men have rushed to serve the despot is the bitterest, the saddest matter of history; it is the saddest sight in our own day.
+- It is quite true that women like courage, and that boldness often goes a long way; but it is questionable whether with high-bred natures a subdued, quiet, and delicate manner does not go still further.
+- Look at another person while living; the soul is not visible, only the body which it animates. Therefore, merely because after death the soul is not visible is no demonstration that it does not still live.
+- Some, I verily believe, delight to be slave-men; it is a joy to them, and they would not change their condition; not only miserable village wretches, but men in good position, well-to-do sycophants.
+- A kestrel can and does hover in the dead calm of summer days, when there is not the faintest breath of wind. He will, and does, hover in the still, soft atmosphere of early autumn, when the gossamer falls in showers, coming straight down as if it were raining silk.
+- Beauty - what is beauty, forsooth? Form and color; that is, surface only. Fortune - what is fortune? Nothing is ever a pleasure or a real profit to him who has to labour for it. Truth - you die in the pursuit, and the sea beats the beach as it did a thousand years ago. The stolid are alone happy.
+- Almost every labourer has his Sunday suit, very often really good clothes, sometimes glossy black, with the regulation 'chimney pot'. His unfortunate walk betrays him, dress how he will.
+- I desire a greatness of soul, an irradiance of mind, a deeper insight, a broader hope.
+- A woman can see a woman so clearly - faluts, excellences, details - all are so clear to her.
+- It would seem that the ant works its way tentatively, and, observing where it fails, tries another place and succeeds.
+- Ever since the world began, it has been the belief of mankind that desolate places are the special haunt of supernatural beings.
+- This sunlight linked me through the ages to that past consciousness.
+- A man, to read, must read alone. He may make extracts, he may work at books in company; but to read, to absorb, he must be solitary.
+- Science, as illustrated by the printing press, the telegraph, the railway, is a double-edged sword. At the same moment that it puts an enormous power in the hands of the good man, it also offers an equal advantage to the evil disposed.
+- The 'crownd' is still the unit, the favourite coin of the labourers, especially the elder folk. They use the word something in the same sense as the dollar, and look with regret upon the gradual disappearance of the broad silver disc with the figure of 'St. Gaarge' conquering the dragon.
+- The lover of nature has the highest art in his soul.
+- To the darkness and the night, the spirits seem to have a natural claim - it is their realm; the boldest of us have sometimes felt an unaccountable creeping in the thick darkness.
+- It is injurious to the mind as well as to the body to be always in one place and always surrounded by the same circumstances.
+- That I may have the soul-life, the soul-nature, let divine beauty bring to me divine soul.
+- Is there anything so delicious as the first exploration of a great library - alone - unwatched?
+- To the soul, there is no past and no future; all is, and will be ever, in now. For artificial purposes time is mutually agreed on, but there is really no such thing.
+- Grief falls upon human beings as the rain, not selecting good or evil, visiting the innocent, condemning those who have done no wrong.
+- The labourer's muscle is that of a cart-horse, his motions lumbering and slow.

@@ -1,0 +1,80 @@
++++
+author = "Rebecca Traister"
+title = "Rebecca Traister Quotes"
+quotes_len = "74"
+description = "the best 74 Rebecca Traister Quotes"
++++
+- One of the favorite conservative themes is that the cure for poverty is more marriage and earlier marriage. We hear that all the time; there have been billions of dollars now, between the Bush administration and the Obama administration, which has continued the marriage education program, on trying to get more people to get married.
+- I had thought a lot about unmarried life during my years as an unmarried woman - which was all during my 20s and into my 30s. I was someone who didn't have a ton of relationships as a single person - and so I had a sharp identification with singlehood.
+- There are all kinds of ways in which especially white men in this country have been helped by the government.
+- It's a controversial issue: many feminists reasonably worry that by taking the concentration off gender as an independent locus of oppression, we dilute the strength of a women's movement, or of women's rights advocacy.
+- Single female life is not prescription, but its opposite: liberation.
+- Women are living independently, but we don't yet have the social and economic policies behind us to support that independence.
+- Yes, there have been women in comedy. Moms Mabley was one of the earliest. She was an African American comedian; she often dressed up as an older, disheveled woman.
+- Roseanne was a huge groundbreaking comedian. Margaret Cho. Ellen DeGeneres, and then on 'Saturday Night Live,' the era of Tina Fey and Amy Poehler sort of helped to bring in an awareness of a new generation of women comedians, often women who were feminist in their comedy, who were unafraid - and this came from the genre of show that was emerging.
+- There are a whole bunch of structural and systemic factors we need to address in order to move away from the model in which women really are still dependent on men.
+- The women's movement in the 1970s led more women into the workforce and got them closer to pay equality.
+- Marriage has been a way of attempting to ensure the replication of power and wealth from one generation of another, passing it down from men to men.
+- Like everyone else, I can barely take the waves of embarrassment that come with watching someone do something so badly. Roseanne Barr singing the national anthem, Sofia Coppola acting in 'The Godfather: Part III,' Sarah Palin talking about Russia - they all create the same level of eyeball-squinching discomfort.
+- A very successful woman, Palin has the wherewithal to move forward consciously. What she did was move forward thoughtlessly and overconfidently, without considering that her abilities or qualifications would ever be questioned.
+- My favorite moment of the 2012 election was the debate question where they asked Romney and Obama what they would do to stem gun violence, and Romney's answer was you should marry someone.
+- Though Hillary Rodham married Bill Clinton 11 years after Camille Hanks married Bill Cosby, and after having earned her own law degree, the terms of her marriage were also shaped in their own way by a presumption of a husband's centrality and a wife's subsidiary nature.
+- After Emancipation, black women married earlier and more often because they were legally free to do so for the first time, and that was true until after World War II. But middle-class white women married less and later.
+- For inspiration, we still demand the rhetorical high notes. Clinton has hit them before, in her speech in Beijing as first lady when she said, 'Women's rights are human rights,' and in her 2008 concession speech, when she talked about the '18 million cracks' in the glass ceiling.
+- Plenty of the women who were single in the nineteenth century wrote about their desire to evade marriage. Marriage was scary in a lot of ways. It often involved having a lot of kids, losing your autonomy, being in service to a husband and children who were often born at an unremitting pace without the benefit of modern medicine.
+- 'Marriage' was not that big a deal, to be honest! I mean, it makes life easier for technical reasons: insurance, next-of-kin stuff, joint tax filing, etc. The real shocker was falling in love with the man I'm married to. I was 32 when we met, and I had really never been in a functional relationship before, had never been deeply in love.
+- I think that technology - computers and smart phones and 24-hour availability - often leaves me, and others I know, feeling blank and depressed at the end of a day. I also believe that hyped expectations for raising children leaves many women and men feeling as if their days are a blur of carpools and play-groups and tutors.
+- Single women will get us closer to gender equality, and that will take many forms, including a reimagining of what families entail and what it means to have a full female life. Also, their presence will force the government to support a population of independent women more capably.
+- By the time Clinton graduated from Yale Law School, many people, including her boyfriend Bill, believed she could, and should, embark on a political career. She'd given the Wellesley commencement speech that had earned her a 'Life' write-up of her own.
+- 'The Cosby Show' was a show about black people that was fundamentally and unequivocally friendly to whiteness and to white people. The Huxtables had white friends.
+- I wasn't remotely ambivalent about marrying the person I was marrying, but I was 35. I was deep into my adulthood, and I identified as single.
+- Look at somebody like Margaret Sanger, who was married young and had kids but then left her husband and wound up living a kind of single life as she got into the founding of what would become Planned Parenthood.
+- The first big impact that feminism in the 1960s and '70s had was a big divorce boom in the '70s and '80s. That, in part, had an impact on how the children of that divorce boom viewed marriage.
+- Hillary Clinton must have been as aware as anyone that by entering the presidential race she was kicking off a long-awaited social experiment.
+- Throughout America's history, the start of adult life for women - whatever else it might have been destined to include - had been typically marked by marriage.
+- Scores of African-Americans have written both appreciatively and critically about what 'The Cosby Show' meant to them over the years.
+- The lack of marriage is being blamed for almost every social ill - whether it's gun violence, whether it's poverty, whether it's the dropping birth rate.
+- In 220 years of American presidential politics, there had been no serious female major party contenders, though women had been campaigning for the presidency since before they could vote, starting with Victoria Woodhull in 1872 and Belva Lockwood in 1884.
+- White people loved 'The Cosby Show,' especially liberal white people. They loved it because it was a great, funny, well - written, and beautifully performed television show.
+- You know how few movies there are in the world about women and their work? I mean, it's like 'Silkwood' and 'Erin Brokovich.' There are exceptions, but they are so exceptional.
+- It's important to remember that, while poverty certainly makes single life harder, it also makes married life harder - so much harder that single life might be preferable.
+- In 2013, according to the Bureau of Labor Statistics, around 64 percent of mothers with children under six worked.
+- When I say, 'The choice to not marry,' that doesn't always translate into, 'I am a woman, and I am deciding that I am not going to get married,' or 'I am rejecting marriage.'
+- There are all kinds of ways in which women, together, change the world. And I don't mean that in a cheesy way. I'm not somebody who believes all women should support each other. I believe very strongly in women critiquing each other, just not critiquing each other more intensely because they're women.
+- The diminishment of southern contests is the kind of veiled racist rhetoric that Bill Clinton deployed memorably in South Carolina in 2008, and which does not look any more attractive on Bernie - the guy whose campaign is centered on the premise that he plays cleaner and more progressive politics than his opponents.
+- In some ways, privileged women who are closer to power wind up being able to exert their influence in ways that change public policy in ways that women with less power don't have access to.
+- During childbearing years, changing jobs - even for a fundamentally better gig - can be a very bad idea. Those prime childbearing years - mid-twenties to early forties - overlap precisely with prime professional years. This is when employees are most attractive to new employers, when they should be able to zip up ladders with the most alacrity.
+- Bill Clinton had to propose to Hillary Rodham several times before she agreed to marry him and move to Arkansas.
+- In 2008, Clinton and Obama were similar politicians. Obama was definitely advertised as the more progressive candidate, and that's part of why more progressive people - including women - went for him.
+- There is not a special place in Hell for people who didn't support Sarah Palin. Do you know what I mean? It's ridiculous. And there is certainly not a special place in Hell for women who don't support Hillary Clinton.
+- The contest between Hillary Clinton and Bernie Sanders offered such a bright and bracing contrast to all those professional wrestlers emerging from the RNC's clown car.
+- More women than ever are having babies at the peak of their careers. When will we stop punishing them for it?
+- The vast majority of women who marry still take their husband's name. And I'm not vilifying that behavior! But that's a pattern where women are truly still taking on their husbands' identities.
+- Women's roles in the movies remain, for the most part, girlfriends, mothers, wives.
+- In the nineteenth century, in part because a ton of American men moved west, in part because of the Civil War, and in part because of trepidation about marriage, which was then a very confining institution, there was a big population of women - mostly middle-class white women on the East Coast - who didn't marry.
+- One of the things that gets confused often is the difference between marriage and good marriage. Marriage is a theoretical concept of the institution, and 'you should be married,' is actually meaningless. Marriage is pretty meaningless without the notion of having a specific person to whom you are married.
+- All the epic allusions contribute to the difficulty Clinton has long had in coming across as, simply, a human being. She is uneasy with the press and ungainly on the stump. Catching a glimpse of the 'real' her often entails spying something out of the corner of your eye, in a moment when she's not trying to be, or to sell, 'Hillary Clinton.'
+- I'd spent my whole adult life considering myself an independent entity, my life filled by work and friends and family. Suddenly I had a male partner, someone I woke up with and went to sleep with every night.
+- Obama has proved to be particularly adept at using the media to disseminate his administration's messages, but he is a masterful orator. Bill Clinton, too.
+- In 1965, Cosby had become the first black man ever to star in a prime-time television show; he was conscious enough of his non-dissolved, traditional nuclear family that he made it the foundation of his public persona, his comedy act, and eventually of his blockbuster sitcom.
+- In 2009, the proportion of American women who were married dropped below 50 percent.
+- In 1947, the year Clinton was born, there were no women serving in the Senate.
+- 'The Daily Show,' which was created by women, Lizz Winstead and Madeleine Smithberg, has earned quite a bit of ink for the fact that it's written mostly by men.
+- One reason that we have collectively plugged our ears against a decade of dismal revelations about Bill Cosby is that he made lots of Americans feel good about two things we rarely have reason to feel good about: race and gender.
+- Up until 1920, women couldn't vote. Until 1974, married women couldn't get their own credit cards or, in some cases, their own loans. Basically, the husband's professional, social, and economic identity covered the individual identity of the wife.
+- It was impossible for Hillary Clinton to have chosen a path to the White House that bypassed the loathing, jeering derision and gendered stereotyping built on two centuries of male power. What was interesting was how hard she tried to do just that.
+- Camille Hanks, whose upper-middle-class parents both had college degrees, was a student at the University of Maryland planning on a teaching career when she met Bill Cosby, who was seven years her senior.
+- Since the late 19th century, the median age of first marriage for women had fluctuated between 20 and 22. This had been the shape, pattern and definition of female life.
+- Changing professional expectations and technological tools have created an impossibility of balancing work and life.
+- Our government and its social policies, its tax breaks, the way school days work, so much of the country we live in is built for married couples with a male breadwinner and a female domestic laborer. Government needs to be massively altered in order to serve this population.
+- In 1970, the average woman had her first child at 21.4; by 2012, it was almost 26, an age by which many young adults are at least a few years deep into jobs or careers.
+- Being able to control your reproduction is essential to women's ability to flourish in the United States.
+- There is a kind of woman who is economically powerful, professionally powerful, who threatens a white male grip on power that has a long historic precedent in the country. Independent women living outside of marriage threaten all kinds of things about the way power is supposed to work.
+- When lawmakers start to make laws that hurt single women, often the women that they're hurting the most are not the economically powerful ones. They're not Sandra Fluke. They're not Lena Dunham, who conservatives hate more than anybody. They're hurting low-earning single mothers.
+- 'Living Single' was on in early 1990s - the show about Queen Latifah living with a bunch of friends. And then there's 'Friends,' and that's called the groundbreaking show about unmarried adults living in New York!
+- There may be many benefits to working outside the home for wages, but it's certainly not been done as an act of liberation. It's an act of economic necessity and has been since the beginning of time.
+- 'The End of Men' was an incendiary title, but the actual book was very sympathetic to men. It was very invested in a lot of the challenges men are facing with unemployment and the economy changing because of technology.
+- In 2008, I started the election season as a critic of Hillary Clinton, a fan of Barack Obama, and a supporter of John Edwards. But by the end of Clinton's historic drive toward nomination, the gendered rhetoric used against her - as well as the way so many men in my own party diminished the value of electing a female president - had radicalized me.
+- I think a lot of divisions of perspective and experience that happen within feminism are very natural. Any movement that represents the interests of 51 percent of the population is covering such divergent experiences, perspectives, and priorities that, if you're doing it right, people are going to be arguing within it.
+- By demanding more from men and from marriage, it's single women who have perhaps played as large a part as anyone in saving marriage in America.
+- Blogs with feminist content, from 'Feministing' and 'Jezebel' to 'Racialicious' and 'Shakesville' and 'Feministe,' have opened up and changed the scope of the feminist universe for women who might never have encountered contemporary feminism.

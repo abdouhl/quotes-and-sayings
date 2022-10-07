@@ -1,0 +1,17 @@
++++
+author = "Casey Nicholaw"
+title = "Casey Nicholaw Quotes"
+quotes_len = "11"
+description = "the best 11 Casey Nicholaw Quotes"
++++
+- I was in 'Seussical,' and I was in a cage onstage in a purple yarn suit singing backup, and I was like: 'I've had it. I can't do this anymore.' I will say for the record that I did love the show, but I was like: 'I want to do something else. I need a little more.'
+- I look around at people who had success so early and then didn't know what to do with themselves.
+- I went to UCLA for a year and a quarter. There were too many students at UCLA interested in what I was interested in, and they couldn't accommodate all of us. I wasn't allowed to take voice or dance, only theater and acting. So I saved my money and, at 19, moved to New York.
+- I was in eighth grade when I did my first Junior Theatre show. I was in 'Annie Get Your Gun' as a dancing Indian.
+- Bouncing ideas off people when you're thinking up comedy is great.
+- Sometimes you feel like people go, 'Oh, he just does funny dances,' or 'That's cute.' It drives me a little crazy when someone does a dance number where all they do is kick to their head for five minutes, and everyone's like, 'That choreography is amazing.' It takes a lot to choreograph a number that also gets laughs in it.
+- I was always bossy as a kid. I made my friends do shows that I wrote and would take them on tour from house to house.
+- I have a Tony Award now. It hasn't changed too much in the theater world, but it gives me entree for film stuff and TV stuff, where people will see me more easily now because they know me.
+- I moved to New York and couldn't get a job as an actor. And waited tables for so long.
+- In '92, I got my first Broadway show as a performer - 'Crazy for You.' I was in the ensemble. In fact, I was in eight Broadway shows as a dancer. Seven of them were original shows. That's how I learned to create something from the ground up.
+- It blows me away that my parents, they really weren't much into theater, but they recognized that in me. When I think about the things they did to support that, I'm blown away.

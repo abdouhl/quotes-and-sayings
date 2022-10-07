@@ -1,0 +1,106 @@
++++
+author = "Leigh Bardugo"
+title = "Leigh Bardugo Quotes"
+quotes_len = "100"
+description = "the best 100 Leigh Bardugo Quotes"
++++
+- The characters in Six of Crows' aren't kings or queens; they don't have grand destinies. They're just six kids desperate enough to attempt the impossible.
+- I like alphas. I like bad boys. I like a guy with a protective streak.
+- The one part of the Wonder Woman' story that never really did much for me was Steve Trevor.
+- The two genres that probably take the most flack in literature - they are young adult and romance right now. I don't think it's a coincidence that these are genres that provide places for women to express desire and love for adventure, for the opportunity to be placed to heroic roles.
+- My relationship with Twitter has evolved as my career has changed. The truth is unless you have a remarkably thick skin, as a creator, it's a very difficult place to be.
+- I think there's tremendous power in the images we associate with Russian culture and history, these extremes of beauty and brutality that lend themselves to fantasy.
+- A lot of my favorite books have been adapted horribly.
+- Joe Trapanese did our score, and when he was first brought on to the project, he and I met up at a coffee shop. I remember just being like, 'I have many files for you.' So we sat there and just exchanged our favorite tracks like the nerds that we are. I subjected him to me singing a Ravkan folk song that is actually in Rule of Wolves.'
+- I had wanted to be a writer for a very long time, and I had started a lot of books and failed to finish them. I had this terrible pattern of beginning manuscripts and then just losing steam, and I had begun to believe that I just didn't have it in me.
+- Well, the thing that I realized - I had this very happy, rosy memory of Yale. And I had even described it in the past as my Hogwarts.
+- To me, beauty is a commodity and that's the way it's treated in my books. It has power, and though that power is limited, some characters understand that better than others.
+- In Shadow and Bone,' Alina's race is never specified. But that entire book is basically built on a white default. My life has never been entirely white or entirely straight, so I had to really step back and question why I'd chosen to write my first novel that way.
+- If Connecticut is haunted then New Haven is the weirdest of the towns that is haunted.
+- YA readers are just not rigid about genre. They're all for the mash-up.
+- Even if you are lucky enough to sell a trilogy, you don't know if you'll ever get to write that whole trilogy. I have many friends who had very long arcs planned in multi-book series that they never got to write because the first book didn't perform.
+- When I was writing Shadow and Bone,' I really had no confidence as a writer. I had never finished a book before and I desperately wanted to finish a book for the first time.
+- When people write about secret societies, there is a desire to demystify them. I wanted to hyper-mystify them.
+- It's all well and good to turn in a beautiful poetic phrase that ends up on a pillow but I want there to be a visceral response to what I write.
+- I think heroines would be pretty boring if they were perfect all the time.
+- I think being a freelancer really taught me to hustle and gave me respect for anyone who puts it on the line every day for something creative.
+- I think in YA there's sometimes a temptation to create heroines who are infinitely resilient and wise and confident because those are the behaviors we want to see teens embrace and maybe we want to see those things in ourselves.
+- I like to say that I always have a whole book in front of me. I write down the major beats, the major action moments or emotional moments. In theory, that's a book - it's just one page long. Then I start to go back and fill things in.
+- Books are in a constant battle for attention in a very crowded media scape.
+- If you're a particular kind of kid who hasn't found your tribe, which most of us don't until later, that's what books become.
+- Here's the thing, we talk about diversity in the media as if it's some weird artificial construct that we're putting onto these narratives. But it isn't. Our world is not homogenous. It is not all straight or white or able-bodied, or if it is, maybe you should make some new friends. That is not what our world looks like.
+- 'Shadow and Bone' was the first. Siege and Storm' was challenge and surprise. Ruin and Rising' was the opportunity to see a story through to its end.
+- Most of the female characters I admire come from science fiction and fantasy, maybe because there's more permission to shake up gender roles in genre.
+- I was a huge theater nerd when I was younger, so I was in a bunch of school musicals - Working,' South Pacific,' Fiddler on the Roof,' a very weird little operetta called Charlotte Sweet,' Nine,' The Wiz.'
+- I was one of those kids who looks really good on paper, I tested very well, I went to a fancy college, won some prizes. When I came out of school, I had many horrible jobs, but I didn't know what the path was to a creative life or the life of a writer.
+- I love the standard fantasy setting of Medieval England and Medieval Europe, but I wanted to go somewhere different.
+- Fantasy novels give this illusion that the stakes are as high as they feel when you're a teenager. But I think for teenagers they actually are that high. I think you really are dealing in a world of tremendous cruelty and intensity, and YA gives truth to that.
+- I think I'm always interested in the people who aren't generals or master spies or royalty. The people caught in the crossfire.
+- YA fiction tends to have a finite quality. You're looking toward a goal - prom or graduation or revolution - and we leave these characters after a moment of tremendous transformation.
+- 'Shadow and Bone' was my first book, and I think I was unconsciously echoing a lot of the fantasy that I had grown up with, which sets a kind of default for straight white characters. And that's something I've tried to improve on as I write, to write more authentically and reflect the people around me in the world, around me more realistically.
+- I want to be really clear about something: I think we kind of fetishize the creative life. We have the vision of what it means to be an author, where you sit in your garret or looking out at your view and you give everything to your art and you commit fully to it. But the reality is that most of us have bills to pay.
+- I'd like to say I'd be a Heartrender. I'm quite bloodthirsty and I look great in red.
+- I cannot shapeshift into an animal. But I can shapeshift into a drunker person.
+- Ravka has a very particular identity among the countries of the Grishaverse. It's surrounded by enemies. It has spent hundreds of years in near isolation because of the Shadow Fold. It is very much a garrison state so there's a tremendous desire to survive, but there's also a kind of soul-deep shrug that goes along with Ravkans knowing the odds.
+- My great heartbreak was completely botching my callback for Herod in Jesus Christ Superstar' in college.
+- I'm hesitant to ascribe too much to luck because I think women have a bad habit of doing that. At the same time, there's no question that I entered the market at the right moment.
+- I'm always the kid who is going to be finding out if there is a cemetery or an abandoned amusement park that I can go visit as opposed to the beach, so it wasn't too much of a stretch to get me to the world of Ninth House.'
+- The people who live lives that are the most dangerous don't usually come in twirling a mustache rubbing their hands menacingly saying 'I'm an evil genius.' They're people who are charismatic, charming and appealing, who speak to some part of us that makes us want to follow them, that makes us attracted to them.
+- When you start dictating culture, money gets involved and people take notice.
+- I write very much from what I want to see, and the hardest projects are projects where you lose track of that.
+- I don't like writing grand battles and I find it tiresome to research weapons development and military strategy.
+- Fantasy is expensive. It's an expensive endeavor. I have to admit, I didn't write with adaptation in mind. So the books simply become more outlandish as they go on, and they're full of a lot of locations and elaborate set pieces.
+- Reading, like writing, was a survival strategy when I was young because these were ways of feeling that my world could be much larger than it actually was. It was inevitable that I would end up writing sci-fi or fantasy.
+- Let women write horror. Let women write darkness, let women write trauma, without having to carve out their own trauma to justify it.
+- Let go of the idea that somehow you can outsmart a first draft. Because I have never met anybody who can.
+- And I'm a huge George R. R. Martin fan.
+- It is a challenge to write in the real world once you've had the advantage of being able to create your own world.
+- Look, I don't think villains are interesting when you can't tell where they're coming from.
+- Every time you see someone saying a character's too this or too that, those are the things that make a character.
+- There's so much power in the idea of becoming monstrous. I think we see that in the way some women and girls choose to adorn themselves now. They don't care about being pretty or palatable. They paint their lips black, dye their hair green, file their nails into claws.
+- I'm very fickle when it comes to genre. I read YA, non-fiction, mysteries, romance. I'll read anything that comes with a strong recommendation.
+- Netflix was like, 'We want all the books!' So, thank you, Eric Heisserer. But I was really nervous at first. It's one thing to hand over the keys to one trilogy, but it's quite another to hand over the keys to 10 years of work.
+- I have degenerative bone disease and I walk with a cane. And when I wrote Six of Crows,' I went out on tour, and I met a lot of readers who would say, 'Oh, I don't know why, but I pictured Kaz as being an old man at first.' And I thought, of course you did, because the only people we see with mobility aids in media and in culture are old.
+- Power in superhero stories and in magic, when people use it, it drains them. It makes them more tired or it drains them. I wanted power to feed the people that used it. I wanted it to make the people who used it stronger, more powerful, and beautiful. That was one of the tents of being a Grisha.
+- I've gotten very used to falling off of things. It's almost like that's my skill! I'm great at falling down and getting back up.
+- 'Ninth House' is my first book for adults.
+- 'Shadow and Bone' is a fantasy set in a country inspired by Tsarist Russia that has been literally torn apart by a swathe of nearly impenetrable darkness.
+- I had wanted to be a writer for a very long time, but I had no talent for finishing books. I would start them, get about 20,000 words in, and come to a screeching halt, because I had no idea how to outline a story or what my own process as an author was.
+- Certainly, I had a wonderful push from my publisher and got very lucky. I'm very aware of what it means to have a publisher back you. But your job as a writer, no matter what else is happening, is to continue to produce work-whether you're succeeding or failing.
+- I had soaked up all of these ideas about what it meant to be a creative person from media and culture. And I had this idea in my head that if this was your calling it was supposed to be fun. It was supposed to feel good to wrestle with a blank page. And imagine my surprise when it wasn't fun at all.
+- You have to remember that Shadow and Bone' was the first book I sold. And it was, in fact, the first book I ever finished writing, despite many attempts before that to finish a novel. And when I was writing it, I didn't know if anybody was going to buy one book, let alone all three.
+- I am keenly aware of how many people the Six of Crows stories' brought into the Grishaverse, and to me, the story of the Crows, of Kaz and his crew, provides a very different kind of story and point of view, than Shadow and Bone' and Alina's story.
+- I don't believe that a page-by-page adaptation is necessary or interesting.
+- Making the New York Times' list is the kind of thing you don't even let yourself imagine because it seems so unlikely, so it was incredible to actually see my name there.
+- It wasn't until I picked up Neil Gaiman, Diana Wynne Jones and Stephen King that I found there were people who were like me.
+- Third books are a scary thing. They come with the weight of so much expectation, and I've been keenly aware of that.
+- There's been so much hunger for dystopian in the YA world, I really wasn't sure how Shadow and Bone' would be received.
+- If you were to just slap together Six of Crows' and Shadow and Bone,' it really wouldn't work.
+- And I desperately needed books that would take me out of my environment and show me a world where being smart and brave and prepared was more important than being cute or cheerful or knowing the right thing to say. And that's what science fiction and fantasy gave me.
+- I think Ruin and Rising' is the best written of the three and the most structurally sound, but each book means something different to me.
+- I'm pretty sure Magic Mike' is the best funded gender studies thesis ever so I'm going to have to see that.
+- When I was a kid, I was pretty obsessed with 'The Princess and the Pea.' I'm still not sure why. Something about that image of twenty featherbeds and twenty mattresses? It's not a story with a lot of psychological resonance so apparently kid me just wanted a magical trip to Ikea.
+- The stories we tell each other and the stories we tell about heroism, about magic, about faith - those things say a lot about who we are and the kind of lessons that we wanna convey to our children.
+- If you have an idea, pursue it.
+- After the Grisha Trilogy, I think I was a little burned out on 'chosen one' narratives and I wanted to take a big step away from that.
+- I am so clumsy! Like I fall off of bicycles.
+- It was important to me that my heroes not be all good and my villains not be all bad.
+- I started reading fantasy and science fiction and writing fantasy and science fiction when I was - when I started junior high school.
+- Sturmhond, a privateer from the second book in the series, Siege and Storm,' is probably my favorite character. He's pure confidence and that's always fun to write.
+- I was 35 when I started writing Shadow and Bone,' and my only goal was to finish a book because I had never managed to do it.
+- When I did the zero draft for Six of Crows,' it was a very organic process.
+- There is this really tight relationship between horror and shame. And shame is in all of my books as the biggest monster. And horror is all about creating a metaphor for something you can't face That connection is super powerful for me.
+- When I see someone deride things that women and girls find pleasure in, all I see is someone fearful that women will overtake the culture they've had dominion over for so long.
+- We aren't always comfortable witnessing real frailty or vulnerability in our heroines, but I like characters who struggle, and doubt, and who don't always do the wise thing.
+- I mean, I am an easy crier.
+- I was in Wolf's Head, one of the ancient eight.
+- Teenage girls have so much sway over culture, yet people sneer at the things that women and girls love, and are contemptuous of the creators of that content, particularly if they are women.
+- At least when I was a kid and a reader, I loved the feeling of wondering whether or not something was real, being able to look up connections.
+- I didn't publish my book until I was 37. So the ability to pay my bills, pay my rent, make a life for myself, and become a working writer was a puzzle that took me a while to solve.
+- Things that are dark and close to the other side are what bring me joy.
+- Publishing and film are such different worlds for writers.
+- In our lives, we will all have a moment where we have to learn to hustle.
+- When I created the Grisha, it was important that they be powerful but that they kind of represent the Jewish brain trust that developed before World War II and after World War II in the U.S.
+- There were times in the writing of Ninth House' where I thought, have I gone too far?'
+- I'm not interested in a world without magic.
+- I think - I hope - I became a better writer as I've worked.

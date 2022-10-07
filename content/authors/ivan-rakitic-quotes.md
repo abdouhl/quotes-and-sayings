@@ -1,0 +1,24 @@
++++
+author = "Ivan Rakitic"
+title = "Ivan Rakitic Quotes"
+quotes_len = "18"
+description = "the best 18 Ivan Rakitic Quotes"
++++
+- The hunger doesn't diminish when you win something. If you have the chance to win the European and Spanish Super Cups and the Club World Cup, that makes you want to win even more.
+- I think this is the special character of the people from Seville. They have a really open spirit and receive everyone like family.
+- Changing from Sevilla to Barca is huge in every sense, and it's not easy, but having a private life so full of love helps. I get strength from my two girls. And my philosophy is enjoy it.
+- I would never describe football as a job because it doesn't feel like a job.
+- Every player is different, but I try to treat everyone the same. On a day-to-day basis, I come across other footballers and club staff, and I try to treat all the same, from the security guard to Lionel Messi.
+- I can talk 10 hours about football. From the moment I leave home, I talk about football.
+- In England, everyone is really physically strong. They can play three games, and then they are ready to play the fourth. If you are a Spanish team, and you give away a corner against an English team, then you have to be ready.
+- I have a lot of respect for the British people and the passion which they have for football, the full stadiums.
+- My father is Croatian but went to school in Bosnia, and my mother's also Croatian but lived in Bosnia.
+- When I met my wife, I felt as though I really had something to play for, and my career went to another level after that.
+- When you put the sacred Croatia shirt on, you become another person. We have this togetherness, this unique unity - not just in football. We are exceptional in tennis, handball, basketball, water polo. If we were to hold a tournament in ping pong, all of us would be rooting for that single player.
+- Friends sometimes ask me, 'When you get the ball what are you thinking?' But you do not have time to think. You have to do it. It's not instinct; that's not the right word, but it's how you feel in this moment. You sense it. It's trained, but it's trained inside you. It makes you faster in the moment.
+- I love football. A lot. It's never a moment to say that I'm bored. There is a lot of repetition in football, in training and travel, but I still love it.
+- A part of me feels very Swiss: I follow Swiss sports - curling, for example - and I support Swiss teams. I love Roger Federer.
+- I forced myself to watch Spanish TV and listen to Spanish radio all the time. I think I'm lucky because, for whatever reason, people from the Balkans seem to have a talent for learning languages.
+- Friends ask me to pick the best 11 players, but sometimes the best 11 players are not the best team. So it's something that you have to work together.
+- I think people don't really understand how much footballers are affected by the people in their lives. When we're interviewed, people always ask about managers and tactics and training, but they almost never ask about what's going on off the pitch, and to me, that's just as important to your career.
+- Sevilla are so important in my life: I met my wife there, our daughter was born there, we have a home there, and we'll go back.

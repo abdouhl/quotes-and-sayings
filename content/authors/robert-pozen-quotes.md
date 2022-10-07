@@ -1,0 +1,28 @@
++++
+author = "Robert Pozen"
+title = "Robert Pozen Quotes"
+quotes_len = "22"
+description = "the best 22 Robert Pozen Quotes"
++++
+- I've seen people spend days, if not months, researching and gathering data, but only at the end did they finally figure out what they were really looking for; then they have to redo a lot of stuff. If after a day or so you force yourself to put together your tentative conclusions, then you'll have guidance for the rest of your research.
+- It's 5 P.M. at the office. Working fast, you've finished your tasks for the day and want to go home. But none of your colleagues have left yet, so you stay another hour or two, surfing the Web and reading your e-mails again, so you don't come off as a slacker. It's an unfortunate reality that efficiency often goes unrewarded in the workplace.
+- Everyone knows that exercise can improve your health. Exercise is a key part of managing your weight and maintaining healthy hearts, lungs, and other bodily systems. But did you know that exercise can make you more productive? The latest research shows that a regular exercise routine can make you happier, smarter, and more energetic.
+- You have various institutions like law firms and accounting firms which bill by the hour. I'm really against that. You have an incentive to go slowly, be there as long as possible, to over-research things and over-staff.
+- No matter what your career aspirations are, you should begin by thinking carefully about why you are engaging in any activity and what you can expect to get out of it.
+- If you want an active schedule, you have to husband your time so you can act on the things that are important.
+- The classic problem as an entrepreneur is that they have a hard time delegating. But that's really crazy. Recruiting other executives is critical, so is dealing with customers and dealing with regulators. Those are functions that only the top founders can do.
+- You need to agree with your boss about what you need to get done that week, what are the metrics of success. Sometimes you need more hours, sometimes you need fewer hours.
+- I'm used to being productive, ever since I was young.
+- We don't take a macro view... We'd look at every company to figure out if trade sanctions are helpful or hurtful.
+- Priorities are the yearly goals that I'm most interested in achieving, then they become operationalized through weekly goals.
+- If employees need to stay late in order to curry favor with the boss, what motivation do they have to get work done during normal business hours? After all, they can put in the requisite 'face time' whether they are surfing the Internet or analyzing customer data.
+- Most people get overwhelmed by the insignificant decisions of their lives. I'm urging people to minimize the time spent on these when they're not critical to their most important goals.
+- The night before, go over your schedule and see what you're going to do and what the purpose of what you're doing is. I advocate having a two-column schedule. On the left, put down all your appointments and phone calls. On the right, put down what the purpose is.
+- America is the only major country that tries to ascertain who was the first applicant to invent the product or procedure. This may seem fair, but long proceedings to determine precisely when each party conceived an idea result mostly in keeping innovations from hitting the market.
+- Routinize the routine. The things that aren't important to you, whether it's breakfast or your commute, try to do them with the least energy possible so that leaves you with more energy for other things.
+- The way you delegate is that first you have to hire people that you really have confidence in. You won't truly let those people feel a sense of autonomy if you don't have confidence in them.
+- The quality of American patents has been deteriorating for years; they are increasingly issued for products and processes that are not truly innovative - things like the queuing system for Netflix, which was patented in 2003. Yes, it makes renting movies a snap, but was it really a breakthrough deserving patent protection?
+- From the law firm's perspective, billing by the hour has a certain appeal: it shifts risk from the firm to the client in case the work takes longer than expected. But from a client's perspective, it doesn't work so well. It gives lawyers an incentive to overstaff and to overresearch cases.
+- I am a great believer in the OHIO principle: Only handle it once. When you read an e-mail, decide whether or not to reply to it, and, if you need to reply, do so right then and there. I have found that about 80 percent of all e-mails, whether internal or external, do not require a response.
+- There are people who literally cannot start a project until the deadline is four hours away, even if it's a big one. And those people have a serious problem. My recommendation is set up mini-deadlines. You might say, 'Okay, here's my deadline after three days for this and there's another deadline for that and then a third deadline.'
+- The most important thing is to talk to people that have jobs that you might like and to see what they say the job involves.

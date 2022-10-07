@@ -1,0 +1,96 @@
++++
+author = "Ryne Sandberg"
+title = "Ryne Sandberg Quotes"
+quotes_len = "90"
+description = "the best 90 Ryne Sandberg Quotes"
++++
+- I'd rather play a double-header than speak at a banquet, and if I went to Wrigley Field knowing I had to be somewhere two hours after the game, it would bother me all day.
+- Any time you're in the coaching business or managing in the minor leagues, when you see a player who has made it to the major leagues, you get a thrill out of that.
+- There was Shawon Dunston and Mark Grace, and together we were a double play combination for ten years.
+- I've been in baseball my whole life, so I understand there's a lot in baseball that is out of your control, and you have to focus on the things you can control.
+- Even if we're in fifth place in September, I get butterflies before a game. I'm nervous.
+- I've spent 34 years associated with the Cubs, and part of the reason I've stayed in baseball is because I want to be part of a World Series winner.
+- Tainted numbers, I believe, do not belong in the Hall of Fame.
+- I came up under the wing of Larry Bowa, and one thing I did not do was ever take a day off from taking pregame groundballs or batting practice. Then the games were just having fun.
+- I had too much respect for the game to leave it behind or to make it my second or third sport in college.
+- I never forgot the four years I spent with the Phillies, my September call-ups and my big league Spring Trainings. I never forgot that.
+- Your first responsibility is to the organization, to teach and prepare players to get to the big leagues and have them ready when they get there, but everyone in the minors wants to be in the majors.
+- You never forget the feeling of not getting to the World Series. Yes, it sticks with you.
+- I was in awe every time I walked on to the field.
+- When we went home every winter, they warned us not to lift heavy weights because they didn't want us to lose flexibility. They wanted us to be baseball players, not only home run hitters.
+- I thought I was a pretty good shortstop, but I also wanted to play in the major leagues.
+- When I'm arguing, I'm competing. I'm trying to win a game. And if that's what's called for, it's just a reaction.
+- I am not the type of person who can leave my game at the ballpark and feel comfortable that my future is set regardless of my performance.
+- They use the word 'integrity' in describing a Hall of Famer in the logo of the Hall of Fame, and I think there are gonna be quite a few players that are not going to get in.
+- There is a lot to managing, and with almost four years under my belt, I believe I'm ready.
+- You don't get hits if you're depressed.
+- I've always had that attitude that things happen for a reason.
+- Typically, a position change is more for instructional league and winter time. It's just a more relaxed situation. A player can make some mistakes and learn from them. That's the proper way to go about a position change, for me.
+- Time and time again, I see former teammates, and we talk about it. It feels like we are all on the same page: We enjoyed the regular season, but we were disappointed in not making the World Series.
+- One of the first benchmarks in a season are far as at-bats is 100.
+- When did it - When did it become okay for someone to hit home runs and forget how to play the rest of the game?
+- If you're in the minor leagues, you want to get to the majors.
+- Football, I thought, would be a tough sport to make a living in. There is no minor league. You either make it to the NFL or you don't.
+- I played it right because that's what you're supposed to do - play it right and with respect.
+- I played high school football at a hundred and eighty-five pounds and played big league baseball at a hundred and eighty-two. I'd get up to maybe 188 in the off-season because every summer I'd lose eight to ten pounds.
+- Hit a home run - put your head down, drop the bat, run around the bases, because the name on the front is more - a lot more important than the name on the back.
+- No player in baseball history worked harder, suffered more, or did it better than Andre Dawson. He's the best I've ever seen.
+- There's not too many guys that spend their whole career with one team and I think it's very fortunate and a blessing for me.
+- I know I'm appreciated by how fans treat me, and the best way to treat them is play every day, hard. I sign autographs, but if I'm with someone I don't know who doesn't start the conversation, there won't be a conversation. That's just me, living my life. But I'll loosen up after baseball.
+- For me, the game starts with starting pitching.
+- My wife Margaret is the best thing that's ever happened to me.
+- I talk to the players, either individually or as a group, what I'm feeling, and I think the players appreciate that. And I think they respond to that.
+- I just appreciated so much the contract they gave me, and I wanted to give something back to the Cubs' organization.
+- If this validates anything, it's that learning how to bunt and hit and run and turning two is more important than knowing where to find the little red light at the dug out camera.
+- I was taught coming up in the Phillies organization to be seen and not heard by people like Pete Rose, my hero growing up, and players like Mike Schmidt and Steve Carlton and Manny Trillo.
+- There were a lot of players who worked just as hard as I did, and if you didn't, you didn't stay in the big leagues.
+- It was everyone going up there to swing for the fences, because the home runs were what would get them on 'SportsCenter.' That really changed the mindset of the players.
+- It didn't happen, but I feel fortunate for the two chances we had and it's just a shame we didn't go to a World Series for Cub fans.
+- I had to prepare physically every day, and I didn't leave many scraps for the writers.
+- All it takes to play baseball is a strong arm, good speed, and the coordination to hit the ball. That's it.
+- I was a hard worker.
+- I defend my players and coaches.
+- The Phillies liked the work I had done with the Cubs, and really wanted me there. They were on the phone as soon as my contract was up in Chicago, and it was just a great feeling to be wanted, to be appreciated for the work you do.
+- Am I impressed by myself? Nah, not really.
+- If you played the game the right way, played the game for the team, good things would happen.
+- In other ways, one way to be in a lineup or stay in a lineup or stay in a spot is to produce.
+- You want to see energy, and you want to see guys on the same page. You want guys to work together and have that energy come out onto the field. That's a good place to start.
+- I learned a lot in the Minor Leagues, spending six years there. I honed my skills, as far as coaching goes. I was able to work with the players in a lot of facets of the game.
+- A lot of people say this honor validates my career, but I didn't work hard for validation.
+- The fourth major league game I ever saw in person, I was in uniform.
+- I don't expect any red carpet to the big leagues. If the opportunity comes, then it comes. But I don't think I'm owed anything.
+- I do my homework. I come to the ballpark, and I relay any message that I need to relay to the players. I get that off my chest.
+- In baseball, there's always the next day.
+- I struggled many times when maybe it didn't look like I was struggling, and I had to work hard every day.
+- I'm not interested in on-the-job learning or on-the-job training.
+- I didn't play the game right because I saw a reward at the end of the tunnel.
+- It's hard for me to answer questions I haven't thought about.
+- I have to do what I have to do, and you have to go where the opportunities are.
+- If a hitter gets hot, I wouldn't take a hot hitter out of the lineup.
+- My style is I work hard at it. I feel like I'm prepared every day.
+- Baseball wasn't easy for me.
+- I love to play baseball. I'm a baseball player. I've always been a baseball player. I'm still a baseball player. That's who I am.
+- I think sometimes Hall of Famers might get labeled as guys who aren't suited for a coaching job or to be back at the Major League level.
+- I have great memories of being a Cub, and I'm happy building new ones with the Phillies.
+- I was in the postseason twice and I'm thankful for that.
+- The reason I am here, they tell me, is that I played the game a certain way, that I played the game the way it was supposed to be played.
+- 'The Sandberg Game' comes up all the time. Fans tell me where they were. They were driving down the highway, they were in the bleachers, they were downtown listening on the radio, they were on the farm on a tractor. I've heard all the stories where people have been. They're just amazed by the ending of the game and the thrill of it.
+- Steve Bartman was in the wrong place at the wrong time.
+- Baseball is all about relationships, and in some ways, what know you and who knows you.
+- I'm not thinking about records. Just winning the pennant would be exciting.
+- My mom was at every single game I played as a kid, rain or shine.
+- Get your work in. Work hard at it. Give it your best effort. And if you get an opportunity, be ready for it. That's respect for the game.
+- I knew nothing about managing when I started.
+- It's an elite group. And once you're in the Hall, you're in the Hall. Up until now, I think the voting system has handled things very well. And like I said before, there are no suspicions in the Hall of Fame.
+- I'm not a sportswriter. I don't get to vote. I don't get the ballot in the mail, so it's out of my hands either way. I can say that in the history of the Hall of Fame, there are no suspicions about guys who are in the Hall of Fame.
+- At my growing years of 18 to 21 years old in the Minor Leagues, I dreamed of being a Philadelphia Phillie.
+- My Hall of Fame speech was about respect for the game.
+- As great a public speaker as I am, I don't know have - I don't - I don't have the words to describe Cub fans who welcomed me as a rookie, were patient through my 1-for-32 start, and took me into their homes and into their hearts and treated me like a member of their family. You picked me up when I was down.
+- There's nothing I would do differently, no wishing I had done this or done that.
+- I was a baseball player at North Central High School in Spokane, Washington even though I was all-city in basketball, even when I signed a letter of intent to play quarterback at Washington State.
+- I've been proud to be a lifelong Chicago Cub and still be with the Cubs. That's always been important to me and I think it's always been special.
+- I was taught you never, ever disrespect your opponent or your teammates or your organization or your manager and never, ever your uniform.
+- I got into pro ball at 18 and played until I was almost 39, non-stop.
+- When I was a minor league player, my goal was to be a major leaguer. It's no different as a minor league manager.
+- I let the players use their abilities and what they're capable of doing. If they're capable of stealing bases, I'm going to give them the green light. I'm going to teach them to pick their spots and to get a base when they can get a base.
+- I'm optimistic about the future.

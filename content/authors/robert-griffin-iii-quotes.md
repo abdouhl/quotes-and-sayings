@@ -1,0 +1,66 @@
++++
+author = "Robert Griffin Iii"
+title = "Robert Griffin Iii Quotes"
+quotes_len = "60"
+description = "the best 60 Robert Griffin Iii Quotes"
++++
+- I have no preferred team, but everyone wants to go No. 1 in the draft. Even the guy who gets picked last in the draft wants to go No. 1. But I just know that whoever picks me, I'm going to be excited to play for that team, and I can't wait to see myself in 'Madden' on that team.
+- I like to think I'm pretty smart with what I was able to do academically, but whenever I get on the field I turn into the Incredible Hulk and I am unstoppable.
+- I grew up in the military. I've lived that life. I know that our soldiers are out there fighting for our right to vote, and they're out there fighting for other countries' rights to vote... Guys have been dying for it, and we have to go out and exercise it.
+- I want to be one of the guys, but I also want to be 'the' guy, the guy that can go out there and they can rely on in crunch time. I'm going to be the guy that they know will show up every day, every game, every play and show up on a consistently great level.
+- You always give credit where credit is due - to high school coaches, college coaches - but my dad, the foundation that he built with me, is where all of this came from. The speed, the determination, the mindset, just the natural belief that you can do anything you put your mind to, it all comes from my dad.
+- I hate to talk about myself like that, but if I had to straight up tell a head coach or an owner why they should take me, it's because I'm the best in everything I've done.
+- To me, it's not necessarily about whom you vote for, it's more about the fact that you go out and exercise that right. There's a lot of people who fight for our right to vote and people in other countries fighting for other peoples' right to vote and I think everyone should exercise that vote.
+- I hope somebody falls in love with me - other than my fiancee. But that's what you want. As a player you want a team that really wants you; head coach, GM, owner, everybody that really wants you in their place and the players believe in you. I'm looking forward to making somebody fall in love with me.
+- There's just a misconception that comes with being a dual-threat quarterback. You run first, throw second. I've proven I throw first and then run if I have to.
+- My job is to build that belief in every coach and every owner, that they can put the franchise in my hands and I can take it uphill from there. Obviously, everyone wants to be No. 1, but I'm not going to campaign. I'm just going to go out and show what I've got.
+- Hard work pays off - hard work beats talent any day, but if you're talented and work hard, it's hard to be beat.
+- Every time I step out on that field, I'm 100 percent. My teammates know that. They know what I'm out there dealing with. I know what I'm out there dealing with. But when it comes to my mindset, I'm 100 percent.
+- Whenever you can relate to the population of the team that you play for, I think it makes it that much more special.
+- I am an African-American in America. That will never change. But I don't have to be defined by that.
+- Sometimes people think it's what you say when you're in a huge group that makes you a leader. But sometimes it's the one-on-one conversations you have with guys individually, just getting to know them. I think I've done that a lot. Not intentionally - it just happens.
+- I don't do too much outside of football during football season, because this is my job and I take it seriously. I don't do too much, don't really go out at all that much, don't eat out or anything, try to stay focused and stay to myself.
+- It's not something to complain about, but just the major difference between college and the pros is that in college you're guaranteed four to five years so long as you don't do anything criminally and in the pros you're guaranteed one day because you can be cut the next.
+- My parents raised me to not ever look at race or color, so it doesn't have a big part in my self-identity.
+- You can say whatever you want; it doesn't matter. It doesn't faze me. I'll still go out and do what I have to do, whether that's making A's in the classroom or doing well on the field.
+- Teams are going to try to hit me because they think I can't take a hit. I think I've proven over my career that I can.
+- People have called me Superman my whole life. In various sports, that seems to be the common theme. My favorite superhero is actually the Incredible Hulk. He's the only superhero that can't die.
+- That's the goal. Just to go out and not try to prove anybody wrong but just let your talents speak for themselves.
+- Making it to the NFL is a huge accomplishment. Making it in the NFL is a huge accomplishment, but I haven't done that yet. No matter how many games we've played, it's still hard to figure out when you've made it in the NFL.
+- I wasn't a rebel. It kind of clicked in my head, like, if I want to do this, I can go out and do it. Some kids, it clicks for them, and it doesn't work out. But thank God for me it did work out. I put in all those hard hours of work, and it has gotten me to where I am.
+- I was a freshman All-American, and I tore my ACL in the third game. But God has a plan for everything. I had a chance to turn away from Him in that situation or draw closer to Him. I decided to draw closer to Him, and came back stronger from it.
+- As a quarterback, obviously, you're going to be put in the forefront whether you like it or not, and if you're not then you're not doing your job.
+- Every time you step on the football field in between those lines you're putting your life, your career, every single ligament in your body in jeopardy.
+- If you're out there stressing on your pro day, then you're not going to perform well, so I plan on having a little fun. Play a little music while we're out there throwing the football, have everybody tapping their toes and bobbing their head and just go out there and make the most of the experience.
+- It's not about talent once you get to the NFL because everyone's got it. It's about being willing to go that extra mile to be the best and that's something that I've always done.
+- Whoever I can go out every week and motivate to do better and to try to go after their dreams, I'm up for that.
+- Man, I love the 'Lord of the Rings' movies. Some people would say I'm weird for liking those types of movies, but they are so cool.
+- As long as I can run fast, track will always be an option. But right now I'm focused on football because the NFL is knocking on my door and I'm not going to slam it in its face.
+- My parents did a great job raising me and my two sisters. We all graduated from high school and we all graduated from college. So, to be a good representative of my family is probably my greatest accomplishment thus far.
+- I'm a military kid, both parents in the military - Mom did 12 years, Dad did 21, served in two wars. So discipline is something that was huge.
+- You know, I started this process of being a football player and I'm going to make it to the NFL very soon and I plan on finishing that. And by 'finishing that,' I mean that I'm going to go out and be the best that I can be and put everything forth to make that happen.
+- I think if you're a good high school player that you have the ability to be a good college football player. If you're a good college football then you have the ability to be a great NFL player.
+- I know I'm the No. 1 quarterback for the Washington Redskins, and that's all that matters in my heart. That's all I wanted. I wanted a team that wanted me, and I found that.
+- Whatever team you go to, you want to have guys who help you be successful there.
+- There's a couple things you don't talk about in life, and that's race, religion and politics. I try to make sure I don't talk about politics at all.
+- For me, a quarterback's best friend, especially a young quarterback's best friend, is a coach who believes in him.
+- If you say you're going to do something, you do it. If you start it, you finish it. Yes sir, no ma'am. And you've got to have that kind of structure in your life. It kind of helped me be that disciplined person that I am, whether it's with workouts, film or just the game of football.
+- For me, you don't ever want to be defined by the color of your skin. You want to be defined by your work ethic, the person that you are, your character, your personality. That's what I've tried to go out and do.
+- People have said some really good things about my performance, and that's what I'm happy about, what I'm excited about. I was able to go out there, and like I said, I put my best foot forward.
+- I don't picture myself as a normal person when I play football, and I don't think anyone else pictures me that way as well.
+- I try to keep my confidence on the charts, but I'm a confident guy as well. You've got to be that way. If you don't think that you're the best, then you won't perform that way.
+- I try to associate myself as just being myself - and being a person, an American citizen, going out there every day and just trying to be successful.
+- You won't see me taking it easy on the Cowboys because I'm from Texas, you won't see me cheering for the Cowboys because I'm from Texas. I'll be a Redskin, through and through.
+- One thing my dad always told me, was he would make sure I always had what he didn't have. He couldn't play basketball because he didn't have tennis shoes - so I had five pairs of tennis shoes.
+- There's something about football that's exciting. The defense is trying to shut you down and you're trying to blow people up.
+- People would say I'm more polished as a passer than Tebow and Cam, but I'm not as physical a runner. But I am 6'2', 223, and I can throw with the best of them.
+- When you have fans who are hassling you the entire game and you ignore them, they respect you because their job is to try and distract you. And if they don't distract you, that means you're focused on doing your job. And who knows, by the end, sometimes you even win them over.
+- Football is football and talent is talent. But the mindset of your team makes all the difference.
+- Respect talent. Get respect where respect is due, but don't be caught up in yourself where you do things obliviously and not pay attention to what is going on.
+- I don't play too much into the color game, because I don't want to be the best African American quarterback, I want to be the best quarterback.
+- The day I think about throwing the ball away at the beginning of a play, I should stop playing.
+- You can be a catalyst for change but change never really entirely happens just because of one guy.
+- You don't have to go out there and fit the mold of what a quarterback is supposed to be. Make your own mold and do the best at each role. If you can run with the best and throw with the best, you can be the best quarterback in your own version of the position.
+- It's always a lot more fun as a quarterback if you can do things you don't normally get to do. So if I can catch a pass and make a play for the team, that's what I'm willing to do.
+- There's far more that goes into being a professional athlete than being a college athlete. So many differences that people don't realize. It's not just about playing football and getting paid to do it. There's a lot of things that you have to deal with.
+- Warren Moon and Doug Williams really didn't run that much. That's the negative stereotype when it comes to African-American quarterbacks, that most of us just run. Those guys threw it around. I like to think I can throw it around a little bit.

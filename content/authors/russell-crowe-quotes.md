@@ -1,0 +1,71 @@
++++
+author = "Russell Crowe"
+title = "Russell Crowe Quotes"
+quotes_len = "65"
+description = "the best 65 Russell Crowe Quotes"
++++
+- South Sydney is a very complicated and wonderful place. You have some of the most expensive bits of real estate in the country and a large percentage of government housing.
+- If you're a waiter, the worst thing you can do is go to work resenting your job. This will sound trite - but it's the reality, and part of my personality - yet when I was a waiter, I tried to be the best waiter, and when I was a bingo-caller I tried to be the best bingo-caller.
+- I respond in the moment which is what makes me a good actor.
+- I don't really take vacations because when I'm working, it's usually in a far-flung, exotic place somewhere. But I have a farm in Australia I like to go back to when I'm at home and not working.
+- You don't have to like an actor to do a scene with him. You don't have to like a director. But it's just better if you do. And I think, you know, you've got to begin that with respect.
+- My children have never watched any of my films. Charlie knows that daddy makes movies, but he says they are not good enough for him to watch.
+- I've loved Danielle Spencer since 1989 - that's never going to change - and that's one of those things where I stare at her and go, 'How did it fail?' I still can't work it out, because my feelings for her have never changed.
+- I like villains because there's something so attractive about a committed person - they have a plan, an ideology, no matter how twisted. They're motivated.
+- I have respect for beer.
+- I suppose 'Gladiator' could be a Western - if you were writing your review in Athens, that is! To be honest, we didn't really think that way at the time. But there is common ground. And they both have horses - I liked that, obviously.
+- No matter how long you'd been in the country, if you weren't in Australia for the majority of 2000 to 2002 - when I was particularly busy filming overseas - you can't become a citizen.
+- I'd done stage musicals for quite a few years, starting with 'Grease' in Auckland.
+- I'm sick to death of famous people standing up and using their celebrity to promote a cause. If I see a particular need, I do try to help. But there's a lot that can be achieved by putting a check in the right place and shutting up about it.
+- I don't make demands. I don't tell you how it should be. I'll give you options, and it's up to you to select or throw 'em away. That should be the headline: If you're insecure, don't call.
+- God bless America. God save the Queen. God defend New Zealand and thank Christ for Australia.
+- Directing is like looking at the stars on a cloudless night. You get away from all light sources, and you look up, and you see 50 points of light. And a minute later 100 and another minute later 1,000 and then 10,000. And then this swirling gigantic carpet above you, and somehow it all seems to connect.
+- My kids are being raised in a much more affluent environment than was mine. My wife and I talk about that all the time because neither of us had this kind of experience.
+- Music's always been a huge part of my life, and my first record came out in 1981.
+- If you put 20 cents in me and ask me to talk about South Sydney, I'll play all night.
+- I have a passion for music, and I enjoy the process of expressing myself within the parameters of a pop song, and I don't do it to seek anybody's approval, necessarily. Obviously, you go on stage, and you enjoy it when people respond to a particular song, but the overall concept of playing music I do for myself.
+- I was too kind of brave and proud to want a dialect coach because I thought that showed weakness in my armor. But then you just learn it's a more efficient way of doing it. A dialect coach is really important because it takes a certain technical responsibility off your shoulders.
+- There's an ease that I have living in Australia. The best things about Sydney are free: the sunshine's free, and the harbour's free, and the beach is free.
+- I've followed Leeds since I was a little kid. I used to come home from sport in the afternoon, me and my brother, and watch 'Match of the Day.' I love the club. I want nothing but success for the club.
+- There has to be a mathematical explanation for how bad that tie is.
+- I lost my front tooth in rugby league when a fat guy from Bellevue Hill kicked me in the face as I got up from a tackle to mark him. I made this decision not to cap the tooth because I thought it was false. But I didn't make any movies as a teenager, and I had a very hard time with girls and stuff.
+- Like everyone else, I've had moments when I've felt that I've been losing my grip.
+- I really feel sorry for people who are, who divide their whole life up into 'things that I like' and 'things that I must do.' You're only here for a short time, mate. Learn to like it.
+- You don't want to be starting a film not knowing what you want to do.
+- It is important to dress for success.
+- You don't want to be the guy whose back's to the camera in the emotional part of the movie. So, you have to be aware of the camera movement and what the camera's doing.
+- There's nothing like sitting back and talking to your cows.
+- I'd move to Los Angeles if New Zealand and Australia were swallowed up by a tidal wave, if there was a bubonic plague in England and if the continent of Africa disappeared from some Martian attack.
+- I've been voted one of Australia's 50 national treasures. I've even had my face on an Australian stamp - the only non-Australian to do so, apart from the Queen, of course.
+- It just seems like a religion that is perfect for people who feel like they need a grounding, who feels that the world has run off on them. I've discussed this with Scientologists, and they don't disagree. So, for a certain type of person, that's great.
+- When I read 'The Water Diviner,' I was having the same kind of visceral reaction that I would normally have acting in something. I believed that I was the only person that could tell this story the way it needed to be told. That's the real arrogance of a director!
+- I'm a virtuoso in my job in that there's not an actor I can't go into a scene with and be absolutely confident that, whatever is required of my character, I can do it.
+- I don't play chess with my life, ya' know.
+- War isn't just about bravery and courage and jingoism and patriotism. It's also fundamentally about grief. And the people that go and do the fighting and the dying are never the people who actually benefit from the fighting and the dying.
+- If I don't get the goose-bump factor when I'm reading it than I can't do it.
+- I want to make movies that pierce people's hearts and touch them in some way, even if it's just for the night while they're in the cinema; in that moment, I want to bring actual tears to their eyes and goosebumps to their skin.
+- People accuse me of being arrogant all the time. I'm not arrogant, I'm focused.
+- My days, if they start in the morning with a cuddle from my son, are just so much more glorious than they were prior to that.
+- For filmmakers who've made multiple movies, they have experience, but they only have experience of themselves as a filmmaker. Whereas I'm bouncing around from different skill sets: the organizational ability of Ridley Scott to the precision of a Ron Howard to the artistic sensibilities of a Peter Weir... to the scope of a Tom Hooper.
+- Meg Ryan is a beautiful and courageous woman. I grieve the loss of her companionship but I've not lost the friendship. We talk all the time and that was what our connection was about. She has a wonderful mind and we just like a chat.
+- Reality is, I'm an actor and an entertainer, and I really wouldn't know what to do with another profession.
+- I didn't get married to get divorced.
+- At 49, I find it a little bit difficult to run these days. I've got grade four tears in both Achilles, shin splints, I got no cartilage the toes in my right foot, I've got bone marrow edemas under both knees, I've got one degenerating hip - that's the problem you get.
+- I've never, ever in my life touched a photographer. Some of the cruellest things I've ever said have been to photographers who are chasing me down the street, some of the sharpest, most efficient emotional barbs. And they know that in that moment, in that one-to-one wit competition, they just got smashed.
+- I always say I've given 24 insufficient performances and I'm looking forward to the time in my life when I'll do something that I think is good. There's always stuff you can do better, stuff that maybe you didn't uncover enough. But if you do something that you truly believe is perfect, then that's got to be the last movie you do.
+- Some of the things you read you get an immediate reaction to so I've stopped reading things now. I do worry about my family though. Some people do try some nasty things to get at them and try and get a reaction from them.
+- People say, 'Surely there's the right reasons for going to war?' And my perspective is, 'Surely there's a better way of asking that question?'
+- The important thing to me is that I'm not driven by people's praise and I'm not slowed down by people's criticism. I'm just trying to work at the highest level I can.
+- I'm destined to be attracted to those I cannot defeat.
+- From a young kid, I was quite interested in religion.
+- If there's anything about someone's life that's important enough to make a movie about it, I have to take responsibility to get all of it right. It's a huge responsibility.
+- If there is no blood on the line, it is not rugby league.
+- I've got bits falling off me. I'm not made of rubber. That's from film stunts. Every single injury I have is related to a movie. I know that sounds fundamentally embarrassing.
+- I look for the role that excites me and work with whoever that director happens to be, wherever he wants to shoot the film.
+- I'd like to play passionate women, but no one will let me.
+- When I was a little kid, I used to really embarrass my parents.
+- I believe in singing for my supper. I'll never accept a grant because what I do should be able to be founded purely on free enterprise.
+- The Americans love Aussies, but they're actually quite afraid of us at the same time because they think we're insane. Then they see our sports - league, union, and AFL - and that makes them even more worried.
+- While I was trying to save money to go to the National Institute of Dramatic Art in Australia I ended up getting all of this experience which meant that by the time I had enough money in the bank to go to school I didn't really need to go to school anymore.
+- 'Swallow My Gift' is all about music being its own reward. I don't do it to become more famous; I don't do it to make money. I don't do it from an ego-driven point of view.
+- I got a guitar when I was six and, instead of learning other people's songs, started to try to write my own, even at that young age.

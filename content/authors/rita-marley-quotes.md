@@ -1,0 +1,64 @@
++++
+author = "Rita Marley"
+title = "Rita Marley Quotes"
+quotes_len = "58"
+description = "the best 58 Rita Marley Quotes"
++++
+- Love is the main ingredient. If you don't love, you can't love, you can't do good things.
+- When Bob goes into the studio, he didn't just say, 'I'm going to do one album by itself.' No, we always had leftovers and some that were what you'd call rejects, we have those too.
+- I try to keep that fire burning inside of me.
+- With all the strife in the world, we must never forget that there is always a new melody, a new tune, a fresh star.
+- So what that he had children with other women? He was always truthful, he always told me when another child was on the way. He would even bring the babies to me when they were born, and sometimes I would even bring them up myself.
+- It has always been the wish of Bob Marley to return to Ethiopia and become a Rastafarian.
+- Not one child should be denied food nor water. Not one child should suffer.
+- Whatever time we're passing through, there will always be music.
+- We stand for more than just getting the cash and running out. This family is recognized by millions of people worldwide; we have something to stand for, and we have always thought there were more important things than money.
+- You listen to 'One Love,' you have to rock your head. You have to do something. It moves you. You cannot refuse it.
+- Bob was chosen by my record company to help with my vocals, and our relationship developed through the music.
+- Bob Marley said in one of his songs: 'Can anything good come out of Trench Town?' The answer is yes.
+- I don't want to be labeled a star, or billed as a star. I'm a messenger, really, and when I get work to do, I have to do it.
+- We came from nothing, from the raw poverty of Trenchtown.
+- Bob Marley's in every new day. There's not one day that his music is not played all over the world.
+- You can't eat ackee without johnnycakes.
+- I'm touring right now and you'd be surprised to see all of the kids that come to the concerts just to see Rita Marley because it's Bob Marley's wife. I might do three or four of Bob's songs in my repertoire and they go crazy.
+- As Bob Marley says, 'We must carry on.' So he has left us a legacy of music to carry on for generations and generations into generations.
+- Prince Harry embodies the spirit of Bob Marley. The Prince was engaging, he was warm. He had real spirit. He was a charming young man. He's a militant. I see that military side to him. But as we would call him, or Bob would say, he seemed to be a rebel too.
+- We'll be forever loving Jah, no matter what the crisis is.
+- Bob is a normal man, just like any other man.
+- It was a dream of Bob Marley and it is a dream of the family to bury him in Ethiopia.
+- Bob's whole life is about Africa. It is not about Jamaica.
+- They say the good you do lives after you. Bob is one of those who proves that.
+- Bob felt everything that happened around him, and he put that reality into his music. And those things are still happening, which is why his music endures. It is music that still has meaning in people's lives. And you can dance to it.
+- To me, Bob was more than a superstar but it's good people get an idea of the real man.
+- My husband believed 'the herb' was a natural and positive part of life, and he felt it was important to the world.
+- I suffered years of criticism. But there was a point in my life where I had to stand up and say: 'I don't care what anybody says about me. I have to stand up for my family, for the four children I had with Bob and the eight he had with other women.'
+- I have heard people giving different testimonies about what the music has done for them, for their children, for their life, for their marriages. It's a strength to people.
+- Bob asked his lawyer what would happen if he didn't make a will and she said: 'Your wife and children will be okay.' Which was good enough for him.
+- Bob wanted me to have a baby each year, but he also wanted me to continue being a back-up singer in his band and to go on the road with him.
+- Jamaica has a lot of foods that give you energy and strength, as well as being very nice to eat.
+- The unique thing about Bob Marley, he writes what relates to everybody.
+- I would have paid out royalties if we were still working together, carrying on Bob's tradition and generating income, but that was not happening. The Wailers didn't write the songs and they had been paid for their work in the studio.
+- There are a lot of great musicians in the world, but there is only, and will only ever be, one Bob Marley.
+- I didn't really like light-skinned people. I'd always thought about a tall, dark, handsome guy. But Bob had something different. He was very disciplined, just like a father figure, which I respected, especially as my own father was away.
+- To move forward, you have to return home.
+- I must make my own way, and when I'm into things is when I do them best. If I'm not ready to perform and I do anyway, it's like feeding the people poison.
+- Bob's music has always conveyed a message of hope, unity and love.
+- Bob was the king, and as his queen I must carry on.
+- I never really got the chance to scream about some of the painful things. In the book, I look at my whole life experience, at ego and fame, too.
+- We might find someone one day to do what he was doing musically, but there is only one Bob. His spirit has spread across the world.
+- What Bob and I had was something special that God ordained. Ours was more than a husband-and-wife relationship, it was as if we had to do something for our people, to become a symbol for our time, and that feeling is still going on no matter what.
+- Can you imagine he went to rest at the age of 36, and 30 years after he's still coming out with music for your listening pleasure? Not only for your dancing pleasure, but for learning at the same time. Because Bob Marley music teaches.
+- He saved me from being somebody else. I could have been prime minister, I could have been a prostitute on the streets, but I am what I am and Bob has a lot to do with that.
+- Being able to express myself gave me a sense of relief.
+- Water is truly the seed of life.
+- People come from all over the world to sample Jamaican jerk.
+- I'm not Bob; there will never be another Bob Marley; nobody can compete, including myself.
+- After a stage in our marriage, me and Bob had passed being husband and wife... We came to be brother and sister and I had to accept his other sweethearts and the children they gave him.
+- One of the nicest things to do in Kingston on a Sunday is eat johnnycake, Festival and fish at Hellshire Beach.
+- Bob's music is therapy and entertainment.
+- It's a natural thing, Jamaican men have a thing where they want more than one woman, and more than one pickney.
+- I felt like I was seeing my life over again when I first arrived in Ghana. I thought, 'This is part of me.' I knew what it was like to be poor and hungry.
+- We give so much to others that sometimes we tend to forget our own feelings.
+- Anything I don't like, I don't read.
+- Sometimes I'm in Boston or Washington or Chicago and think I'm in Jamaica because I hear more reggae on the radio in these places than in Kingston!
+- The idea of being a widow brings the thought of your husband dying. I don't really feel that way. I have higher confidence in life after that transition. That's my thought. That's how I feel. I want to keep him alive.

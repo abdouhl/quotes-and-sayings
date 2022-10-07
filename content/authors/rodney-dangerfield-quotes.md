@@ -1,0 +1,62 @@
++++
+author = "Rodney Dangerfield"
+title = "Rodney Dangerfield Quotes"
+quotes_len = "56"
+description = "the best 56 Rodney Dangerfield Quotes"
++++
+- My psychiatrist told me I was crazy and I said I want a second opinion. He said okay, you're ugly too.
+- My marriage is on the rocks again, yeah, my wife just broke up with her boyfriend.
+- My mother had morning sickness after I was born.
+- With my wife I don't get no respect. I made a toast on her birthday to 'the best woman a man ever had.' The waiter joined me.
+- My uncle's dying wish - he wanted me on his lap. He was in the electric chair.
+- I looked up my family tree and found three dogs using it.
+- I have good looking kids. Thank goodness my wife cheats on me.
+- I met the surgeon general - he offered me a cigarette.
+- My wife can't cook at all. She made chocolate mousse. An antler got stuck in my throat.
+- I drink too much. The last time I gave a urine sample it had an olive in it.
+- My father carries around the picture of the kid who came with his wallet.
+- I went to a fight the other night, and a hockey game broke out.
+- If it wasn't for pick-pockets I'd have no sex life at all.
+- My cousin's gay, he went to London only to find out that Big Ben was a clock.
+- It's tough to stay married. My wife kisses the dog on the lips, yet she won't drink from my glass.
+- We sleep in separate rooms, we have dinner apart, we take separate vacations - we're doing everything we can to keep our marriage together.
+- My wife wants sex in the back of the car and she wants me to drive.
+- When I was a kid my parents moved a lot, but I always found them.
+- A girl phoned me the other day and said... 'Come on over, there's nobody home.' I went over. Nobody was home.
+- When I played in the sandbox, the cat kept covering me up.
+- I told my dentist my teeth are going yellow. he told me to wear a brown tie.
+- My mother never breast fed me, she told me she only liked me as a friend.
+- My wife is always trying to get rid of me. The other day she told me to put the garbage out. I said to her I already did. She told me to go and keep an eye on it.
+- Yeah, I know I'm ugly... I said to a bartender, 'Make me a zombie.' He said 'God beat me to it.'
+- I haven't spoken to my wife in years. I didn't want to interrupt her.
+- I found there was only one way to look thin: hang out with fat people.
+- I'm at the age where food has taken the place of sex in my life. In fact, I've just had a mirror put over my kitchen table.
+- At twenty a man is full of fight and hope. He wants to reform the world. When he is seventy he still wants to reform the world, but he knows he can't.
+- I could tell my parents hated me. My bath toys were a toaster and a radio.
+- Some dog I got too. We call him Egypt. Because in every room he leaves a pyramid.
+- I saved a girl from being attacked last night. I controlled myself.
+- I'm taking Viagra and drinking prune juice - I don't know if I'm coming or going.
+- I looked up my family tree and found out I was the sap.
+- I told my wife the truth. I told her I was seeing a psychiatrist. Then she told me the truth: that she was seeing a psychiatrist, two plumbers, and a bartender.
+- My wife was afraid of the dark... then she saw me naked and now she's afraid of the light.
+- I had plenty of pimples as a kid. One day I fell asleep in the library. When I woke up, a blind man was reading my face.
+- One year they asked me to be poster boy - for birth control.
+- This morning when I put on my underwear I could hear the fruit-of-the-loom guys laughing at me.
+- My wife met me at the door the other night in a sexy negligee. Unfortunately, she was just coming home.
+- I get no respect. The way my luck is running, if I was a politician I would be honest.
+- On Halloween, the parents sent their kids out looking like me.
+- Life is just a bowl of pits.
+- Acting deals with very delicate emotions. It is not putting up a mask. Each time an actor acts he does not hide; he exposes himself.
+- Men who do things without being told draw the most wages.
+- I came from a real tough neighborhood. I put my hand in some cement and felt another hand.
+- I told my psychiatrist that everyone hates me. He said I was being ridiculous - everyone hasn't met me yet.
+- I was so ugly my mother used to feed me with a sling shot.
+- I worked in a pet store and people would ask how big I would get.
+- What a dog I got, his favorite bone is in my arm.
+- I remember the time I was kidnapped and they sent a piece of my finger to my father. He said he wanted more proof.
+- The way my luck is running, if I was a politician I would be honest.
+- When I was born I was so ugly the doctor slapped my mother.
+- My wife and I were happy for 20 years. Then we met.
+- What a kid I got, I told him about the birds and the bee and he told me about the butcher and my wife.
+- With me, nothing goes right. My psychiatrist said my wife and I should have sex every night. Now, we'll never see each other!
+- My wife's jealousy is getting ridiculous. The other day she looked at my calendar and wanted to know who May was.

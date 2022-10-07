@@ -1,0 +1,45 @@
++++
+author = "Luke Goss"
+title = "Luke Goss Quotes"
+quotes_len = "39"
+description = "the best 39 Luke Goss Quotes"
++++
+- This sounds weird, but when you have a male fan base, you pretty much know you are going to be okay until you're an old, crispy dude, because they're not buying your films because you're sexy.
+- Danny Trejo is so bloody cool, I mean, he can just stand there and look cool.
+- I do kung fu. I box. I ride horses. I like to race cars in a crazy way.
+- I have been lucky because sometimes things go really pear-shaped with a second or a third part, but I have been lucky enough to be in good sequels.
+- I love directing, and I will direct myself a few times.
+- I love film. I am very blessed to be making movies.
+- I think woman is phenomenal, magnificent. I mean that sincerely.
+- I love filmmakers.
+- I'm a Londoner. Embankment. Big Ben. Cab drivers.
+- I'm a gamer. I play PlayStation all the time.
+- My grandfather was a faith healer and medium, and he always encouraged faith in the unseen. I believe in fortune tellers.
+- Britain has never been proud of Bros.
+- I am an absolute geek, without doubt.
+- I look at eating well as an investment. But burgers are my weakness.
+- I need to be agile because I do all my own stunts.
+- I directed my first movie, not one piece of press!
+- When a man has written a role for you that you admire, the expectations are higher.
+- One of the reasons - I stopped doing films for about a year and a half because I felt that I was being somewhat used by producers that were trying to get their movies made within a certain budget range and not take care of me.
+- I owe my brother a great deal.
+- My blue eyes are my best feature.
+- I think acupuncture, reflexology, Reiki, and Shiatsu massage are remarkable, and I used them for years to help with injuries and as a preventative measure.
+- I'm hooked on martial arts.
+- I love as you come into Paris, you've got the Arch de Triomphe and all that crazy traffic. Then I love the drive from Paris down to Antibes and you veer off east in through the Alps and you come into the south of France on the mountain road as opposed to the freeway.
+- I am quite a physical chap - I think that's why my waist and physique are pretty much the same as when I was a kid, although my chest is a lot bigger.
+- For a boy or girl, driving cars that they love is fun.
+- I kind of say I am a stylish geek, to make myself feel better, but I am definitely a geek.
+- As far as trucks, the great thing about a Range Rover is if you're going out for a dinner, even a black tie event, you can take the Range Rover.
+- I think sex appeal is something that's fun. But I'd guess any man with any conscious consideration or understanding of his own sex appeal is one of the least sexy men you might meet.
+- When I look in the mirror, I never see a handsome chap or the person people think I am.
+- I have a bony face - I feel like my skin's been stretched over my skull.
+- My hair is certainly not copious, and I keep it short, always - it's buzzed twice a week.
+- I just think, you know what, some of the most astute fans I know are film geeks, film lovers, and watchers, and I am now proud to be one of them. So I am, hopefully, going to be accepted into the club of geek!
+- I'm exhausted by the idea that everyone is presenting this perfect life.
+- I pray and I meditate every day. It can be a great, great asset.
+- I'm a big advocate of meditation.
+- I didn't really start thinking about the need to stay in shape until my 30s.
+- I'm very uncomfortable about the way I look but confident as a man.
+- I always say it's much nicer to win by shaking a man's hand rather than slapping him in the face.
+- To have a role written for you by somebody who is a the top of his game is something that is very humbling.

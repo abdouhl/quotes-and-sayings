@@ -1,0 +1,105 @@
++++
+author = "Courtney A. Kemp"
+title = "Courtney A. Kemp Quotes"
+quotes_len = "99"
+description = "the best 99 Courtney A. Kemp Quotes"
++++
+- In 2011, when my father passed away - I had my daughter first; I had her on January 24, and I had a seizure during the delivery. I lived through that, and five weeks later, my father died suddenly of a heart attack, and I lived through that. And then my daughter had surgery, and I lived through that.
+- I'm seeing more and more people of color do what I do as showrunners, and that's so great. I would love to get to the point where we don't have to talk about it anymore.
+- The only black folks in town when I was growing up were me and my cousins and one other family.
+- The impetus for 'Power' was me writing about my dad, who was an advertising executive and very interested in image. He thought that perception was reality and what people thought of you was what was real about you.
+- If you are other, you don't think twice about hiring people who are other.
+- The Shawshank Redemption' isn't a movie about a black guy and a white guy who become friends - it's a movie about freedom. At the end, the cathartic experience of seeing our own emotions reflected back to us, that's the purpose of storytelling.
+- I am tired of people using 'diverse' to mean 'of color.' That's not what that word means. 'Diversity' means people of all different races, all together - like a New York City subway.
+- I worked at 'Mademoiselle,' and then it shut, and I worked at 'GQ' for three years, during which I was freelancing. I wrote for 'Vibe.' I did music reviews. I wrote for 'Time Out.' I was desperate to get into 'Entertainment Weekly' or 'New York Magazine.' Like, desperate.
+- New York is the center of the world. I grew up in Connecticut, outside of the city, and my father commuted to the city for work.
+- Being a writer is great because you get to come up with stuff.
+- Every writer should be able to write anything if you do the research and you're sensitive enough to ask the questions.
+- I knew I wanted to write professionally and get paid.
+- As a writer of fiction, you don't ever want to limit the characters you create to the life you've lived. That's insanity to me.
+- I love Pusha T and The Clipse.
+- I don't want to be seen in a way where all I can do is what people expect of me.
+- The show runner's the boss until the network shows up. And then they're the boss, because it's their money.
+- Great partnerships thrive because the people need each other.
+- The story always leads you where it's supposed to go.
+- Ultimately, at the end of the day, taking a chance on 'Power' is taking a chance on me.
+- There's hip-hop music in 'Power,' but the show is not about the hip-hop industry.
+- Humans are powerless, and even in our exercise of free will, either the Universe is gonna get down with your plan, or it isn't.
+- Obviously I'm not from 50's background - I'm from Westport, Connecticut, which is as far away from his background as you can get, right? Growing up in Westport, for a long time I was the only black person living there for miles.
+- I think it's really cool that someone could have ovaries and the presidency. Growing up, I thought I could never be president because I was black and female. Now I know that's wrong. Within my own lifetime - that's different. Within my lifetime, interracial couples are more common. Within my own lifetime, biracial folks are able to claim that.
+- I'd say it's far more challenging to be female and be a showrunner. People are not surprised to see a black person running this show, but the female aspect is the thing that I get asked about.
+- There's this idea that you can have it all, but in my opinion, you can't - not if you're a perfectionist.
+- My dad was born with no money.
+- I say a prayer several times a day about what I can control and what I can't control.
+- I really do love male characters, in some ways, for the fact that they get surprised when they're vulnerable. Women are more surprised by their strength.
+- Show-running is a very difficult job that includes so many responsibilities; I'm working with the actors, working with directors, writing, making decisions like, 'What fabric is that sofa gonna be?'
+- My experience as a black woman in the industry is simply that often I was the only one in the room. Often I would be the only woman and the only person of color. Sometimes I would be one of several women but the only person of color. Sometimes I would be one of several people of color, but the only woman.
+- When you pretend to be an authority on everything, it forces your subordinates to defer to your opinion - which may not be the most informed in the room. If you have humility concerning the gaps in your experience or ability, it allows others to shine.
+- I think as long as I can tell you a story about people that you understand, it doesn't matter if you don't like what they do; you understand why they did it.
+- My parents were 30 years older than I was, and my parents had my brother and I ten years apart. My parents grew up in segregation, and they both lived in all-black neighborhoods and grew up with large black families. I didn't have any of that, and I didn't understand feeling so differently and being treated so differently.
+- When human beings say they have power, it always makes me laugh a little bit.
+- I had very much wanted to be the very first black female editor-in-chief of 'Vogue.' Barring that, I wanted to work at 'Entertainment Weekly.'
+- I want to be a strong voice, period.
+- When I first arrived in Los Angeles from New York in 2004 to try to break into television, I couldn't believe how segregated it was - how many neighborhoods were nearly all-white or all-black or -Asian or -Latino.
+- In college, I didn't know whether to hang out with the black kids or the white kids, and then I found the theatre kids, and I was like, 'Oh, it doesn't matter.' We were all weird and listening to Morrissey and wearing Doc Martens so that was my tribe.
+- There's a difference between talent and skill. You might have writing talent, but skill is learned. You have to practice. I remain teachable. I was sure that I didn't know everything. People who work with me will tell you I don't think I know everything. I watch people sink around me thinking that they knew everything.
+- If everyone knows the role they play, and they do their job - executing it well and with enthusiasm - it comes together successfully every time.
+- Around me, there's always music playing. It just calms me down; it soothes me. It helps me write. It helps me with my mood.
+- If you look at the back pages of 'New York Times Magazine,' and they talk about these 6.5-million-dollar condos with a great view, like you're going to pay for a great view. Well, the top floor of the projects have a great view, too.
+- I think women judge other women more harshly, always, which is a shame.
+- Great power is setting a goal, working hard for it, and achieving it in exactly the way you expected with no consequences and no remainders after the long division is done. But does that happen to anyone? The unexpected always hitches a ride along with everything you planned.
+- 50 and I are extremely close, so all that social media drama? It's just for the show.
+- I don't write scenes where one person is right and one person is wrong. It's very much by design that everyone has a point of view that you as an audience member can understand.
+- 50 Cent is a brilliant marketer.
+- When people watch 'Power' and they find out the showrunner is black, it's not surprising. What is surprising is that I am a woman and my background is not particularly urban.
+- I thought I was going to be a professor; then I ran screaming from there into magazine journalism.
+- The revolution is that we can be anything. We don't have to be one thing or the other. The idea that it is my responsibility to represent only good black people... I mean, what are you talking about? That's not a character - that's a polemic.
+- If I weren't a showrunner, I'd be a much more accomplished mother; if I were not a mother, I would be a much more accomplished showrunner. I have to be okay with getting a B in both.
+- When it comes to power as it functions between humans, it all comes down to desire. If you know what someone wants, you can control them. It is as simple as that. And the reverse is also true: If you have control over your own desires, no one will ever own you. As humans, we are plagued with desire - it consumes us, it fuels us, it destroys us.
+- We use the word 'urban' to mean black or Latino, but that's not what the word means. It actually means 'from the city.' I'm not from the city. I'm from the suburbs of Connecticut. I grew up with mostly all white people.
+- It's ridiculous that we let broadcast and cable shows compete against each other at the Emmys. They are not the same animal.
+- I always like to write myself into a corner. I think the best stuff comes from only having a few ways out.
+- I always wanted to make a show that had everything I wanted to watch, as opposed to just one or two things.
+- When we started on 'Power,' I was committed to respecting the differences among Spanish dialects: Dominican, Nuyorican, Mexican, etc. I wanted the language our characters spoke to be as specific as possible, to reflect New York as it is.
+- I am a black woman, and I'm proud of that, but as a showrunner, I want to think about what makes me unique beyond my race.
+- People are realizing that there is a financial consequence to not opening doors. It doesn't mean that they are any more inclusive in their hearts - it means they're more inclusive in their wallets.
+- I had to figure out that finding my place was not about race but about creativity, and connecting with other artists helped me find my voice.
+- What I'm about to say won't be popular, but it's true: If being a television showrunner is the job you want, and you are a woman, I would not suggest you have children. The reality is that you just cannot do both well.
+- Any underrepresented audience loves to see themselves on TV, but what's more important is that we're writing about universal themes - good versus evil, can you change yourself? These themes resonate for everyone.
+- I always ask the actors, 'What have you never done before?'
+- When I watch television, I want to be surprised.
+- There are so many different things that create an alchemy of success. Just like there are so many different things that create an alchemy of a failure.
+- As a woman, I don't feel like I have a responsibility to create better female characters. I feel like I have a responsibility to create good characters. Because the truth is, those kinds of things ghettoize us even more as writers.
+- I really try to plot in a fearless fashion. I try not to care about not knowing the answer before I get there; I just jump in first and see what happens.
+- I first became a showrunner at 36 years old. I had no experience doing this job, which is as complicated and multi-faceted as anything I'd ever tried.
+- God is in control of everything.
+- When I was a little girl, my imagination was what helped me deal with some sort of negative elements in my childhood.
+- I love 'Archer.' That's one of the best-written shows out there.
+- I called my show 'Power' because, for me, the whole series is about the way my main character, Ghost, is power-less over his circumstances, even though he has almost endless access to money and guns.
+- I think television is about the characters you want to see again, and so you want to invite these people into your home. And certainly, seeing them get into bad situations and then watching them have to get themselves out, that's always super satisfying.
+- Wherever I go, stuff accumulates.
+- 50 Cent and I really started to bond over our love for music. The first conversations we had were about Curtis Mayfield.
+- It was not something that ever occurred to me, to be able to be in TV. I was very lucky.
+- When you write a show, every character is you to some extent.
+- Comedians are on the road so much that when they're just getting to act and sit in one place, they're really grateful and just ready.
+- Being a showrunner is doing a bit of everything. It's not just writing. It's also management: managing actors, managing producers, managing a crew, being kind to people, being a good boss, observing deadlines.
+- I want to tell more stories about lying, dual lives, self-deception - those are my favorites.
+- When I'm at work, I want to be with my daughter, and when I'm with my daughter, I probably should be working, and it just is what it is.
+- You don't keep your job if you don't make a great show.
+- I remember watching episodes of 'The Sopranos' and being filled with dread knowing what was coming or anticipating what was coming. I don't think that that's always a bad thing. I think sometimes the audience needs a little catharsis held away from them.
+- There are some aspects of the story of 'Power' that clearly are about race in the sense that any one of us now who's black and was raised in this country was raised with a lie, which is, 'You can never be president.' That's not true.
+- There's always going to be a part of me that wants an Emmy. Truthfully, I'm probably more motivated by people being entertained. I'm more motivated by people being like, 'Oh snap! Did you see that?'
+- Knowing what I don't know helps me every day.
+- My dad was very, very invested in image. He felt that as a black person, the thing you could control was how did you look, how did you dress, how did you sound, how did you smell, how did you act. All of that stuff that you could control would absolutely have a strong impact on your access.
+- Not many people get to create a television show that actually makes it on the air.
+- If you wanna be your own boss, you gotta work your way up - have the skills.
+- The baseline character in a lot of Western literature is a man. So we, as women, do a lot of suspending of our disbelief to experience a novel or a play or a movie through that male character.
+- 'Power' is not a black show. It's not a white show. It's a New York show.
+- It... does... not... have... to... be... pointed out all the time. Like, 'Isn't it great that you're black, and you're a woman?' Isn't it great that the show's good? I would just love for it not to be a thing - for it just to be, like, super norm.
+- Writers are, for the most part, crazy people. We're like Hephaestus of the forge. We're gnarled. We're curled over. We walk with a limp.
+- When I was pitching 'Power,' I had an executive say, 'Well, I already have a black show.' He said that right to my face.
+- 'Power' would never have gotten on the air if the folks at Starz weren't saying to themselves, 'This is an underserved audience.' It was a financial decision, not a benevolent decision based on a need to change the industry.
+- I'm from an upper-middle class background. But because there was no one of my race where I grew up, I was very isolated. I felt different from everybody else.
+- My dad and his sister, who is no longer with us, used to dance on the streets for money. They had nothing.
+- I am not going to say that only people of color can write people of color, because that means only white people can write white people, and that's not OK.
+- I very much want to write about some elements of my own growing up.

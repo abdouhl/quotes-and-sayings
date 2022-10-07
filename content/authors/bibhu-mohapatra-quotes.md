@@ -1,0 +1,17 @@
++++
+author = "Bibhu Mohapatra"
+title = "Bibhu Mohapatra Quotes"
+quotes_len = "11"
+description = "the best 11 Bibhu Mohapatra Quotes"
++++
+- My mom has given me my sense of style. She has taught me how individual style is so beautiful, what you appreciate on someone else might not be good for you. For her, style is all about being comfortable, and she has an innate sense of sophisticated style.
+- My engineer dad is where my technical acumen comes from. I remember him taking me to the factories to see how what works. Often he used to open up his motorbike to fix things and I saw how the wheels worked. His car used to be open for dissection very regularly. All this taught me and inspired me to look beyond what I could see on the skin.
+- I hope to grow another head and two more hands, like an Indian goddess.
+- There is no need to pose for anything - you just walk straight and strong and be clear. We are all born with unique characteristics and we have to stick to that. Yes, use the tools to enhance it, but we shouldn't be hiding behind them. That's what style is about.
+- My work is always very geometric.
+- As a creative person, you want to start with a blank canvas.
+- I take pride in having something to say, which people actually want to hear.
+- I remember an old Singer sewing machine at home that belonged to my grandmother. It had a pedal. My mom taught me how to use it when I was 12 years old. I used to find it so intriguing, how a flat piece of material could be made into an object that had so many uses.
+- I like architectural shapes. You can't put any shape on any body, except on the runway. In reality, it has to look and feel flattering.
+- Birds themselves are so interesting and intelligent, and they give so many cues without being verbal, so they say such great things. Feathers are superior to fur, even. They're so beautiful, and nature uses such amazing colors.
+- My clothes don't make one a different person, just more of oneself.

@@ -1,0 +1,61 @@
++++
+author = "Cat Zingano"
+title = "Cat Zingano Quotes"
+quotes_len = "55"
+description = "the best 55 Cat Zingano Quotes"
++++
+- Life is tough, but I'm tougher.
+- I need to show my son that when things get hard and rough - not if, when - you have to keep going; you have to move forward.
+- Usually, I spar with dudes. When I spar with girls, I worry about how they're feeling, what they're thinking. I care.
+- I've done what I could as far as getting physically healthy after my knee injury, and I've done what I could to get mentally healthy after losing my husband.
+- Being strong, showing that you will see things through no matter what comes your way, that's what matters most to me.
+- I took a trip to Thailand. I visited a bunch of different gyms that are places where I always wanted to train, and get technique and education from people who I really look up to.
+- Everybody had a bad day. It's possible to have two bad days in a row. And in this sport, it's so unforgiving.
+- Nothing can stay great forever, and nothing can stay horrible forever.
+- To call myself a fighter is to be selfish at times. It makes me resent my opponent. That's motivation I can tap into.
+- When life is going to present you with tons of problems - really hard ones, some less hard, some debilitating - it's what you do about them that matters.
+- I took my son to Thailand and really immersed myself in the stuff I wanted to learn and I wanted to improve on, and when I got a taste of that motivation and that inspiration as far as what I wanted to see my body do, I immediately was excited about it.
+- Nothing in my life has ever come easy.
+- I was satisfied with having a couple of fights a year, to enjoy them and have them be part of my training routine. When the UFC came around, it seemed like it fell in my lap. It was like I got so good at my hobby, and now I'm living all these people's dreams who had been working for so many years.
+- When I'm feeling comfortable at home, confident in my day-to-day, being healthy and being the best person I can be, MMA is easy.
+- How I hurt my knee was doing something so minimal that it was a little worrisome. To try that motion and others again, after the injury and after surgery, made you worry a bit.
+- Sometimes, we find what we want by also finding out what you don't want. All of that is trial and error. Once you're in that pit, the trial and error is important. It's up to us; we've got to keep moving forward.
+- I love fighting... It's something I think I was born to do.
+- I'm always shocked when people feel threatened by me.
+- I think the match up is one of the century and I have what it takes to take Cyborg down, if anyone does.
+- Half the reason I fight the way I fight is because of where I get my mind, and I'm very protective of the things that matter to me.
+- With a lot of things in life, it's hard to do the right thing.
+- I'm a person that, when I'm in the right mood, not any one of these girls can touch me.
+- With Cyborg, this is a winnable fight for me.
+- When I think about protecting my son and fighting for him, that's a big threat in a fight. If I can go there, it makes me unstoppable.
+- I'm training at Alliance because they encourage me, and they motivate me, and they try to build on my uniqueness as a fighter, as an athlete.
+- I want everything that's possible that I've worked for to show up in my life and be mine.
+- Women's MMA has come a really long way. People look forward to us fighting, and they get excited.
+- There's moments where things are harder than others, and there are obviously questions, but when it comes down to it, there is no quit in me.
+- When I stuff things down and avoid it or try to work too hard through something that needs to be addressed, that's when life slaps me in the face, and I get told. I got told to slow down.
+- The first thing I usually do after a fight is apologize to my coaches because I didn't do one damn thing they told me to do.
+- When things are right and things are focused, it's a game to me, and I'm there just stalking and punching and grabbing and tearing people up.
+- Going into a fight with Cyborg, you need to be as on point as possible.
+- I was very much a student of the sport. I wanted to know everything, all the moves. It was the coolest thing I had seen. I started winning matches. Dads didn't want their sons to face a girl. Coaches didn't want to put any of their wrestlers up against me to be beaten by a girl.
+- I feel like every catastrophe in our lives, you remember exactly where you were, what you were doing, who you were with, almost down to what you were wearing.
+- My first fight was incredible; it was surreal. I almost forgot I had to fight, I was so overcome with emotion. It was just an amazing experience.
+- In my eyes, of course, I think I'm the best in the world.
+- When I fight, I don't think about being tired, I don't think about technique. I just try to break their will.
+- I have heart, and you can't break heart.
+- You can sit there and punch me in the head for three minutes straight, but I'm gonna figure it out. I always do. I just know that about myself.
+- I can't get to the point where my brain is mush and I can barely talk, because my son's life depends on my health.
+- I never stopped training. You know, I stopped fighting. When I was injured, when I lost my husband, I stopped when I needed to take the break. But I never stopped training because training is my therapy.
+- I just put all my energy into me and focusing on what I'm going to do, and I'll go in there and do that right through the end of the fight until I get the job done.
+- My son is a huge inspiration for me.
+- Nothing always stays the same. You don't stay happy forever. You don't stay sad forever.
+- The thing to me about this sport, all the fans, everyone that watches, everyone that has a career has had a bad day at work. If you have a project, you have a quota that you have to meet, you can screw up at it. At the end of the day, you get to go home to your family; you can bring your work home with you or not.
+- Sometimes I look at my opponent, and I resent them because of the time I miss with my son by having to train for them, and that gives me even more strength.
+- I would love to fight Ronda for the belt. I would love to avenge my loss and fight her again for what that means to me. I don't know what it means to her, but to me, that's what it would look like for me in perfect world.
+- Wrestling was the hardest thing I've ever done.
+- I walked into the gym not even knowing what jiu-jitsu or MMA and all that was. I was looking to lose baby weight after I had my son.
+- I don't care who I'm fighting if I'm not fighting for the title.
+- Life is constantly changing.
+- I already knew a lot about the ground aspects of MMA, being a wrestler, but there was so much more. There was kicking, punching, and other things I wish I could have done as a wrestler. It really stoked my interest.
+- I'm an emotional fighter.
+- I have a lot of plaques; I have a lot of accolades - things that I'm proud of - but I don't think I ever reached my full potential as a wrestler.
+- You can have a fight card full of male fights, but yet when that women's fight comes on, that's what people watch. They're super excited by it.

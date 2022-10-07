@@ -1,0 +1,90 @@
++++
+author = "Channing Tatum"
+title = "Channing Tatum Quotes"
+quotes_len = "84"
+description = "the best 84 Channing Tatum Quotes"
++++
+- 'Jump Street,' I knew we had a great time. It didn't matter, didn't know if it was going to do well.
+- I'm not a political person. When I start to get into it, it just upsets me. I feel so powerless when it comes to politics. So I've just decided to be non-political and very, very pro-soldier.
+- 'm just going to be a good friend to my kid. One thing I definitely want to change is that whole 'I don't want you to make the same mistakes' mentality. My dad didn't have much money growing up; he didn't have much of an education. He forced that on me, and I didn't want it.
+- You have the dreams that you want, and then you have to do other jobs until you can get to that dream.
+- Actually I have a tradition that I always steal my last costume on the last day of filming.
+- There are so many things I want to do. Like, I want to get an artist, a musician, a photographer, and a bunch of dancers that I know and just travel across Africa and just film it and just see what happens. Do and learn as much as I possibly can. Luckily, I have a lot more time.
+- I don't know what you're going through life doing if you're not really trying to collect some really great memories.
+- I really get inspired by songs. Like, if I hear a thug 'Want to kill ya' song, I'm ready to go out and get crazy. Or if you hear this really sexual, sensual slow song, I want to go have sex. I'm very animalistic when it comes to stuff like that. Very basic emotions.
+- I can completely lose myself into just absolutely satisfying things - a really amazing cheeseburger, a pizza, good fries, a beer. I enjoy being comfortable and eating whatever the hell I like. It's a big thing for me, just having the freedom to be able to do that.
+- I believe in love. I believe in good stories. I play really hard on the weekends because I like to have those stories. My wife and I go off and do craziness all the time. We're just like, 'What can we go get into this weekend?' Then we have other ones where we just sit and do nothing and then we have work that we do. It's all memories.
+- I know I will never wear sandals now anywhere. I got in a fight in the back of a grocery store when I was really young, like 14 or something. And I remember my feet were so torn up afterwards because I lost my sandals in the middle of the fight. My toenail was missing. It just sucked.
+- My dad was a roofer when I was young. I believe he owned his own roofing company in Florida. And then he fell through a roof, broke his back. Permanently. I mean, he's not paralyzed or anything, but he's had to deal with pain for all of his life since then.
+- The records that I like, they have life and warmth and soul in them. Like the slap back on Scotty Moore's guitar on 'Mystery Train.' You're not gonna get that in a computer. You're gonna want a live room, you're gonna wanna bounce the tape, you're gonna want real musicians, in a room, vibin' off of each other.
+- My parents couldn't handle my energy so they enrolled me in every sport the school was offering. I didn't resent it because I loved sports and picked them up easily.
+- Yeah, and I recently had my first Elvis moment. A gang of young girls was jumping all over me. It was kinda scary. And totally flattering.
+- I've been on so many movies. Generally, I haven't gotten to be on the ground level. As of two years ago, in 'Dear John,' I got to really be on the ground floor. I wasn't a producer. I felt like I put the work in, and I did have a lot of sway on what got fixed, reshoots, so on and so forth. It felt really good.
+- It's just weird that for some people, art is a luxury. My parents had no artistic outlet. Some people pass down music to their kids, but I couldn't tell you what my mom's or dad's favorite song is. So when I started going out into the world, I was drawn to people who knew about movies, art, even fashion.
+- Well, the first and only time I went hunting, I shot a deer, and it mortified me. I just couldn't do it again. But I know a lot about guns, so I go to the gun range and stuff like that with friends sometimes.
+- I just love cake, confetti cake, to be specific. It has little colored candies inside the cake, and then you get the confetti icing, which is really hard to find sometimes. It's really hard to explain to people, because it's not icing with sprinkles on top. It's icing that actually has candies inside of it. It's Funfetti icing.
+- I can't do the same movies all my life. I'm conscious of that. But it's a trade-off. 'Dear John' allowed me to do movies I've wanted to do. You learn to balance it out. I'm still learning. Only now am I getting to do the kinds of movies that I have wanted to do. So it's a steady climb. You don't jump into a Soderbergh film.
+- I sort of became infatuated with soldiers. I got to know some of them and got a little perturbed with Hollywood making a spectacle out of them and making them look like they have screwed up somehow.
+- I used to work at a puppy nursery.
+- I was in college that first semester, and I was like, 'Wow, this isn't who I am. This isn't what I want to do.' I was like, 'Oh God, I'm going to have to go out and make something of myself, and I have no clue what that is.'
+- My bar for being successful is being able to do movies that really mean something to me and being able to make a living off of that.
+- Everyone always talks about the speed of New York, and I still walk slow around New York, and everyone is walking faster than me all the time, and I notice it every time we go out.
+- I believe Obama is a lot of fun when he's not trying to keep our economy together.
+- I was not good in school. I could never read very fast or very well. I got tested for learning disabilities, for dyslexia. Then I got put on Ritalin and Dexedrine. I took those starting in the eighth grade. As soon as they pumped that drug into me, it would focus me right in.
+- I learned to appreciate repetition. That's why I can dance. It's how I learned to act. I have a high tolerance for repetition.
+- I did 'The Vow' because I really love being in love.
+- 'A Guide To Recognizing Your Saints' was the first real actor-actor part I did, and I hope I to do more. Action movies are fun, but I'd be happy not to do them if there are better roles.
+- I've always had way too much energy so I'm always looking for new things to do to channel that energy.
+- I get one shot at life, and I can say that I've lived a crazy one, and I've pushed the limit almost at every turn, and I'm super proud of that.
+- I grew up in Florida, where if you weren't comfortable dancing, you weren't going to get any girls.
+- But I'm not a tough guy or a street fighter for real. I'm just an actor.
+- It's a hard thing for me to wrap my mind around the C word: celebrity. Rock stars are celebrities because they're larger than life. As an actor, you have to play the everyman and the everygirl. If you start treating people in the real world like assistants, that's not a good look. But my friends keep me grounded.
+- I've never studied the classics, but I'd like to. My teacher offered to show me how the Greeks were able to sculpt someone perfectly. From there, you can go off and experiment - sort of like jazz. Once you learn to play anything, you can break the form and go and do something even bigger.
+- Daniel Day-Lewis and Sean Penn to me are the two best actors of all time. I'm just glad to have the pleasure to be in an era that they're acting while I'm acting. They're probably the best actors in my mind.
+- Life is too short to miss out on the beautiful things like a double cheeseburger.
+- I think we all suffer from guilt at some point in our lives, but for the most part, I never really regret, and I try to always remain positive.
+- I was terrified to do 'G.I. Joe.' I had no idea how to do one of those movies. I was kind of scared. You know, if one of those doesn't work, it's a huge hit on your career. People are like, 'Well he couldn't make a $170 million movie work. I don't want him in my film.'
+- Girls were always my biggest distraction in school.
+- In the beginning, I would find a character I understood. That was my focus. Not now - but you basically get offered the exact same thing you just did. Which I find hilarious. I did 'The Vow,' and then I had every love story you can imagine thrown at me. And now I'm getting offers for comedies.
+- The film is a direct mirror of the director. If your director doesn't know how to dress, there will be an aesthetic of the film that won't come through - whether it's in the costumes if he doesn't know exactly what he wants or the look of the film.
+- I did not go to military school. I had an option either a military school or a private school. I don't know how to get that out of the information that's out there.
+- Jim Thorpe is someone I've always loved. He was an Olympic athlete, you know, and a football player from back in the day. I'd love to play him. And then there's a guy called Iceman who was a top hit man for the mob. I would love to play him. Actually, it's sort of in the works, so I hope it goes through.
+- In wrestling, there is no retreat. No way to slow things down. In wrestling, you advance and advance, and being tired is just a lie to make the other guy think he can relax. It's so hard - harder than anything I've ever done.
+- Truthfully, this is how I approach my workout: I want to be the best athlete I can possibly be. If I can out-perform some of the better athletes then I'm happy. When I look at the NFL or the NBA, these guys look how I want to look - it's useable, functional muscle.
+- I lived crazy really young. So now I don't need to go out and get nuts.
+- I have a tradition that I always steal my last costume on the last day of filming.
+- I'm not pretty. The truth is I didn't think I could be a model at all. I was looking at some of the guys on the walls at Irene Marie and I thought to myself 'Jesus Christ. I can't do this. I don't look anything like these guys'.
+- But I stuttered as a kid. I went to classes to help it, and it just went away around fourth grade, when I became more aware of how others spoke, I think. But also, growing up in the South, a mumble is a way of speaking.
+- No one's calling me for lawyer roles. I still have a lot to do to prove myself.
+- It's embarrassing to tell you how much my friends make fun of me. Seriously, when you have a doll made of your face, it's ridiculous how creative your friends can get... pictures, videos, little animated cartoons that they've made.
+- My mother taught me how to love. My mom is the most loving person I know.
+- I'm thankful for weird people out there 'cause they're some of the most creative people.
+- I have the flying dream a lot where I'm jumping off a building and just flying around.
+- In all the movies I'm in love with someone in my head. There's always love in a film somewhere. It doesn't matter even if it's an action movie.
+- I had a bad stutter when I was really young. I couldn't get a sentence out. Like, 'D-d-d-d-d-d-d-d-ad.' And that turned into a mumble.
+- I had an all right high school, even though I hated school. I wasn't massively popular, but I was okay. But I wouldn't want to do it again.
+- 'The Vow,' I didn't know if people were going to want to see it, but we felt good about it. We we're like, 'Alright, either way, I liked the movie for what it was,' and I think we knew exactly what we were trying to do.
+- I like to be lean. If I get too bulky I can't move well and I like to move. When I'm not training, I get really round and soft.
+- Someone who doesn't take herself too seriously and can be a goofball. Because everyone's a nerd inside, I don't care how cool you are.
+- I don't know if I'm very complicated at all. I wish I was. I wish I was one of these deep, intricate people. But I just love having fun really.
+- I think that the divorce rate's over 50% for a reason. I don't think people are taking enough time now to really see if they can make it work and live together.
+- I'm not a comedian. I can play off of people, but I'm not that guy. I don't want people being like, 'Yeah, he should have stuck with drama.' It would not be my choice to have critics mumbling that.
+- I've always negotiated the world very physically, from football to tussling at the playground to taking my clothes off.
+- I still want to write Clint Eastwood a letter saying, 'I'm sorry, I'm sorry for all us wimp actors. You're the truth.' I guarantee he's not the person you want to fight, even now! You look at him, and you don't want to mess with him. He would still take you down.
+- If my Dad doesn't like you, you will know. My Mom is just too innocent to ever lie. She doesn't even cuss.
+- That's something I do, like, all the time. I just do backflips off things.
+- The more you try to look sexy, the lamer it is, so you just have to commit to the comedy.
+- With sculpting, nothing is cloudy or mystical. It's just about this object, and if you're trying to depict reality, and you do it well, then the outcome is the truth.
+- Soccer was the first sport that my parents put me in, and ultimately, all the parents kind of came over to my mom and were, 'We think Channing would be better at football.... We love him, he's really great, but he's kind of hurting our children.' I was just a little wild.
+- My wife always hates when I go, 'I just don't love female action movies.' I don't know why. I'll watch them, but I don't run to go and see them.
+- It's really hard for men to tell other men 'I love you' without putting a 'man' at the end of it. Like, 'I love you... man.' You just can't look at another man and say, 'I love you.'
+- I'm a fat kid on the inside. I love food so much, and I fluctuate about 25 to 30 pounds between movies. I feel like I have to do a chess movie that requires very little movement at some point, just so I can eat pizza and play chess on the beach all day.
+- I've aways been good at picking up certain things, like sports and dancing.
+- With dancing, you have to know spatial movement with somebody. It is steps. It's literally steps and knowing how close to be or how far away. You have to have the beat in the right place with the camera.
+- I don't think there's a date minimum or maximum. I don't get the whole 'All right, you've got to wait three days to call after the date.' If I got a number from a girl, I'd call that night. There's no science to it for me. You just do what it is that you feel like doing.
+- I think we all suffer from guilt at some point in our lives, but for the most part I never really regret, and I try to always remain positive. Yes, I think that those issues are very interesting to play in a character, and they're prominent issues in life, and I think people can relate to them.
+- I think all jocks have a sensitive side. It's just, will they show it to anybody? Will they let their guard down and stop being tough and the cool jock guy around their friends, or just relax? I don't know if it's best to say opening up, but just relax and really say what you're actually thinking, and not what you think people want to hear.
+- I grew up watching 'Braveheart' and 'Gladiator.' Those are my 'Star Wars.' They have values and traits about them that I wish I had.
+- I would love to sing. I would love to do a musical, but I wouldn't say that that singing is my strong suit.
+- I think the superstar thing is completely arbitrary. It's all about who had a movie that did well one weekend. Then, if you have a movie that doesn't do well the next weekend, then, all of the sudden, you've fallen from whatever. So it doesn't really mean anything for me.
+- I read so slow. If I have a script, I'm going to read it five times slower than any other actor, but I'll be able to tell you everything in it. It kills me that there are standardized tests geared towards just one kind of child.

@@ -1,0 +1,26 @@
++++
+author = "Linda Fiorentino"
+title = "Linda Fiorentino Quotes"
+quotes_len = "20"
+description = "the best 20 Linda Fiorentino Quotes"
++++
+- In the end it's about the work, not an award you get for the work.
+- People over 30 are interested in sex too, but they get real movies about it.
+- It didn't rain today, so I didn't have to work. Why don't you have to sit around and wait until it rains?
+- I never wear leather.
+- I go to bed with men, not boys.
+- You can talk about movies all you want, but I have this porcelain fetish. I've had it since I was a kid, because there were so many kids in my family, the only place I had any solace was in the bathroom.
+- Teens aren't just interested in getting laid. I won't believe that's all they're interested in. I have four younger sisters and they're sick of being shown how they're supposed to react in bed.
+- I would like to do maybe a smaller romantic comedy.
+- If I'm not afraid when I'm reading a script, that means I know I've done it before. If I read something and think, Wow, I can't play this part, then I want to play it more.
+- Marriage is a financial contract; I have enough contracts already.
+- They're my favorite two words these days: Oscar reject.
+- I'm convinced my mother only had sex eight times.
+- All I'm thinking about today is cleaning my bathroom.
+- I don't look at scripts in terms of commerciality. I just look at the part, the people involved.
+- I would love to have children, yes. Maybe even adopt them. I'm not sure that I should pass on my genes.
+- He allowed us to choreograph the sex scenes.
+- Sometimes the only thing we women want is a dick and no arguments. What could make us happier?
+- Chazz Palminteri is just the ultimate screen husband.
+- I've been in the bargain basement of the movie business.
+- As actors, the thing we have to fight, more than even the business part of making movies, is boredom.

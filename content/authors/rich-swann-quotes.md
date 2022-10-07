@@ -1,0 +1,47 @@
++++
+author = "Rich Swann"
+title = "Rich Swann Quotes"
+quotes_len = "41"
+description = "the best 41 Rich Swann Quotes"
++++
+- You know I can handle the pressure. There ain't no sleep, there ain't no breaks and that's what I love about this business. That's what I love - I'm always on the go, baby!
+- I love Enzo Amore, man. He's been one of my road dogs.
+- In my case, I never really thought about what it would be like in the WWE. I never thought I could make it to the WWE? especially being a Black man who is 5-foot-6 and 160 pounds.
+- I definitely would love a match with Seth Rollins.
+- I've always been somebody who was just bouncing off the walls and high tension, hyperactive, you know what I'm saying?
+- Guys like Rey Mysterio Jr., Eddie Guerrero, Dean Malenko, guys like that, they've inspired me. They made me want to do this. Those guys were three of the top cruiserweights that you can name.
+- My mother was a huge inspiration to me. We loved wrestling and watched together.
+- One thing my mother told was to go for what you believe and do something that will allow you to inspire others.
+- I feel like I have to go out there and keep on entertaining, keep on dancing and keep on being me.
+- But everybody has their own way and own path. So, I'm not a man that's gonna get into anybody's business.
+- I'm Rich Swann all day... You have to have fun.
+- But I love Baltimore to death. That's my city. It's diverse and growing up there, it was just fun. Personally, I had trials and tribulations with my parents and everything like that, but that's nothing on the city.
+- When you set a goal in your mind of what you want to be and you actually achieve that, it's a feeling that's very hard to describe.
+- My mom found a wrestling school that was in Maryland, and she told me to go down there. From there, I really got my head out of any negativity, and I focused on trying to become a professional wrestler, living my dream from when I was a kid. Wrestling saved my life.
+- Bobby Lashley was the first and to have the opportunity to challenge for the championship when it is even rare to see an African American even headline a pay-per-view; it makes my heart soar. I'm able to be in this position to make everyone who supported me proud.
+- I think the WWE has really rounded my skills as a sports-entertainer. It's been a great experience.
+- When I was finally able to wrestle in Baltimore, it was huge for me.
+- Impact has some of the most exciting wrestlers and performers and some of the greatest people in our industry.
+- Willie Mack is a great talent. He does some of the most unbelievable things that you wouldn't even picture a guy his size to be able to do.
+- Keep on doing things that I do - 'Beat It' dances, splits, excitement, keeping the smile going. That's what I got to do to keep up with that 'Outlandish' nickname, because I am outlandish, after all.
+- I always kept my nose to the grindstone and I always waited for my opportunity patiently. That's what I feel you have to do in WWE to succeed.
+- Anything that I would ask in WWE or if I had an idea, they would be all ears. They would listen and it's been the same experience with Impact Wrestling.
+- My father was murdered when I was 12 years old. It was just me and my mother and my brother at the time. My brother was a little bit older than me and he left, so it was just me and my mom for a bit in Baltimore.
+- I was always myself and was respectful to anybody I was around in this business.
+- Wrestlers were my role models. And now to think that I am that person to somebody, that brings me joy.
+- There are so many scandals in professional wrestling. People have lost their job in this business.
+- The thing is you can never sugarcoat anything, If you're going to tell a story, tell the truth. If you're going to tell something, why not tell it all?
+- To actually be able to live out my dream and be in the WWE, be in the cruiserweight division, have the opportunity bring it to the forefront and show the WWE universe what we're about, there's no better feeling in the world.
+- As far as working against Finn Balor, I always idolized him. I looked up to him. When I was in Dragon Gate Pro Wrestling, he came to Dragon Gate, and was the IWGP Junior Heavyweight Champion.
+- I wanted to align myself with Impact Wrestling, there's just so much crazy talent.
+- My fibula was cracked in half to where it was a clean break, and it was poking at the skin, to where it could have been a compound fracture. My Achilles tendon was crushed like a soda can, the whole top of my foot was ripped off the bone, and the ankle was lodged up into my shin, on both sides.
+- There's room for everyone in professional wrestling.
+- I think there's room for everybody in Impact Wrestling. I think those veterans that come in, they do nothing but give the younger talent nothing but insight and lessons and to help the younger talent. They show them the way.
+- I know people don't want to compare UFC to professional wrestling, but there are people who are featherweights that are selling pay-per-views. I don't think there's anything wrong with a branded division like that.
+- I've never had to make weight for any sport before. Because, get this, I was not allowed to do any sports in school because I was a professional athlete. I was doing wrestling at the age of 15, so the school districts and the board of directors said that because I was a professional athlete that I couldn't do anything.
+- I grew up with my friends, wrestling around, imitating guys like Eddie Guerrero, Rey Mysterio, Chris Jericho, Dean Malenko.
+- The one thing you can't do to me is tell me that I'm not going to be able to do something because I'm going to do everything that I can to prove you wrong.
+- You can think one thing about what your dream could be and it could end up being a disaster or a masterpiece.
+- What makes our business so unique is that if a cruiserweight and a heavyweight get into the ring, styles like Rey Mysterio, Jericho, Guventud, Eddie, are able to jump from that label from cruiserweight into a heavyweight.
+- But I'm 185 pounds and 5'8'. I can't be a powerhouse, I can't be powerbombing people everywhere. That doesn't make sense.
+- Being in WWE at the time, there wasn't really another place to go to. I'd probably say I was content and anything that was given to me, I'd work with and I didn't have a problem.

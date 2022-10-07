@@ -1,0 +1,106 @@
++++
+author = "Ross Douthat"
+title = "Ross Douthat Quotes"
+quotes_len = "100"
+description = "the best 100 Ross Douthat Quotes"
++++
+- Great preschools are no easier to build than great high schools, and if you think your kids might be better off in the care of a parent or with some extended family member, then a system designed around a dual-income plus day care norm will likewise feel like a burden, or a trap.
+- If you live under a system that claims to have high ideals but seems ineradicably opposed to your own people's flourishing, the desire for idealistic reform within the system has to coexist with an openness to more radical possibilities.
+- Every elite seeks its own perpetuation, of course, but that project is uniquely difficult in a society that's formally democratic and egalitarian and colorblind.
+- To analyze Trump is to discover only bottomless appetite and need, and to carve at him is like carving at an online troll: The only thing to discover is the void.
+- The neoconservatives of the 1970s, former liberals who became Nixon or Reagan backers, eventually accepted the 'neocon' description instead of calling themselves 'The Real New Deal Democrats' forever.
+- I think that ultimately the Christian vision of sexuality - the New Testament vision - is not compatible with same-sex marriage. And I don't see a way to change that without entering into a kind of deception, basically.
+- I read a lot of G.K. Chesterton. It was a fairly conventional intellectual path to the Catholic church, I would say.
+- It's an oversimplication to say that more monks and nuns are the answer to the Joel Osteen-ification of Christianity... but it wouldn't hurt.
+- Our great national drama was a westward expansion that conquered a native population rather than coexisting with it.
+- Yeah, I think that social conservatives recognize that they didn't just lose the debate about same-sex marriage. They lost the debate about the institution of marriage, and those two things were sort of connected to each other. The way people thought about marriage changed.
+- Celibacy used to offend family-values conservatism; now it offends equally against the opposite spirit.
+- Where conservative Catholics have the power to resist what seem like false ideas or disastrous innovations they must do so.
+- Modern conservatism was forged in the crucible of the 1970s inflation crisis, and in the aftermath of the 2008 financial crash many conservatives were convinced that there was nothing the Federal Reserve could do about the vast army of the unemployed without touching off a similar inflationary spiral.
+- The prosperity gospel, in its various forms, has always been with us and always will. But that reality is no less problematic for being inescapable.
+- I didn't really start writing about the church in earnest until the mid-2000s, so I wasn't present for or a participant in a lot of the John Paul II-era debates about papal authority.
+- For a divided, balkanized America, it might take the looming-up of a rival power, the rise of a dark but all-too-plausible alternative, to remind us of who we are, and what we do not want to be.
+- I don't think of 'heretic' as a pejorative term - necessarily.
+- Trump could also only win the presidency without a popular-vote majority because a large region of the country, the greater Rust Belt and Appalachia, had been neglected by both parties' policies over the preceding decades, leading to a slow-building social crisis that the national press only really noticed because of Trump's political success.
+- As a generalization, fantasy writing has leaned more on political storytelling the more it's tried to escape the inevitable influence of Middle-earth, and revise the Eurocentric and Christian tropes that Tolkien's particular worldview bequeathed.
+- Our founders built a new order atop specifically European intellectual traditions.
+- Most people want the convenience of the Internet far more than they want the private spaces that older forms of communication protected.
+- One of the frustrating tics of our society's progressive vanguard is the assumption that every evil it discovers was entirely invisible in the past, that this generation is the first to wrestle with dominance and cruelty.
+- The fact that populism is flourishing internationally, far from the Electoral College and Fox News, suggests that Trump's specific faults might actually be propping up American liberalism.
+- Politics is partially about what you fear more than what you love, so there are plenty of things about liberalism all by itself that make me tempted to support Trump.
+- I had just been sort of raised and formed in a general Christian context, and it seemed to my teenage self that I found the argument for Catholicism very compelling. To the extent that there was a personal driving force, it was more on the intellectual side of things than the mystical or deeply personal. When I converted, I thought it was true.
+- Liberalism has never done as well as it thinks at resolving its own crises.
+- When it comes to explaining the phenomenon of right-wing populism, liberals are likely to argue both that the populist era has exposed a darkness always present at the heart of conservative politics and that a toxic, post-truth new-media ecosystem has greased the skids for President Trump, Brexit and the rest.
+- To visit the West Coast, now and always, is to be overwhelmed by its beauty - the blue water and blue skies, the temperate air and the beaches and the looming mountains not so far away.
+- For American philo-Semites, the Jewish experience wasn't just one minority experience among many, but a signal and elevated case.
+- I think with artists and celebrities, you want to be simultaneously supportive of their conversions without putting too much hope and weight into it.
+- It is not white nationalism to believe that growing ideological uniformity in the commanding heights of culture makes American politics more polarized.
+- I get the sense people sort of imagine that in my personal religious life I must be an intense rigorist wearing a hair shirt under my clothes while scourging myself. And, really, I'm not a rigorist by temperament.
+- I think true atheism is a rare thing in human affairs: Even in the most secularized precincts of Europe, a lot of nominal nonbelievers turn out to have all sorts of supernatural and metaphysical beliefs.
+- It's always good to have fears for your eternal soul.
+- Awards shows are being pushed to shed their genteel limousine liberalism and embrace the race-gender-sexual identity agenda in full.
+- When I started reading George R.R. Martin's 'A Song of Ice and Fire' novels, it was the late 1990s and obsessing over fantasy novels was (if painful memory serves) a super-nerdy thing to do.
+- Even Warren Buffet is allowed to have an awful year from time to time.
+- The idea that America has some distinctive role to play in the unfolding of God's plan is compatible with orthodox Christianity. But it should be tempered by recognizing that America is not the church.
+- There are all kinds of great things that megachurches and successful fundraising appeals can allow you to do, especially in terms of overseas charity work, and so on. I'm just arguing that American Christians need to recognize the temptations that can expose you to as well.
+- The American intelligentsia has been pretty secular for a long time. There have always been figures like Oprah Winfrey, let's put it that way.
+- In our age of digital connection and constantly online life, you might say that two political regimes are evolving, one Chinese and one Western, which offer two kinds of relationships between the privacy of ordinary citizens and the newfound power of central authorities to track, to supervise, to expose and to surveil.
+- My view of Trump is that, while he has done some extremely noxious things, in general his worst feature, his most authoritarian feature, really is his public presentation.
+- Every year at this time I join a growing number of journalistic flagellants in enumerating things that I got wrong in the previous annum's worth of columns.
+- Whatever role the structure of the Internet plays in radicalization, the root causes are still primarily sociological and political, and they will perdure and manifest themselves somewhere, somehow, no matter what YouTube suggests for your next video when you watch a Milton Friedman lecture.
+- The best time to make deficit reduction a priority is when the inflation rate and the bond market give you some indication that you are headed for a dangerous inflationary spiral.
+- We have plenty of examples from twentieth-century history where, out of fear of liberalism or Communism, religious conservatives made alliances with secular populists and nationalists, and it ended up going pretty badly for everybody.
+- In the end the recrudescence of racism on the right is conservatism's problem to solve, and it has to be solved independently of whatever liberals and leftists happen to be saying. But the task of solving it still gets a little harder with every nonsense charge or bad-faith accusation.
+- If you're too confident in assuming that America's and God's purposes are one, you tiptoe toward idolatry.
+- If we had a populist president who didn't alienate so many persuadable voters, who took full advantage of a strong economy, and who had the political cunning displayed by Modi or Benjamin Netanyahu or Viktor Orban, the liberal belief in a hidden left-of-center mandate might be exposed as a fond delusion.
+- Like most places, America has always had potent strains of anti-Semitism - crude and polished, K.K.K. and country club. But unlike many places, we have always had important strains of philo-Semitism as well; there is a long American tradition, with both Protestant and Enlightenment roots, of really liking Judaism and the Jews.
+- There are voters out there that a moralistic and populist conservative right might win but a flagrantly hypocritical and ethnonationalist conservatism cannot.
+- Human beings seek community, and permanent openness is hard to sustain.
+- Donald Trump could win the presidency without a popular-vote majority only because both parties have been locked into base-turnout strategies that are partially responsible for our government's ineffectiveness and gridlock.
+- It is not white nationalism to believe that countries like the United States would be better off with more babies. That belief can be held for racist reasons by racists, but it can also be held, reasonably and righteously, by people who worry about the economic consequences of demographic decline.
+- Even conservative columnists tend to prefer humor that isn't fit to print.
+- Cultural change is always incremental, so the most important thing for any right-leaning artist, writer, or media mogul is to focus less on making political statements and more on producing high-quality work.
+- It's a long way from Martin Luther's 'On the Freedom of a Christian' to 'Eat, Pray, Love,' and a vigorous Protestantism should be able to prevent the former from degenerating into the latter.
+- For presidential power to meaningfully expand, it is not enough for a president to simply make a power grab.
+- I think it's totally possible and plausible that racial balkanization is a recurring aspect of the nature of human politics.
+- When a newspaper columnist wants to write about a novel, the rule is that you're supposed to have a 'hook,' an excuse, a timely reason to bring up the book in question.
+- Now fiscal responsibility is generally a good thing, and so a centrism mindlessly focused on tweaking legislation away from deficit spending has its uses.
+- Genuine cosmopolitanism is a rare thing. It requires comfort with real difference, with forms of life that are truly exotic relative to one's own.
+- That the actual practice of meritocracy mostly involves a strenuous quest to avoid any kind of downward mobility, for oneself or for one's kids, is something every upper-class American understands deep in his or her highly educated bones.
+- For all its deranging effects, I am always grateful to Twitter for the interesting ideas it surfaces.
+- It's not always clear where a healthy patriotism shades into a dangerous nationalism.
+- I think Trump had this general populist agenda but has not been particularly adept at using the levers of power in Washington.
+- The rhetoric of anti-Catholicism, whether its sources are Protestant or secular, has always insisted that the church of Rome is the enemy of what you might call healthy sexuality.
+- There are many families that want to raise kids on one income, or one income and some part-time work, and instead find themselves pressured, financially and culturally, to keep up with the dual-earning Smith-Joneses next door.
+- I grew up in a household that spent most of my childhood on a religious pilgrimage through American Christianity.
+- That clerical celibacy doesn't guarantee asceticism is obvious, any more than attending Mass guarantees prayerfulness (trust me on that one). But it preserves the call even when the system is corrupted.
+- There may be left-wing or liberal solutions to our deeper problems. But an elite that tries to manage them away with more enlightened media curation deserves to inherit nothing but the wind.
+- Our immigrants joined a settler culture, Anglo-Saxon and Protestant, that demanded assimilation to its norms.
+- Every Christian in every time and place is going to be tempted by certain forms of heresy. I'm sure I'm tempted by my own.
+- Fox News is really two news networks. It's a center right news network that has good, solid, interesting coverage if you're watching Chris Wallace or the panel on 'Special Report' or anything like that. Then, it has what Hannity and others like him do, which is just a sort of tribal identity politics for older white people.
+- I think religious individualism doesn't fulfill impulses toward community and solidarity and it doesn't necessarily work for people when things go really bad.
+- Bill Clinton and Barack Obama represented somewhat different party factions, but they both embodied wonkery, a vision of competence and expertise governing to some extent above ideology, in which there are assumed to be 'correct answers' to policy dilemmas that a disinterested observer could acknowledge and the right technocrat achieve.
+- The days of noblesse oblige are long behind us, so our elite's entire claim to legitimacy rests on theories of equal opportunity and upward mobility, and the promise that 'merit' correlates with talents and deserts.
+- When immigration proceeds at a steady but modest clip, deep change comes slowly, and there's time for assimilation to do its work.
+- Time and again a close election leads to hand-wringing about the need for Electoral College reform; time and again, politicians and parties respond to the college's incentives, and more capacious and unifying majorities are born.
+- I think that the politicians who were beaten by Donald Trump and then endorsed him, that's something that they will carry and should carry, for the duration of their career.
+- I think you can see a clear link between certain kinds of Christian nationalism and support for Trump. Then, I also think that Trump is benefiting from the weakening of religious participation. He's winning evangelicals who aren't in church.
+- Jewish Americans weren't just integrated, like other ethnic and religious groups. They also attracted a particular sympathy and admiration, rooted in Holocaust remembrance, affection for Israel, and a distinctive pride in the scope of their success.
+- Our crisis of the house divided was a Christian civil war.
+- I identify, I guess, as a conservative Catholic.
+- In fact, the religious right consists of an alliance of several groups that, without experiencing anything like the oppression visited on black Americans, have consistently occupied lower rungs in the American social hierarchy.
+- In general, I think that not voting is a perfectly honorable and civic-minded course in an election with two options that you consider unacceptable. I think casting a protest vote is a totally acceptable course. I have done both in my life.
+- I think generally, Pope Benedict did a good job cleaning up the way the church handled abusive priests but didn't go far enough in how he handled bishops who enabled them.
+- I think it was a good and necessary thing that the American upper class diversified, and that more African-Americans and Jews and Catholics (like myself) and women now share privileges and powers once reserved for Protestant white men.
+- There were times at Harvard when I actually longed to hang out with a few more Trotskyists, rather than yet another set of future consultants and investment bankers. At least the Trotskyists cared about the important stuff.
+- We've always been a nation of heretics.
+- It is not white nationalism to recognize limiting principles on liberal universalism, and a justifiable role for particularity - ethnic, cultural, religious - in many political arrangements.
+- In Barack Obama's second term, with his legislative agenda dead in a Republican-controlled Congress, the president turned to executive unilateralism on an innovative scale.
+- I think that for social conservatism to make sense as a political world view, it has to have a more capacious understanding of what kind of society it wants than just saying, 'Leave us alone and let us pass laws against abortion.'
+- Cultural arenas and institutions that were always liberal are being prodded or dragged further to the left.
+- I am not a post-liberal and I do not think that such a return to full 19th-century anticlericalism inevitable or even likely - which is one reason among many that I doubt the bargain many religious conservatives have made with Donald Trump.
+- I think that liberalism and the centrist governing elite of this country need to learn lessons from the Trump phenomenon. It is part of the way that the country is governed and the country is shaped that induces spasms of populism, including spasms of bigoted populism.
+- America's gravest moral evil, chattel slavery, was defeated by an authoritarian president in a religious civil war, not by proceduralism or constitutional debate.
+- On the evidence we have, the meritocratic ideal ends up being just as undemocratic as the old emphasis on inheritance and tradition, and it forges an elite that has an aristocracy's vices (privilege, insularity, arrogance) without the sense of duty, self-restraint and noblesse oblige that WASPs at their best displayed.
+- A diverse elite may be good in its own right, as a matter of justice and representation. But nothing about being a woman or a minority makes you immune to meritocracy's ruthless solipsism.
+- I try not to feel too embattled. I don't think that's a healthy approach for someone who writes for a newspaper like the New York Times to take. That means, in part, that I try and avoid wallowing in things that might make me feel too embattled.

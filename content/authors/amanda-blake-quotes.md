@@ -1,0 +1,71 @@
++++
+author = "Amanda Blake"
+title = "Amanda Blake Quotes"
+quotes_len = "65"
+description = "the best 65 Amanda Blake Quotes"
++++
+- I like living alone.
+- I don't even know how to explain my house, it's so crazy.
+- You mustn't forget that the face is only part of the picture. Most women center too much attention on the face and too little on the figure.
+- I am a victim of oral cancer, a victim of cigarette smoking.
+- I always was concerned about puppy dogs and pussycats.
+- My movie career wasn't going that well.
+- The first really good piece I ever bought for myself was right after 'Gunsmoke' started. I couldn't wait to get my first pay check so I could buy that pinky finger ring, with diamonds and emeralds.
+- I was commuting between Hollywood and Phoenix. It wasn't unusual for me to fly between the two cities two or three times a week.
+- I like to come and go as I please which means I'm not anxious to dash back from the studio to fix dinner for a man.
+- I'll bet I've got more footage of just plain cows than anybody else.
+- I gave up my fur coats years ago - what an ego trip, walking around wearing cut-up animals. Besides, fur coats don't last. I'd rather have diamonds.
+- I'm a loner, so independent it's awful. It's one of the main reasons for the failures of my marriages.
+- If you want to go without hose, you should have a razor as handy as your tooth brush. But suntan your legs, if you are not wearing stockings.
+- I never had any bad experiences on live TV.
+- I think in the summer it's a good idea to use a body lotion after your shower; bath or sunbath. If you wait until you are dried out, your skin will not only look rough, but it will feel uncomfortable too.
+- Quality is what kept 'Gunsmoke' on the air so long.
+- More than anything, I wanted the role of Kitty Russell, even though some people couldn't see me as that character.
+- A great deal of my energy is directed toward battling the Los Angeles Animal Regulation Department.
+- People do live. People don't die with cancer, they live with cancer.
+- I refuse to grow old. You can think yourself into any age. There are days when I feel 195.
+- It's killing for fun or profit I can't stand. There's a difference between an Eskimo killing a seal for survival and some dumb broad strolling down Fifth Avenue in a leopard coat.
+- There was the usual summer stock, the New England tours and then I started doing all kinds of roles for CBS after moving to California.
+- I love poking and looking for things for the house, so I make a great many trips to Mexico.
+- I did the 'Gunsmoke' pilot for $250. We were all so hungry, we would have done anything.
+- It's a good feeling to be able to help, when help is needed. That's one reason I also went into politics. But by politics I don't mean the smoke-filled room sense, but simply being active in community affairs.
+- I am very fair and sunburn easily.
+- Fear can be a killer.
+- I feel that I have my own personality and I don't want to be typed as anyone else.
+- Western women have been a pretty tame lot - dressed in gingham dresses and consigned to hand-wringing back at the ranch, while the hero is fighting for her honor.
+- I hate Hollywood. I hate the business.
+- Frankly, I've had it with this show-business stuff. But I love 'Gunsmoke' and I love the guys I work with.
+- My parents had a Boston terrier, but we never became friends.
+- Contrary to what so many think, life for the stars of Hollywood TV or movies is really quite tame. You get up at 4 A.M., arrive at the studio by and shooting starts at 8. Then you keep on working until 7:30 or 8 P.M. or even 11 at night. By the time you get back home, you're too exhausted for anything but sleep.
+- I made a couple of pictures that weren't even Bs. They were Zs.
+- Once I reported for a dramatic lesson. The coach looked at me and said, 'Amanda, can't you part your hair some other way? It makes you look too much like someone else on the lot.' I rushed home and parted my hair in the middle and have ever since. I even wore it tied up in a big bun in back.
+- Jewelry doesn't give me a sense of security or anything like that I just think it's beautiful.
+- Don't ever call the 'bush' the jungle. That marks you as a rank beginner.
+- I was working live TV, things like the 'My Favorite Husband' series, when I heard about this 'Gunsmoke' casting. I had been a fan of its radio show. I was a real pushy broad. I got myself all gussied up and sat in the producer's office 'til I got tested.
+- I hate flying. I sit back and squirm.
+- Africa is doing little to protect its most valuable assets, the wildlife. Some of the game wardens are poaching on the preserves they're hired to protect.
+- I don't go in for that big fashion routine. It's a waste of money.
+- I absolutely love to work and when they asked me to appear on 'Edge of Night' I thought it would be great fun.
+- I need to be free.
+- When my doctor told me I had cancer of the mouth, I didn't believe it. I had never even heard of cancer of the mouth, yet I had it.
+- I've become a lazy-type actress and I'm glad.
+- I've been playing Tarzan and Jane since I was a kid.
+- Gunsmoke' had been a successful radio show for many years before and I was determined to go with it on TV.
+- It was very unusual for anyone to be her own person in the wild West.
+- Cancer touches everybody.
+- With Red Skelton, you could fall flat on your face and he'd do his sketch around it.
+- Being married, having children, a home and being happy. Without these things, nothing else matters.
+- My first two years, with Metro, were quite unproductive. Then I had a year at Columbia that was a complete disaster.
+- I like being independent, so that when I go home at night nobody says, 'What time's dinner?'
+- I had never been much for outdoor activities.
+- Leopard coats are fantastic. But on the leopard.
+- Being married to your best friend, that's happiness.
+- I don't want to be a reasonable facsimile of anyone.
+- Well, it's like this - I hate Los Angeles and I love Phoenix.
+- It used to take us six days to film an hour of 'Gunsmoke.' But I didn't mind the fast pace of soap opera work. It was nice being able to shoot scenes in sequence. We couldn't do that on 'Gunsmoke.'
+- I love working.
+- I see red only twice - when I took in the mirror and when I read that I'm a second Greer Garson.
+- With skirts even a mid-calf length, the legs are visible almost to the knee when you sit down. And during the summer, with bathing suits and shorts, they really take over. I think every girl should do all she can to make her legs as attractive as possible.
+- My friends all love animals. If they don't, they are not my friends.
+- I want to keep on working. The only way they'll get me to quit is to carry me out of the studio feet first.
+- I believe that I would not have smoked had I seen a label on a cigarette package or in a cigarette ad that said 'Warning: Cigarette smoking may cause death from heart disease, cancer or emphysema.'

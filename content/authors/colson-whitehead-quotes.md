@@ -1,0 +1,111 @@
++++
+author = "Colson Whitehead"
+title = "Colson Whitehead Quotes"
+quotes_len = "105"
+description = "the best 105 Colson Whitehead Quotes"
++++
+- Anytime an African-American writes an unconventional novel, the writer gets compared to Ellison. But that's O.K. I am working in the African-American literary tradition. That's my aim and what I see as my mission.
+- I think a joke is a form of truth-telling. A good joke that's absurd contains elements of our daily darkness and also a possibility to escape that darkness. So, for me, humor is an attempt to capture everyday tragedy and everyday hopeful moments that we experience all of the time.
+- 'Zone One' comes out of me trying to work through some of my ideas about why, for me personally, zombies are scary.
+- Most of my books have always worked through juxtaposition, jumping through different point of views and time.
+- I get invited to do panels with other Brooklyn writers to discuss what it's like to be a writer in Brooklyn. I expect it's like writing in Manhattan, but there aren't as many tourists walking very slowly in front of you when you step out for coffee. It's like writing in Paris, but there are fewer people speaking French.
+- Access to information, to music or any kind of culture, is getting faster and faster and more streamlined. At each juncture, people are thrown into tumult and have to adapt or die.
+- In '82 and '83, that was the rise of the VCR. Every Friday, my brother and I would go to Crazy Eddie's - which was a video store in Manhattan - and rent five horror movies. And that's basically what we did, basically, for three years. Becoming social misfits.
+- A lot of my writer friends live near me, and that makes people think we just hang around with one another in cafes, trading work and discussing 'Harper's' and what not. But I rarely see them. We're home working.
+- I was sort of a miserable teenager.
+- In college, I wrote maybe three short stories.
+- As always, a lot of bad books will be published. Some good books will be published, and you have to seek them out.
+- A lot of early Misfits song titles are inspired by old B-movies, which were my Popeye's spinach when I was a kid.
+- The contemporary casino is more than a gambling destination: it is a multifarious pleasure enclosure intended to satisfy every member of the family unit.
+- I'm always trying to switch voices and genres.
+- 'Zone One' has one kind of an apocalypse, and 'The Underground Railroad' another. In both cases, the narrators are animated by a hope in a better place of refuge - in the last surviving human outpost, Up North. Does it exist? They can only believe.
+- In 'John Henry Days,' I was taking my idea of junketeering and sort of blowing it up to absurd extremes.
+- I grew up reading the 'Village Voice' and wanting to be one of these multidisciplinary music writers, film writers, book writers. And I lucked out getting a job at the 'Voice' right after college.
+- The readership for 'Sag Harbor' was different from people who'd read me before - it was linear and realistic, not as strange as 'The Intuitionist.' Did they carry over to 'Zone One,' a story about zombies in New York? Some, some not. I'm used to people not caring about my other books.
+- I'm just trying to keep things rich for me creatively and for the readers who follow me.
+- I didn't know I was a zombie pedant until I started considering what from the zombie canon to keep in 'Zone One' and what to ignore.
+- The terror of figuring out a new genre, of telling a new story, is what makes the job exciting, keeps me from getting bored, and I assume it keeps whoever follows my work from getting bored as well.
+- For me, the terror of the zombie is that at any moment, your friend, your family, you neighbor, your teacher, the guy at the bodega down the street, can be revealed as the monster they've always been.
+- I use New York to talk about home, but the ideas in 'Colossus' could be transferred to other cities. The story about Central Park is really about the first day of spring in any park. The Coney Island chapter is really about beaches and summer and heat waves.
+- The idea of sacrifice is integral to the John Henry myth. Heroic figures have to die in order for us to have our stories; we live and stand on their bones.
+- I admire Vegas's purity, its entirely wholesome artificiality.
+- Early on my career, I figured out that I just have to write the book I have to write at that moment. Whatever else is going on in the culture is just not that important. If you could get the culture to write your book, that would be great. But the culture can't write your book.
+- If the world's nations can set aside their petty bickering over religion, politics, and territory, certainly I can 'get that Olympic Spirit' and rise above my prejudices.
+- Usually, when I write a novel, it takes me about 100 pages to figure out the voice of the narrator.
+- I was allowed to write about race using an elevator metaphor because of Toni Morrison and David Bradley and Ralph Ellison. Hopefully, me being weird allows someone who's 16 and wanting to write inspires them to have their own weird take on the world, and they can see the different kinds of African American voices being published.
+- I wrote a book of essays about New York called 'The Colossus of New York,' but it's not about - you know, when I'm writing about rush hour or Central Park, it's not a black Central Park, it's just Central Park, and it's not a black rush hour, it's just rush hour.
+- There are good writers and bad writers. It's hard to find writers who really speak to you, but the work is out there.
+- I always try to mix it up with each book - changing tone, changing style keeps the work very vital for me.
+- I try to have each book be an antidote to the one before.
+- Part of any book is establishing the rules at the end of the world. My first book, 'The Intuitionist,' takes place in an alternative world where elevator inspectors are important, so you have to establish rules, and part of that is, How do people talk? How do they behave?
+- I write at home. I like to be able to take a nap, watch TV, make a sandwich, and if I wake up and don't feel like working, I'm not going to bang my head on my desk all day: I'll go out and do something else.
+- I take inspiration from books, movies, television, music - it all goes in the hopper. Depending on the project, I'm drawing from this or that piece of art that has stayed with me. Toni Morrison, George Romero, Sonic Youth - they are all in there.
+- There's not a lot of good TV.
+- I've always thought the Nat Turner story to be very interesting.
+- I don't generally follow sports. At an early age, I discovered that nature had apportioned me only a small reserve of enthusiasm. Best to ration.
+- You can't rush inspiration.
+- In the 1930s, the government paid writers to interview 80- and 90-year-old former slaves, and I read those accounts. I came away realizing - not surprisingly - that many slave masters were sadists who spent a lot of time thinking up creative ways of hurting people.
+- 'Sag Harbor' was a very different book for me. It changed the way I thought about books that I wanted to do.
+- I like to know how I'm supposed to feel about things. Just a little clue or hint.
+- I'm not a representative of blackness, and I'm not a healer.
+- If you write about race in 1850, you end up talking about race today because in many ways, so little has changed.
+- If you're writing a detective novel or horror or sci-fi, you want to expand or reinvigorate the genre in your own little way.
+- I wanted to be one of these multidisciplinary critics who is doing music one day, TV the next, and books the next.
+- Slavery was a violent, brutal, immoral system, and in accurately depicting how it worked, you have to include that, obviously. Or else you are lying.
+- I enjoy thinking about how race plays out over the centuries, how technology evolves, how cities transform themselves. These subjects are present in some of my books and absent in others.
+- Generally, I walk around in a glum mood.
+- When I'm working on a book, I try to do eight pages a week. That seems like a good amount. Less than that, I'm not getting a nice momentum, and more than that, I'm probably putting out too much crap.
+- Stephen King in general, as well as films of the apocalypse from the '70s, had a big influence on 'Zone One.'
+- Schools don't teach American history that well, especially a lot of black American history.
+- Part of being in New York is being able to brag about what used to be there.
+- I was 7 years old when 'Roots' was first broadcast, and my parents gathered all us kids around the TV to learn about how we got here. But it wasn't until I sat down and immersed myself in the research that I got the barest inkling of what it meant to be a slave.
+- The Declaration of Independence is that sacred American text so full of meaning and purpose and yet quite empty if you examine it and pull it apart because the words 'All Men' exclude a vast number of citizens.
+- For me, choosing between fiction and nonfiction is really only about picking the right tool for the job.
+- I usually have two or three ideas floating around. When I have free time, the one I end up thinking most about is the one I end up pursuing.
+- Other people have hang-ups about what's literary or genre or whatever, and that's sort of not my problem. You're supposed to write what you have to write, and you're supposed to keep moving.
+- I'm raising kids, and so much of American culture sustains me and gives me things to think about and work on.
+- I have a good poker face because I am half-dead inside.
+- 'John Henry Days' was already half in the can before my first book came out, so I'd already started something that was big and sprawling - I just had to finish it.
+- I envied kids who played soccer and football, but that was not my gig.
+- I like questions that tee me up to make weird jokes, frankly.
+- I love getting out of the Q train at Union Square. It's such a mix of people, like a party. There's always an errand you can do along there, whether it's picking up contacts or buying poker chips.
+- In America, when you hear about the Underground Railroad, it's so evocative. You think it's a literal subway for a few minutes before your teacher goes on and describes where it actually was.
+- If you want to understand America, it's slavery.
+- My mom's mother was from Virginia, but I don't feel much of a tie. I'm very much anti-South for many, many reasons. Whenever I go down there, people are always looking at me funny, you know.
+- In fifth grade, we did 10 minutes on slavery and 40 minutes on Abraham Lincoln, and in 10th grade you might do 10 minutes on the civil rights era and 40 minutes on Martin Luther King, and that's it.
+- I started writing in the '90s, so I was free to just have an eccentric career and not conform to some idea of what a black writer has to do. I didn't have the burden of representation.
+- It's always hard to write and get your words out there, to find an editor, a publisher - readers! - who are going to appreciate them.
+- Monsters are a storytelling tool, like domestic realism and close third.
+- There's always an attack on the sophomore novel from some quarters.
+- I try to keep each different book different from the last. So 'Sag Harbor' is very different from 'Apex Hides the Hurt;' 'The Intuitionist,' which is kind of a detective novel, is very different from 'John Henry Days.' I'm just trying to keep things rich for me creatively and for the readers who follow me.
+- I knew that a zombie book would not particularly appeal to some of my previous readers, but it was artistically compelling, and being able to do a short nonfiction book about poker was really fun and great.
+- Growing up as a product of the black civil-rights movement, I had a lot of different models for black weirdness, whether it's Richard Pryor or James Baldwin or Jimmy Walker.
+- I never actually went anywhere when I was a journalist. I was a critic, and I just sort of got stuff in the mail and chatted about it.
+- I'm of that subset of native New Yorkers who can't drive.
+- Some people don't like my fiction, because they prefer the nonfiction. But moving around keeps the work fresh for me and, hopefully, for my one or two readers who follow me from book to book!
+- I am not sure the issue of race in America will ever be completely solved.
+- People don't like it when you compare the miracle of childbirth to writing a book, but I think there is some overlap in the two because they are both pure agony.
+- I'm not a teacher; I'm not a historian. I'm trying to create a world for my characters.
+- Growing up devouring horror comics and novels, and being inspired to become a writer because of horror novels, movies, and comic books, I always knew I was going to write a horror novel.
+- I've always had a love of cards, ever since I was a little kid. I think poker, as a system, describes the chaos of the world. Our sudden reversals, our freak streaks of fortune. The belief that the next hand can save you, and the inevitable failure of the next hand to save you. I think that describes my world view pretty well.
+- Each book requires a different kind of treatment and structural gambit.
+- I like to explore different ideas of race, how the concept of race has evolved in the country. It's one thing I enjoy talking about, but I don't feel compelled to talk about it.
+- The movie 'Rock 'n' Roll High School' was a sacred text in my household.
+- A lot of my books have started with an abstract premise.
+- If self-absorption, vague yearnings, and a nagging sense of incompleteness are sins, then surely I will burn for all eternity, and I will save you a seat.
+- Once I got to college, it seemed that the Hamptons were a little bit too posh for me and didn't represent the kind of values I was embracing in my late teens. So, I didn't go out there, except to visit my parents, for a long time. And then, after 9/11, I discovered it was a nice, mellow place to hang out.
+- I'm someone who just likes being in my cave and thinking up weird stuff.
+- Some books are well-received with critics; other books sell.
+- I live in Brooklyn. I moved here 14 years ago for the cheap rent. It was a little embarrassing because I was raised in Manhattan, and so I was a bit of a snob about the other boroughs.
+- What isn't said is as important as what is said.
+- Write what you know.
+- Zombies are a great rhetorical prop to talk about people and paranoia, and they are a good vehicle for my misanthropy.
+- If you go to a big publishing house, editorial aside, it's completely white.
+- I was inspired to become a writer by horror movies and science fiction.
+- I was always into comic books and horror stories and a huge consumer of pop culture. And then I worked for awhile for 'The Village Voice'.
+- Having a wife and kids drove home the brutal reality of the slave system for me - the price it exacted on families. On the other hand, whenever I despair over our history, I am brought back to hope, the hope that things will get better, for my children.
+- 'Driving while black' was taught to me at a young age.
+- I do write about race a lot, but I don't think writers - of any shade or background or whatever - have to write about certain subjects.
+- In the apocalypse, I think those average, mediocre folks are the ones who are going to live.
+- You can raze the old buildings and erect magnificent corporate towers, hose down Port Authority, but you can't change people.
+- Being a slave meant never having the stability of knowing your family would be together as many years as God designed it to be. It meant you could come back from picking cotton in a field to find that your children are gone, your husband's gone, your mother's gone.

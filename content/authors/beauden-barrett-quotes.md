@@ -1,0 +1,35 @@
++++
+author = "Beauden Barrett"
+title = "Beauden Barrett Quotes"
+quotes_len = "29"
+description = "the best 29 Beauden Barrett Quotes"
++++
+- I just remember, it seemed to be the thing to do to get up a three o'clock in the morning and watch the All Blacks play England or South Africa.
+- I don't read anything. I don't read the press. I've always valued my supporters and my haters are supporters in disguise. That's just the way it is. I run a couple of social media accounts and you can't help but look at comments every now and then.
+- A lot of the values I have come from the farm and from my parents, of grafting and of giving, and of always striving to be the best you can be. It's about teamwork.
+- In the back of your mind there's always these contractual things you have to deal with. You try to put that aside when it comes to training and playing.
+- Every season is hard, every season has its ups and downs.
+- I'm such a perfectionist and I want to do everything right, kick every goal, do everything perfectly, but that is not reality.
+- Our mental skills expert Gilbert Enoka is just amazing the work he does.
+- I grew up on a farm playing backyard footie in my bare feet.
+- We pride ourselves on preparing well and genuinely. It's quite easy to brush over the small details, your recovery, the little one percenters. There are so many little things that add up to the performance.
+- I grew up dreaming of being a Hurricane and I'm so proud of playing the number of games I have for them.
+- I'm a Kiwi country boy, approachable, genuine, never getting too far ahead of myself, a straightforward kind of bloke.
+- We grow up in New Zealand from a young age getting up at 3am to watch the All Blacks play South Africa or England, it's part of who we are. So to be an All Black now is amazing.
+- It certainly helped just having acres and acres of green grass, a back lawn where there's goal posts and plenty of siblings and cousins around to compete with and play against.
+- I must say I'm a bit more daunted about changing a nappy than I am making a tackle... unless it's Ngani Laumape or Ben Lam.
+- To me, being an All Black means following our dreams.
+- When you lose for the All Blacks it's not a nice feeling. Expectations on us are pretty high. We have high standards and we know if we've let ourselves or let the jersey down.
+- Whatever role the coaches decide for me and the team, I'm happy with that.
+- At 17 I was graduating and didn't know what to do. I was seriously contemplating going to Melbourne to play Aussie football.
+- Time flies. It seems like just yesterday I was playing my first game against Ireland, when I came off the bench, full of energy and flying into tackles, even though I couldn't tackle back then.
+- I live in Wellington now but I love going back to the farm where all you can hear are the cows or the sea crashing in about a kilometre away. Our uncle's farm is on the beach and we are one up from that towards the mountain.
+- If you overthink things, you end up doing things without the right reasons in mind.
+- For some reason, the more the pressure comes on, the more enjoyable it gets.
+- I think New Zealand Rugby do an exceptional job, the way it's set up from the All Blacks, right down to grassroots. There's a clear path young players can take if they want to be an All Black, if they're talented, or if they get opportunities.
+- I learnt a lot from a psychological point of view about having to move on and flush things and not live on previous mistakes.
+- I take a laid-back approach to a lot of things in life and, at the end of the day, rugby's just a game.
+- Japan is an appealing place for a young family and comparatively safe in health terms.
+- You've got to understand and accept that nothing in the world is perfect. The sooner you understand that, the better it will be.
+- I was more than happy to not wear shoes. The only time we wore shoes was on Sunday when we went to church.
+- Mum always encouraged us to run, she was very athletic.

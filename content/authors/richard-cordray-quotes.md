@@ -1,0 +1,57 @@
++++
+author = "Richard Cordray"
+title = "Richard Cordray Quotes"
+quotes_len = "51"
+description = "the best 51 Richard Cordray Quotes"
++++
+- Mike DeWine has been a dismal failure as Ohio's top cop.
+- My job at the CFPB, as President Obama told me when he interviewed me, was to stand on the side of people in the financial marketplace and see that they were treated fairly.
+- If consumers are strong, if consumers are protected, if they can trust the marketplace and feel confident that they're not being cheated here and there, then consumers can drive this economy forward.
+- When the consumer is strong, the American economy will be strong, so consumer protection actually serves economic growth and economic progress.
+- It makes me mad to see people in government serving themselves at our expense.
+- We marked a milestone for consumer empowerment when we began to publish consumer complaint narratives which allow people to share in their own words their experiences in the consumer financial marketplace.
+- In Ohio, we must put fairness to people and their families first, ahead of powerful special interests.
+- In consumer protection, you can say it hurts business; that is, it makes them comply with the law, which is actually what we want them to do, but it helps consumers.
+- As governor, I would gladly sign legislation to prohibit discrimination based on sexual orientation and gender identity/expression. Other states have led on these issues, and I firmly believe that Ohio must provide an inclusive, welcoming, and tolerant environment that is free of harassment and discrimination for everyone.
+- Too often, borrowers who need quick cash end up trapped in loans they can't afford.
+- I don't want to, on behalf of the bureau, comment on Ohio law as opposed to Washington law as opposed to Colorado law.
+- I would prefer to be known as Richard the Lionhearted.
+- Sometimes you look at the critics and say, 'Nobody else was telling me that, but you were.'
+- It's easier at times to pick at what someone else does.
+- We have to tighten our gun laws and keep guns out of the hands of criminals, the mentally ill, and domestic abusers.
+- You can get in and out of credit cards in a hurry. Not so easy to get in and out of mortgages.
+- Our job, which Congress gave us, was to protect consumers. That work needs to be done in our communities for people regardless of what happens with elections, regardless of what happens with particular people and particular offices, and that is something that I have tried to stress at my agency.
+- I'd be the first to say that cybersecurity is a difficult and challenging matter.
+- As governor, I'll reverse cuts to the Local Government Fund and will work cooperatively with communities across the state to combat the challenges they face.
+- As Ohio Solicitor General and in pro bono private practice, I defended Ohio's hate crimes law. This included a brief in the Wisconsin v. Mitchell case where the U.S. Supreme Court upheld Wisconsin's hate crime law that included sexual orientation. Ohio's should include it as well, and we support it.
+- My job is to take the law as it's given to me and enforce it and implement it faithfully.
+- Over the years, I think, more and more, I've come to recognize that my parents - not in a didactic or explicit way, but in a very powerful way by their example - gave me a sense that government could be a force for good.
+- I know from my own experience that lawsuits can be a very slow, wasteful, and needlessly acrimonious way to resolve a problem.
+- Reasonable regulations are essential to protect consumers from harmful practices and ensure that consumer financial markets operate in a fair, transparent, competitive manner.
+- I'm not going to stand by and ignore things that I think are important to talk about.
+- I think that if you're going after large banks and large financial companies to try to make sure people are being treated fairly, you're going to make some enemies, and you're going to make people uncomfortable.
+- Debt collection is a market with real, persistent, and disturbing problems.
+- We've very steadily and single-mindedly been building the bureau so that we can do the work that, quote, Congress required us to do and that the American people have every reason to expect, and deserve, that we will do.
+- We pursued many actions against foreclosure rescue scammers who were reaching into the pockets of desperate people in an effort to steal what little remained as they sought to keep their homes.
+- Our young people should not be put at risk and subject to unscientific and harmful actions such as 'conversion therapy.'
+- What I feel is that we need an independent consumer watchdog. You have regular people who have problems with big financial companies. How do they get relief? And you need somebody who's gonna stand on their side and level the playing field for them.
+- We're trying to improve the consumer financial marketplace one American at a time.
+- I think government is serious business and important.
+- We must respect women's personal decisions about their health, not dictate to them.
+- Our main concern is that demand for credit be fulfilled in ways that are actually beneficial to consumers and not harmful to them.
+- I am pretty good at getting back people's money.
+- Betty Sutton and I will make it a point to put state government back on the side of the middle class, not the wealthy and well-connected who have run the show at the statehouse for far too long.
+- I actually thought that the marketplace was pretty imbalanced when the consumer bureau was first created and financial institutions did not have someone looking carefully over their shoulder to look after the interest of consumers.
+- The Fair Debt Collection Act was passed in 1977, and there were never any provisions for rules to be written under it, so it hasn't kept pace with the times.
+- I will build on some of the things Governor Kasich has done where I think he has been effective for Ohioans, and I think there's number of areas where he has been.
+- Education Secretary Betsy DeVos owes Ohio $5.3 million for campaign finance violations, and Mike DeWine's office refuses to collect the fine.
+- For years, leaders in Columbus have launched an ideological attack on the working men and women of Ohio and their ability to collectively bargain for good wages and safe workplace conditions. That's wrong, and it has to stop.
+- I don't think I'm at all boring. And my children don't think I'm boring. I don't think Wall Street thought I was boring, either, when I went after them.
+- Having practical proposals that improve people's economic lives is where it's all about in Ohio, and that's what we're focused on.
+- We're running in a primary election. What do you do? You go out and seek support. When you're getting support, that's good. When you're not getting support, that's bad.
+- It's not a long-term business model to take advantage of your consumers in ways that are not sustainable.
+- I have always adopted nondiscriminatory policies toward the LGBTQ community in my public offices in local and state government.
+- We must defend the rights of working people to bargain collectively for fair wages and safe working conditions.
+- I'm low key at times and really learning as a political figure to give more - show more of myself and be less buttoned down, which I was when I was a lawyer and I was when I was a federal regulator.
+- Governor Kasich has done some things that I applaud and have supported and spoken out in favor of, such as Medicaid expansion.
+- What I've learned over the years... judges are conscientious... not like lawyers, who give opinions.

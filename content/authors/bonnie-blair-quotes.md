@@ -1,0 +1,31 @@
++++
+author = "Bonnie Blair"
+title = "Bonnie Blair Quotes"
+quotes_len = "25"
+description = "the best 25 Bonnie Blair Quotes"
++++
+- Anytime you ride against the best in the world, it becomes a learning process.
+- I will remember all the days at the Olympics.
+- I was really happy with my race, though. I beat my personal best by 1.2 seconds.
+- I'm definitely going to miss hearing the sound of that gun.
+- It's sad to know I'm done. But looking back, I've got a lot of great memories.
+- No matter what the competition is, I try to find a goal that day and better that goal.
+- I never could have achieved the success that I have without setting physical activity and health goals.
+- What's really hard is when you're having those more difficult days, you've got to be able to dig down deep and be able to go out there and do what it takes to be the best you can be, even on the hardest days.
+- You have to have the right mind-set.
+- There's probably nothing quite like crossing the finish line and seeing the clock read numbers that you have never seen before.
+- The sport I love has taken me around the world and shown me many things.
+- What I've learned from my own journey, and from my family's experience with cancer, is how important it is to stay positive and move forward. Not every day is going to be perfect; that's life. But staying positive is going to get you to the next day.
+- My legs tightened up pretty much, and it was a hard last corner for me.
+- My dad saw it as a goal before I did, when I was 12 years old. I didn't think competing in Olympics was possible until I was 16.
+- My parents put skates on me at age 2, the way it should be if you're serious, and I've always liked it.
+- When you're in a sport like speed skating where the clock gives you the results, there is always a faster goal or a personal best to beat.
+- Apolo is going to have to keep skating so he can add more gold to his entourage.
+- I wasn't really expecting me to win the gold in this race. To get another medal for myself and for the U.S. was a pretty good thing to happen, I'd say.
+- I just hope I can get another personal best. If I can do that, I'll be satisfied.
+- This Olympics is almost a little sad. It is my final Olympics. There are a lot of good memories.
+- Winning doesn't always mean being first. Winning means you're doing better than you've ever done before.
+- I don't fear anything.
+- Even though I enjoy that head-to-head competition part, one of the things that drove me to long track was if I won or if I lost I want to know it's all on my shoulders and it didn't have anything to do with anybody else.
+- I love short track. I competed in short track, I was a world champion in 1986 but at that point in time it wasn't in the Olympic Games so I moved into long track. Short track is a blast to skate and it's a blast to watch.
+- It's just so overwhelming to think, 'OK, the whole world is watching this!'

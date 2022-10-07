@@ -1,0 +1,45 @@
++++
+author = "Cecily Strong"
+title = "Cecily Strong Quotes"
+quotes_len = "39"
+description = "the best 39 Cecily Strong Quotes"
++++
+- I like Instagram - I love pictures, I just don't take them very often.
+- It sounds so cliched, but I've always been kind of different. I always liked being around weird kids.
+- I do Twitter, but I'm still not great on it - I'm not good at writing short little jokes, so my Twitter's not really a jokey thing.
+- I started doing professional theater and industrials in Chicago when I was a little squirt.
+- I love so many cheeses. I like them hard and soft. I like cream cheese; I like cottage cheese... I'm a true Midwesterner.
+- I'm generally happier and more easy going when it's warm outside.
+- I loved 'SNL' growing up, and I would trick my babysitter into letting me stay up to watch it. My family would rent Marx brothers' movies and Monty Python episodes, and we watched 'In Living Color', 'The State', and 'Strangers with Candy'.
+- I grew up on 'S.N.L.,' doing all the sketches on the playground.
+- My drama instructor suggested I try comedy. I was resistant at first because I considered myself a serious actor, but of course I fell in love with it.
+- I think women have always been funny. But when Tina Fey became head writer at 'Saturday Night Live,' the culture shifted, and women gained a bigger voice in comedy. It's not as if Hollywood producers are feminists. It's more that Hollywood said, ''Bridesmaids' made us so much money, all we want now is funny women.'
+- If you're a nerd, just be a nerd. That's way better than a nerd who's trying to be a hipster. And if you are going to tell jokes, don't direct them at other people. Not only is it not funny, but it's also mean.
+- Impressions are still kind of hard for me and not what I love to do the most, but with characters, I think there's an element of fearlessness. You try to figure out the best reading and wording of the jokes before the show, and then you just really have to go hard.
+- I always feel the most validated and confident being around people that I find funny - having Fred Armisen laugh at a scene or Bill Hader or Seth Meyers give me a compliment.
+- I actually graduated from the Chicago Academy for the Arts. I think John Cusack did as well.
+- My parents are really funny. Laughter was a big part of my childhood. Of course, they tell a lot of bad jokes - but so do I. I tell a lot of bad jokes.
+- If something awkward happens, laugh. I don't think I've ever dated a guy who couldn't laugh - even in bed, during intimate times.
+- When I write on 'SNL,' I've found I'm most productive while collaborating and joking with friends and not being firmly attached to any one idea.
+- There have been some terrible winters in Chicago, where it feels like I'm literally being punched in the face, and everyone walks around looking stunned like they've just witnessed a murder.
+- You have to put work into relationships to keep them fun.
+- Usually I'll just eat popcorn, but if theaters would sell me goat cheese and garlic with Triscuit crackers, I'd give them all my money.
+- I'd like to be reincarnated as a French tart. They're so beautiful and delicate - they're like my opposite. I'm more of a comfort food: goat cheese with garlic.
+- I'm a huge Bulls fan. I like an emotional backstory while watching sports. In my mind, all the players on the Bulls are really nice, decent guys. Especially that Derrick Rose.
+- I worked in a coffee shop called Buzz Cafe in Oak Park. I started when I was 14 or 15, washing dishes, and then I became a barista and sometimes waited tables. It was an artsy scene.
+- I'm not high maintenance, and I'm not into a highly manicured man. I don't want to see a lot of hair product.
+- Food can be mean to me, but I love it anyway.
+- I've been slightly hypoglycemic since I was a kid, so I have to make sure I eat in the morning and get my sugar.
+- Extra-dirty vodka Martinis - they're so easy to drink! I should really just drink olive juice; it'd be safer.
+- I've never been an impressionist. I was doing Sofia Vergara and Elizabeth Dole. I'm sometimes so low-confidence and self-aware, so characters that are confident and ignorant and wrong are my favorite.
+- People have confused playing devil's advocate with being intelligent.
+- I was voted funniest person in my middle-school yearbook. So I guess I was funny in middle school?
+- I think I'm always inspired by really, really funny, amazing women, but I'm also inspired by really funny, amazing men. I think there's more of a feminist voice, like with Amy Schumer being out right now, whom I adore.
+- I love to share food, especially if I made it or I'm particularly proud of what I ordered.
+- There's so much more bad information than good information out there - everybody's got something to say and it's usually wrong.
+- I don't have the most confidence in the world, and I'd venture to say most women in comedy don't come from a place of, 'Oh, I'm fabulous!' She's just as nervous as you are. So if you're trying to score with a funny girl, laugh at her jokes and tell her how hilarious she is.
+- I think of myself as kind of a hippy. Everyone around me says that's not the impression they get. They think I'm sassy. Apparently, I think I'm nicer than I really am.
+- I got my degree in acting and theater, and then I had a teacher who told me to take a class with The Groundlings. And for a second, I thought, 'Well, I don't know about that. I'm a serious actress.' And then I did, and I loved it, and I said, 'Ah, well, I guess this is what I'm going to do now.'
+- I love people who aren't embarrassed. I'm always embarrassed, so it's always astonishing to me when people aren't like that.
+- I'm not high maintenance, and I'm not into a highly manicured man. I don't want to see a lot of hair product. If he's too showy, that's embarrassing to me - I wear makeup and take showers, but that's basically it. I'm not trying to stand out too much.
+- I love New York, but I don't like how it smells like hot pee and garbage in the summer. I feel like Chicago isn't that way. Maybe I'm just being romantic.

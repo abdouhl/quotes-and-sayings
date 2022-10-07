@@ -1,0 +1,40 @@
++++
+author = "Babu Antony"
+title = "Babu Antony Quotes"
+quotes_len = "34"
+description = "the best 34 Babu Antony Quotes"
++++
+- My kids like it when I sit with them and watch the movies or games they are interested in.
+- I strongly feel there is nothing like a trend or even 'new generation movies.' A movie can be of a new generation only in terms of technology and nothing else.
+- I don't take films to prove my talent and receive critical acclaim or awards.
+- 'Poovizhi Vasalile' was remade into five languages, including Hindi, and I played the same role in all.
+- Entertaining audiences is of prime priority for me. If they feel entertained, through that I get appreciation and my talent is therefore proved.
+- I'm eagerly looking forward to substantial roles from Kollywood filmmakers.
+- There have been instances of many trying to pull me down in Mollywood. However, I have no complaints.
+- I will be working with Akshay Kumar in the upcoming Raghava Lawrence film 'Laxmmi Bomb.' I can't say much, but can mention that it is a very important, positive role, and the character is someone who will be with the lead actor, so there will be no fights with him.
+- I will play a villain only if the role is a powerful one.
+- I am looking for variety roles.
+- It is not easy to find the right story and director.
+- Martial arts have always been a major part of my life.
+- I have never taken supplements or steroids in my life and the only luxury I allow myself is tea.
+- I teach mixed martial arts and I am having a gala time running a school dedicated to it.
+- There were many fruit trees in our house when I was growing up and I never missed climbing any of them.
+- Of late, Mollywood has been having many films that are being made not because the makers think it will be accepted by the audience; but because they know that they can get back their investment made in the film by selling its satellite rights. This, I believe, is a very bad trend.
+- When I emerged as a hero, there were times I had continuous hits in Malayalam. I also tasted success as a supporting actor in other languages. But there was a collective effort from a group in the Malayalam film industry to flush me out, which affected my career.
+- I agree to play a character if I feel that as an audience member, it will entertain me.
+- I remember that alongside the expected dishes, our family had a few of our own specials too like 'meen manga curry,' which had a yummy green colored gravy.
+- I believe that an actor should be like water, free-flowing and extremely flexible.
+- There is enough space for everyone in the Tamil industry and it is free of politics.
+- Generally, occasions like Maundy Thursday and Easter can strictly be family affairs for Christian households. But, while I was growing up in my ancestral home in Ponkunnam in Kottayam district, they weren't so. My late dad was a very cool, affable person who liked to involve our friends and neighbors too in such celebrations.
+- Sometime ago, I went for a film festival in San Francisco and that's where I met film director Warren Foster and actors Robert Parham and Randy Taylor, by chance.
+- I don't do every film that comes my way.
+- I'm not interested in doing every role that is coming my way.
+- I am not getting many offers in Mollywood, which is not the case in other film industries. And of the roles that are offered to me, I choose only the best.
+- Especially today, Mollywood's action scenes comprise of many 'hero touches and the villain flies' scenes. I never promoted that, and only believed in realistic stunts, with just the right amount of cinematic feel seasoned on them.
+- I'm proud to have associated with a small, yet beautiful film like 'Kaaka Muttai.'
+- It's been almost 10 years since I had done an out-and-out action movie, as I have also been diversifying into roles of other genre.
+- I never agree to do a character that molests a woman. I have been very conscious not to do such roles. I believe that even a villain should have character, which people can remember.
+- Even at home, I am not too much into trainings and workouts.
+- I think filmmakers need to explore more in the action genre.
+- Martial art is a nice path to healthy body, mind, and spirit.
+- I'm excited about my directorial debut, 'Piano.'

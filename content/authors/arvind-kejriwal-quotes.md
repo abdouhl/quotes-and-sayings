@@ -1,0 +1,106 @@
++++
+author = "Arvind Kejriwal"
+title = "Arvind Kejriwal Quotes"
+quotes_len = "100"
+description = "the best 100 Arvind Kejriwal Quotes"
++++
+- It is a British legacy that we have such a strict hierarchy that we can't even write a letter to our PM.
+- I will involve everyone to make Delhi an ideal state.
+- Lots of people tell me I am straightforward.
+- I completely disagree if someone says that corruption of junior government officers should be overlooked.
+- I am not a terrorist, I am a former chief minister.
+- Indians are first class people suffering from third class governance.
+- I want to appeal to all people to come together across the country and stand against this politics of corruption.
+- I want to remain a common man, want to spend time with my family.
+- Actually, no one is born honest or corrupt.
+- We want people to tell us the possible steps that can be taken to save ourselves from the harmful effects of air pollution.
+- In a democracy, people are supreme.
+- You need your private space.
+- Too much of power has got concentrated in the hands of the Central and state governments.
+- We are not entering into politics to acquire power.
+- Everyone should have enough to be able to eat and sustain their families. I'm not saying everyone should become extravagantly rich but everyone should have sufficient food and good education.
+- People are sick of the political system and the players in the system - BJP, Congress, Akalis. They want a good alternative and those who can deliver.
+- Why should the PM be placed on such a high pedestal? That an ordinary citizen should not even have the guts to write a letter to the PM?
+- My job is to change the system so all of India can shine.
+- They say Kejriwal fights a lot. Yes I do, but not for my wife or children. I fight for your rights. So you tell me, should I fight or not?
+- If we provide quality education to one generation, poverty will automatically be eradicated from society.
+- A lot of people has lost their lives due to indiscipline on the roads.
+- We need to work out what kind of systems of governance we should have.
+- Congress as well as BJP candidates are in the pockets of Adanis.
+- If you walk on the path of truth all the powers in the universe help you.
+- It is easy to talk about development. However, it entails painstaking efforts to actually make it happen.
+- I am not against privatisation of the media channels but I stand for a strong regulation and transparency.
+- It's the public which decides its Chief Minister. We live in a democracy.
+- There cannot be any company or organisation where 100% of the people are sadhus or mahatmas.
+- Our kids are our biggest assets. They are the future of our country. If we provide them good education, no one can stop India from becoming a developed country.
+- Movements live on a day-to-day basis.
+- Individuals do matter and personalities matter in politics. But if issues are sidestepped due to personalities, then that is very dangerous.
+- It requires guts to leave the chair of chief minister.
+- Yes, I do believe in karma. In my childhood I was a believer.
+- Economic growth and 'future superpower' status is all very good but that doesn't guarantee dignity for every individual.
+- I will keep repeating, that if you find me guilty of corruption then take the strictest action against me.
+- We, alone, can't change the country. We should do it together.
+- Indian polity has failed to provide solutions to the common man's problems.
+- There is a perception that anganwadis are merely places where food is provided to children.
+- There isn't a single developed country which does not have its citizens well educated.
+- Hatred will only breed hatred.
+- We want to spread the movement and want people to join in. Any one who is against corruption should join, be it Baba Ramdev or the common man.
+- We are against crony capitalism.
+- I respect Kiran Bedi, she is like my elder sister.
+- Even if AAP wins municipal elections we will continue to demand probe into EVM tampering because it threatens the base of democracy.
+- If someone thinks that education, health, infrastructure all are different sectors and issues and they ought to be fought independently, then they are mistaken. There is an underlying pattern in the process. And that is bad governance.
+- I don't agree that the Somnath Bharti incident has been an embarrassment.
+- I want to make Delhi a place where people of all religions feel safe.
+- No alliance can be formed on Twitter.
+- When ordinary people come together, they can upset the mighty.
+- There are a large number of institutions in this country which we should not politicise.
+- Providing good education to all citizens is necessary if India wishes to be counted as a developed nation.
+- We fought against British not because of the color of their skin but also because of the exploitative character of their government.
+- At the heart of all problems lies the politics of the country.
+- Contrary to what certain sections of the media have been reporting, there are no differences between Swami Agnivesh, Kiran Bedi and me.
+- Right to Information is a small concrete step in making our polity more democratic.
+- Leadership is important in politics.
+- When you are running the country it means you work for the poor people. It doesn't mean you siphon off money of disabled people. It does not mean you allot public property like coal for free to rich people.
+- I am an ordinary man.
+- My children feel proud of me. Since their father is honest, they have nothing to be ashamed about.
+- No one gets punished for corruption in our country.
+- We have ended the VIP culture in Delhi. We made additional night shelters for the poor. We have started the anti-corruption helpline. We are impartial and are not against anybody.
+- If you go to America or London, you will see Indians shining.
+- We have a democracy of elections to elections. After winning an election, the parties become brazen and arrogant. They would do all wrong things and if you question them, they would say - why don't you change the government next time? But that would be five years later. What do I do right now? I am suffering right now.
+- I have not flouted any rules on transfers or posting.
+- Life remains the same for me. It's always been a battle against injustice and corruption. That battle goes on.
+- We have never said that we want to challenge the institution of Parliament.
+- This democracy is not by the people, of the people, for the people. This democracy is about by the party high command, of the party high command, and for the party high command.
+- Delhi becomes a gas chamber every year with the advent of winters, mainly due to stubble burning.
+- One thing that is great about India is the freedom to speak and the spaces available in our democracy to protest which doesn't exist in many places in the world.
+- MPs are basically bonded labourers of their parties. And it is the party high command of each party, which takes decisions.
+- I am a man in a hurry. We have to work both from office and roadside. I am impatient.
+- Doing politics over water is not good as people from Punjab and Haryana are also our own like that of Delhi. Everyone should get water.
+- No person can fool all the people all the time.
+- Only love can heal hatred.
+- AAP was formed to expose the Congress's scam. We could never think of an alliance with the Congress, but to fight the BJP we have to think of something like that.
+- I'm diabetic.
+- Our aim should be to not allow a single corrupt politician or even a family member to enter the House.
+- People like Narendra Modi and Rahul Gandhi, who have spent Rs 500 crore to build their brands, will take that money back from us only. How can they deliver good governance?
+- I think the economics of this country is intricately linked to the politics of this country and the two cannot be separated.
+- Khap Panchayats are a group of people who come together. There is no bar on people to assemble in this country.
+- The representatives of people become uncrowned kings and queens once they get into Parliament.
+- Every person in this country is suffering because of bad governance.
+- Education is the antidote to poverty.
+- I want to request Modiji that you cannot accomplish nation-building by disappointing the government employees.
+- We have to make the bureaucracy accountable to the people. It is not something esoteric, it can be done.
+- I never imagined in my life that I will fight elections or form a political party.
+- In fact, the media should not be run by the government at all.
+- The CVC and CAG are independent but merely recommendatory. The government often ignores their advice.
+- I accept I use bad language, but I speak from the heart.
+- I have seen my parents struggle with meagre means to run a family. That's why giving free and good education, free health services, water, electricity, public transport and safety of women are my top priority.
+- We have police stations for the poor but CBI, CVC and CAGs for the rich with nearly nil recovery of ill usurped wealth.
+- I want to tell the law and order machinery not to spare anyone who indulges in unlawful activities.
+- When I used to fight against the corrupt system, my wife ran the house and my mother supported me.
+- Corruption has to be removed from the whole country.
+- We never said that we don't have faith in Parliament. We have great respect for Parliament.
+- Many people say that we have sufficient laws in our country, just that they are not implemented properly. I completely disagree with them. I have studied many of the laws very carefully. We are still being governed by the same colonial laws which existed in British times. They have not been changed. Many of these laws need to be changed.
+- Our anti-corruption systems have inherently and intently been kept flawed.
+- We play politics for the good of our people.
+- No one can create a movement. No one can create a Gandhi.
+- We feel that the government should not interfere too much in private sector.

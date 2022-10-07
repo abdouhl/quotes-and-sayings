@@ -1,0 +1,37 @@
++++
+author = "Black Elk"
+title = "Black Elk Quotes"
+quotes_len = "31"
+description = "the best 31 Black Elk Quotes"
++++
+- You see, I had been riding with the storm clouds, and had come to earth as rain, and it was drought that I had killed with the power that the Six Grandfathers gave me.
+- Grandfather, Great Spirit, once more behold me on earth and lean to hear my feeble voice.
+- You remember that my great vision came to me when I was only nine years old, and you have seen that I was not much good for anything until after I had performed the horse dance near the mouth of the Tongue River during my eighteenth summer.
+- Also, as I lay there thinking of my vision, I could see it all again and feel the meaning with a part of me like a strange power glowing in my body; but when the part of me that talks would try to make words for the meaning, it would be like fog and get away from me.
+- And when I breathed, my breath was lightning.
+- And as he spoke of understanding, I looked up and saw the rainbow leap with flames of many colors over me.
+- My friend, I am going to tell you the story of my life, as you wish; and if it were only the story of my life I think I would not tell it; for what is one man that he should make much of his winters, even when they bend him like a heavy snow?
+- I looked about me once again, and suddenly the dancing horses without number changed into animals of every kind and into all the fowls that are, and these fled back to the four quarters of the world from whence the horses came, and vanished.
+- I had a vision with which I might have saved my people, but I had not the strength to do it.
+- If you will read again what is written, you will see how it was.
+- There can never be peace between nations until there is first known that true peace which is within the souls of men.
+- I cured with the power that came through me.
+- I was four years old then, and I think it must have been the next summer that I first heard the voices.
+- After the horse dance was over, it seemed that I was above the ground and did not touch it when I walked.
+- The boys of my people began very young to learn the ways of men, and no one taught us; we just learned by doing what we saw, and we were warriors at a time when boys now are like girls.
+- And if the great fear had not come upon me, as it did, and forced me to do my duty, I might have been less good to the people than some man who had never dreamed at all, even with the memory of so great a vision in me.
+- When I got back to my father and mother and was sitting up there in our tepee, my face was still all puffed and my legs and arms were badly swollen; but I felt good all over and wanted to get right up and run around.
+- I think I have told you, but if I have not, you must have understood, that a man who has a vision is not able to use the power of it until after he has performed the vision on earth for the people to see.
+- The soldiers did go away and their towns were torn down; and in the Moon of Falling Leaves (November), they made a treaty with Red Cloud that said our country would be ours as long as grass should grow and water flow.
+- Now suddenly there was nothing but a world of cloud, and we three were there alone in the middle of a great white plain with snowy hills and mountains staring at us; and it was very still; but there were whispers.
+- But I think I have done right to save the vision in this way, even though I may die sooner because I did it; for I know the meaning of the vision is wise and beautiful and good; and you can see that I am only a pitiful old man after all.
+- Grown men can learn from very little children for the hearts of little children are pure. Therefore, the Great Spirit may show to them many things which older people miss.
+- I looked below and saw my people there, and all were well and happy except one, and he was lying like the dead - and that one was myself.
+- And while I stood there I saw more than I can tell and I understood more than I saw; for I was seeing in a sacred manner the shapes of all things in the spirit, and the shape of all shapes as they must live together like one being.
+- They told me I had been sick twelve days, lying like dead all the while, and that Whirlwind Chaser, who was Standing Bear's uncle and a medicine man, had brought me back to life.
+- To use the power of the bison, I had to perform that part of my vision for the people to see.
+- A good nation I will make live.
+- And I say the sacred hoop of my people was one of the many hoops that made one circle, wide as daylight and as starlight, and in the center grew one mighty flowering tree to shelter all the children of one mother and one father.
+- So I took the bright red stick and at the center of the nation's hoop I thrust it in the earth.
+- I know now what this meant, that the bison were the gift of a good spirit and were our strength, but we should lose them, and from the same good spirit we must find another strength.
+- Sometimes dreams are wiser than waking.

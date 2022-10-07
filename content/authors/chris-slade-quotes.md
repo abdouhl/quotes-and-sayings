@@ -1,0 +1,15 @@
++++
+author = "Chris Slade"
+title = "Chris Slade Quotes"
+quotes_len = "9"
+description = "the best 9 Chris Slade Quotes"
++++
+- The last time time I saw the guys was at the end of the 'Rock Or Bust' tour. Yeah, everybody was fine. Malcolm hadn't passed yet, and, of course, I'm sure it hit Angus very, very hard - as with all of us, actually.
+- I love to travel, playing drums, and being on the road as not many people can say that.
+- Even Angus says that Malcolm is a better guitarist than he is. He makes the drummer's job so easy, he's a metronome.
+- I've never done drugs in my life.
+- People always ask me what I did when things went wrong on stage with AC/DC. Nothing ever went wrong. I might drop a drum stick, maybe, but that was about the only thing.
+- There's all sorts of rumors... there's so many variables there. And I've learned with AC/DC also not to believe the rumors, because even fans fake things.
+- The audience just give you a kick - you know, the adrenaline.
+- My role in AC/DC is to keep time and to drive the band as much as I can. That's a drummer's role anyway.
+- AC/DC is like a... It's an institution, for a start. The fans feel a part of the family, and that's a good feeling.

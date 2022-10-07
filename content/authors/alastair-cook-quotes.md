@@ -1,0 +1,106 @@
++++
+author = "Alastair Cook"
+title = "Alastair Cook Quotes"
+quotes_len = "100"
+description = "the best 100 Alastair Cook Quotes"
++++
+- When you give up something as big as playing for England there are going to be moments when you miss it.
+- I am much more happy in a country pub with 10 blokes having a pint than going to a night club.
+- Parenthood changes things a lot.
+- It does take a lot of effort to perform, playing for England. It's a huge amount of sacrifice to do and one day I might just wake up and say 'you know what, I'm done with it.'
+- All I ever wanted to do was play cricket for England and be successful.
+- I have achieved more than I could have ever imagined and feel very privileged to have played for such a long time alongside some of the greats of the English game.
+- I was never going to be the best player the world has ever seen but one thing I can be proud of is that I genuinely believe I have become the best player that I could have become.
+- My stubbornness helped me for the first half of my career; I had that real determination to do it my way - I know the best way. That helped me from a 14-year-old to 25 in getting me to where I got to.
+- When you step out of the team environment you think, 'Wow, I'm England captain and we've just won the Ashes.'
+- I think I come back to Essex and fit in pretty well but until you get there you don't know.
+- If you have lost matches and not played to potential, criticism will come your way. Critics and media will say what they see and take you on. They will say things which you might not like to hear. But that's professional sport.
+- It's surreal to think that no one has played as many Test matches for England. I suppose it's a credit to my longevity.
+- The beauty of cricket is that there are so many different opinions as to the best way to do something and at times it is easier to see something when you're not emotionally involved in the game and not responsible for the decision. You can go and have a cup of tea and look at it from a different point of view.
+- I have loved cricket my whole life, from playing in the garden as a child, and will never underestimate how special it is to pull on an England shirt.
+- As cricketers we fail all the time. You score a hundred every now and again but you get out between nought and 20 far more often. If you get 50, you feel bad because you should have got a hundred. Even if you get a hundred, you feel you should have got 150. So you're always failing.
+- The delight you feel in that split second you score your first hundred is so intense it can't be repeated.
+- Sport is an entertainment, in one sense. But it's also a business.
+- It is frustrating when you go all that way, you train, and you just don't turn up. It does happen. If you play 100-odd Test matches, there's going to be little periods when you don't score the runs.
+- The one thing about professional sport is it's all about results, and at the end of the day, if someone is employing you and you're not scoring runs or you're not taking wickets, they ain't going to carry on doing it, and there's no any other way of saying that; that's unfortunately the ruthless business of professional sport.
+- There's nothing worse than going out without contributing.
+- I love the individual sport stuff but the experiences I've had with some great people over 12 or 15 years are what makes is special. That individual thing: me versus the bowler is great but you get that team feeling as well and that's why it suits me so well.
+- I think a lot when I'm on my own - and much of it is about cricket.
+- The biggest thing was probably a better understanding of the mental side of cricket and also the technical challenges I have in my game. Those two things happened in a very short space of time which changed me as a player.
+- Learning on the job as England captain is hard.
+- My girlfriend comes from a farming background and I spend a lot of time at her farm doing farming stuff. When you're pulling lambs out, or weighing them or worming them or doing whatever you do to sheep you're not thinking about Brett Lee.
+- I miss being the focal point of the team - the guy everyone looks to for decisions. And guidance.
+- When I'm away from cricket I switch off totally. Otherwise I would never be able to keep that same hunger.
+- Test cricket gives ultimate satisfaction that I don't think any other type of cricket does due to the nature and longevity of it.
+- The family farm plays such a big part in my life and I genuinely love going back there. In some ways I'd like to spend every day there, but there would be a big hole in my life if I didn't stay involved in cricket.
+- You want to score runs at the highest average you can. That's what motivates you to keep driving the standards.
+- No disrespect to county cricket but when you're playing for England it is the ultimate, it is what has always driven me to push myself above and beyond.
+- It's quite nice to switch off and not see anything to do with cricket.
+- I've got that ruthlessness inside me. All good captains have to be able to say things like that - with good man-management skills.
+- In a normal series you can have a couple of bad games and still win it.
+- The musical training taught me to focus my mind, before playing in an orchestra taught me how to truly concentrate. If you miss your moment in an orchestra, there is no forgiving.
+- In international cricket you have to thrive on the big stage, you have to deal with the media and the pressure.
+- It's very hard to reflect properly when you're still playing but the hundreds one - when I got my 23rd in Kolkata - felt the most special because it broke a benchmark that had stood for a very long time. It felt good to do something no Englishman has done before.
+- The India series wasn't the only reason I retired. It was the culmination of 18 months where things had probably changed in my life.
+- I suppose you could say I was always having to defend my style of captaincy. I did get a lot of criticism - some of it justified, other times as part of a tactic.
+- Playing for England is such a huge honour - it should always remain that.
+- The captaincy thing is brilliant, and I love it. But I didn't start off playing cricket to captain England. I wanted to score runs and stuff.
+- Nobody walks over me, ever, and no-one will walk over me, ever.
+- Self-belief is certainly an issue you need to make sure you look after when you've lost heavily in two games.
+- As cricketers we're judged on the average we have from being a 21-year-old who's just come into international cricket to the day you retire.
+- Relief isn't quite the right word but there's satisfaction at a job well done and I'm proud to say that I'm an Ashes-winning captain. Without taking it too personally, it has a nice little ring to it.
+- Without sounding arrogant, I achieved a lot more than I thought I would do.
+- You're never as good as people say you are and you're never as bad as people say you are. You're always in the middle at some stage.
+- Throughout my career I have done it my way and used my stubborn streak. I thought the best way to captain was to shut out all the noise - I did it with my batting and thought 'that has served me well, so why change it?'
+- You're always under pressure, that's what life is about. That is what playing international cricket or being a professional sportsman is.
+- In one sense, what happens for me outside of cricket gives me that break - the farming means I have a really different life outside of cricket; it's not just cricket, cricket, cricket for 12 months of the year.
+- The stats suggest that I'm not a dasher. It doesn't mean I can't play the shots, but when you find a method in four-day and Test cricket that works for you, you stick with it.
+- You're either singing on TV or in front of a full cathedral and there's a bit of pressure there. I know it sounds funny but if you get used to doing it, then performing in front of people playing cricket is the same sort of thing.
+- You don't get to the top in professional sport without being hard and tough, but I do that in my way. I don't shout or scream, but I am determined and I will push harder than 99 per cent of cricketers in training.
+- If I was a second-team player, I probably would have gone to uni.
+- Just because you're made England captain, it doesn't mean that you suddenly know everything about captaincy.
+- Being a dad is best thing you can do, it's very exciting.
+- When someone says, 'How long do you see yourself captaining for?' you don't really know.
+- Everyone has technical issues - you have them until you die - but you have to be aware of them in a certain way.
+- In the end, playing for England means very little if you don't see the rest of the world around you. It is why I hate prima donnas and arrogance.
+- No matter how much cricket you have played you are always learning.
+- You're there to score runs. If you don't do that over a period of time, people will look elsewhere. That hasn't changed and that'll never change, whether it's myself or Jimmy Anderson, you've got to play to a certain level to be picked for England or even Essex.
+- I'm a country boy at heart. I love it when you've got your boots on and you're standing in three inches of cow muck.
+- Am I happiest on the farm or out in the middle? I am a cricketer, but the farm is a very special place and I absolutely love being in the countryside and getting away from the bubble. I like to think I'm a farmer, but there's so much experience that goes into that.
+- People like Mo Ali, Jos Buttler, Ben Stokes, Joe Root, they are looking to take attack to the opposition and that's when they play their best.
+- I made my debut in 2006 and absolutely, there was the pressure of the cricket, but there was no social media. There was no direct feedback to your phone. If you wanted to, you could avoid it.
+- When I was made captain, one of my things was that whatever happens in those four years, you don't want to make major changes just before a World Cup. We'd done it before, and it never worked.
+- When I watch Twenty20 cricket, there's a different satisfaction. That hundred you get in six hours is a very satisfying feeling. A real triumph of skill. I don't quite see that in the 20-over game - or the 100-ball game.
+- You're only England captain for a very short space of time.
+- I am hugely honoured and proud to be receiving a knighthood.
+- If you play 100-odd Test matches, there's going to be little periods when you don't score runs, and I've always managed to turn it around.
+- I think my general view of day-night Test cricket is that there is definitely something there that the ICC can keep looking at because it moves the game forward with timing and allows more people to come and watch.
+- Alex Hales has tightened up his game from South Africa and learned about Test cricket. It's great when you see someone who doesn't quite nail it, but goes away and works away at it, come back a person who understands more about Test cricket.
+- I always found one-day cricket a lot harder. I had to change my game.
+- It hurts like hell when you come into a contest and you end up being second best.
+- When I first came into the side as captain, I was accused of being quite conservative, quite negative, and just doing what Andrew Strauss did.
+- I do feel sorry for my younger brother, he used to field a lot.
+- I think it's very hard to shake what people first think of you straightaway.
+- Physically and mentally, it's quite hard. But I'm playing cricket for England. It's what I dream about doing.
+- I don't think you have to be this macho man all the time, just because you play sport.
+- The battle between bat and ball is a one-on-one thing. I love that stuff, but you play it in a team.
+- Many people have helped me during my career and without them and fantastic team-mates and coaches it would not have been possible to achieve all that I have.
+- I like being outside and I like hard work.
+- That is one of the great things about Test cricket, the ball. Sometimes it swings conventionally, sometimes it doesn't and sometimes it reverses.
+- Franchise cricket is here to stay because of the money.
+- The atmosphere and the first days of Test matches against Australia are incredible.
+- I love cricket but I like being away from it as well.
+- When you are so close to something, it's like a bar of soap - if someone says hold on to it, the harder you squeeze, the quicker it pops out of your hand.
+- You have to be very pragmatic, because you walk out to bat at the best time to bowl, with a brand new ball, against the best bowlers, who are fresh. And their job is to get you out, so when you fail there's no point beating yourself up.
+- Yes, there are absolutely moments when you're running out of ideas, and you do genuinely feel sorry for the bowlers when you keep asking them to run in again on a flat wicket, when partnerships get away from you, especially at the tail, which is one of the big differences in the modern game.
+- Even when every Tom, Dick and Harry was calling for my head, I still felt I could get better at being captain.
+- When you're playing, every ball seems like the biggest event. When you're sitting back, you can see the overall picture better.
+- Sheep are never going to talk to you about cricket.
+- Jonathan Agnew is a good person to learn off because he's a brilliant broadcaster and the calmness and clarity with which he does things is a real skill.
+- From a purely selfish, batting point of view, I couldn't bat any better than the 2010-11 Ashes and then in India in 2012. That was as good as I could play.
+- I'm not some little soft touch. I will never take a backward step when batting, but I want to be respected as a nice guy, too.
+- You need to come to terms with the fact that you are not an international cricketer anymore and that's certainly difficult to come to terms with. But then I love going to my farm and spending time with my family. Drop and pick up my kids from school and play cricket as well.
+- Everyone has technical flaws - no matter how many runs you score.
+- The most important opinions to me are those that belong to the guys in the changing room.
+- If someone taps me on the shoulder and tells me they don't want me to open the batting for England, it's going to hurt.
+- The England captaincy job, after 50-odd games, has found out what kind of leader I am in terms of a person. It's made me feel far more confident in terms of talking to a group in any situation. But it has taken me a long time to feel like I've been doing it naturally.

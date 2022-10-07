@@ -1,0 +1,35 @@
++++
+author = "Condola Rashad"
+title = "Condola Rashad Quotes"
+quotes_len = "29"
+description = "the best 29 Condola Rashad Quotes"
++++
+- The truth of the matter is, I am a black woman, and I am an actor. I don't try to get caught up in being a black actor; I'm just an actor who is a black woman. It's not about forgetting that you're black, but you don't need to be hammered over the head, either; it just is what it is.
+- I started playing piano when I was around four; that's my first passion.
+- When films are remade, it often becomes a big deal. In theater, it's called a revival.
+- I think, even when I was little, there was signs that I was an artist. I've always been an artist. My first exploration through art was really through music - I've trained classically with piano for about ten years.
+- William Shakespeare was a brilliant writer and he only wrote the truth. So, if I don't believe it, I have to work really hard to see what that truth is so that I do; that's the only way I can make it believable for the audience.
+- When I'm in Los Angeles, sometimes I hesitate saying that I'm an actor because people are like, 'Of course you are.' And I'm like 'No,' not, 'Of course I am.' In L.A., being an actor is like a pastime: everybody there is like, 'I was on this reality show; I'm an actor.' It becomes a word that is loosely thrown around.
+- You know how there's always the one girl in drama school who can cry at the drop of a hat? She has that emotional well she can tap into in a second? I'm not that girl. It takes a lot to get me to that place.
+- I want the type of career where I can come back to theater. Theater is my home. Theater, to me, is like ballet for dancers. It's my foundation.
+- I had a period without acting work, and I took a job as a cocktail server. In 'Stick Fly,' my character has to carry a tray, and I knew how to do it because of the job.
+- I do create songs and play the guitar. But my focus is definitely on acting. I think, if there's going to be singing involved in my career, it would probably be in musical theater.
+- I wasn't even a theater kid in high school. I studied classical piano, and I ran track.
+- Paul Giamatti is truly one of my biggest inspirations, and even more so now that I've gotten to work with him. Every single thing he does, he completely transforms into it. When I watch a film with Paul in it, I'm not like, 'Oh, there's Paul.' I'm completely into whatever character he's in, and I'm not thinking about him as an actor.
+- When I was born, that was right smack in the middle of 'The Cosby Show.' But what I remember is my mother took me with her... She exposed me to the world in such a way where I was included. And I didn't feel like she chose her career over me.
+- I prefer theater and film. I did a little television, and obviously I'm not knocking it. It can be great, and it does pay the bills. But it's a little bit more disjointed.
+- You're born with a certain love of something. Music was my first love, and that's the world I work from. Growing up, I was surrounded by artists, so my upbringing supported this lifestyle.
+- I'm a songwriter and I'd love to make that a part of my career.
+- The way I work emotionally is: I don't ever try to cry. I try not to, which is what for me produces organic emotion.
+- I admire fashion and I respect it greatly, but I don't necessarily follow trends. I never really have. I just wear what I like to wear. I really like colors, and there are some things I wear and don't care what anybody says about it being in style or not. I wear it anyway.
+- I really want to do film, but I want to do the right film. The truth for me is that I'm really driven by stories. So there are stories I want to tell, and if it's a good story then I want to do it, whatever genre it is.
+- One day I'm not busy at all; the next day I have work for months - that's kind of the way it works!
+- I would never be in a film just for the sake of being in a film, so I am waiting for the right role to come along.
+- If I had seen a black woman play Juliet as a little girl, my idea of my place in the world would have been totally different.
+- If I see something that's extremely challenging, I'm like, 'That seems really hard. Let's try it.' It's just my personality.
+- My view of myself as an artist expanded because of the time I spent at Cal Arts.
+- Shakespeare teaches you how to act. You come out of this process as a better actor. It's just the nature of the words he writes.
+- Orlando is such a kind person. He's so generous and one of us, 'us' meaning a theater person. What a lot of people don't know about him is that, before 'Lord of the Rings,' he went to theater school like a lot of us. He is just really sweet and hard working.
+- The reason why I like theater is because it's a long journey, and no matter what role you play, we are all in it together.
+- Theater is a lot more interactive, more of a cohesive unit. With television, it can be a different director every episode.
+- Even when you're not acting, don't lose sight of your goals or who you are.

@@ -1,0 +1,24 @@
++++
+author = "Bernadine Dohrn"
+title = "Bernadine Dohrn Quotes"
+quotes_len = "18"
+description = "the best 18 Bernadine Dohrn Quotes"
++++
+- I just feel that I don't agree with sensationalized versions of history or me. Any version that's sensationalized.
+- I was shocked at the anger toward me.
+- I don't come from a privileged background.
+- Over all, many of society's values are a cesspool.
+- Americans love to read about violence.
+- There are plenty of mothers who should not be allowed to raise their children.
+- I felt grand juries were illegal and coercive.
+- The aspects of patriotism that hush dissent, encourage going along, and sanction comfortable distancing and compliance with what is indecent and unacceptable... those aspects are too fundamental to ignore or gloss over.
+- I guess I feel very strongly that I disagree with the notion of personalizing history and movements and big events.
+- I think that there is a lot going on with young people today.
+- I'm so unhappy with electoral politics that I switched to sports radio.
+- The '60s are presented to kids today as a commodity.
+- I wish that I had bridged the feminist movement and the anti-war movement better than I did.
+- Even in my most inflamed moment I never supported a racist mass murderer.
+- You can't win for losing. Either you fulfill their stereotype of being a radical 60's person or you've sold out. In fact, of course, millions of people who were active in the 60's are doing work on issues that try to reflect their values.
+- You're always trying to balance your understanding of who you are and what you need, and your longing and imaginings of freedom.
+- I think there's a mystery about what a social movement is.
+- I think the Sixties in some ways is a barrier to young people today. They think of it, you know, what we're doing is not that. But it's partly the myth of the Sixties. It always felt embattled and small. It always, almost always, was a small group of people relative to the opposition around.

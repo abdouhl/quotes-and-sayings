@@ -1,0 +1,44 @@
++++
+author = "Conrad Hall"
+title = "Conrad Hall Quotes"
+quotes_len = "38"
+description = "the best 38 Conrad Hall Quotes"
++++
+- In aptitude tests, I scored highest in music.
+- Painting and writing are solitary arts.
+- The audience has to understand that if the film is going to have any meaning for them. If they are going to empathize with the characters, they have to visualize the process of concentration involved in making every move.
+- I suppose I would still be a communicator, maybe a musician.
+- Cinematography is infinite in its possibilities... much more so than music or language.
+- Manipulating shadows and tonality is like writing music or a poem.
+- Contrast is what makes photography interesting.
+- Every cinematographer I worked with had his own way of solving problems.
+- Billions of people have seen and been influenced by movies in the short history of this industry.
+- There are infinite shadings of light and shadows and colors... it's an extraordinarily subtle language. Figuring out how to speak that language is a lifetime job.
+- I was very happy sitting alone at a dining room table, writing a script.
+- I want to tell a story and shape it all the way through to the end.
+- I knew exactly how I wanted it to play, but you are never sure until you watch the projected images reflect off the screen. That's when you know it worked.
+- I don't think of myself as a director or writer. I think of myself as a filmmaker.
+- It took a while for me to grasp that my colleagues believe I have made an impact on the history of cinema.
+- You have to understand the nature of light.
+- It's important to know that if you are dealing with shadows.
+- Every once in a while, when the audience is expecting to see one thing, you have to show them something else.
+- You are always a student, never a master. You have to keep moving forward.
+- Dad, wherever you are, you are gone but you will never be forgotten.
+- With today's fast films, you can light the way your eye sees the scene. You can abuse the film and create subtleties in contrast with light and exposure, diffusion and filters. That's what makes it an art.
+- I hope I'm still shooting when I'm 80.
+- I think one of the reasons people quit is because they're afraid they won't be able to get better and better; that they have to come to a zenith of some kind.
+- It was 100 feet of 16 mm black-and-white film of a car coming to a stop sign, and driving off. I had to decide how to frame and light it. It was magic. There was a sense of mystery.
+- Photography is a very important part of my life.
+- But at heart, I am more than a cinematographer.
+- That's why I like fast film. It gives you more freedom to light more naturally.
+- I saw Tequila Sunrise as a romantic picture with complex, bigger than life characters.
+- It is also difficult to articulate the subtleties in cinema, because there aren't words or metaphors which describe many of the emotions you are attempting to evoke.
+- I realize that every picture isn't a work of art.
+- I can still recall the thrill of shooting my first film.
+- There is a kind of beauty in imperfection.
+- My peers say I have made a difference. That means more to me than winning an Oscar.
+- But you know you haven't done it all because you know everything keeps evolving and changing; and you know you can evolve with it if you grow and develop as a human being.
+- My first semester, I got a D in creative writing.
+- There are a lot of directors who are knowledgeable about images, and others who aren't.
+- The sun is the most parallel light source because it is so far away.
+- The closer the source of light is to a subject, the broader the beams are.

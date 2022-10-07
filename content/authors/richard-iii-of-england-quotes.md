@@ -1,0 +1,10 @@
++++
+author = "Richard Iii Of England"
+title = "Richard Iii Of England Quotes"
+quotes_len = "4"
+description = "the best 4 Richard Iii Of England Quotes"
++++
+- Amongst other our secular businesses and cures, our principal intent and fervent desire is to see virtue and cleanness of living to be advanced, increased, and multiplied, and vices and all other things repugnant to virtue, provoking the high indignation and fearful displeasure of God, to be repressed and annulled.
+- Not one foot will I fly, so long as breath bides within my breast; for, by Him that shaped both sea and land, this day shall end my battles or my life. I will die King of England.
+- It neither is reason nor in any wise to be suffered that the young king, our master and kinsman, should be in the hands of custody of his mother's kindred, sequestered in great measure from our company and attendance, the which is neither honorable to his majesty nor unto us.
+- Here, loved be God, is all well and truly determined for to resist the malice of him that had best cause to be true, the Duke of Buckingham, the most untrue creature living; whom, with God's grace, we shall not be long till that we will be in that parts and subdue his malice.

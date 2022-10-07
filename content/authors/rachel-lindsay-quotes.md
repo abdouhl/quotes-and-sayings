@@ -1,0 +1,106 @@
++++
+author = "Rachel Lindsay"
+title = "Rachel Lindsay Quotes"
+quotes_len = "100"
+description = "the best 100 Rachel Lindsay Quotes"
++++
+- I keep saying this. I don't think men know what they want. Women are here to help them figure out what it is they want. Like, we're the neck. We tell them to turn left, right, front, back, whatever it is.
+- I know there are going to be people who criticize what I do no matter what, but I'm just trying to not get caught up in it.
+- I'm a Black woman and I've always been told that I wasn't Black enough because of the way that I grew up, the experiences that I had.
+- I am a proud, not Texan, but a citizen of Dallas.
+- My career is really important to me. I've worked hard for it.
+- For 'The Bachelor,' I went through the entire process and was told I was chosen, and then I told my boss... It turned out that my boss was a huge fan of the show, and he was ecstatic. My promise to my firm was that I would do the filming then go back to work, and I did.
+- So my go-tos are bodysuits, crop tops, I like to wear a cute little crop top, but then maybe a jazzy pant. I wear a lot of pants.
+- Family's big to me.
+- I want four kids.
+- I don't shop a whole lot. But when I shop, I shop!
+- All mornings should start with a cup of coffee and a good message from Chris Harrison.
+- Pop culture does not frequently depict women of color realizing their happy ending.
+- My dad is very supportive about me being the Bachelorette. He realizes what an amazing experience it is.
+- I already know what people are going to say about me, and judge me for the decisions that I'm making, and I'm going to be the one who has to deal with that, and nobody else. And that's a lot.
+- I can tell you my dream bachelorette party, but I cannot tell you my dream wedding.
+- Any date that requires you to don a plastic poncho while inside an establishment with a liquor license is going to be incredible.
+- Losing a loved one is never easy.
+- I love sports, and people don't realize that.
+- Knowing that I was potentially going to be the first black Bachelorette actually held me back from wanting to do it. With the first, there's always so much pressure. And I knew I was going to be new to the audience as a lead for a number of reasons - being over 30, being a career woman, and also being black.
+- My dad is a judge, but he started off as an attorney. He is one of my biggest role models; both of my parents are. So, from a young age, I said I wanted to be an attorney.
+- Sports has always been a thing of mine.
+- Men know what they want when we help them figure it out. We make them think they figured it out by themselves. They really didn't. We know we did it, and that's a woman's job.
+- Well, I was a huge 'Matlock' fan as a child.
+- I've always wanted to get married and have a family, but I'm not the girl who sat down and planned out her wedding, her dress, or how everything would go with the proposal.
+- My social media, I think I had 700 followers before, now it's like 800,000.
+- I majored in sports and went to law school and focused in sports law, so I always knew I wanted to do ESPN but thought it would be behind the camera. After doing 'Bachelor' and 'Bachelorette,' the media circuit, I thought, you know what - I want to talk about it!
+- I am a never-say-never person.
+- My dad is now a federal judge, but when he started off, he graduated from the top law school in Texas and couldn't get a job.
+- My skepticism doesn't come from no one. There's a root to it, and it's my family.
+- Even though I'm an African-American woman, it's not different from any other Bachelorette.
+- I'm a fan of 'Real Housewives,' so I personally like drama.
+- I wouldn't want people judging me for things I did at 18.
+- I am truly a person who believes in energy and vibes.
+- You cannot reason with delusion.
+- My friends mean everything to me, so if you want to me be my lover then you have to get along with my friends!
+- I kind of consider myself a tomboy.
+- I'm looking for the man I cannot imagine a day without him being in my life.
+- I'm a black woman and I'm so happy to represent myself in that respect, but I don't want it to be something that defines me and my journey for love. I definitely don't mind talking about it and addressing it.
+- It's so unfortunate because people have become so comfortable being mean.
+- I love a challenge. I do.
+- I just wear like a powder, like a Bare Minerals, maybe some Nars, like a bronzer or blush, light gloss for my lips. That's pretty much it. Mascara.
+- I'm a sucker for a great smile.
+- I'm so humbled and honored to be chosen to represent myself as a black woman to America, and I look at it as such a positive. That's what made me move forward and want to embrace being the first black Bachelorette.
+- I mean, I'm an eye-roller by nature.
+- I'm very excited to be partnering with Vaseline because I've been a fan for years. It's products I grew up with - my mom always used them on us - and now, I use it all, from the petroleum jelly to the lip gloss and lotion.
+- I'm a huge Russell Westbrook fan. I pretend I know him, I call him Rusty. But I love his style and someone who steps out out of the box and is bold and that's him.
+- I don't want to critique an apology. An apology is an apology.
+- I like when a guy wears ripped jeans, has a loose-fitting V-neck top and has a pair of kicks. You can't go wrong with a suit either.
+- I have a big personality, and people feed off that.
+- When I was approached to be the 'Bachelorette,' I was like, 'Uh, no. I don't think I can do this again.' It was conversations that I had with people that said, 'I'm so happy to see a Black woman represented well in a franchise, or 'I'm watching this show again because you did it,' that renewed my wanting to be part of this franchise.
+- When I know I want to do something I'm just gonna do it.
+- I'm looking for a guy who can make me laugh, who knows exactly what he wants, who's ambitious, ready to start a family, ready to get married.
+- I think it is fair to say that I was denied my on-camera happy ending.
+- I majored in sports management, and then I went to law school for sports law.
+- That was my thing: if it's so easy, it's boring or something's not right.
+- Life is hard so why does my relationship have to be hard at the same time?
+- Up until I was 30 I really didn't date seriously outside of my race because I felt like society - not my parents, not my friends - society was telling me I had to pick a Black man.
+- Especially as a woman, the jury sums you up immediately and is listening to everything you're saying. You have to be on your game all the time, and that prepares you for being in front of the camera. The difference is, when I am in front of a jury, I am not talking about my emotions and my life.
+- I started off as a prosecutor and I would be sitting there, waiting for the defense attorney to come, and they would either bypass me because they would assume that I'm not the attorney or they would assume that I was the legal secretary or a paralegal - never the attorney.
+- I learned it is important to be confident in what you have and drown out all of the outside noise. You can't be distracted by what everyone else is doing and how they are doing it.
+- I'm real and honest, and I take things day by day. That's just the way to survive.
+- I've learned that I'm a much more traditional bride than I like to admit. Even from the invitations by Ceci New York with the script font. My dress is very traditional, even though it's a little risque.
+- When you aren't private you open yourself to everyone's opinions about you.
+- When you're putting out something that is very whitewashed and doesn't have any type of color in it and you're not trying to be effective and change that... I think that they have to at this point, give us a black Bachelor for season 25. I don't know how you don't.
+- Being a lawyer is absolutely stressful in its own right. But then, doing 'The Bachelor' and 'The Bachelorette' and all the media afterwards, you can imagine, that's just like a whole new level of stress.
+- Legends of the Fall' is one of my favorite movies.
+- It was actually harder for me to decide if I wanted to move forward as 'The Bachelorette' than it was to decide to be a contestant on 'The Bachelor.' I knew I'd have to ask off work a second time, and I waited until the last minute to talk to my boss about it.
+- I'm just like, 'Give me all the babies. If we can't have them, we're adopting.'
+- I use the petroleum jelly on my lips because they get very dry and it's truly the only thing that works.
+- The Bachelor is in charge of saying what they're interested in and what they're not. Some people don't know that - they do ask you.
+- Football, basketball, and track are my favorites, but I really enjoy watching all sports.
+- I'm a trial attorney and I specialize in defense civil litigation. My firm represents businesses and organizations in whatever aspect they get sued, whether it's commercial litigation, to personal injury, liability, contracts, we litigate for them on their behalf.
+- I feel very indebted to my job. I support the loyalty that they've given me - it's very rare, especially in my profession, that you find people who are not just supportive of who you are as a person, but supportive of you finding love and your happiness.
+- I had seen my dad overcome and work hard for the things that he has, and I hear the stories about the injustices that he faced.
+- The 'Bachelor' franchise does believe in happy endings - some people get an on-camera happy ending, some people get on off-camera happy ending, and some people get both.
+- I'm obviously nervous and excited to take on this opportunity but I don't feel added pressure being the first black Bachelorette, because to me I'm just a black woman trying to find love. Yes, I'm doing on this huge stage, but again my journey of love isn't any different just because my skin color is.
+- I freelance as a sports broadcaster.
+- Some people can't handle that I'm direct.
+- As the first of anything, you're going to be judged. If you accept the good, you have to accept the bad.
+- I'm looking for the unexplainable connection and spark - real, true love.
+- I'm looking for extraordinary. I'm looking for a man who I see and it makes me melt.
+- I spent much of my adult life focusing on my career and I take pride in my achievements in my field.
+- I'm actually glad I didn't watch 'The Bachelor' or 'The Bachelorette' prior to being on them. I think if I'd watched them before being a contestant, I would've over-analyzed it or tried to be something else - tried to fit into that world. Because I was so green, I was just me, and I think it was really refreshing to the people watching it.
+- I would say an eyebrow pencil - a brush and pencil, I cannot leave home without that. Definitely concealer, just because of traveling all the time. I use MAC, and the color I use is a mix between NC42 and NC45. I cannot leave home without that because I'm blotchy. Otherwise, I would say mascara.
+- It is so easy to fall victim of everybody else's definition of what you should be.
+- I do think I can change the perception of the 'Bachelorette.' And not just because of my race.
+- Whether you say I'm too black, I'm not black enough, this is me. I hope people realize that my journey to love doesn't have to be any different just because my skin is.
+- You have to know what you want and focus on that.
+- I like a confident man.
+- My sister is married to a white guy, so it's nothing new for our family.
+- You never want to bite the hand that feeds you, but you also do not want to be aiding and abetting problematic behavior.
+- If the National Football League, an organization notoriously known for not standing behind their athletes of color, can come out to make a statement to condemn racism and their systemic oppression and admit they were wrong for not listening in the past, then the 'Bachelor' franchise can most certainly follow suit.
+- I run away from the one who is good on paper - the one who has it all together - and I run toward the one that's more complicated, and who I can fix and we can work on it together.
+- I need to be able to cook for my kids.
+- I'm in this thing, you know. I'm 'Bachelor' Nation, I'm a part of the franchise.
+- To be the first to do something is huge - all eyes are on you. You just don't know how people are going to judge you.
+- I'm happy to represent myself as a black woman in front of America and I'm happy for America to rally behind me and see what it's like for me to be on this journey to find love. Honestly, it's not going to be that different from any other season of 'The Bachelorette.'
+- I love Dallas.
+- I love a man that's in touch with his feelings. Now, I don't need you to cry more than you talk, but I love that if you're feeling something you just go with it.
+- You know, I really don't have a specific race that I go towards or that I typically date.

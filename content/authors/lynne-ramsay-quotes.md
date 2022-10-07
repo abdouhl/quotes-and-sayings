@@ -1,0 +1,106 @@
++++
+author = "Lynne Ramsay"
+title = "Lynne Ramsay Quotes"
+quotes_len = "100"
+description = "the best 100 Lynne Ramsay Quotes"
++++
+- Where I find things tough is when things are hidden, and people don't say what they mean.
+- Working with cool people helps when working with few shots. You trust yourself and them.
+- I've found that film-making's not just a job, it becomes part of your whole life.
+- When I was younger, making films was so all-consuming. It was a life-or-death thing. Films still mean so much to me when I'm making them. So I had to get away from that attitude of living or dying with every film, because otherwise you'll go insane.
+- I try to keep very simple ideas and keep them as emotionally powerful as possible.
+- I've got a reputation for being difficult, and yet with my crew and my cast, I'm super-collaborative and we get on really well, and they like working with me.
+- I don't really watch TV; YouTube is far more entertaining. But I have tuned in to 'X Factor' - I like trash and nature programmes.
+- You've got to stick up for what you believe in. If you don't do that, you're doing a disservice to the audience, because you're making something really diluted. And if you do that when you're a guy, you're seen as artistic - 'difficulty' is seen as a sign of genius. But it's not the same for women.
+- I grew up on film noir.
+- My brother and my mother had a really difficult relationship; he would exasperate her to death but she'd always be there for him, she always loved him even if she didn't like him at the moment.
+- We Need To Talk About Kevin,' as an adaptation, was pretty major. It's a long book, and it's in letters, so it was a real editing experience to boil that down and make it cinematic. I learned a lot doing that film.
+- I guess I've never really done a straight adaptation. It's been more like 'in the spirit of,' you know?
+- At the time I left film school there wasn't a lot of hope for young film-makers. It was a calling card of film school to be quite slick and commercial, which might lead to getting some stuff on telly.
+- I'd get people asking me about my terrible, poor childhood which, in fact, was very normal, and I'd think, would you be as interested in me if I'd grown up in Surrey? And it surprised me how much I resented that.
+- If you want to achieve a real labour of love, it can be painful, too.
+- 99 percent of the time when you cast right, it's a dream. If you cast wrong, it's a nightmare.
+- It interests me when I hear people quoting great thinkers, because it's like, OK, but does that make you any brighter?
+- Films I've really liked are when you've walked out and you're still in that movie for a while. That's virtual reality for me, to go into a theatre, especially with the use of sound - a subconscious thing that's underestimated. I remember seeing 'Blue Velvet' when I was 15, and half the audience walking out, but I thought my life had changed.
+- Whatever we take from a film - personal, public, private, subconscious - a list can only contain moments that are often a key to the recognition of something more complex.
+- In my short film, 'Gasman,' I shot it at a kid's party. And the kids were just having a party - they couldn't care less about our film. But that was great because we got this amazing footage where kids were drinking soda and pop or whatever, and getting that sugar high and beating each other up or dancing.
+- On a film shoot, a crew will know instantly when they are dealing with someone who knows the technical stuff and they respond accordingly. It's often about getting their respect from the off.
+- I think 'Ratcatcher' broke even as a film, but it got a good critical response. I think that people knew that it wasn't going to be a conventional piece of work, but they were still willing to invest in it. With this material you have to be quite courageous.
+- I'm a big believer in cinema, you know - what it used to be? Images and sound, and working it out a bit. I find it exciting watching films where I just go into an impressive world.
+- Film school was frustrating for me at first but I met some cool people like Lucia Zucchetti - she was amazing.
+- I came from a background of photography so I look at details and visuals, and I see things in pictures or signs.
+- I am committed when I make a film and if it takes a long time I would rather wait.
+- Every film has its ups and downs. Each time it seems like pushing a boat over a mountain. I worked on 'The Lovely Bones' for five years before my involvement fell apart.
+- When I go to the cinema, I want to have a cinematic experience. Some people ignore the sound and you end up seeing something you might see on television and it doesn't explore the form.
+- There is so much media and social media.
+- Where you're running out of time, you have these brainwave moments. It's allowing the space to have them, even in an incredibly tight situation.
+- I love movies like 'The Postman Always Rings Twice' that are based on short novellas.
+- There's something fascinating about record collector minds, hoards of quotes shared and dealt like cards, lines traded, images bought.
+- I'm interested in genre in a way, I suppose because you have a framework of something and you can just twist it to explore the psychology or try different subversive ideas on something that feels familiar.
+- You can always tell a great photographer because they make you feel super-relaxed.
+- My brother gave my mother a lot of trouble.
+- To me life is very complex. But there's always humor.
+- I hate being safe. There's a lot of easy rides and boring films out there, but I've stuck to my guns. It's not an easy path.
+- Writing's so hard.
+- I just like working with good actors.
+- Quite often you get a lot of films with lots of story but no characterisation.
+- It's funny - sometimes when you approach people they get freaked out but occasionally you'll find a gem who's unselfconscious in front of the camera.
+- A 30-day shoot is a nightmare.
+- Sometimes what you don't show creates more of a mystery.
+- I find it difficult to write with reference to the most memorable moments in film, when for me the best moments in films are truly irreducible.
+- It's a real skill to take a piece of literature and make it in cinema. It's quite a different form, and I think I have to respect that.
+- Maybe I should be a literary agent. I'm good at picking up on books that become successful before it happens. I could pick up a lot more money than making films.
+- When I walk into a cinema, I want to leave with an experience unrepeatable, unquotable and indescribable.
+- I love Aphex Twin's 'Rhubarb.'
+- I think you're always learning how to explore different territories.
+- I have twins and luckily when I first looked at them I felt, I am really into you. I am going to find it easy to love you. But there are mothers out there who do not make that connection. It is a taboo subject but it is not exotic. It is a nightmare.
+- Cinema is a great medium for creating a dream world and entering into it.
+- I was at the National Film School and was a cinematographer there. I got quite a lot of experience on documentary film-making and with directors who were interesting - maybe they weren't using scripts or were using non-actors.
+- I don't want to become a director for hire.
+- Straight talking and going on your instincts was important when I grew up. And being funny.
+- It's surreal, Glasgow. It's got a really black sense of humor and I remember being envious of John Glazer beating me to it on the sci-fi in Glasgow with 'Under the Skin.'
+- Well, the film industry is completely sexist and completely class-biased. It's not something I get on the ground level, it's more from financiers and producers and distributors. It's a way of dealing with you that is essentially patronising: I know better than you.
+- I don't want to do worldly cinema: 'Hold your breath, this is art.'
+- I don't need to own one but I like to look at Diane Arbus's pictures and anything by Jackson Pollock.
+- I hate exposition and superfluous dialogue. I hate when dialogue is trying to explain or patronize or finger-point.
+- I've had some bad experiences, but I've also been lucky and I just feel so privileged to be able to even make films.
+- My mother told me to stay away from boys, but that didn't work out.
+- You have to keep going or this industry will roll over you and leave you for dead.
+- You know, I grew up in a place where people appreciate it when you're very direct.
+- To be honest, I was on the verge of thinking I didn't even want to be a film-maker, just because making 'Ratcatcher' had been so tough. Afterwards, I was just ill. Knackered.
+- My mum says I was the best kid ever; you could put me in a corner with a box of paints and I'd be happy for hours. They'd say, 'Lynne, Lynne,' and I wouldn't hear them.
+- It was quite a macho world I grew up in, but it was always cheeky and funny, and the women were the ones in the background that were really in control.
+- I love to see great dialogue in the cinema but I hate to see 'Film TV.'
+- Every director has a labour-of-love project.
+- With dialogue, people say a lot of things they don't mean. I like dialogue when it's used in a way when the body language says the complete opposite. But I love great dialogue... I think expositional dialogue is quite crass and not like real life.
+- To me, most filmmaking is a kind of visualization of how people are. The dark, the light, the absurdity of life, all the crazy things, you know? So all of the characters that I've made have been really close to my heart. I guess what I'm interested in is just visualizing a really three-dimensional picture of a person.
+- Gasman' was something I wrote on a beer mat in a pub.
+- Families are so complicated.
+- I think if you sell parts of your soul, you don't really know who you are anymore.
+- They thought I was deaf when I was a kid because I was always totally off in my own little world.
+- You know when people ask sometimes what are you doing, and you say just something to them.
+- Morvern Callar's' a really weird film, in a sense, where I was trying to experiment with taking things in a different direction, and it kind of half works and it half doesn't. And I kind of felt with that film that perhaps I should have pushed it more into the realms of black comedy slightly.
+- I can't lose sleep over people who need every last thing spelled out for them.
+- I think audiences are quite sophisticated.
+- It's hard to trust something completely.
+- I want an audience.
+- I remember with 'Ratcatcher,' in the script it was beautiful blue skies and sunny every day, but it rained constantly. You have to go with what the film is going to be.
+- To me violence, once you've done one violent act it leads to another, it leads to another, it leads to another, it becomes routine.
+- I was at film school when I made 'Small Debts' and I was a cinematographer, so I didn't actually study to be a director.
+- I love the discipline of shooting film, because you don't cover everything, and I'm glad that I learned that way.
+- There's something called toxic stress, which is repeated exposure to trauma. I was fascinated by how it affects the brain and the development of a person.
+- I'm really lucky to work with such special actors.
+- I'm attracted to challenging subject matter.
+- If you feel you have made a great piece of work, which the script for 'The Lovely Bones' was, and that it suddenly means nothing, it's like being in the land of the lost. You don't know what's good or bad and what anything means.
+- I always say I thought I was making this exciting action movie but I actually always end up making character studies. Every single one.
+- Just being in love with making films makes me carry on.
+- Getting finance together can take a while.
+- Kevin' was shot in 30 days.
+- I think you can say so much about a character in lots of subtle ways.
+- Kevin' is a psychological horror film. It uses genre elements, so hopefully it's exciting to watch.
+- I love writing openings, and I think that can give me the key to the movie. So somehow, that can be the easiest part, to be honest.
+- Short stories can make for really good adaptations.
+- I suppose every filmmaker, at least the filmmakers I really like, are amateur psychologists to a degree. Or they come from a psychological approach, I guess.
+- I don't make films for everybody; if I did that it would be blandness beyond belief.
+- Ultimately, you're happiest in yourself when you make your best work.
+- My adaptations are just as complicated as an original.

@@ -1,0 +1,26 @@
++++
+author = "Bill Shuster"
+title = "Bill Shuster Quotes"
+quotes_len = "20"
+description = "the best 20 Bill Shuster Quotes"
++++
+- Central and western Pennsylvania has one of the best workforces in the country and this will provide job training, new skills and additional resources for those trying to find a job.
+- President Bush has a record of cutting taxes, has provided a prescription drug benefit for seniors, has upheld the Second Amendment and remains committed to stopping liberal activists judges who are redefining marriage.
+- We need to enact a strong standard that will stop a terrorist or illegal alien from getting a driver's license because border security is a major concern in a post-September 11th world.
+- Our veterans accepted the responsibility to defend America and uphold our values when duty called.
+- Government spending is being restrained, the economy is making progress and moving forward, and the pro-growth, tax cutting policies put in place have allowed businesses to grow, which has brought in additional tax revenue to help pay off the debt.
+- Our military commanders have said over and over again that a timetable for withdrawal sends the wrong message to our troops, but more importantly to our enemy.
+- Many of the vicious criminals held there have been caught on the battlefield fighting against American troops and shutting down Guantanamo Bay would just require the military to move them elsewhere.
+- While America has always been and always will be a safe harbor for those being persecuted by tyrannical governments we must be vigilant to ensure those individuals are not taking advantage of America's generosity and good will.
+- We shouldn't have politicians micromanaging this war because it is complex and unconventional.
+- Especially today as we fight the war on terror - against an enemy that represents hatred, extremism and stands behind no flag - we need to remember the sacrifices that have gone into protecting our flag.
+- It is only reasonable that our laws do not force our country to provide safe harbor to those individuals that are being sought out by their governments due to their terrorist ties.
+- Democrats' attack on the Republican majority leader is nothing but a coordinated agenda to stop an effective leader from accomplishing the people's business.
+- America's veterans and troops serving abroad today fought hard to preserve our red, white and blue, from the Revolutionary War to today's Global War Against Terrorism, and Congress' action today is appropriate for one of our most sacred symbols.
+- The flag represents all the values and the liberties Americans have and enjoy everyday.
+- However, the Department of Defense treats these detainees in accord with the Geneva Convention, even though that is not required because of the inhumane methods used by these killers.
+- It is imperative for the health and safety of millions of workers that we ensure that breathing systems needed for protection are widely available, convenient and economical.
+- Our national security is at risk when we rely on foreign oil to keep our economy moving forward.
+- We spend millions of dollars per year supplying more than adequate meals and a Koran to every detainee along with a prayer rug that meets their religious standards.
+- Our first responsibility is to protect the American people and we cannot put on blinders to expect that everyone who seeks asylum does so in good faith.
+- The Army War College has been a tradition in central Pennsylvania for years.

@@ -1,0 +1,106 @@
++++
+author = "Brian France"
+title = "Brian France Quotes"
+quotes_len = "100"
+description = "the best 100 Brian France Quotes"
++++
+- Every sport is trying to unlock the new consumption levels and fan interest by a younger demographic. Of course we love our core fan and everyone does, but every sport is thinking carefully about how to reach the millennial fan to get them excited about their sport.
+- If it's commercial and it makes sense we'll be doing it - whatever it is.
+- Diversity is very, very important. I talk about it frequently. And my efforts there should never be challenged no matter what my political view.
+- America has always had an affinity for the automobile. It's something everybody can understand. A bunch of cars competing, and the fastest guy wins.
+- All of your stakeholders have to have the right seat at the table, and they all have to be successful. It's hard to do, but you have to keep your eye on developing a meaningful relationship where it is beneficial for them. Then you work backwards from there.
+- I went to a couple of events with my dad for sure, and I grew up in Daytona where the races ran twice a year. But I never thought - even into my twenties - that this was going to be a big enough career for me.
+- We don't want to put new technology in that would cost teams more to compete with.
+- As I was growing up and learning this business, I don't think there's a job I didn't do. I started at the bottom and worked my way up. No matter what the job, I always looked for ways we could create value.
+- I think we're the best road racing show in town.
+- It's a multi-billion dollar industry run by our family. That gives us some real unique advantages. We know our sport and our industry better than anybody else. We have the values from the original days. We understand how our stakeholders win and lose in a big way. So I think gives us an advantage to be family controlled, family owned.
+- A crash is part of the game. We've tried to make the cars a lot safer. There's no getting around it though. We're a contact sport.
+- Our property, we've taken the position that we're phasing out the Confederate flag.
+- At the end of the day, concussions are best dealt with between the drivers and their personal physicians.
+- The first thing I said to Chase Elliott when I was in Iowa at a same race as him, I told him, and he was humble as his father is humble, I said, 'Look, you can't be happy just to be here. Don't be saying, I can't believe I'm here. You're here because you're good. You've got to go out now and win.' I always tell young guys that.
+- I didn't think the family business would be big enough to have an opportunity for me.
+- We were creating a formula for points racing, and that wasn't good in qualifying for the Chase, and it wasn't good when we got to the Chase. We wanted to change that, and we also wanted to fix a couple things. One of them was that we didn't want to have a bad race or two take somebody out early on in the Chase, which has happened every year.
+- When drivers are going at their best, trying their hardest, taking chances and doing amazing things, that's what fans love.
+- The opportunity at NASCAR will continue to be such that the best talent wants to be here.
+- I'm deeply involved in making the race closer and tighter and safer.
+- My dad was a tough man. I think that would be putting it mildly. Short on praise, short on communications. Long on leading by example. Lots of integrity, and lots of passion for things. But he was a tough guy.
+- We consider them a friend. We can't win when other people lose. We would prefer to see a healthy IndyCar Series.
+- We don't have entitlements as part of our family heritage. If you want nice things in life, if you want to get ahead, you have to earn it.
+- The reality of it is, we have to have an enormous amount of corporate support to fund 43 race teams and all the things that go on. So there are always going to be brands that may not be ones that you would choose, but that are willing to make a significant investment.
+- If you look at any league, they're all trying to figure out how to make the game more exciting, speed the game up, whatever it may be. In our case, it's the same.
+- I haven't had a super awkward moment. I can't think of one.
+- It's not my future, but it's NASCAR's future, to make sure that we take events to the biggest metropolitan areas of the country, regions of the country.
+- Oh, I get nervous quite a bit, actually.
+- There's nothing quite like being part of a NASCAR race weekend, and that always will hold true.
+- I'm working with a lot of entrepreneurs and people launching new businesses. It's fun. It's what I've always liked to do and loved doing it in my years at NASCAR when we were growing NASCAR, building different lines of business and intellectual properties.
+- We've always been more gender neutral than any other sport.
+- We'll always focus on making our racing safer and more competitive than ever before. We'll never stop working on that.
+- Toyota is doing a neat job coming in to the sport - no one ever thought that there would be a day when Toyota would participate in an American-made, American-born sport like Nascar but they're doing a fantastic job.
+- I would say that if there is one thing we could have done better in the last 10 years under my watch, is when we launched what we called 'the new car.' It is now called the Gen-5. We just didn't get the collaboration we needed to get from the industry, the owners, the drivers, the engineers and car manufacturers.
+- Given that kids don't play our sport in school means that it takes us a while to get people excited about auto racing. But we are doing the things that need to be done and expanding our reach through digital and social media so we can capture the next generation of Millennial fans.
+- My last name is good and bad. It's great from an opportunity standpoint. The bad news is that you're prejudged often.
+- If we have close, great racing like we have, then the ratings will take care of themselves.
+- I really like the idea of fans being able to curate their entire digital experience at live events.
+- Whether you're selling soft drinks, snack foods or a sport, all good marketers know it is important for every single person to want to buy their product.
+- We're trying to make sure it goes up. Expand NASCAR, expand our fan base.
+- We're going to do whatever it takes to bring that NASCAR style of racing on the track to full fruition. That's simply what we have to do.
+- That's a hallmark of NASCAR... We have gotten to where we've gotten because we're able to have the best drivers in the world, the best team owners and then giving them a package that creates the most exciting racing.
+- Well, there are a lot of things outside our control - outside my control. And this is true with anybody's life: You try to keep the train on a certain track, and then there are a lot of moving parts that you can't control. And that tends to make you nervous.
+- I try to help out everyone at NASCAR whenever I can. It will always be a special place for me and certainly my family, so I'll do whatever I can to help the industry.
+- Things are pretty good for NASCAR with our TV agreements behind us and so forth. For us it's focusing on putting the best events and tightest racing that we can, making improvements on the track and investing in the amenities and fan experience.
+- I get asked all the time 'didn't you ever want to be a race car driver?' And I knew pretty early on that I was going to be on the other side of that equation.
+- Boy, do I dislike two things: One is having to deal with penalties or infractions even though we have to. We have to keep the playing field even, and we have to do what we have to do. The second part that I would prefer to not have to talk about is the business side of NASCAR. That's important, too.
+- The things that we're going to be able to do are going to take many, many years to achieve our end goal, which is to really lower costs in the industry by working with our interests better aligned with the teams, that's number one, which will affect their values going forward.
+- It's true that we have to have restrictions and tight rules and so on and it's also true that the teams are so close to that line they're going to create a P1 or P2, whatever it's going to be, I don't get worked over that because that's auto racing.
+- Lots of things can happen when there's really hard racing and contact going on.
+- NASCAR is not immune to the down economy.
+- Everything is pretty good in my life, and like everybody else, things happen, and you put your head down and solve challenges.
+- I don't have an overabundance of cocky attitude, because I'm collaborative.
+- We want everybody in this country to be a NASCAR fan, and you can't do that by being insensitive in any one area.
+- I've always felt strongly that the Confederate flag and other symbols like that are not representative of Nascar, even though I respect anyone's right, because it does mean different things to different people.
+- A lot of the car companies are understandably looking at the terrific job that Toyota has done by partnering with NASCAR and the success and all the things that come along with that. They've been an incredible success story for a car manufacturer looking to come into a sport that's very difficult to come in, compete and win every weekend.
+- We want to be more relevant to the fastest-growing segment of the population - Hispanics.
+- Virtual reality is extremely exciting. We have the biggest opportunity in sports when you talk about the possibility of bringing fans inside a car going nearly 200 miles-per-hour.
+- If we think we can make winning more important and the racing more exciting, that's what we'll do.
+- Rumors are always interesting, but they're seldom right.
+- We decided a number of years ago we could do a better job at diversity. It was going to be one of the growth areas available to us. There are a variety of initiatives to create more awareness with African-Americans and Hispanics and anyone else.
+- The France family is locked and loaded in its dedication to Nascar.
+- We went for 50-something years and never had a system to fine anybody for disparaging remarks in the sport. We're the only sport on the planet that had that. So we simply in the last couple of years changed that policy because we thought we needed to.
+- We want the ability of the drivers to be the focus, not who has the latest gizmo.
+- Getting an opportunity is one thing, but success is based on always trying to create value.
+- People don't buy tickets to a race to hear my political views.
+- I have said I will not have a 30-year run like my father for a variety of reasons.
+- Nobody wants to hear my political views... so I won't be talking about that. But on diversity, nobody in this company has worked harder, done more and resourced it better than me.
+- We've taken a position that drivers are going to be able to speak their mind and criticize the sport way more than any other sport would allow. However, there have to be some limits.
+- We see families making a vacation out of a NASCAR event. The average drive is 200 miles so they're often going to spend a few days with us.
+- We're never pleased when our ratings aren't growing at the rate we would like, but we understand that circumstances will always have us going one way or the other from time to time.
+- My hope is, and I know there are a couple of big manufacturers, and there always are - this is not breaking news - there's always somebody who has an interest in at least understanding the NASCAR opportunity, and so my sense of it is over time that we will have a fourth manufacturer.
+- We want to find a way to be an environmental leader in motor sports, as well as in sports in general.
+- You never know what ultimately will give traction to being a star.
+- Am I here because of my last name? To a degree. But I would ask people to judge me and my executive team on what we accomplish.
+- 'Drive for Diversity' puts people behind the wheel that would never have had the opportunity. Nascar sponsors individual teams who have a person of color, somebody who would not have the opportunity otherwise. And then they're noticed by bigger teams - it's like minor-league baseball.
+- You never want to have a stumble, but it happens sometimes. It happens, and you get through things.
+- Our challenge is this sport needs to be more diverse throughout its makeup of stakeholders, participants, and fans. We're doing a number of things from a multicultural standpoint on and off the track to achieve that. Over time, that's going to be a big opportunity for NASCAR.
+- If you look back at our history, we always tend to see drivers in waves move in one direction so it's not uncommon to have three, four or five of your top drivers exit for different reasons in a short period of time, two years, whatever it is.
+- When you look at sports leagues today, they manage a lot of intellectual property, which means it takes you into a lot of different kinds of businesses.
+- In sport and business, everybody has to win.
+- I can tell you the flag we get behind. It's the American flag.
+- When it comes to making tough decisions, I'm ready to make them.
+- In every decision that we've ever made that's important, the more input, the more people we've heard from, the better the result. And so that will never change in the business model of NASCAR, because the ideas come from all over the place, and that's the strength that we have.
+- I use Amy as a major sounding board for a lot of things that come up, and she understands the family dynamic and business dynamics better than people would think. She is a big support and voice of calm when things are a little bit dicey, like great wives can be. She does all of that.
+- My style is to be collaborative, progressive, to look at things that seem a little bit impossible.
+- People recognize the size and scope of NASCAR but at the same time we are constantly underserved by the media coverage.
+- That's how I judge a winner - how somebody manages their family and raises their family.
+- Social media and digital media will help us develop new fans and connect with our existing fans. It is an area we had to have our entire fingerprints on.
+- My biggest piece of advice is to treat your family members the same way you would treat your spouse or your partner: Be a little more delicate, a little more careful with how you say things, because there's an emotional component to that relationship.
+- The drivers are regular people that come from all over the country. I think the sports fans can relate to them.
+- I supported Obama. I went to his rallies. I parted with my hard-earned money. There was a movement going on, and I was really thrilled with the idea of the first African-American president. I did the same for Mitt Romney. In both of those cases, I have never agreed with all of their policies.
+- Being a France is great from a heritage standpoint.
+- Every sport has different cycles where it's better than it was or less than it should be, whatever it is, that will work out.
+- Mr. Trump is changing American politics forever and his leadership and strength are desperately needed.
+- This is a contact sport. It's always been a contact sport, especially late in the race.
+- Not everyone has the means to race stock cars - we know that - but VR technology can recreate the experience right at home.
+- I thought I'd go into law or something. I always loved NASCAR, but I didn't view it as a business opportunity.
+- What I know is when the racing is tighter and there's more passing, there's just more excitement and more contact and more things that happen. That's kind of what NASCAR is all about.
+- If you go back many years ago, you could cruise around and build up a big point lead. You cannot cruise around at all. You gotta be on it. And that's what I think people really enjoy. I've always believed that brings out the biggest moments, too. It brings out the driver talent.
+- You have to make sure there's a high degree of confidence that whoever won the race did it fair and square.

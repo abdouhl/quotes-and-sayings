@@ -1,0 +1,20 @@
++++
+author = "Benjamin Percy"
+title = "Benjamin Percy Quotes"
+quotes_len = "14"
+description = "the best 14 Benjamin Percy Quotes"
++++
+- People like to pigeonhole. People like to label - not just books and movies, but everything in their life. If people want to call me 'literary horror,' I guess that's fine. What I'm trying to do is be both thrilling and thought-provoking.
+- Yes, I grew up with guns. For my 16th birthday, in fact, I received a .357 instead of a car. But there was nothing playful about them; they were tools. My parents went through a back-to-the-land phase. Most of our vegetables and fruits came from our own garden.
+- Just about every weekend when I was growing up, we would throw rods and rifles and tents and shovels and pickaxes into the back of the truck and then head off to the side of a mountain or the bottom of a canyon. Hiking, fishing, hunting, rock-hounding: this is how my parents passed the time.
+- I grew up on genre. If it had a dragon on the cover, I was interested. But horror, especially, really gripped me in its bony fist.
+- Novels will remain my meat and potatoes, what sustain me imaginatively.
+- I can write ten or twelve screenplays in the time it takes me to write one novel. This allows me to offload all of my stories. But it's also not as creatively fulfilling.
+- I travel often, so my routine is always getting scrambled. But on a standard sort of day, I get up at 6, pack lunches, hustle the kids off to school, then brew a pot of coffee and head downstairs to the dungeon, as I call it: my cobwebby office in the basement.
+- I typically spend a year thinking about a book before I begin writing it.
+- I don't flinch from darkness, but I've always been bothered by what I call gore-nography.
+- I grew up in western Oregon, just outside Eugene, on 27 wooded acres that served as my playground.
+- My voice is rather quirky. It's abysmally low. People often think I'm putting it on at first. Think drunk Darth Vader. Or Barry White singing country. It suits my dark material. When I do readings, I really play it up and go subterranean. I can make the phone book sound terrifying.
+- It's still incredibly hard. Not just honing my craft but kicking down doors, getting my work published. Early on, I could have wallpapered my house with all the rejection letters sent my way. I put thousands of hours and pages into four novels that never saw the light of day.
+- The USDA labs in Ames, Iowa, are level-four security clearance. Every nasty thing you can imagine is stored there. Ground zero for the apocalypse. And there's a day care right across the street.
+- There is no cure for prions. They are a protein-based disease that, among other things, targets and transforms your brain. The symptoms reveal themselves differently in each host, and you might go months or you might go years before you realize you're infected.

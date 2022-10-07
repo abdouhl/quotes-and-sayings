@@ -1,0 +1,103 @@
++++
+author = "Roy Hodgson"
+title = "Roy Hodgson Quotes"
+quotes_len = "97"
+description = "the best 97 Roy Hodgson Quotes"
++++
+- Talk is talk; action on the field is action on the field.
+- I don't think there are many jobs that would have tempted me away from Fulham, to be perfectly honest.
+- Fans jump on your bandwagon and desert you when you hit the harder times.
+- There aren't many English managers, I suppose, who've had the sort of career that I've had, outside the country. With the amount of money that is going around in the Premier League, not many people are tempted to move abroad.
+- To be frank, you can't compare the atmosphere and the way people behaved in the Olympic Stadium with the game I watched the day after, the Community Shield.
+- I've got to be honest with you: I don't regard 29 as old.
+- I enjoyed Wembley like all the managers before me, and I would hope that games would still be played there by the England national team.
+- I've worked for a long time and hope people have developed enough confidence in me that it will remain even in a period when we're not winning many games.
+- I don't know whether you ever get over things that cause you pain.
+- The last thing you want as a striker is the opposing team putting all 10 players behind the ball.
+- People are entitled to say what they feel sometimes.
+- I don't like talking about not getting what you deserve, because that has no part to play in football. You get what you get.
+- I don't think there are many people out there - except, perhaps, the odd Twitter troll who knows no better - who believes that racially abusing people or threatening people is the right way to go.
+- What you've got to do in any coaching job, whether it is moving to Sweden as a young man - where being English gave you a slight advantage - or something else, you've got to win the players' respect.
+- For goal-scorers and centre-forwards, confidence does play a big part.
+- I assisted Bobby Houghton at Halmstads, and we were both just under 30. We'd say, 'Wouldn't it be great to do this for maybe 10 years, save a little money, then perhaps start a little business together.' Some sort of travel agency. We had no football thoughts beyond that, other than maybe combining it with a bit of sport, getting a few tours going.
+- In an ideal world, the season would end, and the players would have two to three weeks by the beach. You'd have four to five weeks of preparation, and then you'd play the tournament.
+- Getting that first foot on the rung of the ladder, that's where you find it easier to shrug off those times when your foot slips off, and you have to get yourself going again.
+- I try very hard not to look back.
+- Systems win you nothing, and football players win you games.
+- You're as old as you feel.
+- It's an achievement I can be happy about - if you call getting old and still being in a job an achievement.
+- New faces, maybe perking up the squad and giving you another arrow to your bow - that can be a help.
+- Hugh Grant is about the only actor I've met who has taken any proper interest in football, being a big Fulham supporter. But he'd be far too good-looking to play me in any film.
+- I don't think you sign a four-year contract in the Premier League and then go to China at the age of 26.
+- I don't think any job is impossible.
+- Luckily, my age doesn't ever come into my thoughts.
+- Often, in a tournament, the players that get injured or suffer a lack of form are the guys at the cutting edge, the guys who make the difference or score the goals.
+- In football, however well you think you are doing, however well your life is going, there is always a mugger there lurking in the shadows to bash you over the head when you least expect it.
+- I have always promised myself and my wife that when I don't enjoy it anymore, or I can't handle the stress and the pressure that comes with having such a high-profile and top job - or my energy levels starts to fail me, or my enthusiasm starts to be dented - I won't prolong my career longer than I feel I should.
+- If success is about winning the league, there will always be 19 disappointed clubs.
+- I'm always disappointed when we lose, and it's happened quite a few times.
+- Really and truly, I don't like talking about refereeing decisions.
+- A lot of young coaches who respect the fact I have been doing it a long time, that is often their question: 'Does it get any easier? Can you relax more during the games? Can you take it all a little bit more philosophically and put it more in perspective?' The tragedy is that I have to tell them, 'No. If anything, it gets worse.'
+- The important thing is to take each game as it comes.
+- All managers have someone they lean on and take advice from.
+- I think any manager who tells you, 'I am very good at keeping my equilibrium. I'm always calm and reasoned, and results don't affect me particularly. I can take the good with the bad, and I can put the wins and the losses in perspective,' you will find a special person. I've never met one.
+- I'm a football manager, a football coach; I can't be expected to pontificate on everything.
+- Why shouldn't Harry Kane take corners? If he happens to be the best striker of a ball in the team and gives you the best delivery, why shouldn't he do it?
+- We believe defending is very much a team job, and we can't just rely on a back four and a goalkeeper.
+- I can get by quite well in Italian or German, though if the discussion got to a high level, I'd run out of vocabulary. I'm stronger in French and Swedish.
+- I think, increasingly, people will define success as staying in the League, being a stable Premier League club that treats its fans to good football every year.
+- I was so fully involved in football and building a career that I didn't spend nearly enough time with my son when he was growing up.
+- The day it becomes impossible for teams like Palace to get results against City, the league might as well just fold up, and we'll do everything on paper.
+- It hasn't always been a Premier League ride for Crystal Palace supporters. They're there to support us through the hard times.
+- As far as I know, Fulham were never for sale during my time there. Mohamed Al Fayed never wanted to sell Fulham.
+- It's true that if it's always going to be that if you win the World Cup or European Championship, you're a success, and if you don't, you're a failure, then you're bedding yourself for a lack of success because there aren't many coaches who have won those things, and there are thousands who haven't.
+- I don't own photograph albums - the pictures that are important to me are etched in my mind.
+- The one thing we have to remember about Fernando Torres is that he's a human being who has come in for an enormous amount of criticism, not least during the World Cup from people in Spain and around the world.
+- You can't flirt with relegation every year.
+- It's very hard to be happy when you've lost.
+- The main problem with English players has always been the price.
+- There is a belief that getting any particular job may depend on who has just had five consecutive victories. If that's the way it is, I've got a healthy attitude.
+- All you can do when you are given a chance to play for England is to go out against whoever that opponent may be and do it very well. And if you do that, you get yourself in the forefront of the manager's mind.
+- I don't think anything's cruel - if you're so sensitive these days that you see cruelty everywhere, unfortunately every time a comedian comes on television, you're going to accuse him of cruelty, because that's the kind of humour that the English people enjoy.
+- You are never quite sure how it will go, and even after a thousand games or so, that tense feeling is still there.
+- Anyone who watches football and watches Tottenham play would have to be an admirer of the way they play football and the way they go about their business.
+- All of the top managers I have come across during my career and befriend, they suffer as much with the defeats and when things don't go their way late in life as they did early in life.
+- I think I like the artistry of the game. I still get a lot of pleasure watching the good-quality teams play, where the movements of the players are coordinated. It's almost ballet-like, although 'ballet-like' is a bit of an exaggeration.
+- I like Philip Roth, John Updike, and Richard Yates.
+- A lot of the players who've done so well aren't necessarily the big names: James Tomkins, Luka Milivojevic to name two.
+- I don't have any intention to resign.
+- I have been in football a long time.
+- I played a lot of tennis when I was young.
+- I speak five languages: English, Swedish, French, Italian, and German.
+- Achievements are often more interesting to you when you look back on them.
+- I have been in football a long time, and Wayne Rooney has been in football a long time. He would regard me as someone who is very false if I ever said to him, 'Your place is guaranteed.' He would not expect it, and I would be very upset anyway if anyone asked me to give them a guarantee of a place.
+- As far as I'm concerned, if you're only going to call managers who have won a trophy any good, then basically, you have four or five.
+- I don't sit around wondering, 'Why am I here? Who made the stars?' I prefer to look at the stars and benefit from them rather than concern myself with how they got there.
+- When you have been lucky enough to move up the ladder, all you see, really, is the slide back down. You don't see the further steps upwards.
+- I didn't realise I had a speech impediment until I came back to England. I spent the whole of my life working abroad, and no-one mentioned it. I came back to England and suddenly realised I had a speech impediment.
+- It wasn't purely Alex Ferguson's experience that made him a good manager, because he did it when he was inexperienced. But if you've got the qualities needed, and then you add experience to it, someone who's been through it, well, that has to be advantageous. There's no doubt about that.
+- Of course, any work you do as a sporting person, a football coach or any coach, if it is good work, you've got to have something - a championship - to show for it.
+- I don't have any regrets.
+- I suffer during games. We follow the action, kicking every ball, wondering if our centre-backs can stop the cross... In some ways, you enjoy it, but your heart is always thumping.
+- There might be more meetings and situations where you're required to represent the country in some way that wouldn't necessarily happen to you if you're a club manager, but other than that, I haven't found any differences in my approach between running a club side and a national team.
+- I am not only privileged to work for the FA and England: I have enjoyed working for the FA and England.
+- There is so much interaction in a football match: between you and your team-mates and how you support each other, work for each other, make runs. But I also enjoy the other aspect: the pressing and how people work so hard to recover the ball.
+- I've got to that stage in my life where, difficult decisions I don't have to make, I push them into the future until such time I have to make them.
+- I don't like the way I see society going.
+- Hindsight does always serve the purpose of putting you in the right, and if you don't have it, you find yourself very often in the wrong.
+- Getting the balance right in everything is all of football and all of sport.
+- It's very flattering that those who have assessed my work over the years think that I have the qualities to be an England manager.
+- The Premier League is what it is. Some people will see the intensity and quality as a great advantage for your players: it will make them better. Some will see it as a disadvantage because the players play at such a high level and such intensity, it's difficult for them to drum that up, that intensity, with a very short space of rest time.
+- When you focus the spotlight so much on one person, I think it's very, very dangerous.
+- It does get hot in England from time to time.
+- I quite liked Dostoyevsky when I was younger.
+- If the be-all and end-all of your ability is, 'Have you got a trophy to your name,' I find that hard to understand. It's so naive in terms of what the job of being a football coach is all about.
+- I have worked long and hard to reach the level I have reached.
+- Most teams - whether they like it or not against Manchester City - you're going to find yourself quite often penned in your own half.
+- With a national team, you've just got to be even more focused on what's most important because the time you've got with the players is limited.
+- Everywhere I've managed, I've left a platform for my successor to build on, and this is a great satisfaction for me, even if I don't necessarily get the recognition for it.
+- I wouldn't mind a spotlight also focused on the crowd, because, I think, one of the things that made the Olympic Games for Great Britain was the incredible support within the stadia where the events took place.
+- I am both proud and excited at the prospect of working as the Liverpool manager.
+- The reality of football rests on that patch of green between 90 and 95 minutes. Whichever team is going to win has to do it on the field of play and by scoring more goals than the opposition.
+- Maybe I see things too naively at times.
+- Brazil is a fantastic football country.

@@ -1,0 +1,44 @@
++++
+author = "Rudyard Kipling"
+title = "Rudyard Kipling Quotes"
+quotes_len = "38"
+description = "the best 38 Rudyard Kipling Quotes"
++++
+- The silliest woman can manage a clever man; but it needs a very clever woman to manage a fool.
+- For the sin they do by two and two they must pay for one by one.
+- Gardens are not made by singing 'Oh, how beautiful,' and sitting in the shade.
+- The first condition of understanding a foreign country is to smell it.
+- Borrow trouble for yourself, if that's your nature, but don't lend it to your neighbours.
+- An ounce of mother is worth a pound of clergy.
+- If history were taught in the form of stories, it would never be forgotten.
+- Asia is not going to be civilized after the methods of the West. There is too much Asia and she is too old.
+- For the female of the species is more deadly than the male.
+- Small miseries, like small debts, hit us in so many places, and meet us at so many turns and corners, that what they want in weight, they make up in number, and render it less hazardous to stand the fire of one cannon ball, than a volley composed of such a shower of bullets.
+- San Francisco is a mad city - inhabited for the most part by perfectly insane people whose women are of a remarkable beauty.
+- A people always ends by resembling its shadow.
+- Fill the unforgiving minute with sixty seconds worth of distance run.
+- A man's mind is wont to tell him more than seven watchmen sitting in a tower.
+- It's clever, but is it Art?
+- Words are, of course, the most powerful drug used by mankind.
+- Often and often afterwards, the beloved Aunt would ask me why I had never told anyone how I was being treated. Children tell little more than animals, for what comes to them they accept as eternally established.
+- And the first rude sketch that the world had seen was joy to his mighty heart, till the Devil whispered behind the leaves 'It's pretty, but is it Art?'
+- Never look backwards or you'll fall down the stairs.
+- Everyone is more or less mad on one point.
+- When you're wounded and left on Afghanistan's plains, and the women come out to cut up what remains, jest roll to your rifle and blow out your brains and go to your gawd like a soldier.
+- All the people like us are we, and everyone else is They.
+- And that is called paying the Dane-geld; but we've proved it again and again, that if once you have paid him the Dane-geld you never get rid of the Dane.
+- If you can force your heart and nerve and sinew to serve your turn long after they are gone, and so hold on when there is nothing in you except the will which says to them: 'Hold on!'
+- If you can keep your wits about you while all others are losing theirs, and blaming you. The world will be yours and everything in it, what's more, you'll be a man, my son.
+- Down to Gehenna, or up to the Throne, He travels the fastest who travels alone.
+- I always prefer to believe the best of everybody, it saves so much trouble.
+- God could not be everywhere, and therefore he made mothers.
+- A woman's guess is much more accurate than a man's certainty.
+- He wrapped himself in quotations - as a beggar would enfold himself in the purple of Emperors.
+- If I were hanged on the highest hill, Mother o' mine, O mother o' mine! I know whose love would follow me still Mother o' mine, O mother o' mine!
+- The individual has always had to struggle to keep from being overwhelmed by the tribe. If you try it, you will be lonely often, and sometimes frightened. But no price is too high to pay for the privilege of owning yourself.
+- I have struck a city - a real city - and they call it Chicago... I urgently desire never to see it again. It is inhabited by savages.
+- He travels the fastest who travels alone.
+- We have forty million reasons for failure, but not a single excuse.
+- If I were dammed of body and soul, I know whose prayers would make me whole, mother o' mine o mother o' mine.
+- A woman is only a woman, but a good cigar is a smoke.
+- Heaven grant us patience with a man in love.

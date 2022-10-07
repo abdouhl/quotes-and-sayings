@@ -1,0 +1,130 @@
++++
+author = "Roger Moore"
+title = "Roger Moore Quotes"
+quotes_len = "124"
+description = "the best 124 Roger Moore Quotes"
++++
+- My attitude about death is, going into the next room, and it's a room that the rest of us can't get into because we don't have the key. But when we do get the key, we'll go in there, and we'll see one another again, in some shape or form or whatever. It's not the end.
+- Bond was escapism, but not meant to be imitated in real life.
+- It's very tempting to over-eat all the bad things when you're on a film set.
+- The knighthood for my humanitarian work meant more than if it had been for my acting.
+- During my early acting years, I was told that to succeed, you needed personality, talent, and luck in equal measure. I contest that. For me, it's been 99% luck.
+- I'm very lucky.
+- I think arriving at or departing from any airport in America is just horrendous these days.
+- I've learnt that through life you just get on with it. You're going to meet a lot of dishonest people along the line and you say good luck to them. I hope they live in comfort. Then I start sticking more pins in their effigies.
+- Bond has afforded me a great personal passport, which I use for UNICEF.
+- Tony and I had a good on and off screen relationship, we are two very different people, but we did share a sense of humor, we now live in different parts of the world but when we find ourselves in the same place it is more or less as if there had been no years in between.
+- I made some very forgettable films, but I liked them all when I was doing them.
+- My parents adored me, and I had a very happy childhood, so maybe I just sort of expect to be loved.
+- I do not have time to sit down and regret anything although sometimes I wish I had been able to see more of my parents while they were alive and have done more for them.
+- Not only am I a spender, I have had a couple of business people in the past who have been spending my money quite happily.
+- I replaced Jim Garner in 'Maverick.' I replaced George Sanders in 'The Saint.' I've replaced everybody.
+- I spent my life playing heroes because I looked like one.
+- I enjoy being a highly overpaid actor.
+- Teach love, generosity, good manners and some of that will drift from the classroom to the home and who knows, the children will be educating the parents.
+- I was born in London, so going there is always a treat.
+- Not many of us are willing to give up everything we have.
+- Sammy Davis Jr. was a real movie buff who loved nothing better than being around a film studio - whether he was working or not.
+- My father believed in toughness, honesty, politeness and being on time. All very important lessons.
+- I've been married four times and caused a great deal of hurt and upset around me.
+- To be associated with success is absolutely wonderful.
+- When I went to Hollywood, I had to work out in a gym. The idea was that I should look like Daniel Craig, though they hadn't even met him at that point.
+- Practically everything I've been offered didn't require much beyond looking like me.
+- I don't want to be remembered, because I'm not planning on going. I'm staying!
+- You can either grow old gracefully or begrudgingly. I chose both.
+- Showbusiness is such a mad profession, I find commerce a wonderful outlet for keeping me sane.
+- I never stopped working.
+- I'm sorry to say that no, I do not play the piano.
+- I personally didn't like the idea of Bond in space.
+- Many take the roles home with them and live the part. I'm quite happy to leave mine at the studio and return home as I left: simple old Roger Moore.
+- I never really absorbed myself in a role like some actors do.
+- 'Skyfall' was marvellous, the best Bond film ever made.
+- Rex Harrison could be a rather mean-spirited man, and he wasn't regarded very warmly by those who knew him.
+- It's no good being the best actor in the world if nobody sees you because you didn't happen to be there at the right day when a part was being cast.
+- I had prostate cancer. It was rather painful and, in many ways, life-changing.
+- Learning a play is one thing, but to learn to play Vivaldi's 'Four Seasons' without music: that's brilliant.
+- Wait until the baby is born before you start criticising it, I say!
+- Bond may be a very international, cosmopolitan kind of character, but underneath it all, he is essentially British.
+- I never liked guns, I hate them, I always blink before they go off.
+- Whenever I'm asked who my favourite co-star is, I always hesitate in giving an answer.
+- Over the next two years UNICEF will focus on improving access to and the quality of education to provide children who have dropped out of school or who work during school hours the opportunity to gain a formal education!
+- I'm often asked, 'Who has you worked with who you really thought was great?' and I think Eleanor Parker was the first and one of the only who was a really accomplished actress, a really caring actress, who was most unselfish, and I was secretly in love with her.
+- I do a lot of cooking; we eat a lot of fish, but I try not to make fattening things.
+- It's wonderful to travel with somebody that you love and we never travel anywhere without one another.
+- When I played Ivanhoe, kids used to come along and kick me because they thought I wore armour under my clothes. When I was Maverick, I was accepted as a cowboy. And in 'The Persuaders,' I became Lord Brett Sinclair. In other words, I am what I am for as long as I am.
+- I would have loved to study medicine, but I was lucky to have come into the profession that I loved. I may not have been very good at it, but I loved it.
+- I just want to be remembered as somebody who paid his debts.
+- Working with UNICEF made me grow up and recognize how fortunate I am.
+- I never thought I was much of an actor anyway.
+- When I filmed 'Live And Let Die' with Jane Seymour, I kept my socks on in bed, as it was such a cold set.
+- I'm proud to be British.
+- Oh yes, I love gadgets.
+- Being eternally known as Bond has no downside.
+- I was considered chubby as a teen.
+- Some of the things I've done in my life I'm ashamed of.
+- I was possibly shy. I don't know why some people are shy and some aren't. Some people blush very easily.
+- I'm a little devil.
+- I have to be an optimist and say that it might get better.
+- Creating a character on or off the stage is an escape.
+- I think 'The Spy Who Loved Me' was the best, or rather the one I enjoyed doing the most.
+- Bond is fantasy.
+- When I was eight, an uncle, great uncle, gave a violin to me, and my father took me off to have lessons. After about six weeks, the violin teacher told my father he was wasting his money, wasting his time, and wasting my time, and it's one of my big regrets.
+- Sadly, I had to retire from the Bond films. The girls were getting younger, and I was just getting too old.
+- The Bond situations to me are so ridiculous, so outrageous. I mean, this man is supposed to be a spy, and yet everybody knows he's a spy.
+- You can't be a real spy and have everybody in the world know who you are and what your drink is. That's just hysterically funny.
+- Sometimes I've had to put myself on a diet.
+- I loved my mother and father.
+- I don't think I've ever made any good financial decisions.
+- Lana Turner taught me how to kiss on the set of the movie 'Diane' in the early Fifties.
+- I don't like bungee jumping, but I do like skiing.
+- When I was doing Bond, I was always being sent scripts to play the derring-do hero, with explosions going on all around.
+- We also have favourite place in France, called Charlot Premier in Nice, which does excellent oysters.
+- I enjoy tennis, though don't play very often nowadays, and skiing... oh yes and swimming.
+- Actors don't really sit around discussing the parts they've played - just in case someone says, 'That was crap!'
+- I believe it is better to be prepared for illness than to wait for a cure.
+- Peter Sellers was a solitary character, always preferring to hide behind a mask, and consequently, you never really got to know the real Sellers.
+- I'd occasionally do some exercises at home, but I never cared for gyms.
+- Of course I am frustrated with regard to extreme poverty, to violence that never seems to cease.
+- Some are blessed with musical ability, others with good looks. Myself, I was blessed with modesty.
+- I would have loved to play a real baddie.
+- I play one role until I take on another, which is exactly what a professional actor should do.
+- I nearly died of double bronchial pneumonia at the age of five.
+- It's no good being talented and not being in the right place at the right time.
+- Kristina has been to the Maldives but never to Venice, and I have been to Venice but never to the Maldives.
+- I was probably a little bit overweight as a child, being passionate about baked beans on toast and Cadbury's milk chocolate when I could get it.
+- The fact of the matter is that most actors are shy people.
+- Illness played a great - and unwelcome - role in my early life. Mumps were soon followed by a raging sore throat, and it was decided that I should have my tonsils removed and adenoids scraped at the same time.
+- I was fortunately always offered jobs because I was so pretty. Women used to complain about it!
+- I wouldn't like to meet Daniel Craig on a dark night if I'd said anything bad about him.
+- I speak relatively little, except when I'm at home and I'm asking for things.
+- I was so pretty, actresses didn't want to work with me.
+- I would love to be remembered as one of the greatest Lears or Hamlets.
+- We all have a responsibility in life to do what we can to help those less fortunate.
+- Maybe come to think about it, that is the sign of an extrovert, in any event I have always from the earliest of ages found it difficult to wander into a restaurant on my own.
+- I was not born with tremendous ambition.
+- I didn't learn the alphabet until I was 11.
+- I am privileged to be at the right end of violins: not the end holding it but to listen to it.
+- Of course I do not regret the Bond days, I regret that sadly heroes in general are depicted with guns in their hands, and to tell the truth I have always hated guns and what they represent.
+- A lot of my reading over the next few months will be the works of Hans Christian Andersen - I have been appointed an ambassador for the bicentenary celebrations of his birth next year.
+- In my teens, I was very insecure. And so I invented Roger Moore.
+- I was an only child and I wasn't going to share anything with anybody.
+- It's easy to sit in relative luxury and peace and pontificate on the subject of the Third World debts.
+- If you don't have humour, then you may as well nail the coffin lid down now.
+- Selling your country's secrets is always wrong.
+- What was good about 'Moonraker' was that we had Jaws back, because after 'The Spy Who Loved Me,' he became a well-loved villain.
+- I am a mixture of idealist and realist.
+- Everybody seems to live rather well down here in Monaco!
+- My acting range has always been something between the two extremes of 'raises left eyebrow' and 'raises right eyebrow.'
+- I'm used to bad reviews.
+- When I was playing James Bond, it was the best job in the world. I mean, it was hard work, all that filming and travelling and tedium on set, but I earned a lot of money, and it was not a taxing job. I just had to say, 'Shaken, not stirred.'
+- My James Bond wasn't any different to my Saint or my Persuaders or anything else I've done. I've just made everything that I play look like me and sound like me.
+- Without doubt, you are recognized for the last role you played.
+- I said I did not know enough about UNICEF to handle a press conference and she said they would not want to talk about it they would only want to talk about films.
+- People are always reading things into the films.
+- My iPhone has become rather precious because of all my music on it; every night, we set it for 20 minutes before we fall asleep to listen to some Mozart.
+- No, I'm not at all adventurous. I'm terribly cowardly.
+- I've not done badly for a boy from Stockwell, where I used to gaze at the silver screen in wonderment, little realising I'd be a part of this magical world.
+- The wonderful thing about age is that your knees don't work as well, you can't run down steps quite as easily and obviously you can't lift heavy weights. But your mind doesn't feel any different.
+- There is nothing glamorous about death.
+- I'm the worst Bond, according to the internet. Generally hated!
+- I must admit that I was in total awe of Stewart Granger. He was my idol.

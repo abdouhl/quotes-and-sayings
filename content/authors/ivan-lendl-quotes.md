@@ -1,0 +1,42 @@
++++
+author = "Ivan Lendl"
+title = "Ivan Lendl Quotes"
+quotes_len = "36"
+description = "the best 36 Ivan Lendl Quotes"
++++
+- Olympic gold is obviously right up there with a grand slam. It's a big win. You can say it's more, you can say it's less, you can say it's equal. It's very much up there.
+- If you look at any superior athlete, you will find a strong parental influence. Parents introduce their children to a sport, and then they support them.
+- It's very nice to see when somebody who wanted to work hard and is willing to put the work in gets rewarded for it.
+- I certainly don't lose any sleep if I lose a tennis match.
+- I enjoy life. I always enjoy jokes.
+- Because in order to beat Jimmy, I had to get around the ball a little bit quicker so I wasn't always on defensive and catching the ball on last stride, that I had little more time. Once I was able to get little bit quicker, then it has helped me a lot.
+- You have to focus on the process. You cannot be glued to the results.
+- Too many people asking too many questions in tennis. Golf is better.
+- If you lose, it hurts, but as long as you have fought hard, you can still feel good about yourself.
+- Many tennis coaches are enablers. They need the job more than the player needs the coach, and if the coach needs the job more than the player needs the coach, he can't effect change.
+- Once you win, you have no doubt that you can win. So you have gone through it once, and you can do it again.
+- I'm certainly not sorry that there were some things I missed. You may think you're missing something at that time but later when you look at it, you didn't miss anything.
+- In tennis you move a lot. Golf you don't. In tennis, you can have a bad half-hour, but you can't in golf. You can lose the first set in tennis and still win.
+- I got bad calls every match, and I never got an apology. So I thought it was rather strange.
+- I just travel all the time. And I was just looking at the schedules now and starting the first week of October I will be every weekend with somebody at tournaments through Christmas. So it gets very difficult to just go away and not do that.
+- I was between 2 and 3 in the world for two, three years. That's not exactly where I wanted to be.
+- If you go to school and practice for five days a week, it still gives you two days you can go and see your friends, you can go to the movies, you do whatever you like to do.
+- People may say I developed an iron will, but what really happened is that I made myself much fitter. I think an iron will is always supported by fitness.
+- Tennis is not like other sports where the coach is hired by an independent entity, and that makes a huge difference in the dynamic.
+- Many Czech people are very talented. They can do many things, but when they get to a certain level, they are satisfied. I am not like that, thank God.
+- You know, you just go out there, do your best. Sometimes it's good enough and sometimes it is, and sometimes it stays your only one and sometimes you win bunch others behind it.
+- If I don't practice the way I should, then I won't play the way that I know I can.
+- I like to compete.
+- But it's very difficult, I can tell you I played the Czech Open a few times and it's very difficult just to go on to a scene where the course is prepared differently when the greens are fast and he's not used to it and they're hard as a rock and he's not used to it.
+- If you become great, then you can become happy. If you're happy first, it's much more difficult to be great.
+- You know how kids are. They like to do what parents do.
+- I think if you look at Andre then and now, you look at two different models. Of course it's personal preference, I think Andre now is a great role model for the kids. He has started training differently than he was before, and so on and so on.
+- I don't make a habit of watching tennis matches, but I try to watch all the major finals. I try to make time for that. So unless I have something going with the kids where I can't, I try to watch, and I enjoy that.
+- Many times the players get in there and it's just about as well as they could have done, and other times they get in there and they favorites and they don't win.
+- I think talent is dangerous to have if you take it for granted. If you use it well and put hard work with it together, it's hard to catch that guy. And I think that's what you're seeing right now.
+- But to be fair, if you take players from my era to now, the game has changed and the players have many more shots. They use them differently than we did. The speed of the game has changed.
+- My serve and my forehand I pretty much always had, but my backhand was a made backhand. I worked on it for years.
+- Tennis is basically a game where you try to create an opportunity for yourself to finish the point, because you can't wait for the opponent to miss anymore. Well, if you create an opportunity and don't take advantage of it, you let the opponent back to even, then you are just starting the point over, so you have to take advantage of them.
+- It's flattering to be compared in any way to Tiger Woods, because he's the best player in the world.
+- Not winning at Wimbledon is not going to bother me forever.
+- You can never guarantee the wins but you can guarantee that you give it 100%. That way you can always look back and feel comfortable, as a player or a coach.

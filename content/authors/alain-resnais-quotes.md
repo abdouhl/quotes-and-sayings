@@ -1,0 +1,18 @@
++++
+author = "Alain Resnais"
+title = "Alain Resnais Quotes"
+quotes_len = "12"
+description = "the best 12 Alain Resnais Quotes"
++++
+- I am never driven. Every film I've made has been an assignment.
+- So I used formal techniques to make the film more perceptive emotionally.
+- The present and the past coexist, but the past shouldn't be in flashback.
+- Since we had little money and few documents, we had nothing.
+- It was repugnant, but it was the only way to communicate.
+- That's easy to answer: I never had any special appetite for filmmaking, but you have to make a living and it is miraculous to earn a living working in film.
+- I never thought of becoming a director. When I was twelve, the passage from silent film to the talkies had an impact on me - I still watch silent films.
+- Oh, yes, that never happened to me in my life before. It was a risky film, and I warned the producer.
+- I'd even say it's a realistic film because that's the way it happens in our heads; that was the idea.
+- I saw part of The Singing Detective on TV in New York. I said, Something is going on here.
+- There was a darkness, a melancholy, that people had trouble accepting. Maybe now, it would work better.
+- Luck, I never looked to make difficult movies on purpose. You make the films you can make.

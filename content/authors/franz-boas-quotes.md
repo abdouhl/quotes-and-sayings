@@ -1,0 +1,22 @@
++++
+author = "Franz Boas"
+title = "Franz Boas Quotes"
+quotes_len = "16"
+description = "the best 16 Franz Boas Quotes"
++++
+- The historical development of the work of anthropologists seems to single out clearly a domain of knowledge that heretofore has not been treated by any other science.
+- The disease of mutual distrust among nations is the bane of modern civilization.
+- We do not discuss the anatomical, physiological, and mental characteristics of man considered as an individual; but we are interested in the diversity of these traits in groups of men found in different geographical areas and in different social classes.
+- My parents had broken through the shackles of dogma.
+- It is our task to inquire into the causes that have brought about the observed differentiation, and to investigate the sequence of events that have led to the establishment of the multifarious forms of human life.
+- In other words, we are interested in the anatomical and mental characteristics of men living under the same biological, geographical, and social environment, and as determined by their past.
+- Furthermore, the study of the present surroundings is insufficient: the history of the people, the influence of the regions through which it has passed on its migrations, and the people with whom it came into contact, must be considered.
+- If we were to select the most intelligent, imaginative, energetic, and emotionally stable third of mankind, all races would be present.
+- We all know scientists who in private life do not come up to the standard of truthfulness, but who, nevertheless, would not consciously falsify the results of their researches.
+- In France, that let down the barriers more than a hundred years ago, the feeling of antipathy is still strong enough to sustain an anti-Jewish political party.
+- I object to teaching of slogans intended to befog the mind, of whatever kind they may be.
+- Remember that in every single case in history the process of adaptation has been one of exceeding slowness. Do not look for the impossible, but do not let your path deviate from the quiet and steadfast insistence on full opportunities for your powers.
+- My father had retained an emotional affection for the ceremonial of his parental home, without allowing it to influence his intellectual freedom.
+- Not so the scientist. The very essence of his life is the service of truth.
+- This idea was also brought out very clearly by Wallace, who emphasized that apparently reasonable activities of man might very well have developed without an actual application of reasoning.
+- I hope I may have succeeded in presenting to you, however imperfectly, the currents of thought due to the work of the immortal Darwin which have helped to make anthropology what it is at the present time.

@@ -1,0 +1,67 @@
++++
+author = "Linda Ronstadt"
+title = "Linda Ronstadt Quotes"
+quotes_len = "61"
+description = "the best 61 Linda Ronstadt Quotes"
++++
+- Singing with Aaron Neville, he pulled stuff out of my voice I never could have gotten, because if he's providing XYZ, I have to put in ABC, and usually I don't have to put in ABC.
+- I don't think you can look for love. All you can do is get yourself in a situation where you don't discourage something that may be rather nice.
+- I know my own father's business was very dependent on the goodwill and business and trade from people in northern Mexico. We knew their families and went to their weddings and baptisms and balls and picnics, and we had a great time with them.
+- I grew up in a big sky country. Then I lived in Manhattan, where you can only see the sky between buildings, and then I went into a building where you couldn't see the sky at all. I didn't like that so much.
+- I never thought of myself as a rock singer. I was interested in songs like 'Heart Like a Wheel,' and I liked the others for about 15 minutes.
+- In the Troubadour days, it was all those songwriters that I hung around with all the time, so I could get songs and find out what was going on. So we all knew each other, and we just carried each other's word around.
+- I always sang harmony with my family growing up.
+- Having children makes you see the world in a completely different way. When you're responsible for those little lives, you can't slough it off or forget about it until later.
+- I love everything soft, cashmere and down. I don't like anything scratchy.
+- I didn't know why I couldn't sing - all I knew was that it was muscular or mechanical. Then, when I was diagnosed with Parkinson's, I was finally given the reason. I now understand that no one can sing with Parkinson's disease. No matter how hard you try. And in my case, I can't sing a note.
+- I'm a chameleon. I can change my voice a lot. I always was able to, because in my family's music, I was a harmony singer, and harmony singing is really hard.
+- It's a real conflict for me when I go to a concert and find out somebody in the audience is a Republican or fundamental Christian. It can cloud my enjoyment. I'd rather not know.
+- I've been lucky in my life to work with people who I consider master singers.
+- You don't want people who have never had to deal with adversity - you want people who have been able to deal successfully with adversity. That's what adds to society. Those are going to be the hardest-working, best people.
+- I used to live with J.D. Souther, and I would watch him write. He's be sitting, he'd say something, and then he'd write it down. That's craft.
+- I wish I had as much in bed as I get in the newspapers.
+- Sometimes I was frivolous. Did you have some frivolous years? I had to live mine out in public.
+- I'm your basic atheist that believes in maybe - I'm a spiritual atheist.
+- I've never been happy with the quality of my work. I always felt as though my musicianship was lacking and that I should have worked harder at it when I was younger. As I sang and sang, I improved.
+- I didn't love Jim Morrison. There was something very reptilian about him. And I didn't care for his singing, but his band! The Doors were fantastic.
+- There should not be a question of legal or illegal immigration. People came and immigrated to this country from the time of the Indians. No one's illegal. They should just be able to come.
+- The smell of the carpet in a hotel room is the same everywhere.
+- Art is for healing ourselves, and everybody needs their own personal art to heal up their problems.
+- You have the United States, and you have Mexico, and then you have this Mexican-American thing which is this third culture, which I like to call Aztlan.
+- I listen mostly to live music, and mostly my musical experience was playing music with other people.
+- I am a believer in discipline; it takes a lot to do well. You need discipline for those little excursions into the chaotic that make life interesting.
+- I'd go over to my grandmother's house, and she'd be playing opera. They loved opera. Not only did they play it on the radio, but they played it on their piano. Everybody learned how to read music and how to play.
+- I admire people's marriages, and I think it's a wonderful thing to have, but I don't think it's the only way to live. I think there are many ways to live and many ways to establish intimate support in your life that can be from family or friends or great roommates that you like.
+- I got to sing with Placido Domingo... I got to sing with Aaron Neville, who is one of my favorites. Got to sing with Brian Wilson, one of the great high tenors. And Ricky Skaggs, a bluegrass tenor. I'm also proud of my musical friendship with Emmylou Harris.
+- I grew up in Arizona. I love it. I'm a part of the desert. I feel like, really, I'm from the Sonoran Desert, which is - extends to both sides of the border. I'm really from that part of Mexico, also. And I hate that there's a fence, you know, running through it.
+- Everywhere you go, there's a soundtrack. You can't really quite hear it. It's just a little out of the range of hearing.
+- The thing I like about singing duets is that I get things out of my voice I never get singing by myself.
+- Full disclosure here - I had a terrible crush on Smokey Robinson, like every other female on the planet.
+- Men are very delicate. They don't like being rejected.
+- I can't really walk well. The muscles don't get the electronic signals from my brain, not that there's anything wrong with the muscles themselves. It's just my brain.
+- I always say if music can't make you cry, you're a hopeless case. I don't cry very much myself, but it's my job to make you cry.
+- I used to feel kind of impatient with people who couldn't do things fast or couldn't remember stuff.
+- The whole thing with recording is you have to know when to turn off the tape machine and just stop recording because you want to keep fixing, fixing, fixing, you know?
+- Ninety-nine percent of singing is listening and hearing, and so then 1 percent of it is singing.
+- The thing you have to be prepared for is that other people don't always dream your dream.
+- Parkinson's is very hard to diagnose. So when I finally went to a neurologist, and he said, 'Oh, you have Parkinson's disease,' I was completely shocked.
+- You don't forget you have Parkinson's disease, believe me, especially in the shower. If you are not paying attention, you fall down.
+- The only reason to be with somebody is that they make you a better person and you make them a better person.
+- The music that I chose during my life, it wasn't arbitrary. It was all in my family home when I was growing up. I never tried to record anything I hadn't heard before the age of 10. Otherwise, I couldn't do it authentically.
+- The constant fear of a performer is to become what is reflected back at you.
+- I miss singing every day. I can't sing anymore. My voice doesn't work. I have Parkinson's disease, and it sometimes takes my words away from me.
+- I'll occasionally go and do an honor like the Mexican-American Legal Defense Fund because it raises money for a very worthy organization.
+- For years, I've been interviewed, and they write what they thought I thought or what they thought I said. Sometimes it's accurate, and often it isn't.
+- I wanted to sing when I was little. That's what I liked doing. It didn't occur to me that you became famous or anything like that.
+- I didn't think I was a famous singer. I didn't think I was a star or that I could make the waters part - just that singing was what I was going to do.
+- To sing with Frank Sinatra in any capacity at all is overwhelming.
+- People have often written about me, that I did this for this reason and that for that reason, and they're usually 98 percent wrong.
+- As I got older, I got Parkinson's disease, so I couldn't sing at all. That's what happened to me. I was singing at my best strength when I developed Parkinson's. I think I've had it for quite a while.
+- In the United States, we spend millions of dollars on sports because it promotes teamwork, discipline, and the experience of learning to make great progress in small increments. Learning to play music does all this and more.
+- I had a lot of chances to do things that other people don't ever get, and I have to be content with that. I have to look around for some other way to make myself useful.
+- I got a couple of different contacts from publishing companies saying they'd be interested in a book about my work: not a kiss-and-tell book, which I specifically put in the contract. Just a book about my work and what I did.
+- I always thought competition was for horse races and it never belonged in art. I never felt that competitive with other girl singers, really.
+- Songwriting wasn't my gift. I think you have to cultivate a gift; you have to practice and develop craft around your gift so that you can execute it in more convenient, efficient ways.
+- I can remember sitting at the piano. My sister was playing, and my brother was singing something, and I said, 'I want to try that.'
+- I had a galvanised voice: I could sing through a 105 fever or a flu or a root canal or anything that you could throw at me.
+- Ninety-eight percent of the singing I did was private singing - it was in the shower, at the dishwasher, driving my car, singing with the radio, whatever. I can't do any of that now. I wish I could. I don't miss performing, particularly, but I miss singing.

@@ -1,0 +1,66 @@
++++
+author = "Big Sean"
+title = "Big Sean Quotes"
+quotes_len = "60"
+description = "the best 60 Big Sean Quotes"
++++
+- Being in the Midwest, you get the best of all worlds and add your own flavor to it.
+- I definitely consider myself a Christian. There's things that I believe in, there's things I have a self-belief on. I know I got a great relationship with God and the universe. I just believe in being a righteous person and karma. Doing unto others as you would have done unto you. I really want to help teach that.
+- Yeah, I record on voice memos. I got like 1,000-something memos. If I'm in the middle of something and I can't get it done, I'll jot it down, but I never write a rap out, ever.
+- I don't really write any of my raps down. The same, Kanye don't write any of his raps down. Common. It's easy that way. For me, personally, I figure I will lose some of the inspiration in the time of me writing it down, or I'll say it a certain way because I wrote it a certain way.
+- Fame necessarily isn't really tied to success at all. Fame is just being recognized for doing what you do, whether it's good or bad. Osama bin Laden was famous.
+- I wanted to make the soundtrack of people's lives.
+- I hate all the old pictures of me before 2010 - and they are always the first ones to come up. That's why I don't Google myself, man.
+- I'm a Detroit player, they set styles.
+- As a crew, G.O.O.D. Music is taking it to levels that really haven't been done collectively. Kanye is someone who knows how to make classic albums, a true thinker. He got me in the mindset of being a true thinker and always planning out every move you got going.
+- Notorious B.I.G. was one of my favorites. I started getting into hip-hop around the Bad Boy era.
+- I got this tiger head ring that's similar to a Cartier ring. I had my jeweler Sean from Detroit make it similar to the Cartier ring, but gold and diamonded-out. That's my Detroit tiger. It's made with two different golds - the bottom is yellow and the top is gold.
+- Adidas is just right. They've been, like, a partner I couldn't be more thankful for. I really feel like they've helped increase my popularity. You know? It's tight to be able to attach to their brand and be able to add whatever I can offer to their brand. It's nice to know that they appreciate it. They are always showing love.
+- Kanye didn't sign me to hold my hand and walk me through my career. He signed me because he believed in me as an artist and gave me a co-sign. I didn't see that at first. I saw it as him about to hold my hand, and I'm about to be the biggest artist because he's the biggest artist, you know?
+- I never look at it like I'm wasting money when I'm buying gold.
+- I want to change the world. I want to be a part of culture. I want to help teach.
+- I still got a lot to learn about fashion. I'm somebody who experiments, somebody who's finding their way. I'm young, and I don't really know if there's any guide to style in what's right and what's wrong. I just dress as an extension of how I'm feeling. If I feel crazy, then I'm gonna rock something crazy.
+- People who tend to listen to my music have come back and said, 'Yo, this is my anthem. This is what I live by.'
+- You're in good spirits when you create and produce great music. All situations inspire music in different ways, man, from good situations, bad situations, depression, falling in love, falling out of love. I've been going through all those type of things.
+- I think a lot of my fans are anxious for more than just my singles. They know I'm a dreamer. They know I'm someone who is real spiritual. I love to have fun, and I always have fun songs - songs you can party to. But I also always have songs you can live to, that when you're depressed, it may lift your spirits up.
+- I usually sing a lot on my mixtapes. I sing a lot on songs that just really aren't singles. Even my first single, 'My Last,' which I feel like is more pop than anything - I was originally singing the chorus on there. I'm used to that. I've always had fresh melodies.
+- It just makes you a better artist when you're with people who are great artists themselves. Being around Kanye, soaking up all the knowledge, all the stuff he got.
+- I just remember I wanted to make my own dynasty and not keep following trends. I wanted to make my own.
+- It was probably in third grade - I had a super-fake gold herringbone chain. Yeah man, it was, like, super fake. I don't remember if it was my mom's or how I got it, but ever since then, I've loved chains. The first real chain I got was from Kanye. It was a Jacob the Jeweler Kanye West Jesus piece.
+- I feel like I definitely have a real sporty style, more so than a lot of people in G.O.O.D. Music.
+- Kids that I went to school with didn't know how to interact with black people like that. There were only, like, three or four black kids in the class.
+- I just knew what I wanted to be since the third grade. And I always did well in school. I was the type to get good grades; I never really got below Cs or nothing like that. I always kept it A-B. But there's no school for rap.
+- With the super duper flow, I created that one word rhyme style.
+- For me, personally, Detroit is a melting pot for everything. We get the best from the East Coast, West Coast and down South.
+- I come from a family of scholars who got their Master's degrees. To my grandma - and to a lot of people - an education was a way of making it out of the worst parts of their life.
+- My music is the essence of Detroit. At one time, we were the center of the world, man - Motor City.
+- Working with Kanye is one of the greatest things ever. It's also one of the most nerve-wracking things ever. He's, like, the most critical, particular, artistic person ever.
+- I feel like I'm able to relate to all races of people because when you learn to tap into the raw emotion of a person, that goes past color.
+- When I'm home, I cook my own dinner, all organic.
+- I feel like when you're a celebrity, people dehumanize you and they forget you're a real person.
+- It's a real player move to take a girl wine-tasting on a date - she'll like that.
+- I waste a lot of money buying the same pair of shoes.
+- I feel like I changed hip-hop.
+- Sometimes eight chains go together really well, depending on the length - how short they are, how small they are.
+- G.O.O.D. Music is just real tastemakers, man. Kanye's a real tastemaker. One thing that I feel is tight about G.O.O.D. is that a lot of people have their own style, and you can see that. My style is different than Pusha's, it's different than Cudi's. But it's also slightly similar 'cause we have some similar tastes.
+- There's a lot of shoes that people consider high-end fashion, from Balenciaga to this and that or whatever, and the Pro Models are very similar to me. They're very fashionable to me - the design and the shape of them. I just like them.
+- When I graduated from high school, the teacher said I was throwing my life away following music, and the same teacher invited me back to speak at the school. I don't say that to brag, I just want to be an example.
+- There's definitely a thin line between being tasteful and tacky.
+- I get sick all the time because I get no rest and sleep, but it's definitely worth it.
+- My mom keeps me going, man. She deserves such a good life. I just wanna give it to her. My dad, too. My family, my friends, they keep me motivated. Just knowing my personal legend, just knowing what I'm supposed to do, that keeps me going.
+- I'm a sneakerhead. I probably have a couple hundred pair of shoes. I got all sorts of shoes.
+- I was a telemarketer in my senior year at high school. I had to sell prosthetic limbs to paralysed veterans. I was making 150 bucks a week and it was horrible.
+- I'm really vulnerable onstage because it's just me. I'm not really trying to put up a front or act a certain way.
+- I think gold is made for kings and pharaohs - that's what I am.
+- Even though it's tiring, I'm having the time of my life.
+- I've definitely stolen a lot of things.
+- People don't realize I'm a very spiritual person.
+- I feel I can really relate to a lot of young people.
+- I had an advantage because people would post me on blogs because I had co-signs from Kanye West, Def Jam, and G.O.O.D. Music. Everything I put out, the blogs would put up. When I realized that, I used that to my advantage and helped build my following on my own.
+- The thing was, at a young age, my mom and my grandma always tried to keep me out of the streets as much as they could, so they put me in a private school when I was super young.
+- Sometimes I feel like putting on a blazer with just a T-shirt.
+- My mom graduated from the University of Michigan, which is a great school. Then she got her Master's from NYU. She wanted to be an actress, so when she graduated, she had a dream, and she started following it. She moved to New York and took acting classes with people like Denzel Washington.
+- I grew up on the west side of Detroit - 6 mile and Wyoming - so I was really in the 'hood. And I would go to school at Detroit Waldorf, and that was not the 'hood. Growing up in Detroit was good. I had a good perspective, a well-rounded one, and not being one-sided.
+- I feel like 'Beware' is a heartfelt song - it's something that is definitely a story, something that I cultivated from personal stories, some from just other stories in just wanting to make a good song.
+- You can go up to the editor of 'Vogue,' and she might think I have horrible style, or maybe she thinks I have great style. Who knows? I don't really know too much about it: I just know what I like and what I don't like. I love clothes and making my own clothes and shoes, like I got to do with Adidas.
+- Definitely just growing up in general influenced me; Detroit happened to be where I was. I feel like the city definitely has made an impact on my life and made me who I am. Detroit has an unmistakable soul - nobody can duplicate the soul we bring to the game. From Motown to J Dilla to Eminem to anything.

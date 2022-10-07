@@ -1,0 +1,39 @@
++++
+author = "Ryan Higa"
+title = "Ryan Higa Quotes"
+quotes_len = "33"
+description = "the best 33 Ryan Higa Quotes"
++++
+- Thriving in the digital space is about constant commitment and engagement rather than being hit-driven like traditional media.
+- In making YouTube videos, you can't just be an actor, you have to also know the shots and how to write.
+- I feel like more and more advertisers are coming to YouTubers.
+- I definitely want to branch into television and mainstream.
+- One of my first videos on VHS, unknowingly at the time, was a stop-motion of a cup moving across a countertop on its own. I was pretending that I was performing some kind of magic trick. It was my way of doing effects without understanding how to edit.
+- Fake news and rumors thrive online because few verify what's real and always bias towards content that reinforces their own biases.
+- I never had a single big break - because few do online.
+- Everything on mobile seems a lot quicker. You have direct access to each individual fan, and they can respond to you just as quickly as you sent a text message.
+- I get a lot of offers, but I'm pretty picky about what I promote.
+- I read the viewer comments and that helps me decide what my next video will be.
+- I actually started making videos in 2004, before YouTube, using a VHS camcorder, but had to take the tape with a cassette to friends' homes so that they could see it.
+- I do a little bit of acting, but I wouldn't call myself an actor.
+- Success is liking yourself and what you do because if you like yourself, you are happy with who you are and how you live and what you do.
+- I was doing nuclear med I didn't like it. My first semester I switched to film major. YouTube helped make that decision for me.
+- I try to use my influence and empower my community to always question the status quo - whether it relates to broader policy issues or YouTube gossip.
+- Technically, I direct, I'm a writer, and I do all these things, but I never went to school for them. It's just something you pick up; it's like its own art, basically.
+- I'll continue to make videos as long as I have the time and people continue to watch my videos, but eventually I'd like to mainstream into TV or movies.
+- I have comedic things in my stuff, but I don't consider myself a comedian. I'm just a YouTuber, I guess just a personality.
+- In the beginning, every little thing used to bother me. Now, even the worst sounding things sound like a joke because I've seen everything.
+- YouTube keeps changing, and you have to change with it.
+- The closest thing I have to a manager is probably my mum.
+- I've always wanted to connect with my viewers but there's only so much you can do through commenting and tweets.
+- For the very first video I ever made, I was told to film our family reunion, or something like that, and I had so much fun with it that I just kept doing it since then - probably since seventh grade.
+- The fans are the motivators that keep me creating my style of content.
+- To me, 'success' is happiness and my top tip for happiness would be to understand and learn to use perspective.
+- Lemonade is not just made of lemons. It's barely lemons! It's mostly water and sugar! Life didn't give us that.
+- There are product placements. I worked with a lot of companies like Universal and Wonderful Pistachios.
+- When I make a video, I'm always thinking about the fans.
+- I was supposed to go into nuclear medicine and become a doctor.
+- It's the Internet. I'm sure many people know that it's one of the toughest places to be if you're sensitive.
+- I try to keep the topics trendy. If it's a rant, it's something I feel strongly about, and people will watch it because they either agree or disagree.
+- If you're likable, people will like you.
+- I guess the dream would be to do movies, and keep people updated with my videos.

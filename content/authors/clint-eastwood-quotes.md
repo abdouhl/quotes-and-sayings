@@ -1,0 +1,222 @@
++++
+author = "Clint Eastwood"
+title = "Clint Eastwood Quotes"
+quotes_len = "216"
+description = "the best 216 Clint Eastwood Quotes"
++++
+- I just don't like killing creatures.
+- President Obama is the greatest hoax ever perpetrated on the American people.
+- I've always been very liberal when it comes to people thinking for themselves.
+- I like Italian movies. I was frequently there in the '60s, in Rome and the vicinity. It was a great period in life. I was very influenced by their stuff.
+- You always want to quit while you are ahead. You don't want to be like a fighter who stays too long in the ring until you're not performing at your best.
+- I knew Billy Wilder socially and would have loved to work with him.
+- I loved the fact that Obama is multi-racial. I thought that was terrific, as my wife is the same racial make-up.
+- I do believe in the energy and the productivity of the American business world.
+- I think 'Dirty Harry' was probably sensitive toward the victims of violent crime.
+- I think our politicians could learn a lot from Mandela.
+- Movies are fun, but they are no cure for cancer.
+- On 'Mystic River,' I had to cut my salary and everyone else's to get it made.
+- I always liked characters that were more grounded in reality.
+- As I get older, I tend to put more into family than I used to.
+- I mean, I've always been a libertarian. Leave everybody alone. Let everybody else do what they want. Just stay out of everybody else's hair.
+- God gave you a brain. Do the best you can with it. And you don't have to be Einstein, but Einstein was mentally tough. He believed what he believed. And he worked out things. And he argued with people who disagreed with him. But I'm sure he didn't call everybody jerks.
+- The guys who won World War II and that whole generation have disappeared, and now we have a bunch of teenage twits.
+- They've got this crazy actor who's 82 years old up there in a suit. I was a mayor, and they're probably thinking I know how to give a speech, but even when I was mayor I never gave speeches. I gave talks.
+- I was drafted during the Korean War.
+- In the Bay Area, there was a resurgence of Dixieland jazz in the '40s - there was the Frisco Jazz Band, and Lu Watters and the Yerba Buena Jazz Band.
+- I became a Republican in 1951, the first year I could vote.
+- If you consider film an art form, as some people do, then the Western would be a truly American art form, much as jazz is.
+- In past generations, people would try to play younger than they really are. My trick is, I don't try to play younger than I really am.
+- When I'm a director, I look at myself the actor as a completely different person. It's somebody else up there, an actor playing a role. I keep myself out of it.
+- I still work out on a daily basis.
+- If you ever go to a music session, you'll notice that the musicians can sit down and start playing right away, and everyone knows what to do. Of course they're reading it, but the conductor can tweak little things, and you can take that back to directing motion pictures.
+- The only black battalion on Iwo Jima was a small munitions supply unit that came to the beach.
+- There are a lot of conservative people, a lot of moderate people, Republicans, Democrats, in Hollywood. It is just that the conservative people by the nature of the word itself play closer to the vest. They do not go around hot dogging it.
+- The country has come a long way in race relations, but the pendulum swings so far back. Everyone wants to be so sensitive.
+- It's a very confusing era that we're in.
+- I think kids are natural actors. You watch most kids; if they don't have a toy, they'll pick up a stick and make a toy out of it. Kids will daydream all the time.
+- My wife used to be an anchorwoman in Arizona, so she knew John McCain, and she liked him, and I kinda liked him.
+- When I was a kid, I thought movies just came from air. I thought they just appeared.
+- I would just like to say something, ladies and gentlemen. Something that I think is very important. It is that, you, we - we own this country. We - we own it. It is not you owning it, and not politicians owning it. Politicians are employees of ours.
+- I do believe in self-help.
+- The U.S. military was segregated 'til the Korean War, and the blacks in World War Two were totally segregated.
+- I like working. That's when I'm feeling my best. And the people around me know that. My wife knows that.
+- If I'd had good discipline, I might have gone into music.
+- You know when you're young and you see a play in high school, and the guys all have gray in their hair and they're trying to be old men and they have no idea what that's like? It's just that stupid the other way around.
+- As long as somebody finances you, can make a film and get it seen any place and in any language; then, hopefully, it's a success.
+- The stronger the participation of the female characters, the better the movie. They knew that in the old days, when women stars were equally as important as men.
+- I played a little basketball. Some football in junior high.
+- In 'Changeling,' I tried to show something you'd never see nowadays - a kid sitting and looking at the radio. Just sitting in front of the radio and listening. Your mind does the rest.
+- I tried being reasonable, I didn't like it.
+- A lot of dumb pictures have made a lot of money, but that doesn't mean they're going to be anything cinema students will revel over in the future.
+- Of course we all know Biden is the intellect of the Democratic Party. Kind of a grin with a body behind it.
+- It's always appealing to play a character that has to overcome himself as well as an obstacle. It makes the drama so much deeper.
+- 'Mystic River' just smelled interesting to me. So I read it and liked it right away. Even the dialogue in it was great.
+- I am a good listener. I think that came from my schooling.
+- Crimes against children are the most heinous crime. That, for me, would be a reason for capital punishment because children are innocent and need the guidance of an adult society.
+- Fate pulls you in different directions.
+- I'm just a kid - I've got a lot of stuff to do yet.
+- If you're really satisfied with your position on something, you just say, 'Hey;' you just very calmly present something.
+- I don't really get into a big intellectual analysis of why I am going to do a certain script or not.
+- When I was born, the economy wasn't in a great state; it was the Depression, and my father had to be quick to try and find work.
+- I think Pebble Beach is kind of a unique place on the planet.
+- I just make the pictures and where they fall is where they fall. If somebody likes them, that's always nice. And if they don't like them, then too bad.
+- I love big business!
+- I guess any movie actor can become a role model for audiences out there who enjoy him.
+- Society has made us believe you should look like an 18-year-old model all your life.
+- I have worked ever since I was 13.
+- I don't mind telling a dark side.
+- I am certainly not politically affiliated with Mr. Obama.
+- Politicians love regulating. That's part of the whole power structure.
+- Comedy isn't necessarily all dialogue. Think of Buster Keaton: the poker face and all this chaos going on all around him. Sometimes it's a question of timing, of the proper rhythm.
+- Everybody accuses me of moving fast when I direct a picture. I don't move fast, but I just keep moving.
+- My dad was fiscally conservative, and I was influenced by that. He didn't believe in spending more than you had because it gets you into trouble.
+- They say marriages are made in Heaven. But so is thunder and lightning.
+- Hoover was a patriot in his heart, but he definitely exceeded his power.
+- I hate to see anybody sink. I hate to see anybody lose their dream, lose their home, something like that.
+- Yes, I'm always - I'm always surprised when you make a film and you live with it a while and you put it out, you never dream that anybody is ever going to want to really see it.
+- I've never met a genius. A genius to me is someone who does well at something he hates. Anybody can do well at something he loves - it's just a question of finding the subject.
+- A lot of people are bored of all the political correctness.
+- Everybody is idealistic when you're a kid.
+- I keep working because I learn something new all the time.
+- I've taken advantage of a few breaks that came along and moved along with them.
+- When you work with kids, especially, you want to be ready to turn the camera on at a moment's notice.
+- I'd always tried to resist playing the supervirility thing. I liked showing the vulnerability of age.
+- I kind of make a film for myself to sort of express myself.
+- When I did 'Bird,' it was a surprise to some people, first because I wasn't in it and second because most of the films I'd been doing were cop movies or westerns or adventure films, so to be doing one about Charlie Parker, who was a great influence on American music, was a great thrill for me.
+- Some people feel that the world owes them a living.
+- I don't think I've met anyone with a stronger work ethic than Ray Charles.
+- If a person doesn't change, there's something really wrong with him.
+- I like a drama.
+- My dad was a big admirer of Sergeant York stories from the First World War.
+- I'm not afraid to look bad on the screen.
+- Other than obvious errors like forgetting a line, often I can't see any difference between take one and take 20.
+- People love westerns worldwide. There's something fantasy-like about an individual fighting the elements. Or even bad guys and the elements. It's a simpler time. There's no organized laws and stuff.
+- There's no real excuse for being successful enough as an actor to do what you want and then selling out. You do it pure. You don't try to adapt it, make it commercial.
+- The prospect of dating someone in her twenties becomes less appealing as you get older. At some point in your life, your tolerance level goes down and you realize that, with someone much younger, there's nothing really to talk about.
+- I had three points I wanted to make: That not everybody in Hollywood is on the left, that Obama has broken a lot of the promises he made when he took office, and that the people should feel free to get rid of any politician who's not doing a good job. But I didn't make up my mind exactly what I was going to say until I said it.
+- There's a lot of great movies that have won the Academy Award, and a lot of great movies that haven't. You just do the best you can.
+- I think there is a lot made out of age, and what age you feel.
+- Movies were invented for Jimmy Cagney, and he was invented for the movies. A perfect match.
+- As much as I love the Western genre, I figured if I kept doing those, I'd eventually run out of steam on that, and that would've been the end of it.
+- I'm not one of these guys who sits around saying, 'Gee, I mean, the person had a strange childhood and that's why he's doing this horrible thing. Poor Jeffrey Dahmer. He's just had a bad childhood and that's why he's eating people.' Wait a second! This person should be removed from the planet.
+- We are like boxers, one never knows how much longer one has.
+- I read every book there was on jazz, about the original players - King Oliver, Buddy Bolden and all those groups. At one time I was fairly well schooled in that... I could tell you who played where and when, historically, way before my time.
+- Even people on the liberal side are starting to worry about going off a fiscal cliff.
+- Every story has its demands.
+- I think being able to age gracefully is a very important talent. It is too late for me.
+- Men must know their limitations.
+- I've always been fascinated with the stealing of innocence. It's the most heinous crime, and certainly a capital crime if there ever was one.
+- You have to steal a lot. You have to have a criminal mentality to be a film director.
+- 'Unforgiven' is probably an example of a script that I liked right away but thought, 'This is great, but I'd like to do this when I'm older.' So I stuck it in the drawer for ten years and then took it out.
+- There has to be something in every role that interests you.
+- There's only one way to have a happy marriage and as soon as I learn what it is I'll get married again.
+- I have been trying to retire to the back of the camera for quite a few years, and in 1970, when I first started directing, I said, 'If I could pull this off, I can some day move to the back of the camera and stay there.'
+- I've had no problem harnessing anger.
+- And I think it's that time. And I think if you just step aside and Mr. Romney can kind of take over. You can maybe still use a plane. Though maybe a smaller one. Not that big gas guzzler you are going around to colleges and talking about student loans and stuff like that.
+- In school, I could hear the leaves rustle and go on a journey.
+- It takes tremendous discipline to control the influence, the power you have over other people's lives.
+- Actors know what actors are insecure about - and they're all insecure.
+- Governor Romney has a great business background. He is extremely well educated. He has several degrees from Harvard, including, you know, business and including a law degree.
+- There's a rebel lying deep in my soul.
+- I've always felt that if I examine myself too much, I'll find out what I know and don't know, and I'll burst the bubble. I've gotten so lucky relying on my animal instincts, I'd rather keep a little bit of the animal alive.
+- I think everybody has something that they've been obsessed about in their lifetime.
+- When I was growing up, I wasn't an extrovert. If anything, I was an introverted kid and a very average pupil at school. I was very quiet.
+- My uncle played rugby, and my dad played football, and they used to argue which game was the roughest - and everybody agreed rugby was. It's a great team sport, and to be successful, every person has to play in the same level.
+- I tend to believe that audiences are relatively well-balanced people.
+- What you put into life is what you get out of it.
+- I love stories about women.
+- The less secure a man is, the more likely he is to have extreme prejudice.
+- Alfred Hitchcock once told me, when I was analyzing a lot of things about his pictures, 'Clint, you must remember, it's only a movie.'
+- I'm not really conservative. I'm conservative on certain things. I believe in less government. I believe in fiscal responsibility and all those things that maybe Republicans used to believe in but don't any more.
+- Nowadays, politically, everybody is promising everything. That's the only way you can get elected.
+- I guess I'm living in the present more than the past.
+- I'm a day-to-day-type person.
+- Man becomes his most creative during war.
+- Whether you like it or not, you're forced to come to the realisation that death is out there. But I don't fear death, I'm a fatalist. I believe when it's your time, that's it. It's the hand you're dealt.
+- In my career as a director, there's always been some point where you get halfway through it, or three-quarters, and you go: 'What is this thing all about, and why am I telling the story? Does anybody really care about seeing this?' At that time you have to say: 'OK, forget that and just go ahead.'
+- You should never give up your inner self.
+- This film cost $31 million. With that kind of money I could have invaded some country.
+- The craving for information is so huge now, and it can be marketed at such a rapid rate.
+- My mother always told me it wasn't polite to ask what people make.
+- I'm a movie maker, but I have the same feelings as the average guy out there.
+- When you listen to Ray Charles, there's never any doubt whose voice that is.
+- It would be great to be 105 and still making films.
+- Everybody thinks making films back to back is a big deal but they did it all the time in the old days.
+- If you think it's going to rain, it will.
+- I haven't been very active in politics.
+- I just think it is important that you realize, that you're the best in the world. Whether you are a Democrat or Republican or whether you're libertarian or whatever, you are the best. And we should not ever forget that. And when somebody does not do the job, we got to let them go.
+- If somebody's dumb enough to ask me to go to a political convention and say something, they're going to have to take what they get.
+- My old drama coach used to say, 'Don't just do something, stand there.' Gary Cooper wasn't afraid to do nothing.
+- Romney and Ryan would do a much better job running the country, and that's what everybody needs to know.
+- Society is at odds with itself.
+- Stage actors are usually much more conscious of speaking up and making sure that everyone can hear in the back of the theatre; a film actor probably thinks of that a little less.
+- There are certain age limits on police officers. They'd have retired me out at 65.
+- Our modern society - especially in the West, and especially now - reveres youth.
+- I probably would have retired years ago if I hadn't found interesting things to do.
+- In 'Gran Torino,' I play a guy who's racially offensive. But he learned. It shows that you're never too old to learn and embrace people that you don't understand to begin with. It seems like nobody else got that message, I guess.
+- Winning the election is a good-news, bad-news kind of thing. Okay, now you're the mayor. The bad news is, now you're the mayor.
+- When I see a story, I ask: is this something I'd like to be in? Is this something I'd like to see? And if I'd like to see it, would I like to tell it?
+- I was drafted during the Korean War. None of us wanted to go... It was only a couple of years after World War II had ended. We said, 'Wait a second? Didn't we just get through with that?'
+- If you're doing a biography, you try to stay as accurate as possible to reality. But you really don't know what was going on in the person's mind. You just know what was going on in the minds of people around him.
+- My grandfather lived to be late 90s on one side and on the other side, 70s or something. And my father died young, at 63. But he didn't take very good care of himself.
+- I'm interested in the fact that the less secure a man is, the more likely he is to have extreme prejudice.
+- The fact is, violence is not only not a beautiful thing, but it's also very painful and not without consequences for the perpetrator as well as the victim.
+- The innocence of childhood is like the innocence of a lot of animals.
+- When you're young, you're very reckless. Then you get conservative. Then you get reckless again.
+- I don't believe in pessimism. If something doesn't come up the way you want, forge ahead. If you think it's going to rain, it will.
+- You hear about actors being late and all that sort of stuff, but you never find that with an actor who's directed, because an actor who's directed understands all the problems your production is going through.
+- Plagiarism is always the biggest thing in Hollywood.
+- Naturally, everybody has certain things they wish they hadn't done in life. They wish they hadn't kicked their dog when they were ten or something.
+- I was an Eisenhower Republican when I started out at 21 because he promised to get us out of the Korean War.
+- If you want a guarantee, buy a toaster.
+- Drama usually has some sort of intense conflict.
+- Every movie I make teaches me something. That's why I keep making them.
+- As you get older, you're not afraid of doubt. Doubt isn't running the show. You take out all the self-agonizing.
+- My whole life has been one big improvisation.
+- It's always fun to talk about jazz.
+- I grew up with J. Edgar Hoover. He was the G-man, a hero to everybody, and the Federal Bureau of Investigation was the big, feared organization. He was ahead of his time as far as building up forensic evidence and fingerprinting. But he took down a lot of innocent people, too.
+- I've had moments when I've thought about somebody, picked up the phone to call them and they are on the line already, and I think that maybe there's some vibration, some connection.
+- You make a movie, and if somebody reads something into it, then great, more power to him.
+- You have to feel confident. If you don't, then you're going to be hesitant and defensive, and there'll be a lot of things working against you.
+- Aging can be fun if you lay back and enjoy it.
+- I don't like to see a president who is just out campaigning all year long or for the last four years. I'd like to see somebody who's going in the office. In fact, I'd like to not see them because that way you'd be sure that they'd be working.
+- Sometimes if you want to see a change for the better, you have to take things into your own hands.
+- Respect your efforts, respect yourself. Self-respect leads to self-discipline. When you have both firmly under your belt, that's real power.
+- We boil at different degrees.
+- Overnight stardom can be harmful to your mental health. Yeah. It has ruined a lot of people.
+- I played characters with villainous aspect. But out-and-out villain? No.
+- Why am I a star? It can't be because of looks.
+- Every picture has its own demands, and every picture stimulates something within you to tell it a certain way. I don't know what that is; I don't think too much about that.
+- At the major studios, you see people wanting to remake a TV series, wanting to make a sequel.
+- I was always respectful of people who were deeply religious because I always felt that if they gave themselves to it, then it had to be important to them. But if you can go through life without it, that's OK, too. It's whatever suits you.
+- I've always said the one advantage an actor has of converting to a director is that he's been in front of the camera. He doesn't have to get in front of the camera again, subliminally or otherwise.
+- I guess maybe when you get past 70, other people start asking you how you feel.
+- A lot of people are realizing they had the wool pulled over their eyes by Obama.
+- I'm not a regrets-type person.
+- There are two kinds of people in this world. 'I' people and 'we' people. I've always tried to be a 'we' person.
+- I'm not really a Hollywood person. Not that I don't like L.A., but I'm just a Northern California guy.
+- I'm not a New Age person, but I do believe in meditation, and for that reason I've always liked the Buddhist religion. When I've been to Japan, I've been to Buddhist temples and meditated, and I found that rewarding.
+- I'm not a reality-TV kind of guy. But it's almost like we're living in a reality show. Every day in this country, everybody keeps worrying about the deterioration of America, and it's like a big reality show.
+- I'm a mentor to anybody who's interested.
+- When I do a picture and it's 90% black, like 'Bird,' I use 90% black people.
+- I always thought of myself as a character actor. I never thought of myself as a leading man.
+- You are always hoping that movie audiences are interested in characters and interested in story values rather than just mindless special effects. But you never know.
+- Prime time for men is, say, 35 to 45. Then they level off and fall off.
+- Let's put it this way: there wouldn't be much point in me attending a high-school reunion now because there wouldn't be anybody there. We'd struggle to raise a quorum.
+- It's much more fun to play something you're nothing like than what you are... It's much easier to hide yourself in a character.
+- A war is a horrible thing, but it's also a unifier of countries.
+- Liberals are not always so liberal with people who disapprove - disapprove of their point of view.
+- Just try not to ingest a lot of fats, and just try to eat carefully.
+- It must be the Brit in me, because I like animals.
+- I have a very strict gun control policy: if there's a gun around, I want to be in control of it.
+- My mother knew how to read music and everything. But I just kinda learned off of records. And so, I was listening to records and I'd play 'em over and over.
+- There was a stool there, and some fella kept asking me if I wanted to sit down. When I saw the stool sitting there, it gave me the idea. I'll just put the stool out there and I'll talk to Mr. Obama and ask him why he didn't keep all of the promises he made to everybody.
+- I will never win an Oscar, and do you know why? First of all, because I'm not Jewish. Secondly, I make too much money for all those old farts in the Academy.
+- I never sympathise with the accused unless there's a chance the accused is not guilty, but I certainly don't ever sympathise with the criminal.
+- I liked Vittorio De Sica a lot, and I got to work with him once in a segment movie. He was a great director. He was a very charismatic character and a guy I watched a lot when he was directing.
+- You can't stop everything from happening. But we've gotten to a point where we're certainly trying. If a car doesn't have four hundred air bags in it, then it's no good.
+- I want the troops from Great Britain and the U.S. to be successful, but by the same token, Afghanistan has always been a screw-up.
+- Actors know, with me they aren't going to be allowed to rehearse a scene for a couple of hours and then get away with doing 25 takes before we get it right. So they come with their full bag of tricks.
+- I'm not a chick-flick enthusiast.
+- Nobody looks like they did when they were 20, so why not take advantage of the fact that you're changing, emotionally as well as physically?

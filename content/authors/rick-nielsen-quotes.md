@@ -1,0 +1,106 @@
++++
+author = "Rick Nielsen"
+title = "Rick Nielsen Quotes"
+quotes_len = "100"
+description = "the best 100 Rick Nielsen Quotes"
++++
+- The only time I have a problem is when I have to get in a vehicle after we play and sit there in a cramped position for a couple of hours to drive to the next place. Then I get super stiff.
+- Hendrix was a different kind of guitar player. It was like, 'Holy cow, this guy can sing, he can play all this weird stuff... what is this?' It was a new kind of music.
+- I'm kind of a goony guy, a dweeb or a geek.
+- I was three years old, and I walked onstage during a performance that my father was a tenor in 'The Barber of Seville.' I walked out onstage, and people started laughing and clapping, and that was it. That was all it took. Laughing and clapping, I still enjoy today.
+- Have a good work ethic. You've got to practice, practice, practice. I'm not telling you what to practice - that's up to you.
+- We played with AC/DC. There are actual recordings of us doing 'Johnny B Good' together.
+- The song 'Hello There' was written because we never got a soundcheck. 'Hello There' was our soundcheck.
+- People used to trade their guitars to get new ones; I never traded anything.
+- The Sensational Alex Harvey Band - those guys were great.
+- I was always the wise guy class clown throughout my childhood.
+- People say, 'Oh, Rick, he's crazy.' Well, I'm crazy, and I'm not crazy... When I went to my high school reunion, I was the only one there doing what he said he was going to do. How crazy is that?
+- If you can say something special on the guitar, then you're going to perk my ears up. But if you're just gonna run through all the scales, then I can always find something else to listen to.
+- In 1977, I had Paul Rivera hotrod six Fender Deluxes for me. At that time, a lot of studio guys in L.A. were using those - not so much live guys but studio guys. They had terrific tone and great technique, and I was like, 'Well, I like having terrific tone even though I don't have any technique.'
+- I never tried to emulate The Beatles, and I never really wanted to be like The Rolling Stones. I never really felt that I had the look or the demeanor of veteran musicians.
+- My parents were opera singers. I didn't want to play opera because I wasn't good enough. I didn't want to play their music; I wanted to play the music that I wanted to play, and I'm so lucky that today I get to play that music, even though I don't like every song I write.
+- Some bands, they're too snooty, or they think they're too this or that and wouldn't talk to us. And some other bands are afraid to talk to us.
+- I always hated watching bands: the guy would break a string or be out of tune, and I have perfect pitch, so it would always tick me off when a guy is up there, and he'd break a string.
+- Cheap Trick have always prided ourselves on being groundbreaking.
+- Living someplace like L.A. seemed awful to me.
+- I took one guitar lesson, and they wanted me to play 'Mary Had a Little Lamb' or 'Michael Row the Boat Ashore,' and that was the last guitar lesson that I ever took, so I taught myself what I wanted to know.
+- I'd rather be known as a songwriter than a guitarist, although I love to play the guitar.
+- The Ramones were American, and I knew about them, and I thought they were interesting. But they were like a pop band to me.
+- No one knows this, but when I would play the clubs back in '65, '66, they used to call me 'Screaming Chicken,' 'cause I would go out and scream, fall on the ground, beat myself, smash stuff, jump through the ceiling, roll on the floor, and act like I was having epileptic fits.
+- I don't know any American rock bands.
+- I've seen bands come out and begin their concerts with these long, slow, boring songs. Are they kidding, or what?
+- I could have moved anywhere I wanted to. But for family reasons, I stayed in the Midwest.
+- There's no rush to ever put out a new Cheap Trick record. We put it out when we feel like it.
+- I always thought of myself as more of a rhythm player than a big soloist.
+- People are like, 'Why are you playing that five-neck guitar?' I want to hurt. I want to play.
+- I was the Richard Gere non-lookalike in Illinois.
+- There's no way we could make up what we are. The group is just what everyone is. Each of us has a different audience.
+- Some people collect this or that. I'm a musician; I collect guitars.
+- We're known as a touring band, not a singles band.
+- I have too many options when it comes to guitars.
+- We tried to act trendy. We took one of our songs and tried to make a dance mix. They put it on the turntables, unannounced, in Los Angeles and New York the same weekend, where they had a big dance crowd going wild. It cleared the floor on both coasts.
+- We do try to be entertainers, but we're musicians first, and we try to showcase the music.
+- I'm a normal person. I don't see where people come off saying I'm crazy.
+- We're a band's band. We have real songs, real players, real problems. Real ups, real downs.
+- The way I look at it, I'm a songwriter that just happens to play guitar.
+- When I write songs, it's just me and a cassette player - or at least it used to be before smartphones - to quickly record a basic idea.
+- I've taken all the mirrors out of my house because when I'm playing onstage, I feel like I'm still in high school. I feel like that kid that wanted to play in his first band, and then I look in a mirror, and it's like, 'Uh-oh!' It ain't pretty.
+- You've got to work hard and have luck. Luck only enters in if you do work hard.
+- If you start having to tell people you're cool, you're not.
+- We may not be proud of every song we've ever done - or been forced to do - but I believe we've done more than meets the eye.
+- I like the guys in Cheap Trick. I like playing in it and the music we do.
+- Look at Bob Dylan: his voice is not a great sound, but it gets the idea across... and that is what's really important.
+- I never went to any high school dances or proms unless I was playing in them.
+- Basically, I try to let the song dictate what guitar I use. If it's a really loud, crazy song, I'll pull out the cheapest, oldest guitar I own, one that feeds back easily. But most of the time, I just use whatever's around.
+- I love to be the loudest thing in the room.
+- I knew the guys in the Allman Brothers way back in the day, before they were famous.
+- Playing in Japan for thousands of people was like playing on the moon.
+- I never wanted to be Keith Richards or Jimmy Page.
+- I started out as a drummer, and when I was 9, my drum teacher had an album out. He was the rudiment king! He signed it for me, 'Rudimentally yours, Frank Arsenault.' How cool is that?
+- If you're going to be ridiculous, be over-the-top ridiculous.
+- Duane Eddy is somebody I wanted to play like. I discovered him before The Beatles, and he totally got to me. He sent me a note back in 1977 and said that he really liked what Cheap Trick were doing. That's one of those 'Wow!' moments, you know?
+- Our band is rock n' roll. We were never just a studio band trying to make everything perfect. It was never supposed to be perfect. It was supposed to be cool.
+- I don't like the term 'rock star.'
+- I got to meet Keith Moon!
+- I've owned about 2,000 guitars through the years because I've traded a lot and given away and sold some stuff.
+- We played New Year's Eve in Los Angeles, maybe 1978, opening for Kansas or somebody. Driving to the hotel after the gig, we came on KLOS. It was like, 'All right! We're in L.A., we just played a big gig, and we're on the radio!' That was the start of something big.
+- Playing it safe isn't fun; you have to take a chance.
+- We're Cheap Trick, and the majority of people know about three songs, and the real huge fans know about eight. There are 292 songs people have never heard.
+- When we toured with AC/DC, we always had to bring our A game. They really felt like our equals.
+- I was never going to be very cute. I always looked for the best people to play with and, 'cause, to make myself look better.
+- I love guitars, and guitars love me, but sometimes they need new homes where they can live to rock another day.
+- If we waited for a hit record to tour, we would never have toured.
+- I actually did try to emigrate to Australia a long time ago.
+- When a guitarist can evoke a certain mood through his playing, that's what's most important to me.
+- Every person I've ever met always thinks their parents are weird.
+- We all record together. We do it live; then, after that, we do overdubs, if we need to, to repair stuff. Usually when we do stuff, we have to make sure we get the bass and drums down, and by doing it live, you're actually playing the song. You're not piecing together a song.
+- Every other year, I spend Thanksgiving in England with Dave Clark from the Dave Clark Five and a bunch of other people.
+- I did what I believed in. It got me in trouble, but it also got me a job.
+- I feel like such an idiot... you know, that our band didn't break up just so we can re-form and become more and more popular.
+- I didn't want to be one of the Beach Boys or one of the Bonzo Dog Doo-Dah band. I mean, we appreciated that music. But I didn't want to grow a beard to look like Roy Wood just because I liked him.
+- One reason I rarely listen to radio is they don't play our music much.
+- Whenever we tell the truth, nobody believes us. We lie, and people take it as etched-in-stone fact.
+- We've got the pretty-boy lead singer and the fat, dumpy drummer, and I'm the zany guitarist. Sure, we've played up the image at times. But it's the music that matters most.
+- I think I've probably had one of my guitars on display at every Hard Rock Cafe in the world.
+- I just wanted to write about stuff that was happening in real life, and that's not just love songs about your girlfriend.
+- If you don't have a great chorus, write a good bridge first. I often do that and find I write good bridges.
+- I like 'Salty Dog' by Procol Harum.
+- I like Harvey Mandel.
+- We're basically a rock band - guitar, bass, drums and vocals. But we take it further than that. We can be rotten, dirty, and heavy as anyone, but at the same time, we've got a lot of melody.
+- I got to work with John Lennon. That was pretty cool.
+- Nobody wants to hear long speeches.
+- We always record with the whole band. That's key to capturing the feel, especially trying to get a good basic track.
+- I'd rather be musical than technical.
+- My parents were both opera singers, and they also were both heavily into religious and church music.
+- I can't stand it when groups come back for an encore, and they play some slow thing. Oh, brother! It's like, 'Had I known that, I would've left.'
+- We played with Rush somewhere way early in our career.
+- Some people design buildings and aircraft carriers and cars - and I designed picks.
+- To me, a day off is sitting at a piano or with a guitar and writing.
+- It's an honor that people give a crap about us. We're in a rock band; we're not supposed to be treated with any respect.
+- I don't always feel like a million dollars, but I try not to let anybody know.
+- The Sex Pistols had it all - they had the snarl, they had the I-don't-give-a-crap attitude - plus, they could play.
+- I think every one of our songs could be a Top 10 record.
+- I always use my Les Paul. I have a Hamer as well. I use a Tele and an Esquire - once in a while, I will use a Strat, and I never use any pedals... except for in my car.
+- We toured with Deep Purple a number of times.
+- If you can make it in Rockford, you can make it anywhere.
+- I have four warehouses full of stuff. I have every boarding pass of every flight I've ever been on. I have all the old contracts that we had from all the clubs and concerts we played, every one of them, up from 1980. Guitar picks and amps - it goes on and on.

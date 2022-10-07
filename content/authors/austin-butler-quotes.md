@@ -1,0 +1,23 @@
++++
+author = "Austin Butler"
+title = "Austin Butler Quotes"
+quotes_len = "17"
+description = "the best 17 Austin Butler Quotes"
++++
+- Depression and anxiety can't fit in your head if you're cultivating feelings of joy and inspiration.
+- I don't have many walls that I put up.
+- How someone treats a waiter or doorman can tell you so much about a person.
+- I was scouted at the age of 10 by a Hollywood agent. I was a really shy, geeky-looking thing, and started in the industry by doing 'extra' work on films.
+- I've always been really into action movies. Since I was little, that was my favorite type of film.
+- Film and television are just different. Film is cool because it's a complete package. You know the beginning, middle, and end. You can plan it out more, which I like. But with television you get a new script every week, so it's constantly a mystery as to what you're going to be doing.
+- I love English girls! I adore all their different accents. Who knows, I could find a British girlfriend on my travels!
+- You can go the route of not living your life at all - and a lot of actors do that, where they just won't even go out of the house at all - but it makes life so unenjoyable. You can't go out, you can't hold hands with your girlfriend, you can't do any of these things.
+- I think it's important to have a dream and to follow your heart.
+- I've never actually been to prom.
+- As soon as you start feeling like you can't trust the person and you need to check his phone or have his Facebook password or look through his messages - as soon as that trust barrier is broken - it's hard to keep a relationship going after that.
+- I am such a music fiend. I go after so many different types of music. I'm on iTunes constantly just buying new music!
+- I was home schooled starting in seventh grade.
+- I've played guitar and piano for a while, so it's really fun to play music on film.
+- Humans make mistakes.
+- I'd always loved movies. I watch them all the time; my dad is a huge movie buff.
+- I went through a period when I was rebellious and a mess of a person.

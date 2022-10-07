@@ -1,0 +1,30 @@
++++
+author = "Lois Capps"
+title = "Lois Capps Quotes"
+quotes_len = "24"
+description = "the best 24 Lois Capps Quotes"
++++
+- Research clearly shows us that the earlier women think about maintaining their bone mass and take the steps to do so, the better their health will be in the long run.
+- National Osteoporosis Awareness and Prevention Month is celebrated each May, and becomes a chance for our Nation to become more familiar with the effects of this disease, and about the preventable steps that we can take to deal with it.
+- Drilling in the refuge will not solve America's energy problem. The Energy Department's own figures show that drilling would not change gas prices by more than a penny a gallon, and this would be 20 years from now.
+- In addition, for almost a year now I have been urging the President, the Department of Justice, and the Federal Trade Commission to investigate suspicious gas price spikes.
+- I have been working for years to promote a responsible energy policy that works to increase energy efficiency and invest in alternative and renewable energy sources.
+- What we need to do is really improve energy efficiency standards, develop in full scale renewable and alternative energy and use the one resource we have in abundance, our creativity.
+- I will continue to work in Washington to oppose any efforts to expand drilling off our Coasts and to challenge my colleagues to adopt responsible energy policies.
+- Unfortunately, we are still in an age where individuals may be discriminated against because of health conditions.
+- Let there be no mistake, Hamas is a ruthless terrorist organization.
+- I simply cannot see how denying chemotherapy treatment for Palestinian children increases Israel's security or advances U.S. national interests.
+- And as a nurse, I know very well the importance, for example, of electronic medical records.
+- The refusal to acknowledge the scientific value of embryonic stem cell research is one more tragic misstep.
+- We have a moral responsibility to save wild places like the arctic refuge for future generations, and that is why our country has remained committed to its protection for nearly 50 years.
+- I want to thank the efforts of the American Public Health Association and its 200-plus partners who have organized events around the Nation that serve to raise everyone's awareness of the need to improve public health.
+- My experience as a school nurse taught me that we need to make a concerted effort, all of us, to increase physical fitness activity among our children and to encourage all Americans to adopt a healthier diet that includes fruits and vegetables, but there is more.
+- Nurses serve their patients in the most important capacities. We know that they serve as our first lines of communication when something goes wrong or when we are concerned about health.
+- Mr. Speaker, less than 10 percent of our Nation's children walk or ride their bicycles to school, and too many schools continue to invite fast-food vendors into their cafeterias.
+- It is time for a New Direction for our nation's energy policies.
+- Each year thousands of embryos, no bigger than the head of a pin, are created in the process of in vitro fertilization, with the support of Congress, by the way.
+- With 3 percent of the world's resources and 25 percent of the world's demand, it is pretty obvious this country cannot drill its way to energy security.
+- Studies have indicated there is a strong correlation between the shortages of nurses and morbidity and mortality rates in our hospitals.
+- As we may know, osteoporosis affects around 10 million Americans, most of whom are over 55, and it is the cause of an estimated 1.5 million fractures annually.
+- In reality drilling is the slowest, dirtiest, and most expensive way to solve our energy crisis.
+- In America today, the percentage of children and adolescents who are defined as overweight is more than double what it was in the early 1970s.

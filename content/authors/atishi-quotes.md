@@ -1,0 +1,50 @@
++++
+author = "Atishi"
+title = "Atishi Quotes"
+quotes_len = "44"
+description = "the best 44 Atishi Quotes"
++++
+- The silent voter, interestingly, has always been the voter for AAP.
+- After I returned from Oxford, I spent 5-6 years in a village in Madhya Pradesh - 25 km. outside Bhopal - along with a group of people working with the communities. But, over time, we realised that there were just too many constraints, and for ordinary citizens to be the change agent was not that easy.
+- Education and health are among our top priorities.
+- No country which is now developed has done so without providing high quality public education.
+- My actual surname is Singh, and I come from a Punjabi Rajput family. Had I wanted to appease voters, then I would have gladly used my real surname.
+- Gautam Gambhir is a fantastic cricketer, and he has made India proud as far as his cricketing skills are concerned.
+- Although BJP and Congress are two sides of same coin, BJP is far more communal. Since BJP came to power, there is an atmosphere of hatred, and there is a takeover of the democratic institutions.
+- AAP is like a start-up. You do roles you would have never imagined.
+- Government school education across India is in shambles.
+- Election funding is one of the biggest fault lines in our electoral system.
+- Politics also reflects the fault lines in our society, and the fact is that it is not very easy for any marginalised group to come forward in any domain.
+- I belong to a Punjabi Hindu family.
+- I am Chhatriya.
+- I do not want to waste time in proving my identity to people.
+- Full statehood in Delhi is a larger issue as compared to anti-corruption. For, only when the Delhi government gets its anti-corruption bureau back will it get the power of suspension and vigilance inquiries on corrupt officers of different departments of the government. That is how you can curb the corruption.
+- Just and equal society could be made by drastically improving the condition of India's public schools.
+- We are against politics of religion and caste.
+- I never used my surname. My full name is Atishi Marlena Singh.
+- Delhi government doesn't have the power to open new colleges. Once Delhi gets full statehood, this is a very big issue that will be solved.
+- People should not be voting based on caste, religion, money, or liquor but real issues that affect their lives.
+- Unlike the Congress, the AAP stands for democratic rights of states, stands against the infringement of democratic rights by the Centre.
+- It was clear to us that social movements and activism can only take us so far in our mission.
+- Why does 80 per cent of East Delhi live in unauthorised colonies. No one wants to live in unauthorised colonies due to issues of sanitary and hygiene... people stay in unauthorised colonies because they have no other choice, and that really needs to be changed.
+- With politics, everyone - your neighbour, acquaintances, anyone you ever meet - has an opinion. Particularly about what Arvind Kejriwal should be doing.
+- MPs are members in Delhi Development Authority. They can improve land allotment in schools, colleges, hospitals. MPs head the district-wise committee on monitoring how government bodies function. So, incrementally, MPs on their own can improve the situation.
+- Ever since I took the plunge into active politics, I faced a fair amount of attacks and criticism from political rivals, and I had learnt to take it with a pinch of salt.
+- Safety and security in East Delhi is a very big concern, and this is an across-class concern. It isn't an issue that one segment faces and another does not... But because Delhi Police comes under the central government, there are virtually no steps being taken.
+- Only when we recognise our privilege, we will be able to make a change for others.
+- My appeal to the people is to vote keeping their future in mind.
+- Under a democratic form of government, the people elect legislators and ministers to fulfil their policies. The role of the ministers is to give directions. The role of the bureaucracy is to implement those directions. If those who have to do the implementation are on strike, no policies can actually be implemented.
+- Politics is far more complex and difficult than other professions, as it involves takeover of your own personal life.
+- If the student sitting in a class is unable to understand anything day in and day out, then that has a serious and long-term psychological impact on his/her life.
+- Non-violent protests have reached a plateau. There is no other way but to get into politics to make your voice heard.
+- Political parties usually accept funding from large industrialists and are then obliged to bow down to the demands of these individuals. When the government is funded by people's money, it will work for the people.
+- A 24-hour police surveillance system will act as a deterrent for anti-social elements.
+- Anyone who sends their children now to government schools usually does it because they can't afford private education. I went to a government college where 350 out of 400 girls said their brothers go to private schools.
+- AAP will never support BJP, but it's determined to support Congress only if they will agree to give Delhi the full-state status.
+- Everyone knows Gautam Gambhir is a star who is going to be in Bombay, London, and Johannesburg. He is not going to be available to attend to people of his constituency.
+- I was working as a volunteer in a village, 25 km. from Bhopal, Madhya Pradesh, in 2012 when India Against Corruption movement started. I had realized that change needs to come from top downward, so I decided to join the movement as a volunteer and started policy research for the same.
+- I think people would say we have seen consequences of voting for Modi: nothing changed in our lives. Our children still don't have education. They don't have jobs. Women are still not safe.
+- We have to change the politics of Goa.
+- My parents believed in the ideology of the Left. And being influenced by Marxism and Leninism theories, they chose Marlena as my second name.
+- The sheer scale at which one is able to create change as elected representatives is unmatched.
+- We intend to follow one strategy: that is to reach out to each and every resident in the constituency. We do not believe in just waving to the people from cars.

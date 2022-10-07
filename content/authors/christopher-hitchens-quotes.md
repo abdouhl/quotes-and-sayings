@@ -1,0 +1,179 @@
++++
+author = "Christopher Hitchens"
+title = "Christopher Hitchens Quotes"
+quotes_len = "173"
+description = "the best 173 Christopher Hitchens Quotes"
++++
+- Trust is not the same as faith. A friend is someone you trust. Putting faith in anyone is a mistake.
+- I must have been one of the least surprised people on earth on September 11. I felt very braced for that. I knew something like that was going to come.
+- One has children in the expectation of dying before them. In fact, you want to make damn sure you die before them, just as you plant a tree or build a house knowing, hoping that it will outlive you. That's how the human species has done as well as it has.
+- I have quite a decent constitution in spite of all my abuse of it and my advanced years. I'm still quite robust.
+- My father had died, and very swiftly, too, of cancer of the esophagus. He was 79. I am 61. In whatever kind of a 'race' life may be, I have very abruptly become a finalist.
+- I think being an atheist is something you are, not something you do.
+- There's been some research in cognitive science, I'm told, that discloses that there have always been perhaps 10 to 15 percent of people who are, as Pascal puts it, so made that they cannot believe. To us, when people talk about faith, it's white noise.
+- Well, I'm in my 60s now. I finally look it, I think. People until I was 60 would always say they thought I looked younger, which I think, without flattering myself, I did, but I think I certainly have, as George Orwell says people do after a certain age, the face they deserve.
+- The penalty for getting mugged in an American city and losing your ID is that you can't fly home.
+- I have tried for much of my life to write as if I was composing my sentences to be read posthumously.
+- When I look back on what I did for the Left, I'm in a small way quite proud of some of it - I only wish I'd done more.
+- Well look, I mean, I think that prayer and holy water, and things like that are all fine. They don't do any good, but they don't necessarily do any harm. It's touching to be thought of in that way. It makes up for those who tell me that I've got my just desserts.
+- I felt Clinton represented the worst of the 1960s.
+- If you can talk, you can write.
+- The term 'the American Left' is as near to being meaningless or nonsensical as any term could really be in politics. It isn't really a force in politics anymore. And it would do well to ask itself why that is.
+- Terrorism is the tactic of demanding the impossible, and demanding it at gunpoint.
+- I don't think souls or bodies can be changed by incantation. Or anything else by the way.
+- 'WASP' is the only ethnic term that is in fact a term of class, apart from redneck, which is another word for the same group but who are in the lower social strata, so it's inexplicably tied up with social standing and culture and history in a way that the other hyphenations just are not.
+- I don't think consensus-building politics is what I'm meant to be doing.
+- I took part in what was actually the last eruption of Marxist internationalism.
+- To be in opposition is not to be a nihilist.
+- I learned that very often the most intolerant and narrow-minded people are the ones who congratulate themselves on their tolerance and open-mindedness.
+- There are people who cannot forget, as neither do I, the lesson of the years of the Indochina War. Which was, first, that the state is capable of being a murderer. A mass murderer, and a conspirator and a liar.
+- I don't think Romney is wacky at all, but religion makes intelligent people say and do wacky things, believe and affirm crazy things. Left on his own, Romney would never have said something like the Garden Of Eden was in Missouri, and will be again.
+- When we talk about mortality, we are talking about our children.
+- Cancer victimhood contains a permanent temptation to be self-centred and even solipsistic.
+- All the time, I've felt that life is a wager and that I probably was getting more out of leading a bohemian existence as a writer than I would have if I didn't.
+- I still think like a Marxist in many ways.
+- I could not do what I do, and teach a class, and never miss a deadline, never be late for anything if I was a lush, OK? I would really love to read a piece that said, 'He is not a lush.' That would be fabulous, it would be a first, I could show it to people and say, 'Look!'
+- The violence in the Bible is appalling.
+- To the dumb question, 'Why me?' the cosmos barely bothers to return the reply, 'Why not?'
+- I make preparations both to live and to die every day, but with the emphasis on not dying, and on acting as if I was going to carry on living.
+- Of course, I do everything for money.
+- I vote and I do jury duty.
+- I boldly assert, in fact I think I know, that a lot of friendships and connections absolutely depend upon a sort of shared language, or slang. Not necessarily designed to exclude others, this can establish a certain comity and, even after a long absence, re-establish it in a second.
+- I do not believe any of the statistical claims that are made about public opinion. I don't see why anybody does.
+- My dear wife has, I would say, probably never opened a religious book, and seems to be one of those people to whom the whole idea is utterly remote and absurd.
+- I worked out early on to give up things I couldn't do well at all.
+- People until I was 60 would always say they thought I looked younger, which I think, without flattering myself, I did, but I think I certainly have, as George Orwell says people do after a certain age, the face they deserve.
+- What can be asserted without evidence can be dismissed without evidence.
+- I love it when Muslims go to war with each other, as I do when the Christians do, because it shows there's no such thing as the Christian world and the Islamic world. That's all crap.
+- When I meet people who say - which they do all of the time - 'I must just tell you, my great aunt had cancer of the elbow and the doctors gave her 10 seconds to live, but last I heard she was climbing Mount Everest,' and so forth, I switch off quite early.
+- I have nowhere claimed nor even implied that unbelief is a guarantee of good conduct or even an indicator of it.
+- For the people who ostensibly wish me well or are worried about my immortal soul, I say I take it kindly.
+- The people who tend to raise antiwar slogans will do so generally when it's American or British interests involved.
+- Many parents and teachers have become irritated to the point of distraction at the way the weed-style growth of 'like' has spread through the idiom of the young. And it's true that in some cases the term has become simultaneously a crutch and a tic, driving out the rest of the vocabulary as candy expels vegetables.
+- I had real plans for my next decade and felt I'd worked hard enough to earn it. Will I really not live to see my children married? To watch the World Trade Center rise again? To read - if not indeed write - the obituaries of elderly villains like Henry Kissinger and Joseph Ratzinger?
+- It's considered acceptable in our culture to approach perfect strangers, as often or not who may be in extremis, and evangelise. I don't see why that's considered a normal thing.
+- To terrify children with the image of hell... to consider women an inferior creation. Is that good for the world?
+- Lovers often invest their first meetings with retrospective significance, as if to try to conjure the elements of the numinous out of the stubborn witness of the everyday.
+- I'm not resigned, but I'm realistic too. The statistics in my case are very poor. Not many people come through esophageal cancer and live to talk about it, or not for long. And the other wager is, the part of the wager, it's a certainty you'll have a terrible time and you may wish you were dying because it's an awful process.
+- Not many people come through esophageal cancer and live to talk about it, or not for long.
+- To 'choose' dogma and faith over doubt and experience is to throw out the ripening vintage and to reach greedily for the Kool-Aid.
+- Even with all the advantages of retrospect, and a lot of witnesses dead and gone, you can't make your life look as if you intended it or you were consistent. All you can show is how you dealt with various hands.
+- When I go to the clinic next and sit with a tube in my arm and watch the poison go in, I'm in an attitude of abject passivity. It doesn't feel like fighting at all; it just feels like submitting.
+- There are all kinds of stupid people that annoy me but what annoys me most is a lazy argument.
+- I wanted to write.
+- A faction willing to take the risks of making war on the ossified status quo in the Middle East can be described as many things, but not as conservative.
+- I don't even like showing my stuff to publishers and editors much.
+- When Caroline Kennedy managed to say 'you know' more than 200 times in an interview with the New York 'Daily News,' and on 130 occasions while talking to 'The New York Times' during her uninspired attempt to become a hereditary senator, she proved, among other things, that she was (a) middle-aged and (b) middle class.
+- The fact is: It's true what they say about the United States. It is a land of opportunity. It is too various to get bored with it.
+- Chemotherapy isn't good for you. So when you feel bad, as I am feeling now, you think, 'Well that is a good thing because it's supposed to be poison. If it's making the tumor feel this queasy, then I'm OK with it.'
+- I'm not a sheep.
+- The concept of loneliness and exile and self-sufficiency continually bucks me up.
+- One of the great questions of philosophy is, do we innately have morality, or do we get it from celestial dictation? A study of the Ten Commandments is a very good way of getting into and resolving that issue.
+- Every now and then I will see a word as if for the first time, and suddenly appreciate that Evian is 'naive' spelled backward, or that Bosnia is an anagram of 'bonsai.'
+- I feel Anglo-American.
+- I joined a small but growing post-Trotskyite Luxembourgist sect.
+- I don't think the war in Afghanistan was ruthlessly enough waged.
+- Talking, it seemed to me, was the point of adult existence.
+- I'm not that keen on the idea of being unconscious.
+- I didn't think Marilyn Monroe was beautiful. It used to worry me. I thought maybe I'm not put together like the other chaps.
+- I don't have any terrific self-esteem issues but I do sometimes realise I've been too lucky and that I'm over-praised. It makes me nervous. I have this sense of being overrated.
+- I'm not particularly a feminist, but if you get women off the animal cycle of reproduction and give them some say in how many children they'll have, immediately the floor will rise.
+- It's not at all good when your cancer is 'palpable' from the outside. Especially when, as at this stage, they didn't even know where the primary source was. Carcinoma works cunningly from the inside out. Detection and treatment often work more slowly and gropingly, from the outside in.
+- I'm not a conservative of any kind.
+- Millions of people die every day. Everyone's got to go sometime. I've came by this particular tumor honestly. If you smoke, which I did for many years very heavily with occasional interruption, and if you use alcohol, you make yourself a candidate for it in your sixties.
+- It's true that obscenity is a matter of taste and in the eye of the beholder.
+- My own view is that this planet is used as a penal colony, lunatic asylum and dumping ground by a superior civilisation, to get rid of the undesirable and unfit. I can't prove it, but you can't disprove it either.
+- Ordinary morality is innate in my view.
+- A speech idiosyncrasy, in the same way as an air quote, is really justifiable only if it's employed very sparingly and if the user consciously intends to be using it.
+- You can be a Polish American, or an Arab American, or a Greek American but you can't be English American. Why not?
+- Ronald Reagan used to alarm other constituencies by speaking freely about the End Times foreshadowed in the Bible.
+- The Islamists will try to spoil everything for everyone.
+- In the grip of a neurological disorder, I am fast losing control of words even as my relationship with the world has been reduced to them.
+- The totalitarian, to me, is the enemy - the one that's absolute, the one that wants control over the inside of your head, not just your actions and your taxes.
+- Primate and elephant and even pig societies show considerable evidence of care for others, parent-child bonding, solidarity in the face of danger, and so on.
+- A good day is one where I can not just read a book, but write a review of it. Maybe today I'll be able to do that. I get for some reason somewhat stronger when the sun starts to go down. Dusk is a good time for me. I'm crepuscular.
+- Knowing that we are primates, I think, is a fascinating discovery, and a very interesting and rather cheering one.
+- I think I write in a fairly self-confident manner.
+- I was becoming post-ideological.
+- I still make sure to go, at least once every year, to a country where things cannot be taken for granted, and where there is either too much law and order or too little.
+- You know, you can make a small mistake in language or etiquette in Britain, or you could when I was younger, and really be made to feel it, and it's the flick of a lash, but it would sting, and especially at school where there's not much privacy, and so on. You could, yes, undoubtedly be made to feel crushed.
+- Obscenity comes from grime.
+- I've had some dark nights of the soul, of course, but giving in to depression would be a sellout, a defeat.
+- There's a big difference, as I'm sure you know, it's a slightly manneristic one, between people of the '60s and people of '68. Being a soixante-huitard - it's so nice to have a French word for it - is very different from just having happened to been a baby boomer in the '60s.
+- Littera scripta manet - 'The written word will remain'. That's true, but it won't be that much comfort to me.
+- I sometimes wish I were suffering in a good cause, or risking my life for the good of others, instead of just being a gravely endangered patient.
+- Religion is part of the human make-up. It's also part of our cultural and intellectual history. Religion was our first attempt at literature, the texts, our first attempt at cosmology, making sense of where we are in the universe, our first attempt at health care, believing in faith healing, our first attempt at philosophy.
+- Yes, I, well, when I write, as often as I can, I try to write as if I'm talking to people. It doesn't always work, and one shouldn't always try it, but I try and write as if I am talking, and trying to engage the reader in conversation.
+- It doesn't take much to make me angry.
+- Owners of dogs will have noticed that, if you provide them with food and water and shelter and affection, they will think you are God. Whereas owners of cats are compelled to realize that, if you provide them with food and water and affection, they draw the conclusion that they are God.
+- I don't envy or much respect people who are completely politicised.
+- Literature, not scripture, sustains the mind and - since there is no other metaphor - also the soul.
+- Nothing could make me forget what the Reagan years had actually been like.
+- The Koran shows every sign of being thrown together by human beings, as do all the other holy books.
+- It's impossible, I think, however much I'd become disillusioned politically or evolve into a post-political person, I don't think I'd ever change my view that socialism is the best political moment humans have ever come up with.
+- Religion is not going to come up with any new arguments.
+- George Bush made a mistake when he referred to the Saddam Hussein regime as 'evil.' Every liberal and leftist knows how to titter at such black-and-white moral absolutism.
+- Only the aspirants for president are fool enough to believe what they read in the newspapers.
+- My children, to the extent that they have found religion, have found it from me, in that I insist on at least a modicum of religious education for them.
+- I'm crepuscular.
+- I mean, what would I be doing if I couldn't write? But that fortunately hasn't proved to be the case and I can read any day. I still read a lot, and I can write any day, but much more slowly and fewer words.
+- High moral character is not a precondition for great moral accomplishments.
+- I'm here as a product of process of evolution, which doesn't make very many exceptions. And which rates life relatively cheaply.
+- Religion is compulsory in English schools, you know.
+- Say 'Toronto' or 'Ontario,' and the immediate thought associations are with a somewhat blander version of North America: a United States with a welfare regime and a more polite street etiquette, and the additionally reassuring visage of Queen Elizabeth on the currency.
+- Chemotherapy isn't good for you.
+- The press is still investing itself, it seems to me, in a sort of cynicism. It comes out better for them if they can predict hard times, bogging down, sniping, attrition.
+- I don't consider myself to be that credulous.
+- Well, to the people who pray for me to not only have an agonising death, but then be reborn to have an agonising and horrible eternal life of torture, I say, 'Well, good on you. See you there.'
+- The suicide-bombing community is not absolutely 100 percent religious, but it is pretty nearly 100 percent religious.
+- I used to wish there was a useful term for those of us who thought American power should be used to remove psychopathic dictators.
+- In the brute physical world, and the one encompassed by medicine, there are all too many things that could kill you, don't kill you, and then leave you considerably weaker.
+- Like the experience of warfare, the endurance of grave or terminal illness involves long periods of tedium and anxiety, punctuated by briefer interludes of stark terror and pain.
+- I've been to Uganda and to North Korea and to Eritrea, countless horror spots around the world.
+- You notice how liberals keep saying, 'If only Islam would have a Reformation' - it can't have one. It says it can't. It's extremely dangerous in that way.
+- The human wish to credit good things as miraculous and to charge bad things to another account is apparently universal.
+- Solidarity is an attitude of resistance, I suppose, or it should be.
+- And when I was young, my family was perfectly nice. I write a lot about it, as you noticed. But it was rather limited. I think, I don't think anyone in my family would really feel I'd done them an injustice by saying that. We didn't see many people. There were many books. It was as if I wanted to get away from home.
+- I became a journalist because one didn't have to specialise.
+- Well, we can't say any more than we can say there is no god, there is no afterlife. We can only say there is no persuasive evidence for or argument for it.
+- In one way, I suppose, I have been 'in denial' for some time, knowingly burning the candle at both ends and finding that it often gives a lovely light.
+- If I'm in a political argument, I think I can, with reasonable accuracy and without boasting, put the other person's side of the case at least as well as they could. One has to be able to say that in any well-conducted argument.
+- When you hear people demanding that the Ten Commandments be displayed in courtrooms and schoolrooms, always be sure to ask which set. It works every time.
+- One of the many problems with the American left has been its image as something rather too solemn, mirthless, herbivorous, dull, monochrome, righteous, and boring.
+- A gentleman is never rude except on purpose - I can honestly be nasty sober, believe you me.
+- My favorite time in the cycles of public life is the time when the Pope is dead and they haven't elected a new one. There's no one in the world who is infallible for those weeks. And you know, I don't miss it.
+- No school of philosophy has ever solved this question of whether being determines consciousness or the other way around. It may be a false antithesis.
+- I've proved to be as difficult to convert as I am to hypnotize.
+- You can only have one aim per debate.
+- Pakistan has to export a lot of uneducated people, many of whom have become infected with the most barbaric reactionary ideas.
+- Beautiful sentences pop into my head. Beautiful sentences that aren't always absolutely accurate. Then, I have to choose between the beautiful sentence and being absolutely accurate. It can be a difficult choice.
+- For most of my life I let women do the driving and was happy to let them.
+- Ronald Reagan said that he sought a Star Wars defense only in order to share the technology with the tyrants of the U.S.S.R.
+- The citizens of Tumortown are forever assailed with cures and rumors of cures.
+- The cause of my life has been to oppose superstition. It's a battle you can't hope to win - it's a battle that's going to go on forever. It's part of the human condition.
+- The worst days are when you feel foggy in the head - chemo-brain they call it. It's awful because you feel boring. As well as bored. And stupid. And resigned.
+- I feel upsettingly de-natured. If Penelope Cruz were one of my nurses, I wouldn't even notice.
+- The secular argument, or the liberal argument, is to as much as possible remove taboos so things do not become unmentionable; to let some air into the discussion.
+- The amazing fact is that America is founded on a document. It's a work in progress. It can be tested by each generation.
+- It's surprising to me how many of my friends send Christmas cards, or holiday cards, including my atheist and secular friends.
+- I'm terrified of losing my voice.
+- Just as the humble, unassuming, assenting 'O.K.' has deposed the more affirmative 'Yes,' so the little cringe and hesitation and approximation of 'like' are a help to young people who are struggling to negotiate the shoals and rapids of ethnic identity, the street, and general correctness.
+- I retain what's interesting to me, but I don't have a lot of strategic depth.
+- I became a journalist partly so that I wouldn't ever have to rely on the press for my information.
+- The advice I've been giving to people all my life - that you may not be interested in the dialectic but the dialectic is interested in you; you can't give up politics, it won't give you up - was the advice I should have been taking myself.
+- Millions of people die every day. Everyone's got to go sometime.
+- The great thing about the United States and the historically magnetic effect it has had on a lot of people like me is its generosity, to put it simply.
+- I'm afraid the SS's relationship with the Catholic Church is something the Church still has to deal with and does not deny.
+- Ronald Reagan used to alarm his Soviet counterparts by saying that surely they'd both unite against an invasion from Mars.
+- If you look at any Muslim society and you make a scale of how developed they are, and how successful the economy is, it's a straight line. It depends on how much they emancipate their women.
+- 'Bombing Afghanistan back into the Stone Age' was quite a favourite headline for some wobbly liberals. The slogan does all the work. But an instant's thought shows that Afghanistan is being, if anything, bombed out of the Stone Age.
+- Read with care, George Orwell's diaries, from the years 1931 to 1949, can greatly enrich our understanding of how Orwell transmuted the raw material of everyday experience into some of his best-known novels and polemics.
+- I think the materialist conception of history is valid.
+- Henry Kissinger should have the door shut in his face by every decent person and should be shamed, ostracized and excluded.
+- I'd always somehow felt slightly as if I'd been born in the wrong country.
+- Well, I'll put it this way: you can certainly say belief in God makes people behave worse. That can be proved beyond a doubt.
+- I like surprises.
+- A lot of people, because of my contempt for the false consolations of religion, think of me as a symbolic public opponent of that in extremis. And sometimes that makes me feel a bit alarmed, to be the repository of other people's hope.
+- I have more than once in my time woken up feeling like death.
+- Even if I accepted that Jesus - like almost every other prophet on record - was born of a virgin, I cannot think that this proves the divinity of his father or the truth of his teachings. The same would be true if I accepted that he had been resurrected.
+- I don't think it's possible to have a sense of tragedy without having a sense of humor.

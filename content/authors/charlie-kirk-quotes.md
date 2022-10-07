@@ -1,0 +1,106 @@
++++
+author = "Charlie Kirk"
+title = "Charlie Kirk Quotes"
+quotes_len = "100"
+description = "the best 100 Charlie Kirk Quotes"
++++
+- Yes, college tuition is a problem for many young Americans, but it is a problem exacerbated by government subsidies and an overwhelming demand to get a college degree, despite high dropout rates.
+- It is extremely difficult to stand up for principles when many of your friends are automatically liberal or just do not care.
+- We've been conditioned to see a video of white people in MAGA hats standing in front of a Native American and assume that the white people are racists.
+- We have to teach goodness to our infants.
+- Entrepreneurs take measured risks, not hopeless gambles.
+- President Obama's Department of Education pledged to solve the student debt crisis, but it was utterly inept in its effort to address the issue.
+- Once we're ignored or dismissed long enough, conservatives seem to just shrug our collective shoulders and accept defeat. It's this type of passivity that has allowed progressives to dominate film and television, universities and large swaths of the mainstream news media.
+- Many migrants awaiting asylum hearings in the U.S. never show up for their court dates. And the longer they stay in the U.S., the more sympathy they draw in the media and from many compassionate Americans.
+- To promote youth employment through policy solutions, President Trump has placed a very high priority on workforce training, providing young people and other workers with new skills to prepare for new jobs in our evolving economy.
+- The real reason Democrats are pushing for universal mail-in balloting has nothing to do with the global pandemic which originated in China; they simply believe it will help them win elections.
+- To many Americans, saying the United States will never be socialist is rhetorical: Of course it won't - we have a Constitution that forbids it.
+- Republicans don't play to win. But Donald Trump always plays to win and he is teaching Republicans how much fun it can be to play that way.
+- Democrats simply don't believe in borders.
+- President Trump is performing a political exorcism on those who prefer to turn the U.S. into a socialist country - a country where the American Dream would become the American Nightmare.
+- Much like the leaders of some European countries, Democrats believe that the more immigrants a country takes in, the better off that country becomes and the more altruistic it appears.
+- If you take away what a person owns, you control what that person can do.
+- For anyone who can only handle about 12-minutes-per-day of anything news related before needing to retreat into isolation, allow me to recommend spending those 12 minutes listening to the opening monologue of 'The Rush Limbaugh Show.'
+- Young people in college - many living away from their parents for the first time in their lives - are particularly vulnerable to the leftist propaganda campaign designed to turn them away from supporting president Trump and turning them away from believing in American exceptionalism.
+- This silent majority are the Americans who love God, their family, and our amazing country. They don't want their morals, their job, or their lifestyle threatened by the government or any candidates.
+- If you believe all the information out there about millennials you'd have to conclude we had multiple personalities.
+- Once we lose our border protection, the road to citizenship, voting and welfare benefits for a flood of new immigrants will be all but paved.
+- Trump is the first president in a generation who is willing to take political risks to secure our border.
+- A healthy economy is a foundation for a healthy future.
+- Democrats have long been the party of voter fraud.
+- It is part of our human nature to want to be liked. It is part of our human nature to worry about what others think of us. It is an attribute of greatness and of American exceptionalism to not surrender to our nature, but to be guided by an inner calling to persevere and to prevail, no matter the personal cost.
+- There is no question that automation is - and has been since the start of the Industrial Revolution - displacing workers and creating disruption within the economy and labor market.
+- One of the most horrifying and surprising evolutions we have witnessed among our widespread campus network is the rapid movement away from tolerating opposing ideas and respectful debate to the deployment of obscene bully tactics from the left.
+- We live in a welfare state society - one that is already bloated and overburdened. We cannot continue to absorb and support an endless stream of people who will inevitably need legal residents to subsidize their lives.
+- One of the first things President Trump did to stimulate the economy was to remove harmful regulations that left our small banks, energy companies and other businesses treading water to stay afloat.
+- The left has viewed the coronavirus pandemic as a political 'opportunity' from the start.
+- When you deliberately distort and selectively present the truth, you lie.
+- Cultural Marxism that has permeated all of Europe and has been the driving force that has brought France - the nation of Liberty, Fraternity and Equality - to the brink.
+- As government imposes the will of a few upon the many, the many begin to resist. Ultimately, it becomes necessary for the government to use force to make the people conform.
+- I know many young conservatives all across the country that are isolated and ostracized due to their beliefs. They are portrayed as bigots, misogynists and ignorant just because they are conservative.
+- Whenever there has been a debate on the national stage, nobody has had to go looking to find me. I've been there. Always making the argument for free markets, first principles, and limited government.
+- Candace Owens has caused a tectonic shift in the political landscape.
+- Crime associated with our border is a serious threat to the general welfare of real citizens, and after all, isn't it the general welfare of citizens that the Constitution calls upon government to promote?
+- I believe we're broken by sin upon birth.
+- Yes, America is a nation of immigrants - but the immigrants have to enter legally.
+- We have been indoctrinated to see the world through a politically correct lens.
+- Conservatives by and large believe in the corrective power of the free market above all. If we don't like how private companies are doing business, we should just start our own to compete, right?
+- For years, elites in both political parties have ignored the illegal immigration crisis growing on America's southern border.
+- Too often, teachers and professors misrepresent conservative viewpoints, and intentionally muddle what it means to be a conservative.
+- Letting non-citizens vote jeopardizes our principles as a nation. They vote only for entitlement, not for their own responsibility as citizens.
+- With the confirmation of Judge Brett Kavanaugh to the Supreme Court, the Republican political establishment has done something it is not actually used to doing. It won. It isn't that Republicans have never won before, it is just that they typically win by forfeit.
+- While freedom-loving people like libertarians and conservatives wish to provide the illumination of facts and the focus of reason for young people so that they might see and think clearly, those who call themselves progressives favor the classic totalitarian tactic of indoctrination.
+- How can it possibly be that so many Americans are rallying to support Ocasio-Cortez, when all they need to do is look at Venezuela to see where she is leading them?
+- Imprisoning convicted criminals for longer and longer periods sounds like an appealing and commonsense proposal to many people. After all, when lawbreakers are locked up they can't commit more crimes and law-abiding citizens are safer. Right? Actually, wrong.
+- In politics as in sports, the best defense is a good offense.
+- Human adaptability simply doesn't get accurately captured in econometric models.
+- Throwing open our borders to everyone who wants to enter is impractical and could cause grave harm to our nation and the American people.
+- Tiger Woods experienced perhaps the greatest fall from grace of any celebrity in American history.
+- Having Democrats control both houses of Congress and the White House would be a nightmare.
+- I founded Turning Point U.S.A. to take the fight for ideological diversity directly to a progressive stronghold: the nation's leading colleges and universities.
+- President Trump identifies the hatred and intolerance expressed by his radical opponents and names it for what it is.
+- If there's one thing Democrats are good at, it's killing American jobs.
+- The more money Washington puts into the hands of students only enables the colleges and universities to continue propping up the price of education.
+- People start to yawn when you warn them about a move toward socialism. It seems abstract. But if you discuss the issues that arise from high taxes, oppressive regulation, seizure of private property, and dictating of individual behavior, people understand them, and they reject them.
+- If you believe in something, you need to have the courage to fight for those ideas - not run away from them or try and silence them.
+- The truth is that while those on the left - particularly the far left - claim to be tolerant and welcoming of diversity, in reality many are quite intolerant of anyone not embracing their radical views.
+- There are young conservatives out there, and there have been for decades.
+- Democratic socialists like Sen. Bernie Sanders, I-Vt., and Rep.-elect Alexandria Ocasio-Cortez, D-N.Y., would have us believe that Big Government funded by extremely high taxes - in countries like France - can create fair and just societies with widespread prosperity, little if any poverty, and a happy and contended population.
+- I have been advocating in favor of free markets and against socialism since I was a teenager.
+- Political correctness is the deadliest of political weaponry.
+- You don't need a brilliant sleuth like Sherlock Holmes to figure out that the claims of Trump-Russia collusion were false. The bumbling Inspector Clouseau could have figured it out.
+- Since the end of WWII, France's steady movement away from Western ideas of individual liberty and self-determination - and toward collectivist action and conformance - has created a people overly dependent on government, hobbled by crippling taxes and lacking in individual initiative.
+- Regulation often helps Big Industry remain entrenched in power. The burdensome costs of complying with any new regulation would be a rounding error for the likes of Facebook and Google, but it might completely destroy a promising start-up poised to challenge their dominance.
+- I started a college campus-based nonprofit in June 2012 called Turning Point U.S.A. to target millennials in college. Our mission was to create a powerful conservative grassroots activist network on campuses and identify, educate, train and organize students to promote the principles of freedom, free markets and limited government.
+- I'm concerned about the integrity of American elections.
+- Americans needs to understand that the election of Donald Trump has forestalled our slide into the abyss of cultural Marxism and the surrendering of our national heritage and identity to that of the global community.
+- While it might be aspirational, especially for freedom-loving people like me, to believe that America - the greatest and freest nation of all time - should welcome all those who wish to enter so that they might enjoy the gifts of this land, it simply isn't pragmatic.
+- Despite what traditional polling places and the media says, a majority of Americans support Donald Trump. A very silent majority.
+- We have to tell our babies to stop crying.
+- Liberals like to say there aren't any limitations on speech, and it's true that they can say or do just about anything. But conservatives apparently can't even stand still while wearing a MAGA hat without crossing a line.
+- The simple truth is that America is locking up too many people, for too long, and spending too much money on them.
+- Requirements for an ID are not voter suppression - they are just commonsense steps to ensure people don't vote if they are ineligible, don't vote using false identities and don't vote more than once.
+- Nothing in socialist doctrine argues for the abuse of power, from Thomas More, to Karl Marx, to Chavez, to Ocasio-Cortez. Historically, however, it has been the case that socialist countries often end up violently suppressing their citizens.
+- The calculus is simple: Trump wants more freedom; Lockdown Biden and House Speaker Nancy Pelosi, D-Calif., want less.
+- The Trump enemies don't care that Special Counsel Robert Mueller has concluded that President Trump was telling the truth when he said over and over again that 'there was no collusion' between his campaign and Russia.
+- The perverse gift of the Chinese coronavirus is that it has given Americans an up close and personal look at the horrors of big government - and, by extension, socialism.
+- Since stepping onto the public square in 2012 I have been outspoken on a variety of topics.
+- Conservatives are branded bigots and we are falsely accused of hate speech when we express traditional values and ideas that have made America the greatest country on Earth.
+- The Democrats want a pathway to citizenship for the illegal immigrants so they can become Democratic voters in a few years - and some Democrats even argue that non-citizens ought to be able to vote in U.S. elections.
+- Large corporations make strategic investment decisions based upon calculations of rate of return and payback period, not to promote the social justice ideas of Alexandria Ocasio-Cortez.
+- I'm urging all my millennial peers and the young people coming up behind us to look for signs and symptoms of them being in a Democrat-induced delusion. Don't confuse the dream state of the socialists with any sort of reality. If you spot any signs of this politically terminal affliction within yourself, please seek help.
+- The case for socialism is always made based on an ideal and a promise. The ideal is that humans can lovingly coexist in a sharing and peaceful way. The promise is that this time, unlike failed attempts elsewhere, socialism will be implemented properly, and no citizen will suffer as a result.
+- Say what you will about President Trump's tone, tactics or tweeting, but even his most strident critics admit he's at his best when on the offensive.
+- Democrats encouraged a porous southern border because they saw migrants and their American-born children as a source of future political support.
+- The Republican Party is obsessed with what the media thinks of them, obsessed with what the Democrats who are perceived to run that town think of them. And it's paralysis.
+- Prisons are called 'correctional facilities' because the goal is to correct the behavior that sent people there.
+- Historically, Democrats have shown they are willing to do just about anything to win elections. Republicans must quit taking the high road and fight back with everything we have.
+- America's young people deserve more than a mediocre future - and we now have demonstrated proof that President Trump is building a path for our success.
+- In addition to making sense and serving the needs of justice, rehabilitating prisoners and releasing them when they are ready can save taxpayers money.
+- Subsidies and grants throw off the natural market signals that are supposed to allow students to make informed decisions on the true value of a college degree. Increasing aid, and expanding subsidies only intensifies the problem which will lead us down a path of more college dropouts and a continuation of skyrocketing tuition.
+- You can't watch Fox News without seeing five or six segments a day about the nuttiness on college campuses.
+- When students have access to low-interest loans and government aid, colleges have no incentive to cut costs. Why should a college lower tuition if more students are able to pay with subsidized loans from the government?
+- Liberal-socialist women generalize about women as if they are some sort of monolithic voting block of disenfranchised, victimized citizens.
+- Since I started Turning Point U.S.A., almost all millennials are off the college campuses, where the organization and I continue to focus much of our efforts.
+- The United States has been turned into a mindless true-false test, instead of the complex essay exam, it should be. You are either for open borders, or you are racist and anti-immigration. It just doesn't work that way.
+- Many textbooks fail to present students with both sides of an issue. Students are being pushed toward an education that demonizes free enterprise while advocating top-down government, deficit spending and class warfare.

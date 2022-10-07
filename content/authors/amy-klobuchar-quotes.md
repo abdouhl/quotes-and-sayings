@@ -1,0 +1,137 @@
++++
+author = "Amy Klobuchar"
+title = "Amy Klobuchar Quotes"
+quotes_len = "131"
+description = "the best 131 Amy Klobuchar Quotes"
++++
+- When you look back at your own story, you may find out that not every 't' was crossed and every 'i' was dotted.
+- Working together, we can meet our shared goal to combat climate change. From harmonizing vehicle emissions standards to using our trading relationship to boost investment in clean energy, the actions the United States and Canada take together will help both nations meet international goals.
+- You have a Republican House, close numbers in the Senate, a Democratic president. If we're going to move forward at all as a country, we're going to have to do it by standing together.
+- Loretta Lynch is supremely qualified to be our nation's top cop, and she should be confirmed immediately.
+- I know we can find a bipartisan response to pressing challenges - like repairing, modernizing and adding to the infrastructure on which we all rely. I know it because I've seen it happen in my own state of Minnesota.
+- I would prefer a public option that would be a competitive option that would allow people to buy into a Federal Employee Health Benefits Program, which is a series of private plans.
+- There are always people that are misbehaving.
+- I'm looking for a Justice who appreciates the awesome responsibility that she will be given, if confirmed. A Justice who understands the gravity of the office and who respects the very different roles that the Constitution provides for each of the three branches of government.
+- I actually went to law school with Jim Comey. We were in the same class, and he was respected by our classmates just like he was respected by the agents that he supervised.
+- One thing is certain: we will not be successful in this fight against ISIS and other extremist groups unless countries in the region are a major part of the coalition.
+- Where there's a lack of competition - as we saw with Mylan Pharmaceutical's virtual monopoly on EpiPen - price increases often follow.
+- People don't become obese overnight. Allowing our children to have treats in moderation - as in trick-or-treating - is one thing, but good nutrition involves discipline that must be learned and practiced on a daily basis.
+- Finally, a good prosecutor knows that her job is to enforce the law without fear or favor. Likewise, a Supreme Court Justice must interpret the laws without fear or favor.
+- When I was prosecutor we had truancy and curfew issues and we made a refrigerator magnet, and that was hot with parents. They loved putting it up on the wall and saying, you know, if you don't follow these rules, you could get prosecuted. Whether or not it actually happens, it changes a culture, and that's part of what we're trying to do here.
+- It's an uphill battle to help our kids learn to make good food decisions - particularly when they are too often presented with an a la carte lunch room choice of french fries or yogurt.
+- I'm a former prosecutor. And for me, the integrity of the justice system is all about the fact that these men and women go to work every day to be there for our country.
+- In every school, community center, city hall, and state capitol, there are women who are making their voices heard and standing up for the people they serve - women who aren't just demanding change but finding ways to create it. They are making an impact, and along the way, they're inspiring others to do the same.
+- Families fighting childhood cancer should not have to worry about where they're going to get the next dose of the drug they need to save their child's life.
+- I never was a great sports player. In fact, in fourth grade, I had the second to the worst softball throw.
+- I understand now why Hillary Clinton always wore navy blue pantsuits. Remember, for four years? If you have one or two themes, then you have the same shoes, the same bag. Otherwise, it's a nightmare.
+- As a U.S. Senator, I've tried my best to practice politics the way I think it's supposed to be practiced - always looking for common ground and truly enjoying the people I meet along the way.
+- The right to free speech is critical to our democracy.
+- Well, I think the way to go is civil unions. But I do think when you talk about the Republican Party and the debates that are going on within the Republican Party on a number of issues, what I'm hoping is that they will get to a point where they will work with us on moving forward with this economy.
+- I have tried to treat people on the other side civilly and look for common ground.
+- Indeed, in strengthening our security, boosting our economy, and protecting our environment, Canada is our friend, neighbor, partner, and ally.
+- The 2008 presidential election was a triumph of hope and unity over fear and divisiveness. Barack Obama's election reshapes America's political landscape and wipes away the false geography of 'red states' and 'blue states.'
+- I am proud to be a woman in the Senate.
+- My dad was a sports writer when I was younger and then he became just a general columnist. But I grew up with him literally getting into brawls with football coaches.
+- It's understood in Minnesota that we're going to start losing businesses if we can't find more workers.
+- You need people that are willing to talk to the other side, or you're never going to get anything done. You need to be willing to expand your ground. There's always usually a place on issues where you can find common ground.
+- I have worked positively and successfully with Senator Sessions on issues like adoption and human trafficking.
+- A bridge shouldn't just fall down in the middle of America. Not a bridge that's a few blocks from my house. Not an eight-lane highway. Not a bridge that I drive over with my family every day, along with tens of thousands of Minnesotans. But that's what happened.
+- Trudeau, like President Barack Obama, is a champion of change.
+- We can't just say the right thing on lowering the cost of prescription drugs: we have to do the right thing, too.
+- Let's be honest: The trade embargo with Cuba hasn't secured our interests or helped the Cuban people. Because the way to promote positive change and better human rights in Cuba is through engagement, not isolation.
+- I look at this in a very simple way: I want to bring the debt down.
+- My best friends are women in the Senate, but much like Senator Obama, I ran on a platform of change.
+- I saw firsthand the toll that fraud can take on the victims and their families.
+- I was one of the first women partners at my law firm, the first woman in my Minnesota prosecutor job, and the first woman elected from my state to the Senate. So advice from women who had done similar things was important for me.
+- It doesn't take a bruise or a broken bone for a child to be a victim of domestic violence. Kids who witness domestic violence are victims, too.
+- We're actually making stuff in America now. We're exporting stuff. We're inventing things.
+- I am endorsing Barack Obama because he is a new kind of leader: he speaks with a different voice; he brings a new perspective and inspires a real excitement from the American people.
+- You cannot compare any leaders in our country to what Vladimir Putin has done.
+- If the past is an indication, when women are given a job to do in Congress, they get it done.
+- In Minnesota, we tend to be a little more open to immigration.
+- When I ran for the Senate, I ran to bring change to Washington, not simply to become a woman senator.
+- There is a difference between being bold and being rash.
+- I come from a state with many sound, responsible banks.
+- It is time for us to make a real commitment to our rural communities by expanding broadband, by supporting our farmers, by building affordable housing and taking on rural poverty. That's how we leave no one behind.
+- I don't think it should be a surprise when we're talking about energy and trying to have more home-grown energy, be less reliant on foreign oil when you look at our health care that we're trying to get more affordable health care, that these are going to create major debates in this country and be somewhat polarizing.
+- You want to represent the country and you want elected officials that are representative of the country.
+- In my early campaigns, people would sometimes come up to me at a grocery store or at a shopping mall and say, 'I know you from somewhere.'
+- We should look for ways to expedite generic drug approvals, particularly for products that have a long history of being safe and effective.
+- I actually spoke at the christening of the USS Minnesota - it was a really, very cool submarine in Norfolk.
+- When it's for the good of your state, you put partisan differences aside.
+- Election security is national security, and we have to start acting like it.
+- I guess my claim to fame is I've now gaveled Ted Kennedy to order twice.
+- Competition is the best way to ensure prescription drugs are affordable.
+- I think there's a lot of Democrats that would favor reducing the corporate tax rate as long as we find a way to close loopholes so we have a way to pay for it.
+- Courage means standing next to someone you don't always agree with for the betterment of the country.
+- I think you're going to see a number of Democrats that do want to see us grapple with spending.
+- Who would know but ten years ago that kids would be texting each other all the time, that that would be one of their main forms of communication.
+- As elected officials, we were sent to the halls of government by our neighbors to do their work - and much work needs to be done. Remembering our shared experiences with the people we represent makes us better and more accountable civil servants.
+- When I was a prosecutor, we had one straightforward goal: convict the guilty and protect the innocent. To me, that simple mission still holds true.
+- Things aren't always the fairy tale that you thought they were.
+- I remember when I was prosecutor we had truancy and curfew issues and we made a refrigerator magnet, and that was hot with parents. They loved putting it up on the wall and saying, you know, if you don't follow these rules, you could get prosecuted.
+- If we're going to have standards in schools, let's be honest and have standards.
+- I think civility is important to getting things done.
+- Foreign agents are taking advantage of loopholes in our laws.
+- With the skyrocketing costs of prescription drugs, American taxpayers shouldn't be footing the bill for medicine going to waste.
+- Preventing Iran from obtaining a nuclear weapon is one of the most important objectives of our national security policy, and I strongly advocated for and supported the economic sanctions that brought Iran to the negotiating table.
+- If Congress continues to sit on its hands, and the drug companies continue to stash cash in their stockings, Americans will be forever bound in the Jacob Marley-like chains of high prices.
+- I will not vote in favor of Senator Sessions' nomination for attorney general.
+- Comprehensive immigration reform should be debated and passed by Congress.
+- I believe we can incentivize more affordable health care in general by better regulating insurance and creating meaningful competition for health care services.
+- Rebuilding our relationship with Cuba would be a win for American business and a win for the Cuban people.
+- It is wrong when we, in effect, throw safe and sound financial institutions into the same category with banks and lenders that climbed too far out on a limb with no way to return.
+- I have high expectations for the people who work for me. I figure that if they work really hard and do a good job on one of my campaigns or in my office, that experience will serve them well later on.
+- As a nation, America is at its best when we are thinking and making things and exporting to the world.
+- I am under no illusion that amending the Voting Rights Act in Congress will be easy, but with bipartisan calls for legislation to address it, I'm confident we are moving in the right direction.
+- We have to do a better job of putting some rules on the insurance companies.
+- In the 21st century, our adversaries will continue to use cyberattacks against us. We need to be prepared to defend our networks against this growing threat to our democracy, especially the most fundamental part of our political system: our elections.
+- Normal people should be able to run for office.
+- I have a dream that, one day, maybe we'll have more women in the Senate than there are victims of Harvey Weinstein's harassment.
+- Women aren't sitting back after they win an election. They're leaning in!
+- So many times, these kids know more about the technology than their parents. And so many times, we're putting kids in very adult situations and expecting them to behave like they're 40 years old. Well, that's just not going to happen.
+- The floor of the U.S. Senate isn't a place that usually sees a lot of drama.
+- I grew up in the public schools, my mom taught in them, and then my daughter is in them.
+- Canada has the world's largest Ukrainian population outside of Ukraine and Russia. As a senator from Minnesota, a state with a large Ukrainian-American community, I understand how important it is that Canada works with us to stand up to Russian aggression in Ukraine.
+- Ultimately, the success of America's market economy depends on trust. This includes trust between buyers and sellers, between lenders and borrowers, and between investors and the companies in which they invest.
+- I believe same-day registration has to be part of comprehensive reform of our voting systems that will also restore pre-clearance, shorten lines at polls, and ensure that no one who wants to vote is denied their constitutional right.
+- Who would know but ten years ago that kids would be texting each other all the time, that that would be one of their main forms of communication. And so many times, these kids know more about the technology than their parents. And so many times, we're putting kids in very adult situations and expecting them to behave like they're 40 years old.
+- For me, one of my earliest memories of politics where I thought that I could do anything was when Walter Mondale of Minnesota picked Geraldine Ferraro as his running mate. I literally remember what she wore - the red dress, the white pearls. And I saw that, and I thought, 'Anything is possible.'
+- Sometimes people have different views on different issues.
+- The women Democrats and Republicans work together incredibly well.
+- My husband is the first man to consistently be involved in the Senate Spouses group.
+- In many parts of our country, geography and population density can make it difficult to attract private investment. These communities depend on federal investments to maintain and upgrade their transportation systems and stay competitive. And we know that it's an investment worth making. Because when rural America succeeds, we all do.
+- There must always be a balance between protecting privacy and security. In our country, one of the ways we have struck that balance is by requiring a court order before law enforcement can access certain communications of and data on suspects.
+- In my job you can't just put your head in the sand and throw partisan bombshells. You have to get results.
+- As president, Barack Obama has the potential to finally bring our country together to meet the enormous challenges ahead. This includes restoring economic prosperity, moving toward energy independence, delivering affordable health care for all, and implementing a responsible, effective foreign policy.
+- I love the State Fair. It's an event that really brings the urban and the rural Minnesotans together. Rural people get a chance to mix with the urban folk and see what the cities have to offer, and urban people get to remember where their food comes from and who produces it for them.
+- As an intern for Vice President Walter Mondale, I arrived the first day ready to write policy memos and change the world... but my assignment was doing an inventory of the furniture.
+- We've got to get things done. We've got an economy that is stabilized, but not moving ahead.
+- It is illegal for foreign entities to buy political ads in the United States. But that didn't stop the purchase of thousands of political ads on Facebook, paid for - in rubles - by foreigners.
+- I am deeply troubled by Mylan's misclassification of the EpiPen as a generic drug.
+- We must make our world safer by rooting out the evil in our midst while still protecting the rights of people who mean no harm.
+- Women politicians tend to lead by being accountable for results. We focus on goals and outcomes. You can't get by on just swagger.
+- We've got great potential in our country and the only way we're going to make sure kids are getting the degrees that they need, make sure we're getting through that red tape, is by working together.
+- To me, a public servant should have both the grounding and the compassion to carry the common sense and good will of his or her neighbors into the political arena.
+- Before we even consider expanding Medicare, or another program based on its rates, we must reform our Medicare payment system so that it rewards value, not volume, and doesn't disadvantage states like Minnesota that provide high-quality care in an efficient way.
+- Doing business with Cuba is good for America.
+- I called the book 'The Senator Next Door,' not 'The President Next Door.'
+- It's time we update the laws so that online platforms are held to the same transparency standards as other companies that sell political advertisements.
+- As a prosecutor and a senator, one of my main criminal justice priorities has been enforcing and reauthorizing the Violence Against Women Act, a bill with deep roots in Minnesota, seeds planted by former Senator Paul Wellstone and his wife Sheila.
+- Women are focused on getting things done and bring fresh perspectives and innovative approaches to a political system that's crying out for change.
+- When I was a kid, school recess and physical education class were times for kids to run around and play games.
+- In any job, you can come under attack or have a door slammed in your face. You do want to listen to critics; you don't want to be in a cocoon and never change. Get a second opinion from coworkers and friends. Know that criticism can be valid, but don't take it personally.
+- The continued vitality of our Constitution and the survival of each freedom it protects depend upon the right to vote and the vibrant democracy it affords us. In short, the right to vote underlies each of our other rights.
+- I love representing Minnesota in the Senate.
+- Well, it is so difficult right now when you look out on the road and how fast people go and the more and more cars you see out there, for teenagers, you'd think a kid that literally, a few years before, was sitting back in a car seat in the back seat is now behind the wheel.
+- There are many fronts in the fight to make voting easier for all.
+- The consequences of poor nutrition and a lack of exercise are serious.
+- We need to build roads, bridges, airports, locks, dams, and rail that work for this century - not the last one. And let's not forget about updating our energy grid, repairing and replacing our water infrastructure and sewers, and making sure all Americans have access to broadband.
+- I believe having judges with real world, frontline experience as a prosecutor is a good thing.
+- The president has to govern.
+- While there are plenty of reasons that we lost in 2016, there's at least one that we can definitely fix for next time: We can make sure that no one is left behind in where we go, in who we talk to, in what we say, and in what we do.
+- Every so often you might have an outburst in the gallery. That's one of the most exciting things that happen because then you can say, 'Unless there's order we will call the Sergeant at Arms.' And that sounds really scary.
+- I am a mother, so I'm used to balancing things.
+- We had a few tragic accidents in our state, as they've had in every state, from train crashes on down. And really, no text is worth dying for; that is our message to young people. And this is such a new phenomenon when you look at the number of texts and how they've increased exponentially in just the last few years.
+- I wanted to be a librarian.
+- There really is a sense of internationalism in the heartland.

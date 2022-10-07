@@ -1,0 +1,15 @@
++++
+author = "Carrie P. Meek"
+title = "Carrie P. Meek Quotes"
+quotes_len = "9"
+description = "the best 9 Carrie P. Meek Quotes"
++++
+- Until we all start to take responsibility, until we do all we can to improve the character of our communities, we'll never break the cycle of violence and indifference.
+- Just about every year, Congress passes another crime bill - spending billions of dollars to build more prisons, to place more band-aids on society's scars.
+- We've got to stop focusing solely on the symptoms of crime, and start caring about the causes as well.
+- You can't put abandonment and alienation under arrest.
+- If we were really tough on crime, we'd try to save our children from the desperation and deprivation that leave them primed for a life of crime.
+- If we were really tough on crime, we'd do more to stop it from happening in the first place.
+- America may be slow to rise to a challenge. But our history has shown that once we make up our minds to really do something, nothing can stand in our way.
+- Let's stop pretending we can arrest our way to safety and security. Despite all the fine work that policemen and women do, we have got to find other solutions to deter crime.
+- You see, you can't put joblessness in a jail cell.

@@ -1,0 +1,25 @@
++++
+author = "Ike Skelton"
+title = "Ike Skelton Quotes"
+quotes_len = "19"
+description = "the best 19 Ike Skelton Quotes"
++++
+- In the three years since our nation began operations in Iraq, more than 2,500 Americans have been killed and more than 18,000 Americans have been seriously wounded.
+- Our country will not stand for any political plan that includes amnesty for insurgents.
+- The insurgents are Baathists and Sunnis in Iraq who have as their goal a separate and distinct one of toppling the government that is there and creating their own.
+- The crises in North Korea, Iran, the Middle East, show how quickly things can change and how they can go wrong. We must be prepared. And right now the Army is not.
+- We have global interests, potential threats from elsewhere, North Korea, Iran, Taiwan Straits and the like. We must be prepared for any future threat. That is why it is important that this be a transition year, 2006.
+- It is vital that Iraq and the United States together send the clearest possible signal that those who commit acts of violence against American military forces and American civilians will not be rewarded with amnesty.
+- In addition to relieving patient suffering, research is needed to help reduce the enormous economic and social burdens posed by chronic diseases such as osteoporosis, arthritis, diabetes, Parkinson's and Alzheimer's diseases, cancer, heart disease, and stroke.
+- The number of attacks on the American and allied forces is at the highest level since the insurgency began despite the increase of America combat operations and the introduction of some 40 new Iraq security forces and battalions.
+- That the Iraqi Government is considering a political deal granting amnesty to insurgents who have attacked or killed American service members is not just shocking - the idea of amnesty for insurgents is an outrage.
+- In fact, because of their connection to the land, farmers do more to protect and preserve our environment than almost anyone else. They are some of the best environmentalists around.
+- Better treatment and detection methods have also improved the survival rate for people with cancer, and for the first time in history, this year the absolute number of cancer deaths in the U.S. has decreased.
+- The goal of NIH research is to acquire new knowledge to help prevent, detect, diagnose, and treat disease and disability, from the rarest genetic disorder to the common cold.
+- During the 2000 election, the current administration told our military, help is on the way. That is clearly not the case. The administration has failed to request the funds needed for the defense of this Nation. We must give the Army what it needs.
+- Modern medical advances have helped millions of people live longer, healthier lives. We owe these improvements to decades of investment in medical research.
+- Farmers in Missouri and across the country must comply with a variety of federal, state, and local regulations as they grow the crops and raise the livestock that we depend on to feed the nation and the world.
+- Today nearly every combat brigade located within the United States would report that they are not ready for duty. They are at the lowest levels of readiness.
+- Congress must make it clear that common animal waste will not expose farmers to liability under Superfund, while ensuring continued action to clean up legitimate hazardous waste sites around the nation.
+- The Government of Iraq also owes a debt to the American and coalition forces who are fighting the insurgency and helping put that country back together after decades of repression.
+- Guard units in the U.S. are suffering severe equipment shortages which will affect their ability to respond to emergencies in their home States, such as Katrina.

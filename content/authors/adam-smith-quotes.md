@@ -1,0 +1,36 @@
++++
+author = "Adam Smith"
+title = "Adam Smith Quotes"
+quotes_len = "30"
+description = "the best 30 Adam Smith Quotes"
++++
+- On the road from the City of Skepticism, I had to pass through the Valley of Ambiguity.
+- Little else is requisite to carry a state to the highest degree of opulence from the lowest barbarism but peace, easy taxes, and a tolerable administration of justice: all the rest being brought about by the natural course of things.
+- Labour was the first price, the original purchase - money that was paid for all things. It was not by gold or by silver, but by labour, that all wealth of the world was originally purchased.
+- Adventure upon all the tickets in the lottery, and you lose for certain; and the greater the number of your tickets the nearer your approach to this certainty.
+- Man is an animal that makes bargains: no other animal does this - no dog exchanges bones with another.
+- To feel much for others and little for ourselves; to restrain our selfishness and exercise our benevolent affections, constitute the perfection of human nature.
+- Virtue is more to be feared than vice, because its excesses are not subject to the regulation of conscience.
+- As soon as the land of any country has all become private property, the landlords, like all other men, love to reap where they never sowed, and demand a rent even for its natural produce.
+- It is not by augmenting the capital of the country, but by rendering a greater part of that capital active and productive than would otherwise be so, that the most judicious operations of banking can increase the industry of the country.
+- What can be added to the happiness of a man who is in health, out of debt, and has a clear conscience?
+- No complaint... is more common than that of a scarcity of money.
+- Defense is superior to opulence.
+- It is not from the benevolence of the butcher, the brewer, or the baker that we expect our dinner, but from their regard to their own interest.
+- Science is the great antidote to the poison of enthusiasm and superstition.
+- The real and effectual discipline which is exercised over a workman is that of his customers. It is the fear of losing their employment which restrains his frauds and corrects his negligence.
+- Happiness never lays its finger on its pulse.
+- Consumption is the sole end and purpose of all production; and the interest of the producer ought to be attended to, only so far as it may be necessary for promoting that of the consumer.
+- I have never known much good done by those who affected to trade for the public good.
+- With the greater part of rich people, the chief enjoyment of riches consists in the parade of riches.
+- No society can surely be flourishing and happy, of which the far greater part of the members are poor and miserable.
+- All money is a matter of belief.
+- The propensity to truck, barter and exchange one thing for another is common to all men, and to be found in no other race of animals.
+- Resentment seems to have been given us by nature for a defense, and for a defense only! It is the safeguard of justice and the security of innocence.
+- The theory that can absorb the greatest number of facts, and persist in doing so, generation after generation, through all changes of opinion and detail, is the one that must rule all observation.
+- Humanity is the virtue of a woman, generosity that of a man.
+- Great ambition, the desire of real superiority, of leading and directing, seems to be altogether peculiar to man, and speech is the great instrument of ambition.
+- This is one of those cases in which the imagination is baffled by the facts.
+- Poor David Hume is dying fast, but with more real cheerfulness and good humor and with more real resignation to the necessary course of things, than any whining Christian ever dyed with pretended resignation to the will of God.
+- The real tragedy of the poor is the poverty of their aspirations.
+- Labor was the first price, the original purchase - money that was paid for all things.

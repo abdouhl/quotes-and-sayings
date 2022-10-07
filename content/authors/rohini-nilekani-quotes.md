@@ -1,0 +1,106 @@
++++
+author = "Rohini Nilekani"
+title = "Rohini Nilekani Quotes"
+quotes_len = "100"
+description = "the best 100 Rohini Nilekani Quotes"
++++
+- You cannot say that I get water to people. I don't physically do that. Through Araghyam, we support several NGOs across the country which are tackling the problem on a day to day basis.
+- One of the great conundrums in philanthropy globally is that the way wealth creation happens itself often creates the inequities in society.
+- Addressing governance issues are important because whichever silo you work in, be it education, microfinance, sanitation, food or health, you would eventually hit governance deficit.
+- Personal philanthropy must be separated from corporate philanthropy. Personal philanthropy is more about giving back to society, or giving forward, as it is now referred to.
+- As ordinary citizens, we don't spend much time reading about and thinking through the creation of new laws or amendments of old ones.
+- A low-water economy should rest on the principle that water be left in its natural state in the environment as much as possible. Every drop extracted must be justified. Every drop used must be recycled and reused whenever possible.
+- Indian philanthropy doesn't take enough risk.
+- What role can such philanthropy play in a society like ours? For one, philanthropic capital can go where markets will not go and where states often cannot go.
+- As a philanthropist, I fund a lot of NGOs.
+- It is inevitable that we will need digital technology to re-imagine learning beyond schooling. Even if it is only to inspire people to do more things physically.
+- I have never hesitated to say that all philanthropists do have their politics. All of us have a political point of view; some of us articulate it, some of us don't.
+- Unfortunately, the overwhelming moral force exerted by leaders like Gandhi comes by too rarely in the life of a nation.
+- Work from home will relieve the pressure on urban infrastructure and land, which can be released for mass housing or public transport, and critical lung space.
+- With the approaching winter the air quality in many Indian cities, especially in Delhi, becomes a public health hazard. Something so fundamental as breathing easy can no longer be taken for granted. It's a wake-up call worthy of a civic revolution.
+- When you keep un-bundling various aspects of a social problem, you can arrive at a very basic, common space.
+- In this great nation of saints and poets, public administrators and ingenious architects, has our national and local imagination shrunk so much that we cannot leave the last major free flowing river of peninsular India alone, for future generations to explore, enjoy and benefit from? Let the Aghanashini flow with Aviral, Nirmal Dhara.
+- India is criss-crossed with the most elegant wells that tap into the shallow aquifer.
+- I was always clear that I didn't want to just do pure charity. My thinking was definitely about looking at the levers in society that will change the system of inequity, not one person's misfortune.
+- We must overcome our cultural barriers that giving should be a private and silent activity.
+- We all need good laws, and an independent, impartial, and efficient judiciary to verify the constitutionality of those laws.
+- It was only in 2001 that I set up a foundation, Arghyam. That was pretty much to learn the ropes of how to give, what to do.
+- Everything does not have to be a commodity.
+- Poor governance affects us all - entrepreneurs, homemakers, farmers, labourers, whatever identities we might have.
+- Is water the next oil? Motives behind the question vary, depending on who asks the question. Those who see water as a future core commodity - therefore as profitable a prospect as oil - pose the question to create the right market conditions for water trade.
+- Any societal platform needs a bold steward, willing to hold the moral compass and risk failure. A system steward must persist as a positive catalyst that continuously creates opportunities and sustains the grammar of the intent.
+- Because of its gradient, it is the site of many spectacular waterfalls, like the Unchalli Falls, near which, on a full moon night in winter, you might even glimpse a moonbow - a rainbow generated from the moonlight. This is the river Aghanashini - 'the cleanser of sins.'
+- For India's sake as much as its own, Bihar needs to be strong again, less vulnerable to the many forces that would deny democracy and curtail choice. Its people are its strength, and have many skills that other states have benefited from.
+- Societies have debated the severity of punishment for vile acts over millennia, with complex moral arguments on both sides of the question. But citizens and society should pay more attention to the trend of over-criminalisation of common human failings and frailties.
+- The young men of India need us to do more for them. And we need to do it for men in their own right, and we need to do it even more urgently if we really want women to be empowered too.
+- India is a groundwater civilization. Almost all Indians use groundwater, directly or indirectly, each day.
+- Bihar has always drawn me, ever since I was a child, brought up on the stories about my grandfather Babasaheb Soman.
+- What works at scale may be different from scaling what works. Pilots often succeed, while scale-up often fails when the context changes.
+- We cannot imagine democracies without a vibrant civil society.
+- For the lakhs living along its banks, the Aghanashini has given people life and livelihoods.
+- I was never the feisty kind of activist.
+- I have a philanthropy advisor, Hari Menon, who was earlier at the Gates Foundation.
+- In the ideal world, philanthropy should be redundant or at least it should be at the edges, as innovation or risk capital. But it's far from an ideal world; the wealthy are cornering more and more opportunities and resources from this planet. So, the big challenge for philanthropy is... can it engage with the distribution of wealth itself?
+- Climate change is already upon us, and its effects are being felt with increasing intensity.
+- Frontiersman ideas of individualism stand exposed as we realise just how much our actions impact others.
+- Among the most important lessons to be taken from the history of oil is not taking essentials for granted. Conserve oil, but also conserve water. If our Hummers are a red flag in oil, maybe our Jacuzzis are the same for water.
+- At a physical level, India is blessed with a rich biodiversity of flora and fauna. We have a predictable monsoon, and a vast network of rivers and water bodies. We have one of the longest coastlines. We have enormous access to solar energy.
+- Unmanageable waste has turned into a worldwide crisis. No matter how much local authorities do, no matter the level of public cooperation, no matter how much is recycled, the problem continues to grow.
+- As we celebrate a culture of giving, however, we must also sharpen the question of how extreme wealth generation happens in the first place. And we must recognize that just societies cannot be realized merely by the willful distribution of surplus wealth.
+- It is one thing to obey a government order. It is quite another to succumb to resurrected irrational fears, especially of 'the other.'
+- When 9/11 happened, it changed things overnight, giving the biggest shock treatment to individual agency. People in the U.S., the absolute stronghold of individualism and libertarianism, had to give up many cherished freedoms and privacies in exchange for the promise of public safety.
+- When a government is in fear of dissent from its own citizens, and when its reaction is to shut out that dissent, we should all worry.
+- In India, while there are some initiatives working with and for adolescent girls, there are too few state sponsored programmes for adolescent boys, be it rural or urban.
+- India's water challenges are intractable, messy and perennial.
+- We forget that the main constitutional responsibility of the MLAs and MPs that we vote for is law making, and oversight of the executive to implement those laws. During my husband's 2014 election campaign, I did not hear a single voter mention this aspect of the legislator's role.
+- One size doesn't fit all, and I don't have a monopoly over good ideas.
+- Climate change has the potential to swallow up all other issues of development.
+- My mission is to put a book in every child's hand.
+- People have to clearly see the connection between their family's health and their sanitation habits.
+- We all want and need the rule of law to be upheld.
+- My grandfather passed away in 1946, too early to see his dream of an independent India being realized.
+- The urbanising middle class of the 1960s and 1970s had schools, hospitals, roads, energy services, even cultural institutions - all created by the state, or under its aegis. When liberalisation came along, they were poised and ready for take-off.
+- Putting a climate change lens on policy making offers a huge opportunity to make smart decisions about India's future.
+- We need more imagination, more innovation and more public financing for projects and programmes that harness the positive energy of young men.
+- I think those who are already in philanthropy and enjoying it and making a difference have a responsibility to share their stories widely, and to be very transparent about their giving.
+- As we draw bad fumes into our nostrils, let our suffering lungs issue a call to serious action. Let's fight for all, not just some Indians to breathe and live free.
+- Often, our laws and policies reflect patriarchal biases that can trap men in stereotypes - for example, the idea of guarding the modesty of a woman serves neither men nor women nor any other gender - instead, it comes from the same strong patriarchal framework that we need to confront and reject.
+- We cannot be mere consumers of good governance, we must be participants; we must be co-creators.
+- We often destroy ecology-based livelihoods in the name of employment creation.
+- The Giving Pledge is not meant to be prescriptive or restrictive.
+- I believe that any society that allows the creation of legitimate wealth expects that the wealth be used for its benefit.
+- Climate change and air pollution know no borders, and antibiotics resistance respects no boundaries. Bacteria from Africa can make people in America sick. The burning of Indonesian forests can keep Asia gasping for breath.
+- If anything, all homes should have piped water supply and sanitation, which could improve public-health indicators and reduce infant mortality.
+- Rich or poor, we all need organizations that can represent us; we all need modes of collective action when individual action does not yield justice.
+- We all require equal access to the justice system.
+- We must incorporate climate modelling in future plans and investments. Whether it is policies on crop procurement, skilling and job creation, urbanisation or even beach tourism, climate adaptation pathways will have to be imagined.
+- It is not easy to calculate the cost of land to build individual or community toilet systems. But we need to account for it when we total up the true cost of sanitation.
+- I came from a seedha-saadha middle class family in Mumbai. The Infosys story changed our life drastically but we have remained the same.
+- As citizens, we have to co-create good governance, we cannot outsource it and hope to be passively happy consumers. Like everything worth its while, good governance must be earned.
+- Children's ability to learn is infinite when they are engaged.
+- With India going digital, we have a massive and dangerous e-waste problem.
+- In India, the concentration of wealth is in a few hands.
+- India's waste problem is gigantic, and with its economy growing steadily, it will be compounded manifold.
+- The Indian elite send their children to expensive private schools, bypassing the public school system. They have their own infrastructure for water, with sumps to store it, pumps to lift it, and fancy filters to de-risk from erratic, polluted government water. Most access private healthcare to bridge the health services deficit.
+- As with oil, water exploitation raises an inter-generational debt that will be hard to repay.
+- No single institution or effort can effectively create solutions for societal problems.
+- No doubt there are dangers involved in letting children go online unsupervised.
+- Luckily, water, though finite, is infinitely renewable.
+- I felt very uncomfortable when I became wealthy. One of my ways of dealing with it was to give it forward right away.
+- Being near a water source can determine lives, livelihoods and prosperity.
+- India has a long tradition of giving that cuts across all sections of society. It is a living legacy that we can all be proud of.
+- Having our own children in good schools does not inure us from the ill-effect of others having theirs in poor schools. Having great roads within our gated homes and offices does not help when our fancy cars spill out on to poor public roads.
+- Depending on which of the many hydrogeological zones of India you tap into, the water can either be easy to reach or incredibly difficult to suck out.
+- If the privileged in society can use that privilege to privilege others, then the consequences can be tremendous.
+- We can be inspired by and renew our ancient culture of sustainable design and living. Why not set standards for producers and importers of all goods and services sold in India?
+- Once you are wealthy, you are in a nice comfort zone and want to stay there. So I always look in the mirror and ask, is my philanthropy making the world a more just and fair place?
+- Most disciplines invite us to more mindfulness, and more contentment. Not by consuming more externally, but by harvesting more from within, and by sharing more without. Neurosciences and behavioural sciences increasingly corroborate this ancient wisdom - joy can come from giving, and unlimited happiness from bonhomie.
+- Good laws are fair, do not discriminate against any group and are reasonably implementable.
+- History has shown us many times that if the state repressively forces the redistribution of wealth and social justice, it becomes dangerous both for democracy and for human creativity. Yet, restraining the excesses of a capitalist structure that creates new inequities seems to need more than good public policy.
+- For centuries, prosperity has been easy to define in material terms. At a personal level, by how much one earns; how much one has.
+- Water is ultimately a finite resource. With all finite resources, there is a continuous need for sustainable and equitable management, by capping demand, improving efficiencies in supply and developing substitutes. This exercise is complicated by the sociocultural beliefs, values and affinities around this precious resource.
+- Millions of Indians have moved from just surviving or accepting life as it used to be to imagining a life where they can thrive and rise up to their potential. This rise of individual hope could generate massive amounts of creative energy.
+- The better off Indian can engage more deeply with political process to demand effectiveness from the institutions of the state. We can raise our voices for better education and healthcare, for better public infrastructure, for cleaner air.
+- We have to get smarter about our cities. Especially when it comes to the most basic of public services - water supply.
+- Governments do have the duty to protect national interest. But we should not be afraid of foreign funding of Indian CSOs, unless malintent can be proved.
+- The uncontrolled and rapacious exploitation of oil has led to unintended consequences, and if we continue on a similar trajectory with water, the oil crisis will seem like the trailer of some horrible disaster movie.

@@ -1,0 +1,31 @@
++++
+author = "Alison Owen"
+title = "Alison Owen Quotes"
+quotes_len = "25"
+description = "the best 25 Alison Owen Quotes"
++++
+- Well, who wouldn't want to work with Tom Hanks?
+- I am no expert on tax; I'm a film producer. I read books and think about which ones would make good movies, and then I work with directors in order to make them.
+- John Lee Hancock is someone that I had admired from afar. I think he is a wonderful director... in the tradition I would say both of Clint Eastwood and Frank Capra.
+- YouTube clips get millions, billions of hits. Reality TV programs have their own channels. How can movies attempt to compete with these kinds of numbers? And do we even need to? Are we scaring ourselves by unnecessary comparisons, by not comparing apples with apples?
+- When my parents met, my mother was a waitress and my father was a dockyard worker. They were part of that post-war better-yourself generation, so they both went to night school.
+- I went to University College London and read English literature, then realised if you were interested in story and narrative, film was the way to go.
+- People didn't suddenly wake up one morning and unanimously say 'I'm fed up with midbudget dramas. I'm only going to see action tent poles from now on!'
+- I was a little punk rocker and was pregnant with Sarah when I went to university. I had her in the Christmas holidays of the first term. It was 1979, and UCL was very proud of its reputation as a liberal university, so they were very helpful.
+- Really, I am entirely material driven. If a project appeals to me, I will try to find the right writer and director. And that may be someone I've worked with before, or it may not. It may be a woman, or it may not.
+- If I'm at home, I get up around 7:30. If I have time, I like to do some exercise. My current favourite is 'hot' yoga. If I'm filming, I will go to the office or set, and then take meetings.
+- In a recession, people want to be told for two hours that everything is going to be OK. They want to escape from their humdrum or painful reality into a feel-good drama, or a love story that transcends their daily life.
+- It is really awful to be filming and not know if you can pay everybody.
+- You won't see me doing 'Transformers 5.'
+- To say the Internet is the death of books and movies is like saying someone invented a new, more efficient kind of cup and it heralds the death of coffee - a new improved form of carrying something, which is essentially what the Internet is, should be helpful to our business.
+- The most interesting characters keep us hooked. Not likeable ones! Iago, Shylock, Darth Vader - are they likeable? Do you want to invite them to dinner?
+- Movies began as a communal experience. Even though we now watch them as DVD's, sometimes alone on our computers, mostly in the history of cinema it has been a communal experience.
+- The greatest filmmakers are not the ones who put everything in; they're the ones who can figure things to leave out, and in doing so, invite your participation.
+- If you look back on professions, when they became undervalued and paid less, women tended to do better in them.
+- People in third-world countries are less eager to see movies full of angst over existential problems, and who can blame them. They've got other fish to fry. They'd rather see a few great dance routines and the guy end up with the girl.
+- The Internet is a container, not a substance.
+- Movies alone have the hideous capacity to do everything for you. So in directing movies, you have to figure how to leave things out - because when you leave things out, you evoke the imaginative participation of the audience.
+- With 'Suffragette,' I felt that a female writer would be good, and considering the subject matter, who would be better to write the script than Abi Morgan? She was the first choice, and she happens to be a woman.
+- Audiences like to be made to feel that there is a world where things go right: where big emotions can happen and yet feel safe. This is why there is a constant tension in Hollywood between studios who want happy endings and writers who want to explore the human condition. There is a time and a place for both!
+- Human nature stays the same, the one thing that stays constant, like death and taxes. And people still want good stories!
+- When you want to transcribe an idea truthfully from the page to the screen, it is not necessarily best to be particularly literal about it. It can be hard to convince people, specifically writers, of that.

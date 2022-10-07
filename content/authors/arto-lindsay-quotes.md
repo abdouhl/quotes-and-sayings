@@ -1,0 +1,26 @@
++++
+author = "Arto Lindsay"
+title = "Arto Lindsay Quotes"
+quotes_len = "20"
+description = "the best 20 Arto Lindsay Quotes"
++++
+- Playing with Kip I definitely learned a lot playing with these incredible guys and hearing them.
+- I had this idea for a while to do mix this Al Green vibe with a samba thing. I tried to do that in many different ways. Peter added his own modern notion of funk and his own deep background in classical music.
+- I had friends in this band called Mars and they used to play a lot.
+- Then the early punk rock period with Television and the Ramones. That's what I loved- that's what I was listening to immediately prior to when I started to play.
+- Years ago when DNA was going on, I produced a record in Italy but I didn't think I'd do another one.
+- We deliberately used elements from Brazilian music and from African and Asian music. Now people can hear that but then it sounded so abstract, they couldn't hear it.
+- To some extent at that time, we injected rock and roll into that scene- we played loud and that was a huge turning point for that scene. We were involved in playing with all those people.
+- I just had this notion that I wanted to do the most extreme thing I could and I also very consciously wanted to do something that was very different from Mars because we were all very close.
+- There was some conflict there over Saturday nights because we were all really broke in those days- all the money you had in the world was in your pockets. Nowadays when you're say you're broke, it's not the same thing.
+- The Lounge Lizards were relating with a tradition and it was like I was playing within a musical context. The guitar playing stood out as being different in some way. That was a real education for me.
+- There was a generation of people who moved here to make something of themselves. They had to really struggle and created really something on their own apart from a lot of attention. It was a really exciting time here.
+- We were really interested in music from all over the world. We realized that what we were doing was very close to contemporary classical music because of the lack of tonality in the guitar- the fact that I play guitar the way I play.
+- We were interested in this notion of compression- a lot of the songs were really short so that you'd absorb them in memory rather than when you're actually hearing them.
+- It was a turning point in the sense that as a scene, we can up with a lot of new ideas.
+- Certainly since then many people have taken a lot of those ideas and ridden them for years and years and made careers out of them. Part of that is willingness to do the kind of work that I wasn't willing to do. Get into a van and cover the country.
+- We recorded that trio and it's out on the Knitting Factory label. I've got another record in the can with that group and Marc, which I'll hopefully finish some time before next summer.
+- My parents were missionaries - I was born in the States but I grew up in Brazil.
+- It was a scene in the sense that we were all close and we all knew each other before the different bands had really formed. We used to rehearse in the same place.
+- The period right before punk rock where people like Lou Reed and Iggy Pop were really strong.
+- It was very interesting for me because DNA made music without much technical knowledge at all.

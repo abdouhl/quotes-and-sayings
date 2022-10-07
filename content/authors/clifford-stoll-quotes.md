@@ -1,0 +1,16 @@
++++
+author = "Clifford Stoll"
+title = "Clifford Stoll Quotes"
+quotes_len = "10"
+description = "the best 10 Clifford Stoll Quotes"
++++
+- Treat your password like your toothbrush. Don't let anybody else use it, and get a new one every six months.
+- Why is it drug addicts and computer afficionados are both called users?
+- When I'm online, I'm alone in a room, tapping on a keyboard, staring at a cathode-ray tube.
+- Data is not information, information is not knowledge, knowledge is not understanding, understanding is not wisdom.
+- Computers in classrooms are the filmstrips of the 1990s.
+- While I admire the insights of many of the people in the world of computing, I get this cold feeling that I speak a different language.
+- Rather than bringing me closer to others, the time that I spend online isolates me from the most important people in my life, my family, my friends, my neighbourhood, my community.
+- If you don't have an E-mail address, you're in the Netherworld. If you don't have your own World Wide Web page, you're a nobody.
+- Merely that I have a World Wide Web page does not give me any power, any abilities, nor any status in the real world.
+- The Internet is a telephone system that's gotten uppity.

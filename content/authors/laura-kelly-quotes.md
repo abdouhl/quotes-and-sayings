@@ -1,0 +1,19 @@
++++
+author = "Laura Kelly"
+title = "Laura Kelly Quotes"
+quotes_len = "13"
+description = "the best 13 Laura Kelly Quotes"
++++
+- During my time in the state Senate, I've worked to make sure every Kansas child has the support they need to succeed. That means access to good public schools, but it also means strong early childhood programs, an accountable child welfare system to protect kids, and affordable, safe child care.
+- Kansas and Missouri will continue with separate efforts to offer incentives statewide. We all want to do our best to attract businesses and good jobs, but without foolish giveaways that bear no fruit.
+- We deal with emergencies on a regular basis out here in the Plain States.
+- I would like Kansas be a place that future generations feel comfortable staying here.
+- I look forward to working across the aisle in pursuit of our common goal to get Kansas' fiscal house in order.
+- The Brownback-Colyer administration's lack of interest in ending the border war was emblematic of economic recklessness on their watch that extended well beyond a failed tax experiment.
+- We have a lot of meatpacking plants in the state of Kansas. We need that personal protection equipment so that those folks can continue to do their jobs and continue to feed the nation.
+- When Kansas and Missouri work together, we can accomplish a lot - and also set an example at a time of extreme partisanship.
+- The process of rebuilding state operations - including the important work of fueling job growth - began the day I took office.
+- I have a vision of education that spans from early childhood to K-12 to college to the workforce. Because every step along the way is important: a chance for our state to do right by our kids and their parents - or to let them down.
+- In 2009, I pushed for the creation and funding of early childhood block grants to ensure that more kids enter kindergarten ready to learn. It's really not rocket science: Put kids on the right path at an early age - and keep them there.
+- But the fallout from this coronavirus long term is going to be severe and lengthy.
+- Fighting for kids has been my lifelong mission. Right out of high school, I went to work at a camp that served disadvantaged adolescents. When I became a recreation therapist, I worked with children battling severe mental illness.

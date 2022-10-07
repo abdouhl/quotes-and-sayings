@@ -1,0 +1,48 @@
++++
+author = "Leonard Nimoy"
+title = "Leonard Nimoy Quotes"
+quotes_len = "42"
+description = "the best 42 Leonard Nimoy Quotes"
++++
+- I think it's my adventure, my trip, my journey, and I guess my attitude is, let the chips fall where they may.
+- Years ago - in the 70s, for about a decade - I carried a camera every place I went. And I shot a lot of pictures that were still life and landscape, using available light.
+- That's true, because I'm a photographer now.
+- For me it's all about personal vision; is there something about a subject that uniquely speaks to me.
+- I certainly don't live in a kosher home although I was raised in a kosher environment.
+- I did not move into developing or processing color. I stayed with black and white. I still think to this day that I prefer to work in black and white if it has to do with poetry or anything other than specific reality. I have worked in color when I thought it was the appropriate way to express the thought that I was working on.
+- My folks came to U.S. as immigrants, aliens, and became citizens. I was born in Boston, a citizen, went to Hollywood and became an alien.
+- My memory of those places is better than my pictures. That's why I get much more satisfaction out of shooting thematic work that has to do with an idea that I'm searching for, or searching to express.
+- I also do my own processing, so it means a big commitment in lab time.
+- I became involved in photography when I was about thirteen years old.
+- I became enamored with photography when I was about 13 or 14 years old. I've been at it ever since. I studied seriously in the '70s.
+- I became hooked on the idea of being able to shoot an image and process it myself, and end up with a product.
+- That is the exploration that awaits you! Not mapping stars and studying nebula, but charting the unknown possibilities of existence.
+- Boston was a great city to grow up in, and it probably still is. We were surrounded by two very important elements: academia and the arts. I was surrounded by theater, music, dance, museums. And I learned how to sail on the Charles River. So I had a great childhood in Boston. It was wonderful.
+- Logic is the beginning of wisdom, not the end.
+- My wife and I are affiliated with a temple here in Los Angeles. We feel very close to the congregation and to the rabbi, who happens to be my wife's cousin and who I admire greatly. I talk to him regularly but I consider myself more spiritual than religious.
+- Spock is definitely one of my best friends. When I put on those ears, it's not like just another day. When I become Spock, that day becomes something special.
+- I began working with a family camera. It was called a Kodak Autographic, which was one of those things where you flopped it open and pulled out the bellows. And I've been at it ever since; I've never stopped.
+- I am not Spock.
+- For a period of time, I carried cameras with me wherever I went, and then I realized that my interest in photography was turning toward the conceptual. So I wasn't carrying around cameras shooting stuff, I was developing concepts about what I wanted to shoot. And then I'd get the camera angle and do the job.
+- A neighborhood friend showed me how it was possible to go to a camera shop and pick up chemicals for pennies... literally... and develop your own film and make prints.
+- My dream concept is that I have a camera and I am trying to photograph what is essentially invisible. And every once in a while I get a glimpse of her and I grab that picture.
+- That's the most difficult issue for me... to find a subject that holds my interest long enough that I'm prepared to go to work and spend the time and energy to shoot the subject.
+- You know, for a long time I have been of the opinion that artists don't necessarily know what they're doing. You don't necessarily know what kind of universal concept you're tapping into.
+- I deal with this spiritual issue every day - either shooting or processing or sorting or discussing or having conversations - I'm in constant contact with it.
+- But if you're talking about fine art work, then I think you have to ask yourself some pretty deep questions about why it is you want to take pictures and what it is you want to say.
+- This time, there have been a lot of interesting discussion about the subject matter and I've had a good time talking about it. And in some of the cases, I'm not just signing books; I'm showing slides and talking about the work.
+- I have a master's degree in photography as a fine art, and I would call my work primarily conceptual. I don't carry cameras with me wherever I go. I get an idea of a subject matter I want to deal with and I pull out my cameras.
+- You proceed from a false assumption: I have no ego to bruise.
+- The miracle is this: the more we share the more we have.
+- Which is probably the reason why I work exclusively in black and white... to highlight that contrast.
+- I use a computer. I don't know if that qualifies me as a techie, but I'm pretty good on the computer.
+- Some words having to do with the death of the people in the World Trade Center attack had been added, and when I got to it, I had this overwhelmingly emotional experience. I struggled to get through the words; tears were streaming down my cheeks.
+- I think about myself as like an ocean liner that's been going full speed for a long distance, and the captain pulls the throttle back all the way to 'stop,' but the ship doesn't stop immediately, does it? It has its own momentum and it keeps on going, and I'm very flattered that people are still finding me useful.
+- I'm touched by the idea that when we do things that are useful and helpful - collecting these shards of spirituality - that we may be helping to bring about a healing.
+- What I'm exploring right now is the subject of my own mortality. It's an area that I'm curious about, and I'm researching it to see if there's a photographic essay in it for me. If images don't start to come, I'll go to something else.
+- I'm attracted to images that come from a personal exploration of a subject matter. When they have a personal stamp to them, then I think it becomes identifiable.
+- I've been working with photography for many years.
+- The book tour has been really interesting and very gratifying. I have not book toured before. I've never had quite as much pleasure, as much satisfaction.
+- I'm not an equipment nut. I tend to use whatever's to hand. I have several cameras, of course, but I'm not emotional about any of them.
+- Other times, you're doing some piece of work and suddenly you get feedback that tells you that you have touched something that is very alive in the cosmos.
+- Most of my images have been done in-studio, under very controlled lighting conditions. There have been a few that have been shot in nature, but even then they were shot almost exclusively at night, and again, under controlled lighting conditions.

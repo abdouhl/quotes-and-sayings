@@ -1,0 +1,28 @@
++++
+author = "Casey Stoner"
+title = "Casey Stoner Quotes"
+quotes_len = "22"
+description = "the best 22 Casey Stoner Quotes"
++++
+- I can only do what I can do.
+- The money doesn't interest me. I'm not enjoying MotoGP, and I'm retiring.
+- I have been going from one racetrack to another for years, since I was 14.
+- People are telling me I might be going back to MotoGP, but a rumour is a rumour.
+- Even in motocross, you're struggling to see people pass each other anymore. There seems to be one line in motocross.
+- Being married has helped my racing.
+- There are a lot of good guys that I race against, and that's what I enjoy the most.
+- Once I decided to retire from bikes, there was no thought to go racing again. I wanted to have a full year off and maybe even see the world a bit.
+- I'm very thoughtful, and when I make a decision I usually stick to it.
+- I'm good at separating my personal life from racing. When I'm at track, it's race time; when I'm away from it, other than the fact I'm training to be fit for it, there is nothing at home that makes me even want to think about racing. I just want to enjoy my life, and by the time the next race comes around, I'm ready and excited for it.
+- People can be great competitors on Sunday and mates on Monday.
+- I have been interested in V8s for a long time.
+- I think there is no defending a title. You don't go into a season with a points advantage over anyone. So I don't think it's ever a title defence. I think you've got a different number on your bike, if you choose so, but everyone starts at zero again.
+- I have broken my collarbone twice in a year.
+- I'm not always going to keep waiting for a fairytale ending.
+- I've always known there's more to life than just racing for a long time.
+- In 2007, people tried to belittle me a little bit and sort of take the credit away from me and my team and what we achieved.
+- I think I don't really have any expectations; I don't look at the season as a whole - I look at it race by race.
+- I never really look too far ahead, to be honest.
+- Everyone seems quite good at stories and making them up.
+- I've said many times in the past that my career's not going to go on much longer; I'm not going to keep going and riding until I'm in my 30s and things like this.
+- Even now with the operation, with the damage done, my ankle probably is never going to be back to 100 per cent.

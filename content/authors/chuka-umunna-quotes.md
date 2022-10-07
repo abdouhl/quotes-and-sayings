@@ -1,0 +1,106 @@
++++
+author = "Chuka Umunna"
+title = "Chuka Umunna Quotes"
+quotes_len = "100"
+description = "the best 100 Chuka Umunna Quotes"
++++
+- Too often, politicians fail to relate what they advocate to the kind of society they want to build, or they dress up policy in rhetoric which belies their actual intention. Meanwhile Joe Public is left wondering what on earth this bunch are all about and how their vision of a good society differs from that of the other lot.
+- My dad was this pint-sized Nigerian with an oversized personality. My mother is a tall six foot something Irish-English woman. Us walking down the street was quite an unusual sight, when I was growing up.
+- There is a danger in believing your own hype.
+- Leaving the single market, making communities poorer and more alienated, is not the way to deal with public concerns about immigration, most of which comes from outside the E.U.
+- My father was a rags-to-riches businessman who came over in the Sixties with no money. On my mother's side, I am the grandson of a High Court judge and celebrated intelligence officer, so it's quite an unusual combination.
+- I wasn't one of those people who had some grand plan to become Prime Minister. I'm a normal person. When I was being foolish in my twenties, when I was at university, I wasn't thinking I was going to become an MP.
+- It was a Labour prime minister who appointed the first black male and female cabinet ministers.
+- I'm boring, man.
+- Whether it is clamping down on tax avoidance by multinationals, setting ambitious targets for tackling climate change, or reforming the posted workers' directive to better protect migrant workers, European countries are working together to get things done.
+- When a Conservative government is presiding over unfair cuts to tax credits, chaos in the NHS and an unnecessary and ideological attack on trade union rights, it is natural that many in the Labour party should be sceptical of Tory talk on devolution - sceptical, even of government deals with Labour-led local authorities.
+- I get quite bemused by the comments made about what I wear because, for African people, how you dress is very important.
+- Leaving Labour was one of the most difficult things I've ever had to do and it was not a cause of jubilation or happiness. I did it with great sadness, but you have to put the country first.
+- Being outside the customs union would mean masses of new red tape, a desperate scramble for trade agreements and the re-emergence of a border in Ireland.
+- With Tory privatisations in the past we've seen how service users can end up losing out and getting a raw deal.
+- Some people welcome the flexibility of a zero-hours contract. But their growth is symptomatic of a wider issue - increasing job insecurity and falling living standards in David Cameron's Britain.
+- If truth be told, certainly culturally, I never felt totally comfortable in the Labour party, because I've never really been a massively tribal politician.
+- Ukip has policies including cutting taxes for the wealthy and putting them up for everyone else, charging people to see their GP, or taking away maternity rights.
+- Political parties - which too often operate like closed circles - must open up.
+- We must stop looking to the past and focus on ensuring everyone has a stake in the future.
+- I had to grow up very quickly.
+- You cannot duck the difficult issues in the middle of an election campaign.
+- We must never forget the value of work because without it people are denied a sense of dignity and of community.
+- We are determined to work in partnership with business not only towards our goal of full employment, but for more secure jobs for working people so they can get on and meet their aspirations.
+- Sometimes it requires national impetus to deliver real change.
+- I wasn't born into one of the two main parties, but both my parents had a strong sense of social justice.
+- I have multiple identities, never mind ethnically but in other respects... and it's even worse when they try to do it by reference to other people. This stupid term, 'Blairite,' that gets used in the Labour Party as a form of abuse, in spite of the fact this guy won three elections.
+- Our differences needn't divide us, but unity takes work.
+- Believe it or not, we all share the same values in the Labour party, but there will always be differences of opinion on policy - that is in the nature of the broad-church political parties we have under our flawed first-past-the-post electoral system.
+- Daily we see how demographic change and uncertainty about what it means to be British is exploited by those with their own agenda; those who employ divisive rhetoric, engage in scapegoating and do nothing to tackle root causes of the insecurities people face.
+- If the tax loop holes that allow tax avoidance were shut down, it would go some way to sorting out our finances, would it not?
+- To be clear, aiming to reduce the national debt in the long term and running small surpluses when the economy is operating close to full capacity is what I mean when I talk about seeking to 'balance the books' - a sensible approach.
+- Brexit is not going to solve the causes of Brexit.
+- Comparing every black male politician on the scene to Obama is a bit lazy - just because I'm from a similar background and profession, it's such an easy comparison to make. It's also quite annoying being viewed through the prism of someone else's personality and identity, rather than your own.
+- Though I am probably guilty of indulging in excessive tribalism myself at times, I try to put partisanship to one side where appropriate.
+- My father had hammered into me, you want to look after your family, you want a nice house, and you want to be able to enjoy yourself, and you have to work very hard for those things. Don't think the world is going to come to you.
+- We have a really rich and diverse heritage in my family - but I sometimes felt it was a bit of a chain round my neck in the Labour party if truth be told.
+- I have a confession to make: I am a Labour parliamentary candidate but like and get on with some of the Conservative persuasion.
+- Banks provide payment systems, core deposit and lending facilities that enable us to manage our day to day affairs.
+- We are all proud to be British. But we also feel more local and regional allegiances.
+- More and more department stores are acting as the shop window for a range of retailers now, using space more efficiently to recreate the feel of the local market, creating new market opportunities for the small and the niche.
+- My stock answer when people ask 'Are you Britain's Barack Obama?' is 'I'm quite happy being Streatham's Chuka Umunna,' and I really mean that.
+- I honestly do feel like the luckiest man alive. I have a beautiful daughter, an amazing wife and not everyone has that. My close mates always laugh at me because I say I'm blessed, but I don't know what I did to deserve it.
+- We do not just strive for a society in which every person has the opportunity to reach their full potential (all parties lay claim to that); we want to build a society in which whatever talents people have, they are rewarded with a comfortable standard of living when they apply them.
+- Getting from A to B can be crucial for small-business owners, self-employed people and freelancers too, who often rely on trains and buses to get around, conduct business and meet clients.
+- There are retailers successfully combining conventional and online retail, like Argos or John Lewis.
+- Requiring fund managers to disclose how they vote would increase accountability and mean that pensioners and ordinary investors would more easily be able to see how those acting on their behalf vote on all issues, including remuneration.
+- Look, I like my music, and I don't have a conventional background for a politician, but I'm pretty conventional in many senses.
+- This country needs nothing less than wholesale federalisation. The reasons are threefold: economic, democratic and cultural.
+- We need to see many more people starting businesses and becoming their own boss, but the squeezed middle exists as much within this group as in the population at large as rising costs are hitting small businesses - who after all are consumers too.
+- One way to promote shareholder engagement and activism is through greater accountability and transparency.
+- A prerequisite to the inclusive prosperity that will increase equality and reduce poverty is growth. This requires an innovative economy in which productive businesses, the state and citizens work together to create wealth and ensure that globalisation works for many more people.
+- We will not try to out-Ukip Ukip. Labour is not going to offer false solutions, such as leaving Europe.
+- I spent many hours slaving away, day and night, bleary eyed, on multi-million pound takeovers, mergers and acquisitions, and the rest. It could sound glamorous (especially when it involved overseas travel) but often it wasn't partly because, as a lawyer, you were not the one calling the shots.
+- Labour has an impressive record of delivery for black Britain.
+- Back in the 1980s parts of our country were devastated by de-industrialisation. This wave of globalisation and the first fruits of technological innovation destroyed industrial jobs or exported them to low-wage economies. The loss of work had a devastating impact.
+- The reason I have been so outspoken on antisemitism is that racism is racism - and my family have been victims of it.
+- My father, when he arrived in this country found it difficult.
+- Why not let the main parties wither? Because I know of no better vehicle than the political party to enable those with common values to come together and reach a position on issues that can then be offered up as a choice of programmes for voters.
+- I don't like being pigeon-holed.
+- When you lose work, the meaning and purpose of life are taken away from you, and isolation can set in.
+- The Labour perspective is often very preoccupied with either the super-rich or those who don't have work - but doesn't have nearly enough to say to those who do have work, on incomes that may not mean they get benefits or tax credits, but are not well off people.
+- I have no truck with this notion that immigrants are to blame for all of the country's problems.
+- To be concerned about immigration and the economy is not racist, but I do think there is a virus of racism that runs through Ukip.
+- Screaming 'you're wrong' at the electorate is not a good strategy for a party seeking to win back its trust.
+- I would like to go back to the private sector at some point.
+- Part of the reason young people are getting involved with gangs, leading to the use of guns and knives, is not the lack of stop and search but the individualistic, consumerist society we live in.
+- My father was a black, working-class man who arrived here with no money in his pocket from Nigeria; my mum came from more of a middle-class background, whose father had prosecuted the Nazis at Nuremberg.
+- I've never bought the argument that people are apathetic about politics.
+- I've had a lot of good media and the Obama comparison has definitely been part of the reason for some of that.
+- Some will say it isn't the government's job to manage who people meet and interact with, but there is clearly a lot it can and should do. It should offer communities much more support to manage demographic and cultural change, including investment in public services and additional housing stock in our migration hotspots.
+- People may not know what tier of government has competence over which policy area but they do draw a distinction between the local and the national.
+- We are pro-West, and we are not anti-liberal.
+- I have quite a different background from a lot of people in the Labour party - I'm of mixed heritage.
+- The argument in Labour around full membership of the single market is about whether it can be squared with delivering the desire of many of our voters to gain greater control over immigration. This is a proper concern - Labour must stand for those who voted leave every bit as much as we represent those who voted remain.
+- My dad always made a big thing about having well-cut suits. It's partly a cultural thing, but for him, looking sharp and presenting yourself well was very, very important.
+- My family have shaped my politics more than anything else.
+- Putting in place the building blocks for the future of our economy is common sense.
+- We are a great country with huge potential.
+- We have a commitment to making sure that the U.K. remains a member of the European Union.
+- Future prosperity will be built on private sector growth.
+- As the world has changed through globalisation and technology, it has left many feeling left behind.
+- Jeremy Corbyn is a Brexiteer. This guy has always wanted us to leave the E.U.
+- While we are clear that it is right that those who work hard, generate wealth and create jobs for our country are rewarded, where failure is rewarded or people award themselves huge pay rises that bear no relation to performance or what their companies can bear, trust is severely undermined.
+- Excessive pay and rewards for failure are bad for shareholders, the economy and society.
+- Shopping in the future can become an experience where conventional retailers can complement the success of online retailing. Government needs to work in partnership with the sector to help make this a reality.
+- Despite Labour's achievements in government, we were too often seen as champions for global capital markets, which worked for bankers but did not seem to be delivering for the rest of Britain.
+- Work is the way we contribute to society, part of a reciprocal social contract - the giving of our effort and our taking when in need - that holds our society together. We work, we build our society, and we share in its prosperity.
+- Undoubtedly Obama's multi-ethnic heritage is part of his appeal. There is something in his background that we can all relate to and grab hold of.
+- Look, politics can be tough.
+- Having common European standards has not only boosted prosperity here and across the continent, it is undoubtedly the best way of managing the challenges posed by globalisation.
+- In an age of globalisation, investment and good jobs increasingly flow to cities and regions with distinctive strengths and specialisms. These cannot be built up from Whitehall. They require local expertise, knowledge and dedication.
+- Labour is the party of internationalism and openness.
+- In 2016, we all thought Remain would hopefully win.
+- I want to make sure that all GPs, not only in my constituency but across the U.K., help to raise awareness of the increased risk of prostate cancer in black men and have the knowledge to initiate these important conversations with the community.
+- Although I had a private education at secondary level, I went to a local primary school where I mixed with kids of all backgrounds.
+- Ignoring prostate cancer won't beat it.
+- We want to see more sources of alternative finance, from innovations in factoring such as MarketInvoice or in peer-to-peer lending such as Funding Circle which Labour local authorities are now using to support and invest in local businesses.
+- Green growth is one vehicle through which technology, globalisation and environmental challenges can be turned from obstacles to solutions for problems related to growth, jobs and competitiveness.
+- I think the first person to call me 'Britain's Obama' was Martin Bright at the New Statesman. Harriet Harman made the comparison once at a conference; it was very flattering but it made me cringe slightly.
+- I worked in the Square Mile for three and half years at an international City law firm.

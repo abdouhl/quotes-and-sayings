@@ -1,0 +1,13 @@
++++
+author = "Luke Rhinehart"
+title = "Luke Rhinehart Quotes"
+quotes_len = "7"
+description = "the best 7 Luke Rhinehart Quotes"
++++
+- Those who believe that they have absolute truth and the only moral system are destructive both to themselves and to those whom they try to convert.
+- Part of the philosophy of 'The Dice Man' is that you have got to be laughing at yourself at every moment and be free of yourself at every moment.
+- I am George Cockcroft. But when I come to England or Europe, where the name Luke Rhinehart is better known, then I use that name.
+- The thing the Buddhists and the Sufis have in common is a belief that religious certainties are destructive.
+- 'The Dice Man' is an anti-establishment cult novel, and you don't normally make studio films from such dark comedy material.
+- In 1965, I was teaching a seminar on freedom when I told my students that the ultimate freedom lay in casting a dice to decide what to do. They were so shocked and fascinated that I knew I had to write the book.
+- When I was a young man, barely 18, I discovered Jesus Christ as my personal saviour, and for six months I told my mother she was damned to hell. That wasn't much fun. I abandoned it.

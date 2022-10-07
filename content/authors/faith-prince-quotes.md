@@ -1,0 +1,22 @@
++++
+author = "Faith Prince"
+title = "Faith Prince Quotes"
+quotes_len = "16"
+description = "the best 16 Faith Prince Quotes"
++++
+- I know I always had a lot of energy growing up and I had to put it somewhere. Theater allowed me to really feel things, to laugh, to cry, to explode outward. I could do anything and it was totally accepted and appreciated. If I hadn't gone into the theater, I probably would have been a psychotic killer.
+- I'm from the South, so I tend to tell stories. That's how we express ourselves.
+- I've got all these great broads in me, all these character women. I was playing a torn-down stripper at twenty-five on Broadway, and now I fit the shoes.
+- Usually I like playing other people. I like finding myself through other characters. But when you do cabaret, you are yourself. I think it's the most fun, and I tell you, if somebody had told me that, I would have done it fifteen years earlier than I did.
+- My happiest times in the theater are when I do ensemble pieces. I really got into theater because of that closeness.
+- I'll tell you something: my dad was a nuclear engineer and he was really bright, and I've always said that because of negotiating at such a young age with my dad, it was really such a gift because I could then negotiate with very difficult personalities - and not end up being the scapegoat. I learned to really pick and choose my battles.
+- I'm a character actress. I'm the girl next door, the aunt, the quirky cousin. You have to innately know who you are and be happy with that.
+- I don't like to read reviews. Even the good ones you start to analyze: 'Oh, did I do that? I have to make sure I do that again.'
+- Sometimes directors may not give you words, you know? They may not talk at all! You've just got to use your radar to figure out how you can get to the center and not lose yourself, but still be directed at the same time.
+- I just love kids. I always have.
+- I have a very 'theatre' face. I have what they call a wide mask. I probably would have been a big film star in the '20s with the silent films where they used a lot of key lighting, and make-up carved out your face.
+- I never like to be the same, whether it be comedy or drama, funny or serious.
+- Being funny is a symptom of what's underneath. You're pumping out all that energy because something else is going on inside you, some opposing force, something uncomfortable.
+- All I can say is that I've always felt like a very old soul. When I was 3, I felt 60.
+- I certainly went to New York because I was searching. Most people who go to New York are searching.
+- Half of me is this wacked-out comedienne who will do anything for a buck and a laugh. Well, at least for a laugh. But the other half is a lot darker, sadder and more pensive. It's the dark side that feeds the outrageousness and allows it to surface. I think that's true for anyone with comic flair.

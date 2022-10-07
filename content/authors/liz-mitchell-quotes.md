@@ -1,0 +1,66 @@
++++
+author = "Liz Mitchell"
+title = "Liz Mitchell Quotes"
+quotes_len = "60"
+description = "the best 60 Liz Mitchell Quotes"
++++
+- Marcia could sing, but in the long run I ended up singing most of the stuff.
+- I really wanted to be a blues/jazz/gospel singer, but times had changed and disco was now the music - the new sound. I embraced it with all my heart and the rest is history.
+- It's never one thing it's a lot of things because you learn that show business is one of the most complicated industries in the world. The agreement you make is based on you not knowing what's going to happen next. So, it's a guessing game and you've got to really believe in yourself and know who you are.
+- A lot of Indian musicians settled abroad are fusing Indian music with reggae which I find very impressive.
+- I never recorded the music because I wanted to be a millionaire. I recorded it because I love music.
+- I have travelled around the world; everywhere I go, even in Dubai, people have a special love for 'Mary's Boy Child.'
+- The place is really exceptional and I am fascinated and inspired, as Nagaland with its lush greenery and picturesque mountains as well as the peaceful atmosphere reminds me of my country Jamaica.
+- I am of an African-Jamaican descent.
+- The actual people who did the singing, which is Marcia Barrett and myself, didn't get any credit.
+- I've sung lead on nearly all the big Boney M hits.
+- There has not been enough clarity over the years in terms of who did what in Boney M but fortunately Frank Farian has since stated that all members of the group could have been replaced except for me. And I like to think that when it comes to the music Liz Mitchell is the sound of Boney M.
+- I thank God for the uniqueness in the sound of my voice.
+- Being a woman of color, as long as there are people who have eyes to see you in a diminished or positive way, both sides will affect you.
+- The journey of making money in music has changed a great deal and is now based on merchandising and just being very smart in the business. Downloading from iTunes has become the way to purchase music and the price that you pay there for a song cannot compare to the days when people paid money for records.
+- I wish we had more time to visit places in India.
+- I jumped at the chance and auditioned for a leading role in the musical 'Hair,' which was touring in Berlin and London. I won roles in both productions and left my job as a secretary after 18 months in 1970 to join the cast of 'Hair' in Berlin. I opted for Berlin because a girl from my neighborhood was also going to perform in 'Hair' there.
+- I met Frank Farian and he asked if I would work with him on this project. And four to five months later, we had our first hit, 'Daddy Cool.'
+- If you want to pay your money to see Boney M, you've got to have me on stage.
+- With the radio and Internet, Indian music is not unknown to anyone. There are so many wonderful styles and genres that are being introduced to the world.
+- Without Bobby, there is no Boney M.
+- In the late eighties, we decided to rework the 1979 hit 'El Lute' and name it 'Mandela.'
+- In the '70s it was really not easy. I would be surprised if I met someone of color who would tell me that it was.
+- Being a Jamaican by birth is wonderful.
+- Disco music has had its opportunity earlier and now the young people have taken it to another level. DJs are using our music and creating innovative remixes out of it. This is the way party is today. You can say, it's a new type of disco now.
+- I am the original voice of all the songs.
+- I am very grateful to God for our success.
+- It's very difficult to choose my favorite song because every night I do a show I find that sometimes one song will ascend higher than the others.
+- I didn't realize I could sing until I served someone tea at a cafe my parents owned in north west London, where we had settled as a family, after moving from Jamaica when I was 11. I was harmonizing to a track on the jukebox and a man asked me how I managed to do it so well. He recommended me to a talent agent.
+- Frank Farian and me are the sound of Boney M.
+- It is love that heals and music is the one thing that speaks to all our souls.
+- I will never say never. If it is God's plan, it will surely happen.
+- I became my own boss once I entered showbusiness and started paying my own taxes.
+- If I was to spend time working out what the record company got - and those in that team of people around us - I would lose my mind.
+- I am not well-acquainted with the names of Indian artists.
+- There is so much restlessness and chaos in the society, and that's what music depicts.
+- I don't normally do shows around Christmas time.
+- Even in the Caribbean, we enjoy a good curry because that's what India brought to the Caribbean.
+- I think the '70s was a very special time. Melodies and rhythm ruled as dancing climaxed.
+- I'm so excited to be in South Africa. I want to see a lot; everything! I want to see the people and the towns.
+- In a way, I don't feel I get the credit I deserve.
+- We played ten packed-out shows at the Kremlin in just seven days and only discovered later that everyone in the crowd for the first three nights was a politician. They had all come from the nine Soviet time zones just to see us.
+- I am not the best person any more when I am away from my husband.
+- My first boss was a tall, slim man called Mr. Wheel. I worked for him as a secretary in a food company in central London. He really liked young people and was like a father figure to me.
+- The photo shoots were not easy. I cried and refused to do anything that would shame my mother and father.
+- I know it might sound strange to some people, but I really do need The Word with me and if I don't have a Bible with me, then I've found that even just studying certain verses keeps me going.
+- Our royalty statement has been minimal and menial. Really. We don't collect more than a per cent of a per cent of a per cent of a per cent of a per cent of a per cent of a per cent. We get maybe the seventh of 1 percent.
+- If you look at South Africa and President Nelson Mandela, it was people of the world who held their hands together and stood up to make a difference. So 'people power' is important.
+- Every artist has to remember that they're human beings first, even with the type of stardom placed around their name and aura, they have to still remember that.
+- I would love to be part of Bollywood.
+- Like 'Daddy Cool' was the first song that opened the door of success. So it was extremely special and I will always sing that song.
+- It is titled 'Song of Joy.' The lyrics are inspiring and I hope it appeals to people. The track will help them reflect on the goodness that is inside them.
+- If you focus too much on business or finance, then sometimes you don't move ahead as much as you could.
+- Some people play the lottery all their life and never win a penny. Others play once and hit the jackpot and that's how it felt with 'Mary's Boy Child.'
+- My love has always been the most important thing in my life.
+- People can forget your music but we are more surprised than happy to see that no one has forgotten our music.
+- Boney M have a very powerful spirit that keeps us going.
+- It just takes one person for the power of movement.
+- Word spread about us in what was then the Soviet Union and we received an invite from President Brezhnev to perform there, which no other Western act had previously done.
+- It is true that Boney M was a group put together by a German producer, Frank Farian. But it is not true that all of us were mimics.
+- It feels wonderful that people, both young and old, listen to our music, and that it still makes an impact.

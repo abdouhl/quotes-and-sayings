@@ -1,0 +1,103 @@
++++
+author = "Charles Best"
+title = "Charles Best Quotes"
+quotes_len = "97"
+description = "the best 97 Charles Best Quotes"
++++
+- Our only political stance is this: listen to these teachers.
+- Ideally, DonorsChoose.org wouldn't be necessary for basic supplies, but I hope we'll always be a platform for teachers to request resources that would bring the learning experience of their students to the next level.
+- We make friends with people we admire, including those you might consider competitors, like charity: water, Kiva, and Global Giving. We get on a call with them and exchange ideas.
+- I'd love DonorsChoose.org to become a place where teachers can post innovative, out-of-the-box projects that they can't get funding for traditionally.
+- Committed teachers know their students' needs better than anyone in the system. Traditionally, however, teachers have little control over the purchase of student materials.
+- Imagine someone with $10 finding a classroom project that speaks to them personally, seeing where their money is going, and realizing that they don't need to be a millionaire to make a difference.
+- We all remember special days at school, whether it was going on a field trip, doing a science experiment, or performing in a school play.
+- A really large number of teachers contact us offline testifying how valuable iPads are for their students.
+- I do not live off canned soup.
+- Whether you're saying 'thank you' to friends, family members, customers, or a hiring manager who interviewed you for a job, the case in favor of gratitude is both altruistic and pragmatic.
+- We evaluate all business decisions based on how we can best serve public school teachers and their students.
+- Donors are sick of writing that $200 check to the Red Cross and not knowing whether it goes for the executive director's salary or the office rent.
+- Our ideological dilemmas won't ever be solved by machines.
+- An art project, a hands-on science experiment, or a special field trip can transcend textbooks and flash cards. No one knows this better than those teaching students with autism.
+- Donorschoose.org is the one place where somebody with $10 gets the same level of impact and feedback from the recipients that Bill Gates gets when he's making a million-dollar gift.
+- Within a single school, teachers often encounter differences in poverty levels, parent involvement, and student readiness.
+- If you just believe in our democracy, and you want an informed electorate, public schools are in your interest, and I think our country is dependent on public schools, whether or not you personally have a kid in the public school system.
+- To take on the jobs of tomorrow, students must become more than good test takers. They need to become makers who design, sketch, build, and prototype. And their classrooms will need more than a chalkboard and a set of textbooks.
+- Teachers know how to improve education.
+- Students who learn to collaborate and negotiate - on Capitol Hill, in the board room, in everyday life - will outperform peers who have higher test scores.
+- One question we'll ask is, 'Who are you grateful for,' and a surprising number of people can't name anyone beyond their mother.
+- I was a social studies teacher at a high school in the Bronx for five years.
+- My colleagues and I would spend a lot of our own money on copy paper and pencils, and often we couldn't get the resources that would excite our students about learning.
+- Teachers are heroes.
+- I'm not tech savvy at all.
+- My colleagues and I would spend a lot of our own money on copy, paper, and pencils. I just figured there are people out there who would want to help teachers like us if they could see exactly where their money was going.
+- One thing that gets missed a lot is that DonorsChoose is merely a place where teachers post wish lists. That doesn't do justice to the level of innovation that we see taking place on our site.
+- I've met with titans of Silicon Valley because they're investing in our national expansion. I've had lunch with Claire Danes because she sees DonorsChoose.org as the best way to help students in public schools. I would never, ever rub shoulders with such people if I had followed the typical career path in investment banking or whatever.
+- At DonorsChoose.org, we've seen what technology can do for a classroom. We make it easy for teachers to request the materials they need most for their classrooms and for donors to make a meaningful contribution to education.
+- I think it's the strength of the idea that's made Donors Choose work, not me. I mean, I'm determined, and I work hard, but so does everyone else.
+- Our brains are designed to solve some of our most complex problems when we're distracted by routine habits.
+- Whether you're raising money for a cause, a personal need, or a project, most crowdfunding sites center on you hitting up people you already know. These sites make it easier to tap your social network for funds, but only the most compelling cases inspire support from strangers.
+- At DonorsChoose.org, we believe that teachers are unsung heroes.
+- We've long believed teachers know best what their students need to succeed, and that includes the creation of healthy, supportive school communities.
+- Our mission is to help students in need and to democratize philanthropy.
+- I believe if we can crowdsource educational solutions to teachers on the front lines, who often know their kids better than anyone, we will unearth and generate better-targeted, smarter ideas.
+- Public school teachers from every corner of America post classroom project requests on DonorsChoose.org. Requests range from pencils for a poetry writing unit to violins for a school recital to microscope slides for a biology class.
+- Our name is not great. It doesn't evoke anything about school or teachers. It doesn't roll off the tongue or stick in your head.
+- After 14 years of running DonorsChoose.org as someone who had never written a line of code, I did do a three-month night school course. After all these years, I could at least speak some of the same vocabulary and have a first-hand appreciation for what my colleagues on the engineering team are doing.
+- Teachers know how to improve education, but they are a voice that is consistently overlooked or ignored.
+- In the sixth grade, I planned to start my own business making custom fishing lures.
+- I get my share of 'cold' requests via LinkedIn from people who are launching non-profit or for-profit ventures and who request a meeting to get my input or help. I wish I could say yes to all of them, but given limited bandwidth, I say yes to the subset who've written a compelling description of their work and who are underrepresented.
+- I've been a fan of bass fishing for as long as I can remember.
+- Arianna Huffington is one of the greatest champions of this idea - that anyone can make a difference.
+- I founded DonorsChoose.org because I care about learning, and I believe every student in our country deserves a great education.
+- We think there's nothing like sunlight to mobilize and energize citizens to demand change of their elected officials.
+- We think we can contribute something toward the improvement of public education in our country.
+- To get DonorsChoose.org to scale, we first need to increase the viral appeal of our website.
+- We believe in the wisdom of the front lines.
+- DonorsChoose enables teachers not just to go public with learning needs in classrooms but also to unleash their imaginations about the best ideas to help students learn.
+- Acknowledging someone is an act of altruism in the first place, so converting that act of altruism into a pizza party or company fleece jacket or a gift card is fine, but it's not in keeping with spirit in which it all began.
+- When I began teaching, my colleagues and I quickly realized that our students didn't have access to the same resources we had growing up. We knew there were supplies and resources that could help our students, but our school district simply couldn't afford them.
+- Hardworking, passionate teachers know their students' needs better than anyone else in the school environment. If we can tap into their needs, we can unleash smarter solutions and empower those people on the front lines.
+- The most incredible businesses are started by entrepreneurs who relentlessly pursue their passion, but passion works best with a thoughtful, ambitious-yet-grounded business plan.
+- We really are based on this idea that teachers have all this pent-up classroom expertise and that if we could just empower them to come up with micro-solutions, they're going to come up with smarter ideas than anybody would at the top.
+- At DonorsChoose.org, you can give as little as $1 and get the same level of choice, transparency, and feedback that is traditionally reserved for someone who gives millions. We call it citizen philanthropy.
+- If you track your organization's creativity by the number of brainstorms on your calendar, you're missing out. It's more important to capture those unplanned sparks of inspiration that so often come when we're cooking dinner, taking a shower, or commuting to work.
+- Every day, teachers across the country excite their students with new opportunities and experiences.
+- We will employ almost every strategy and hustle in any possible way to recruit top engineers to our team.
+- People on the front lines have the best ideas for how to improve things.
+- We love that our platform allows people to give.
+- I saw first-hand that all schools are not created equal, and the students shouldn't have to go without all of the materials that they need for a great education.
+- I think philanthropy is so much more in keeping with spirit of shouting someone out than a material reward.
+- For my 9th birthday, my only wish was to eat like a farmer boy. I had devoured 'The Little House on the Prairie' book series and wanted to be like Almanzo Wilder, the protagonist of 'Farmer Boy,' one of the later installments in the 'Little House' series.
+- I had really good relationship with my students; it definitely took me a few months before I had my students' respect.
+- DonorsChoose was conceived at a Bronx public high school where I taught social studies for five years. In the teachers' lunch room, my colleagues and I often lamented a problem that drained learning from students and creativity from teachers: a lack of funding for essential materials and for the activities that bring subject matter to life.
+- Why is it that, when we want to think outside the proverbial box, we often put ourselves in one? We gather our team in a conference room, plaster the walls with sticky paper, and wait for the ideas to flow in a stream of marker scribbles. How often has your quest for innovation peaked at renovation - new dressing on old ideas?
+- We reflect on our successes and failures at monthly staff meetings.
+- We're thrilled to be a part of PNC's longstanding commitment to early childhood learning. Their generosity will help us expand the DonorsChoose.org platform to serve Head Start classrooms nationwide, ensuring that many more pre-K teachers have resources they need to give their students a solid educational foundation.
+- If we can show the world that there are students in all sorts of communities who don't have the material they need for a great education, that will be the first major step to doing something about it.
+- People not only want to support public schools, but people warm to this idea of being a philanthropist, even if they might have only have $5 to spare.
+- I think there are really are some public schools, incredibly successful public schools, that are inculcating a real educational ethic in their students.
+- It's hard to enlist the support of people you don't know, but it's critical to growing your career, finding new customers, and building out your team.
+- Students can't dream big when classrooms lack books, microscopes, and robotics kits - or even paper, pencils, and paste.
+- I'd listened to my colleagues in the teachers' lunchroom. I could tell they were passionate, fired-up people who had great ideas for strategies and projects to help kids learn better. They just didn't have the resources. I was frustrated, but I also knew it was a frustration felt by teachers all over the city.
+- America's best teachers are always looking for new ways to bring learning to life.
+- We are so humbled and grateful to Google for their devotion to our teachers and students.
+- At DonorsChoose.org, we believe that classroom teachers often know their students better than anybody else in the system and that their front-line experience gives them a special kind of wisdom.
+- We think the ability to rattle off people you are grateful to and thankful to is often sort of a proxy for openness to learning from others.
+- Well, just as in the quality of public schools, there is massive disparity and the compensation given to the public school teachers.
+- You have to wade through tons of 'no's' to get one 'yes,' and you can't let it go to your head when you get that yes.
+- We've heard people say that teachers have no business going rogue and trying to select their own books, technology, and classes - and citizens have no business deciding what is worthy. We believe in teachers. We believe in the wisdom of the crowd.
+- KIPP schools would be just a shining example of schools where students aren't just given homework and taught imaginative ways, but they're really brought into a culture of education.
+- Whenever there are changes to school budgets, we know teachers feel it first.
+- We've established a free marketplace of teacher ideas and donor interests.
+- No matter the circumstances, teachers show up each day ready to give their students every opportunity possible, and they never give up.
+- It just felt wrong that the kids I was teaching didn't have the same access to materials that I did when I was a student.
+- Our partnership with Dick's Sports Matter program aligns perfectly with our mission to address inequity in schools nationwide.
+- Learning is a critical part of our mission and organizational culture.
+- I created DonorsChoose by putting pencil to paper - literally - and sketching out each screen of the web site and how it would work. Then I paid a programmer from Poland $1,500 to turn my sketches and common-sense rules into a functioning website.
+- Laptops are important, but before you spend a million dollars per school providing one laptop per child... won't you please spend $5,000 per school equipping every classroom with a document camera?
+- I was lucky enough to go to boarding school for my high school years, and I had all the resources that I possibly could needed - squash courts and every book you ever would have wanted, every art supply.
+- My colleagues and I were always having the same conversation in the teachers lunchroom about books we wanted our students to read, a field trip we knew would really bring a subject matter to life... And most of us would go into our own pockets to buy just paper and pencils.
+- Access to sports is an important part of a well-rounded education, and it takes committed communities and companies like Dick's to make a real difference in kids' lives.
+- We aren't prescribing anything. We're not claiming to be the experts. We aren't advocating for or against any program. We are going to create a platform that says very explicitly what it is that teachers experience in their classrooms.
+- We want to use our site to galvanize people to give but also to take important steps toward real change.
+- If anything, we hope that DonorsChoose.org is going to be a prompt, a nudge in the side of the public school system to improve and to start delivering these materials and experiences that students need and to make it easier for teachers to innovate.

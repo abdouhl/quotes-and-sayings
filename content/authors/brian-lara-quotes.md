@@ -1,0 +1,106 @@
++++
+author = "Brian Lara"
+title = "Brian Lara Quotes"
+quotes_len = "100"
+description = "the best 100 Brian Lara Quotes"
++++
+- We had thousands of people outside Queen's Park Oval in Trinidad. We would wait to get inside to watch a Test at six o'clock in the morning.
+- Records are made to be broken. It's great when they are broken by attacking players.
+- I grew up at a time when West Indies dominated the world. For 15 years from 1980, the West Indies never lost a Test series.
+- I remember the reason why did I start my golf. We had a four day game I was playing for Trinidad against the Leeward Islands. They had in their ranks Winston Benjamin, Curtly Ambrose and Kenneth Benjamin. To add to it, the track was a green top. The four day game lasted two days, so I had two days to play golf.
+- I had to work hard... but I knew I had strong support.
+- Pretty early, when I started playing golf, I was compared to Garfield Sobers, who played both cricket and golf.
+- Disability should not be considered a hindrance to achieving one's goals.
+- I really enjoyed the period in which I played my cricket. I can look back now and wish I started 10 years later and played in the T20s. But I also wish I was born 10 years earlier so that I could have been part of the all-conquering West Indies team of that time.
+- This is a moment I will cherish forever... the first man to score 500 runs.
+- If there's one thing I don't have, it's an insular bone.
+- After cricket I'd love to build a family, I'd love to get close to someone and have kids, see them evolve into something special.
+- I think Rohit Sharma is an awesome player in all varieties of the game.
+- When the others grew tired and went home and there was no one else to play with I used to play my own Test matches on the porch of our house, using a broom handle or a stick as the bat and a marble as the ball. I would arrange the pot plants to represent fielders and try to find the gaps as I played my shots.
+- Yes, golf is a weird game. I was capable of dealing with moving and bouncing cricket balls, but this little silly ball, sitting on the ground, gave me quite a headache early on for few years, but taught me how to be disciplined in controlling the ball.
+- My brother shaved a cricket bat out of a coconut branch... we played cricket with anything we put our hands on - a hard orange, a lime, a marble - anything we could use in the backyard or the streets.
+- With all franchise cricket going on around in the world, the intensity of the game, sometimes is a burden.
+- I have a lot of people I respect and a lot of people I have time for - reciprocity isn't necessary.
+- I feel as if I was to strike on one thing that I was decent at was mentally where I prepared myself strongly.
+- When I get to a ripe old age then talk of me as a great cricketer.
+- KL Rahul has the technique for all forms of the game and for me more Test cricket than anything else. And if he performs so well in T20s and the 50-overs game, I think Test cricket is really where he's made for.
+- In cricket, you should keep your wrist as straight as possible, unlike golf.
+- People want sport that they can go on an afternoon and watch with their kids.
+- I've had many ups and downs in my career. I've worked really hard on my game throughout.
+- Good captains know the strengths and weaknesses of their teams and make decisions accordingly.
+- I've played and I've been a student of the game.
+- I just want that someone in their 50s or 60s, when they talk about Brian Lara, they say 'I enjoyed watching that guy playing cricket.'
+- Every time I go out into the middle I say I have to give 100 per cent, and I do.
+- I am always committed to West Indies cricket.
+- I've played with and against great players. I've been with Viv Richards, Richie Richardson and played against Sachin Tendulkar, Ricky Ponting, Jaque Kallis and Virat Kohli is up there with the very best.
+- When I was 21, I did not have that much pressure. I was sitting down on the bench... you know... cleaning Sir Vivian Richards's boots or doing something... getting ready to play international cricket.
+- When you play a team sport all your life, you need to get out there sometimes and show some individualism in a sport where you play against the nature.
+- Sports will equip kids with the necessary tools to face academic challenges, and provide all-round development.
+- The reserve strength is very important in assessing a team's ability.
+- Even I lost a series of Test matches as skipper.
+- The most unfortunate thing in cricket is not achieving what I set out to do from the very beginning: to be a part of a successful team over a long period of time. I had a little taste of it when I started in 1989, and up till 1995.
+- It has been a great honour to play for the West Indies, to hold a bat and to spend 17 years in international cricket. That is something I am proud of.
+- It doesn't matter how many runs one person puts together. We want to get partnerships and get 400 runs on the board. One person can't get 400 runs on the board if there is nobody at the other end.
+- Virat Kohli is someone I have great respect for.
+- I don't see myself as a father figure but as someone who the younger players can come to and talk to about cricket. Not just batting but cricket in general and I am ready to impart with any information or advice I have.
+- After accepting the captaincy at the beginning of the 1998 season, I immediately set high but attainable goals for the West Indies cricket team and myself.
+- I want to be a consistent individual. I want to be someone my team can depend on all the time.
+- People point fingers at the leader. That happens in every sport.
+- Teachers across the world are doing all they can to ensure a good education is the top priority for children.
+- It's good to have young players around you.
+- I've been part of five World Cups and we reached the semis only in 1996.
+- I have been captain in the past and I know what it takes to gel a team and get it going.
+- My dad made sure he gave me everything, he sacrificed what he had to, to make sure I had what I needed to perform at the best level.
+- I would like to be remembered as someone who came out there and tried to entertain.
+- Alzarri Joseph is someone who I look at and say 'this guys has got potential, he's a wicket-taker.' He is someone who I'd like to see do well.
+- Children need sports, even if they are inclined towards academics.
+- I loved every minute of my 17-year career, all the Test matches, the ODIs and the World Cups. The only disappointment, if you ask me, was I never won a World Cup for West Indies.
+- I have enjoyed playing in England, and have enjoyed the reception I've got from the people here.
+- I don't play politics.
+- What you have to understand is that the first day I picked up a bat I made an impression on my older sister Agnes and my dad. It was about seeing people satisfied by what you're doing. I was creating a fan base.
+- I look at Sachin and I see a great player, the kind of person that you would like to follow, but I have my reputation and am happy with the way my career has gone.
+- Well, I think that I pretty much grew up grow up wanting to represent the West Indies.
+- As a boy, you never really thought of Hall of Fames, you never really thought of records.
+- Test cricket is still important, so are ODIs, but T20 should be there too because of the crowd factor.
+- I want to leave a nice legacy.
+- MS Dhoni is an asset in any team he plays for.
+- Cricket is my life and it has been since the age of five so the first opportunity I get, I'll be back playing for West Indies.
+- Getting into your 30s, you don't feel the same as in your early 20s.
+- I don't think there is any 16-year-old who is going to embark on the sort of career that Sachin Tendulkar has had and walk away from the game at 40 with such great achievements. He's the Muhammad Ali and the Michael Jordan of cricket.
+- A guy who is walking out of his crease purposefully because he wants to take advantage is wrong.
+- When I was a kid, Test was the form of the game everybody wanted to watch.
+- You just don't pick up family values, unless your parents teach you and let you know exactly what they expect.
+- I have been knocked down so many times, as a player and as a person, and I have had the strength, I suppose that has come from my parents, to be able to pick myself each and every single time and go out there in the face of adversity and try my best and perform. I didn't read it up in a book. It's deep down and it's part of my family trait.
+- I had some bad influences in my time and, if my parents weren't there to straighten me out, things might have gone haywire.
+- We West Indian cricketers are always proud to play for the West Indies and we know we are made up of different islands and different cultures but we have to be able to mesh together, to come together and perform as a team.
+- The World Cup is not a normal one-day series.
+- I know the history of West Indies cricket and I know what it means to the people.
+- You don't need a group of superstars, you need a team working together to bring you better results.
+- I believe cricket is a harder game. If at age six you started both sports you'd excel at golf more.
+- I have never played a Test match at the Eden... It's such a big shame and disappointment.
+- Attacking players are the ones who are best suited to break a record.
+- I try to read spinners and dictate to them, but they know very quickly if you're not reading them or if you're not confident.
+- When you succeed, you know, you can get swell-headed or you can be failing, and then you are all down in doldrums. So I try, as much as possible, to keep an even keel.
+- MS Dhoni would know what's best for him. He has served Indian cricket very well.
+- Engaging in sports from a young age will ensure physical and mental well-being.
+- I first took up golf in 1994, and used to play intermittently. I couldn't devote as much time to it as I would've liked.
+- A high-profile player has to toe the line and I try to lead by example. A lot of guys appreciate that, and it is an advantage to have somebody as captain whom the players feel they can look up to; somebody whose door they can knock on to talk about anything on cricket or life.
+- It's a great achievement for a 29-year-old to play 100 Tests.
+- I played a couple first-class matches at Carlton and Guaracara Park and it was a real burial ground for the fast bowlers.
+- First of all my golfing experience spans all corners of the World - Brazil, New Zealand, L.A. And I think the best place is when you play with friends. I particularly enjoy playing golf with my best friend, former Manchester United player Dwight Yorke. It is the best experience when we can get together on a golf course.
+- The Caribbean is all Third World islands and it's very tough to raise the money for sports.
+- For people coming in through the turnstiles and people sponsoring, we are entertainers and that's where the game is going.
+- It's an honour to captain the West Indies.
+- As a former cricketer you want to give something back.
+- I'm not much of a sports fan.
+- I appreciate every batsman in the world for different reasons. If I want someone to tough it out in the middle, I'd pick Steve Waugh. If I want someone who I know is going to have the technique to survive, you want a player like Tendulkar.
+- When you've got an opportunity to try and finish a game on a given day, you try and do that.
+- I fell in love with scoring a lot of runs. I never felt 50 or 100 were enough.
+- The highest-ranked team in the world has the responsibility to ensure that the integrity of the game is upheld every single time they play. And that the spirit of cricket is with them every time they enter the field.
+- Growing up in the '70s my heroes were Clive Lloyd, Viv Richards and Roy Fredericks as a left-hand batsman.
+- Having a decent place to live is fundamental for families.
+- Tendulkar has had the greatest cricket career of anyone who has ever played the game.
+- When I wasn't doing well, I was too tough on myself but I truly tried to minimise it. So, I would always appreciate the fact that, things are not going to go well all the time.
+- It's a cliche that cricket is the only unifying force in the Caribbean. It is but there are a lot of other factors that keep us apart. Success in sport and war will always unite but you need to have a greater foundation and greater core.
+- There are always going to be critics. But I have got to go out there and do my job.
+- Every senior player has to play a part and help the skipper by performing their duties on the field and secondly by performing their duties off the field.

@@ -1,0 +1,114 @@
++++
+author = "Ciara"
+title = "Ciara Quotes"
+quotes_len = "108"
+description = "the best 108 Ciara Quotes"
++++
+- You don't know your child until they get here; you don't know their personality.
+- I want to be one of those moms and women that when I look back, I know that I always stayed focused.
+- I learned everything along the way. I only performed five times before I was in the public eye.
+- It's one thing to really dream and have a vision and want all these cool things, but it's a whole other thing when you actually have wisdom and understand things. Then you can truly make the best decisions.
+- I never understood when people would say, 'I would die for my child,' but you become so selfless.
+- Being a mom, I am even more inspired to really help make a difference. I can't imagine what it would be like if my child didn't have a meal to eat.
+- It becomes obvious when people are sincere in their criticism and when they're not. I've learned over time that people will always have something to say.
+- For me, I like old-school rap music. There was a time when music was so, so rich overall, and the content of what people talked about was so deep on every level, song-for-song, pound-for-pound, and on radio, there was so much content. I gravitate more towards that type of music, to be honest.
+- I don't want to sound too cocky. But I consider myself superwoman.
+- There are some songs where you're like, 'I really like this song,' and it just didn't work out how you thought it would. That's life. You win some, you lose some. You can't dwell on it. I can't be worried about the past.
+- I've always had a strong love and a sense of care for kids. And the one thing is evident and is so true - the kids are our future.
+- I'm a tomboy at heart. I always like to say that I'm an ordinary girl doing extraordinary things.
+- I'm such a perfectionist. I can be like, 'This has to be like this. And this, and this and this.' But then you realize a lot of things that you thought mattered, they really don't matter.
+- I've had purpose because I've always wanted to be successful, but having my son is the cherry on top. He makes me go harder in achieving all that I've dreamed of.
+- When I start training, I get very serious and focused about it. I probably train 4-5 days a week, and I eat probably eat 5-8 small meals a day to keep my metabolism going.
+- Cute accessories always help bring out your outfit and pull it all together.
+- I don't believe in being vengeful or trying to send a message to someone. You waste your energy that way.
+- I tell myself that water is my medicine and that to stay well, I have to drink a gallon of it every day.
+- My inspiration is European fashion. I'm really into Euro fashion, and I also love rock n' roll. That's the mentality that I like to have when I'm dealing with fashion.
+- You're only a new artist one time, and I can just say I'm so blessed. I feel so inspired to do other things, to be so much more.
+- I like to stay happy, and I like to live life light and make the best of life.
+- As long as I know that I give my best every time, I can sleep well knowing that.
+- No one is different from the other. I'm very grateful that I have a diverse group of fans as well. We welcome individuality over here in my world, and I think that my fans can see and feel that.
+- As we get older, it's important for us to help hand back some of what we've gained as we've grown older. It should be one of your responsibilities - it's almost like being a mentor.
+- I don't curse when I talk. Unless I'm mad.
+- I believe in allowing your child to be who they want to be - as long as they want to be something great.
+- This digital world is what you make of it in the end.
+- Dancing - however you do it, even if it's in your living room - is a great workout.
+- My mom and I don't have a lot of photos of my early years.
+- I think it's really cool to embrace the pain of something that may have hurt you and be able to express it through music.
+- If you don't embrace who you are and accept who you are, you won't be able to live a happy life.
+- In our world, as artists, the only time I'm allowed to express myself is through song.
+- You live and you learn. My son has given me so much clarity.
+- Whatever you do, have fun while doing it. That's important for me.
+- Usher is amazing. He's perfection to me as a performer. He gets down.
+- I definitely want to get more active in the film world. My experiences I've had thus far have been really fun, and I definitely feel my best is yet to come in that world.
+- Confidence is everything. Confidence is what makes that simple white tee and jeans look good.
+- I do not like going to the dressing room and trying on millions of outfits. I just look at something and hope that it will work. I try it on at home, since I don't like going through the whole process.
+- I think that when you become a mom... you don't really worry about the small stuff. I'm just way more centered. It makes you focus even more on what your goals are in life.
+- Being a mom, I can't imagine my child not having a meal. That's hard to digest.
+- You can either allow social media to be helpful for you or it can be harmful. I like to let it be helpful.
+- Moms, take it from me: do not buy your baby too many shoes when they're so tiny, because their feet grow every week.
+- I want to do what I feel in my soul. My soul won't lead me wrong.
+- Everyone loves to dance. I've realize that's a part of what I do more and more every day.
+- Before I had a child, I had goals. And I still have to accomplish those goals, but now that I have a child, I have more goals to accomplish. So I can't waste time.
+- I think that when you carry a certain kind of energy, if you have, like, a funky energy that you hold within yourself, you just can't grow.
+- Being a mom has affected me in the greatest way possible - and in a necessary way. Having my son has helped me to be grounded, and I feel like with a child you have to really think about things all the way through.
+- I don't believe in bright, cheesy colors that are applied from roots to tips. I'm not really into that. But I love the more fashion-y way of adding color to your hair methodically.
+- Everything in life is about timing. I've been able to have my experiences and learn from them and kind of figure out the thing that works for me and is best for me, and that's all I can really say.
+- Being a mom has changed me forever.
+- I love when people have their own creative vision, when a person stands out and tries different things.
+- There was a whole newfound confidence that came over me after having my son.
+- A lot of people don't realize that when you're trying to lose weight, or just trying to stay fit, 85 percent of it is what you eat, and 15 percent of it is how you work out.
+- I'm a military baby, so I kind of always see the world as one; we just have different colours, and we're from different places in the world.
+- I don't see myself beneath Beyonce and Jay Z; I don't see myself above them. I'm in my own world, hungry to grow.
+- Having a child with someone, you're always going to be respectful of that. But the song 'I Bet' was honestly inspired by my life experiences - I can't just say it's from one experience.
+- I actually have two songs I did with Nicki Minaj. We didn't even plan on doing it that way, but it was an organic connection and just a really solid connection she and I had musically.
+- As an artist, I think it's important to always keep growing, and I definitely want to keep challenging myself.
+- I truly believe that if you put your goals in writing, speak them out loud and work for them, they will happen.
+- You know the best part of being a mom is getting that love. Honestly, you know, my son's love... a child's love is so pure, it just makes you feel so good no matter what.
+- I use Revlon waterproof mascara. And then I love a smokey eye when I perform because I think it's important to make your eyes pop when you're on stage.
+- Sometimes you get bored of the same moves, but you know that there are those moves that those fans love.
+- Being a mom to my son has taken precedence over everything in my life, and I think that's the order it should be... It's a great challenge that I don't think's ever gonna stop.
+- Honestly, I feel like everything in life happens for a reason, and my son has been the greatest gift that God has given me in my life and been the most game-changing thing that's happened to my life, in a necessary way.
+- I never had vocal lessons, dance classes, or any of the things my peers had.
+- You know those days when you think you have to have a plate of pasta right now? When I'm trying to be good, I take a minute to ask myself, 'Do you really need to eat all this crazy stuff? It will still be around if you want it later.'
+- When I'm on a strict eating regimen, at some point I have to have French fries, a cheeseburger and some pizza. And Oreos and vanilla ice cream!
+- My mom is one of those women... she don't take no mess. She is very vocal about what she wants and what she doesn't want.
+- I believe a person's style is an expression of who you are - way more than dancing.
+- When you believe in yourself, and you always give 100% in a relationship, you're very confident in the value of your love. But for some people, there's that feeling that the grass is always greener.
+- You hear women talk about it all the time, like when you turn thirty, 'That's when it all came together for me, girl.' Honestly, that's what I feel.
+- It's just so cool when you meet people who are different than you are. That can give you a different perspective, a viewpoint on life, or inspire you. I mean, what would the world be like if we were all the same? I think it would be very boring.
+- Moms can be fresh, fly and young, and that's the kind of mom I want to be.
+- I like to oversee what I do, so I have a hand in writing my songs. I also have people there to help me with my vision.
+- My dad's my nanny, so he spends a lot of time with me in L.A. when my mom's in Atlanta.
+- Vocally, I'm definitely pushing out more. That feels good. It's very freeing. I've always been very private and consciously private. Now it's kinda like, 'Who cares.' I'm gonna be free and gonna be me. I feel good.
+- I want to be a combination of P. Diddy and Oprah.
+- I think it's so fun when I get to work with women writers in particular because we really understand the core story or foundation as women. That's so important to me that the authenticity is there, you know, from the place that I speak from for my women. Having other females with me helps me dig deeper.
+- It's sad how people want to see us females go against each other. Never been for that. Never will.
+- I have so much respect for athletes like LeBron James. I get motivation from them because I know how many hours they put into it. It takes a lot of hard work and drive.
+- You have to be super focused when you're boxing. After I've done a few rounds, I feel as if I can conquer the world.
+- I think cool moments like winning a Grammy deserve a nice little party where you really soak it in and not have to work and stuff. I do remember throwing a party on that Grammy night, but it was work.
+- Sometimes you have to stop to think, regroup and regather yourself and realize how lucky you are to still be living and to still be breathing and still be able to even have a chance.
+- I love shopping! I'm impatient though. I'll go to the mall and in 30 minutes be ready to go.
+- After I had my son, I was like, 'I can conquer the world.' I just delivered a 9 pound, 10 ounce baby. I was walking in my living room like, 'Yeah, the champ is here!' That's how I felt.
+- I think 'One Woman Army' sums up the overall picture. I talk about love, about life, and I talk about what I want and would hope for and what I need as a woman. It kind of just says it all, you know?
+- Education is everything - education is your power, education is your way in life for whatever you want to do.
+- I'm not totally innocent, and I do date. But as a young woman, I also demand respect.
+- My fans have grown up with me and seen my life change over the years, from a young girl with 'Goodies' to a full-grown woman and now mom.
+- I wasn't a big fan of Instagram at first. I felt it was watering down the way music is perceived 'cause it made things seem more normal.
+- If a person uses the word 'sorry' loosely then of course it loses its value.
+- I have to be tough in my work environment and tough in the world.
+- When I shop, I only do it when I really have to do it for something. I don't like to try on clothing like that - as much I love looking fly.
+- I was so driven that sometimes you don't recognise all the good things that are happening to you.
+- As soon as the doctor said I could start training again, I was on the treadmill the very next day. Once I got back into it, I worked out two or three times daily.
+- I love the Fashion Fair Concealer Wheel. That's my little secret. It comes with three colors in it. What I like about it is that you could almost cover your whole face in it if you want because you can mix the colors to create the perfect shade that works with your skin.
+- My biggest competition is me.
+- When I was pregnant with Future, one thing I learned quickly was, don't ever let a pregnant lady be hungry, because when I was, I was like the Tasmanian Devil!
+- Real music to me is real; it's what you feel.
+- My journey has been a very fun one because I've chosen to make the best of every challenge that I've had along the way no matter what.
+- There's nothing better than when a man is in tune with who he is.
+- I've had my ups. I've had my downs, but I've been able to push through every obstacle that's been thrown my way.
+- I don't know - I don't listen to the radio that much. I really am an old-soul kind of girl.
+- My son has been the best thing that has happened in my life. He has been amazing, and he is truly heaven-sent. And so, I just feel all that love.
+- I think it takes a lot of confidence to be comfortable in being vulnerable.
+- Juggling being a mom and an entertainer is a challenge I face every day.
+- Music that comes from the heart - that's the music that moves me.
+- More than anything, I realize I've been blessed to make great music.

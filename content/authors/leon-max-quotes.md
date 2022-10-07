@@ -1,0 +1,17 @@
++++
+author = "Leon Max"
+title = "Leon Max Quotes"
+quotes_len = "11"
+description = "the best 11 Leon Max Quotes"
++++
+- To me, the fashion and architecture I like are very closely linked. Both should be clean and simple and without embellishment.
+- Kudos to people who put themselves forward as the arbiters of taste.
+- My constant goal is to create clothing that applies to the lifestyle of my customers. My clothing must be aesthetically pleasing in color, texture, and construction. Rapid changes are a part of fashion, and the demands of the industry are that I remain fluid and versatile. But my aesthetic requirements will always be the same.
+- By 25, I was a millionaire.
+- The psychology of fashion is interesting because we're selling people something they don't really need. We're just selling them something that makes them feel good. Besides, there is nothing really new in fashion. Everything worth doing has been done before.
+- Everything is always grungy in England, no? It's like a little shibboleth of the upper class, wearing something out of your grandfather's trunk.
+- I don't have many Russian friends. My childhood friends are dead - either from bad health, or they died in perestroika.
+- I really like England. I like the lifestyle and the country. The history. The culture, which London is full of. The country pursuits.
+- I use the computer as a paintbrush. It enables me to do in hours what would have taken months.
+- There's something to be said for a disregard of fashion, but it has to be a carefully curated disregard. It works best, I think, on someone under 18. After the age of, say, 40, you can end up looking like a bag lady.
+- My wife is always by far the best-dressed person anywhere we go. And remember, we are surrounded by rich people who can afford to buy £20,000 gowns.

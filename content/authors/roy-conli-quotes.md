@@ -1,0 +1,21 @@
++++
+author = "Roy Conli"
+title = "Roy Conli Quotes"
+quotes_len = "15"
+description = "the best 15 Roy Conli Quotes"
++++
+- I think that one of the things you have to do to become a storyteller is spend a lot of time reading stories.
+- The mind is the greatest weapon in the world.
+- I have worked with several art directors and production designers who are just magnificent. Dave Getz, Paul Felix, Ian Gooding... just amazing artists, and I would say, if I had anything to do with it, I just pick good artists!
+- When you're telling a story, the best stories, every character has an arc. Every one. And that arc is usually about finding yourself, or about at least finding something about yourself that you didn't know.
+- Every generation has a different ways of telling a story. We had a great run in the early '90s, into the mid-'90s, and we became a little more executive-driven as we got into the 2000s.
+- My first project was 'Hunchback of Notre Dame'. I co-produced that.
+- I love hand-drawn animation, but I have to say I have fallen in love with CG animation. What you can do in terms of visuals is pretty stunning, and I think if I did go back and do a hand-drawn animation, I would want to make sure that, from a stylistic standpoint, it would be as beautiful as 'Hunchback of Notre Dame' at least!
+- I remember telling the 'Tangled' crew about grimace moments: how when you watch a movie that you worked on and you think, 'Ah, I wish we could have done that scene better,' or, 'I wish that we'd had the time or the money to fix that particular story problem.'
+- We are Disney, in a sense. When you've been there for 20 years, there's a certain heart and soul to one of those films, and you inhabit that to a certain degree. So if it feels true to you, then your audience will hopefully go for it.
+- What I love about 'Big Hero 6', with Baymax himself - this sentient creature who's actually a learning robot - with each experience, this naive and gullible creature becomes more aware of issues.
+- When I was a kid, I loved history because history to me was a big story.
+- I honestly thought that 'Tangled' was going to be my Disney legacy.
+- Our biggest challenge is always story. The story is the ultimate thing you try to tackle.
+- You have to fall in love with the production, and then there's a certain mind-set that you develop where it does stay fresh in your mind.
+- I think sequels are fine if there's a story, so I think when there is a property that is worthy of a sequel, it could very well happen!

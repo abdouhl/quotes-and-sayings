@@ -1,0 +1,29 @@
++++
+author = "Rob Marshall"
+title = "Rob Marshall Quotes"
+quotes_len = "23"
+description = "the best 23 Rob Marshall Quotes"
++++
+- I found that something exists between director and actor sometimes that surpasses or transcends language.
+- The thing about movie musicals is that there have been some brilliant ones, but when they're bad, they're really bad - big white elephants.
+- My last show that I did on Broadway was - I hate to say this, but - 'Cats.' There you go. So I was doing 'Cats' on Broadway, and I injured my back. It was a really tough show.
+- I'd much rather fail than do something like 'The Chorus Line' movie, sanitized and Hollywoodized.
+- I was very aware of the fact we were so out of fashion when I shot 'Chicago.' And I was trepidatious as to whether it would be seen or embraced by anybody, but I've never stopped believing in the genre. There's nothing like it. It's American-born.
+- The hardest part about directing is getting everyone on the same page.
+- I kind of love working on film because television in live, that's tricky.
+- I kind of grew up on musicals, specifically, for whatever reason. They're something that really attracted me as a child.
+- I always feel on film you have to earn a ballad, because it's a different kind of pace.
+- I'm very aware of the fact that Broadway musicals being brought to the screen are very few and far between, and it's important to continue that relationship between Broadway and film. It's a privilege and an honor for me to be instrumental in some way in keeping that alive.
+- What's interesting was with all the shows I did on Broadway, I was either the dance captain or the assistant choreographer - I sort of worked my way up to that kind of thing - and I always was interested in more than just the dancers and the numbers. I would always sneak into the room and watch the scene work.
+- I have a very simple philosophy when it comes to casting, and it really is casting the best person for the role.
+- Film is a living, breathing thing. It's very delicate, and you have to listen and watch for what it tells you.
+- At the end of a song, someone's always different than they are at the beginning.
+- As a director, you should choose a project that will educate you and enrich your life, because you're going to be doing it for two years.
+- When musicals don't work, they really don't work. But when they work, and someone is singing because they can't speak anymore, or they're dancing because they can't move anymore, moving is not enough to express - it's this beautiful thing.
+- I could talk for seven hours about Johnny Depp. There's no one like him. He has this amazing ability to watch something and then pick it up and do it, within seconds. He'll hate me for saying this, but I don't care. I'm going to say it anyway. He's Fred Astaire. He's this genius dancer. He says that he can't dance, but he can.
+- Maybe because I come from choreography, I've always felt that there's something about action films that made it very natural for me to go that way. It's story through movement.
+- With film, I always sit with people first and talk a while, and then we read or sing or whatever. I never sit behind a table. I get up; I work with them. I do everything I possibly can to not audition them. I can find out the best of them from them feeling comfortable and appreciated. I'd never let someone leave feeling not valued.
+- The musicals that I loved, growing up - many, many. 'Singing in the Rain,' of course, is a classic, I love 'Meet Me in St. Louis.' I love 'Funny Face,' Stanley Donen's beautiful movie. It's really countless for me.
+- When movement isn't enough, you dance, or when speaking isn't enough, you sing. When it's organic, and it's earned like that in a musical, that's when it works, and then there's nothing like it because it's this thing that takes you to a whole 'nother level, you know?
+- Maybe it took a little time, or we're a little late, but finally we're recognizing that international stars are fantastic. They're the greatest actors in the world, and few people know that.
+- I'm not a writer, although, as a filmmaker, you are an author in a certain way.

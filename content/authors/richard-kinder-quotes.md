@@ -1,0 +1,17 @@
++++
+author = "Richard Kinder"
+title = "Richard Kinder Quotes"
+quotes_len = "11"
+description = "the best 11 Richard Kinder Quotes"
++++
+- I've never commented much about my experience at Enron except to say, when I was there, it was a much more pipeline and asset-oriented company.
+- We want to move along and make sure, both internally and externally, that people realize how the company is being run, and it's being run by a group of people now, not just me.
+- If people think we can draw a circle around North America and that we can be an independent island of energy, that's not realistic. This is a world market for oil, for refined products, and increasingly, for natural gas.
+- We are not a trading company. We are a midstream asset company: pipe, storage and terminals. It's an unsexy, dirty business. It's not rocket science.
+- We access virtually every producing basin, whether for natural gas or crude oil, in the U.S. and Canada.
+- I think most CEOs think their stock is undervalued, probably.
+- I want to be doing something where I'm running my own show.
+- This is a place where you really are what you achieve in Houston, and that's a tremendous boon to this town. I think you'll find people who have succeeded because of that kind of open culture.
+- We don't have sports tickets, we don't have corporate jets. We don't have stadiums named after us.
+- If you own a toll road, you don't care how many passengers are in each car or what kind of car it is. You just want as many cars to move down the road as possible, and you make damn certain they pay their tolls, okay?
+- When Bill Morgan and I formed Kinder Morgan in February of 1997, it had about $300 million in enterprise value.
