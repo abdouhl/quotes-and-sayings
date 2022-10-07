@@ -1,0 +1,14 @@
++++
+author = "Todd Cantwell"
+title = "Todd Cantwell Quotes"
+quotes_len = "8"
+description = "the best 8 Todd Cantwell Quotes"
++++
+- There are players who are arrogant, and players who probably need more self-confidence. But if you get the balance right, you can get the best out of yourself.
+- You play well, you feel comfortable, then you lose via a deflection or an individual mistake and you feel robbed.
+- If it's not coming from your heart and if you don't believe it, then more than likely you're not going to be able to bring yourself to performances that justify playing.
+- You have to believe you can play at places like Anfield or Old Trafford, because if you don't who will?
+- I absolutely hate heading. I've got the worst technique because it hurts every time I do it.
+- I've always been taught from home that I should express myself.
+- You definitely need self-belief and confidence, but there is a very fine line between that and arrogance. I would like to think I sit on the other side of that.
+- There is a lot of extra responsibility on you as a player from the academy. You're expected to play and act as a signing, which is pressure, but in a way it pushes you to get a better performance out of yourself.

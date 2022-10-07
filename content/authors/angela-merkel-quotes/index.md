@@ -1,0 +1,143 @@
++++
+author = "Angela Merkel"
+title = "Angela Merkel Quotes"
+quotes_len = "137"
+description = "the best 137 Angela Merkel Quotes"
++++
+- I come from a country in which I experienced economic collapse.
+- We need a really credible perspective toward long-term de-carbonization.
+- There are many conflicting interests in Europe.
+- The problem is, of course, that these interest groups are all asking for changes, but their enthusiasm for change rapidly disappears when it affects the core of their own interests.
+- We know that our life of freedom is stronger than terror.
+- I have just explained my idea of how a constructive period of reflection, one that would send a clear message to the citizens of Europe: You should now what our priorities are. For Germany this means: Unemployment is one of one of our biggest problems.
+- I think that the EU with the Lisbon agenda has put the right emphasis on growth and employment.
+- In Europe it is particularly important that we build good relations to everyone who holds political responsibility because Europe can only be build together.
+- We Germans have a special responsibility to be alert, sensitive, and aware of what we did during the Nazi era and about lasting damage caused in other countries. I've got tremendous sympathy for that.
+- We are a country based on democracy, tolerance, and openness to the world.
+- Overcoming the Cold War required courage from the people of Central and Eastern Europe and what was then the German Democratic Republic, but it also required the steadfastness of Western partner over many decades when many had long lost hope of integration of the two Germanys and Europe.
+- I've often made critical comments about settlement expansion in the occupied West Bank and in east Jerusalem, and my position hasn't changed. At the same time, it's equally important to me that the two sides, both Israel and the Palestinians, work towards a durable peace settlement: that's to say a viable two-state solution.
+- At German unification, we were lucky to get so much help from West Germany. Now, we have the good fortune of being able to help each other in Europe.
+- For those who share my view that the Jews as a people have a right to self-determination, Zionism as a national movement of the Jewish people is the embodiment of this very right, which its opponents want to deny.
+- From this experience we have learned that in a big party it is important to have the necessary and often controversial discussions on policy issues such as the health system while in opposition.
+- I think the political class in Berlin doesn't need to be supervised and monitored by intelligence services in order to find out what they're thinking. Just go to lunch with them, go to dinner with them, or read the papers.
+- The European Army is our long-term goal. But first we have to strengthen the European Defence Union.
+- I think it has been a tremendous feat on the part of East Germans since 1990 to adapt to everything changing.
+- For a few years, more people have been leaving our country than entering it. Wherever it is possible, we must lower the entry hurdles for those who bring the country forward.
+- If you wish to have free access to the single market, then you have to accept the fundamental rights as well as obligation that come from it.
+- We've stated very clearly that no negotiating chapters between the European Union and Turkey will be concluded before the Ankara Protocol is complied with: that's to say before Turkey grants all E.U. member states, including Cyprus, access to its ports.
+- More reforms will give more impetus to German industries to invest in India. German companies want to be treated on par with Indian companies, and creation of an equitable market is crucial for investments.
+- Spying among friends is never acceptable.
+- The way I lived my life, I truly wasn't an active resistance fighter.
+- The West was a wonderful world to me. I decided then that if this is the way they did things, then I wanted to be part of it.
+- Climate change knows no borders. It will not stop before the Pacific islands and the whole of the international community here has to shoulder a responsibility to bring about a sustainable development.
+- Germany's strength lies largely in the fact that the Federal Republic is a center of industry and that it's an export nation.
+- We've always had this experience that things take long, but I'm 100% convinced that our principles will in the end prevail. No one knew how the Cold War would end at the time, but it did end. This is within our living experience... I'm surprised at how fainthearted we sometimes are and how quickly we lose courage.
+- The euro is our common fate, and Europe is our common future.
+- I have a relatively sunny spirit, and I always had the expectation that my path through life would be relatively sunny, no matter what happened. I have never allowed myself to be bitter.
+- IT companies in Bangalore are a reliable engine of development for India.
+- Herr Schroder has conducted two electoral campaigns, and he is doing it again now, by not telling people what is really necessary. He keeps avoiding the difficult and uncomfortable issues, those that imply changes and therefore provoke discussions.
+- I said, yet again, for Germany, Europe is not only indispensable, it is part and parcel of our identity. We've always said German unity, European unity and integration, that's two parts of one and the same coin. But we want, obviously, to boost our competitiveness.
+- It's my damn duty and obligation to do everything possible for Europe to find a united path.
+- The markets want to force us to do certain things. That we won't do. Politicians have to make sure that we're unassailable, that we can make policy for the people.
+- It is nonsense to say that Germans are unable to change.
+- So Europe needs to be competitive and we also need to be competitive if we wish to remain an interesting economic partner for the United States. This has to be done on the basis of strength, of competitiveness.
+- Nobody in Europe will be abandoned. Nobody in Europe will be excluded. Europe only succeeds if we work together.
+- That makes me think of the 2002 World Cup Final above all else. Nobody thought at the time that our team would get through to the Final against Brazil. We should remember that this summer.
+- I see nothing that points to a recession in Germany. But I see considerable long-term tasks ahead of us that have to do with markets regaining confidence in Europe and that have a lot to do with reducing debt.
+- I'm someone who is very supportive of us eliminating all discrimination.
+- As a 7-year-old child, I saw the Wall being erected. No one - although it was a stark violation of international law - believed at the time that one ought to intervene militarily in order to protect citizens of the GDR and whole Eastern bloc, of the consequences of that - namely, to live in lack of freedom for many, many years.
+- Multiculturalism leads to parallel societies and therefore remains a 'life lie.'
+- Personally, I think that for example the chemical directive in its present form does too much damage to the chemical industry - especially the medium sized businesses - and will hurt our worldwide competitiveness.
+- The question is not whether we are able to change but whether we are changing fast enough.
+- In many regions, war and terror prevail. States disintegrate. For many years, we have read about this. We have heard about it. We have seen it on TV. But we had not yet sufficiently understood that what happens in Aleppo and Mosul can affect Essen or Stuttgart. We have to face that now.
+- Controversial disputes are a part of democratic culture.
+- Former president Wulff said Islam belongs to Germany. That is true. I also hold this opinion.
+- There are achievements of European integration that cannot be haggled over: for example the principle of free movement and the principle of non-discrimination.
+- Politicians have to be committed to people in equal measures.
+- Russia has nothing: no successful politics or economy.
+- We abide by our responsibility as Germany for the Shoah.
+- It is always the case that when something emerges - which, of course, from the perspective of the former West Germany looks very different - then people say, 'She hasn't told us this yet' and 'She hasn't told us that yet.' I don't know - maybe there are other things I didn't talk about because no one ever asked me.
+- It certainly is dangerous that there are only a few clubs left in Europe that can afford to pay millions. At the end of the day however, the spectators decide the rates of pay - by watching the games and consuming the goods and services advertised on sports TV programmes.
+- I will not let anyone tell me we must spend more money. This crisis did not come about because we issued too little money but because we created economic growth with too much money and it was not sustainable growth.
+- I've spoken several times with Prime Minister Erdogan about relations between Turkey and Israel. I'm pleased that, following President Obama's visit to Israel, talks between Israel and Turkey are again taking place and hope that relations between them will further improve in the interest of both countries.
+- Thus, the focus on this main political goal must become more visible in EU politics and to achieve this, we need a political impulse. It must be clear what the priorities on the agenda are.
+- It will not be possible to solve the current crisis with euro bonds.
+- As politicians we have to react to the fact that many people do not feel that they can relate to the EU.
+- Germany has become a country that many people abroad associate with hope.
+- We needed 40 years to overcome East Germany. Sometimes in history, one has to be prepared for the long haul and not ask after four months if it still makes sense to keep up our demands.
+- Eurobonds are absolutely wrong. In order to bring about common interest rates, you need similar competitiveness levels, similar budget situations. You don't get them by collectivizing debts.
+- Very early, it became clear to me that East Germany could not function.
+- I am for registered civil partnerships.
+- Solidarity and competitiveness are the two sides of a European coin.
+- We work well together with the United Kingdom - particularly, perhaps, when we talk about new rules for the European Union.
+- After the reunification, there was a certain sense of foreignness because daily life in the former East German states was completely turned inside out - everything from the shops to the bureaucracy to the working world.
+- I never felt the GDR was my home country.
+- Let us answer the terrorists by living our values with courage.
+- We will have to accept a certain degree of legal immigration; that's globalisation... In the era of the smartphone, we cannot shut ourselves away... people know full well how we live in Europe.
+- It is a fact that, if I single out Germany, our rate of growth is too low and we have very high unemployment.
+- Greece wishes to be part of the eurozone, but it must, of course, go through with the necessary reforms to make this happen.
+- To grow up in the neighborhood of handicapped people was an important experience for me. I learned back then to treat them in a very normal way.
+- The willingness to learn new skills is very high.
+- I felt really sorry for Oliver Kahn. Up to that point he had made lots of saves for the German team. Of course he could have caught the ball but it just happened. It was bad luck. In that situation, you need to be very strong psychologically to carry on.
+- The only thing the East German system taught us was that we should never do it that way again.
+- Whenever you have political conflict, such as the one that we have now between Russia and Ukraine, but also in many other conflicts around the world, it has always proved to be right to try again and again to solve such a conflict.
+- Above all it is important to point out that we can only maintain our prosperity in Europe if we belong to the most innovative regions in the world.
+- This inclination to hoard is deeply ingrained in me because in the past, in times of scarcity, you took what you could get.
+- Whoever decides to dedicate their life to politics knows that earning money isn't the top priority.
+- For me, personally, marriage is a man and a woman living together.
+- At this time - we're in a dramatic crisis - euro bonds are precisely the wrong answer. They lead us into a debt union, not a stability union. Each country has to take its own steps to reduce its debt.
+- Hatred, racism, and extremism have no place in this country.
+- Whenever I was able to work with Hillary Clinton, it was a great pleasure.
+- During the course of 1989, more and more East Germans lost their fears of the state's repression and chicanery and went out on the streets. There was no turning back then. It is thanks to their courage the Wall was opened.
+- Ukraine must be permitted to bring their own relief supplies safely to areas in the east of the country that are controlled by the separatists.
+- When it comes to human dignity, we cannot make compromises.
+- We believe that from both a German and a Polish perspective, it is desirable for Great Britain to remain in the European Union.
+- When I'm stirring a saucepan, I don't say to myself, 'Now the chancellor is stirring a saucepan.'
+- You can much better have an influence on the debate when you sit at the bargaining table and you can give input.
+- I can say that we are very clear in our mind about the responsibility of the national soldiers for the break with civilisation that was the Shoah. We are firmly convinced that this is something that will have to be handed over to generations to come... so we don't see any reason to change our view of history.
+- I always wanted to know what I'd face next, even though that was maybe a bit detrimental to spontaneity. Structuring my life and avoiding chaos was more important.
+- This multicultural approach, saying that we simply live side by side and live happily with each other has failed. Utterly failed.
+- At the beginning of the 60's our country called the foreign workers to come to Germany and now they live in our country. We kidded ourselves a while, we said: 'They won't stay, sometime they will be gone.' But this isn't reality.
+- For somebody who comes from Europe, I can only say if we give up this principle of territorial integrity of countries, then we will not be able to maintain the peaceful order of Europe that we've been able to achieve.
+- There are 1600 German companies active in India, and some of them are more than 100 years old. Our companies value India as a location for manufacturing and as a market.
+- Sometimes I can't stop myself from buying things just because I see them - even when I don't really need them.
+- I personally hope and wish that Britain will stay part and parcel of the European Union.
+- We need... to say to people that this is a temporary residential status, and we expect that, once there is peace in Syria again, once IS has been defeated in Iraq, that you go back to your home country with the knowledge that you have gained.
+- Today's Russia is not to be compared with the Soviet Union of back then.
+- I am for our not having any discrimination in tax legislation.
+- We're saying this to both countries: We want a two-state solution. We want a Jewish state of Israel and alongside a independent Palestinian state. Unilateral measures are not helping at all to bring about this cause, and we agree that we wish to cooperate very closely on this, because as we both say, time is of the essence.
+- I don't carry any early childhood trauma around with me, if that's what you're hinting at. The story of the bicycles - and there were three of them which were stolen from me - I've dealt with it well.
+- The goal of our actions is and will remain a sovereign and territorially intact Ukraine that can decide its own future.
+- That is why everyone in politics, and we do it, must make sure that they do not depend on one single interest group. A good compromise is one where everybody makes a contribution.
+- We have shared responsibility for global climate; we have to reduce climate change below 2 degrees Celsius.
+- I am not an expert in this field but I do try to keep up to date with the Bundesliga. And I do follow World Cups and European Championships more closely.
+- We feel bound to the Christian image of humanity - that is what defines us. Those who do not accept this are in the wrong place here.
+- For me, it is always important that I go through all the possible options for a decision.
+- Industrialised countries must take the responsibility of helping poorer countries in the climate change action plan.
+- Free access to the single market will be granted to a country which accepts the four fundamental freedoms of movement of people, goods, services, and capital.
+- We will be very persistent when it comes to enforcing freedom, justice, and self-determination on the European continent.
+- The 'community method' can only be applied in those areas in which the European Union actually has competence. Where the community has no competence, the 'community method' clearly cannot be applied.
+- I chose to pursue a career in physics because there the truth isn't so easily bent.
+- Germany wants peaceful coexistence of Muslims and members of other religions.
+- I've learned that even the word 'jubilee' used in connection with the Reformation can give rise to discussions.
+- I always used the free room that the G.D.R. allowed me... There was no shadow over my childhood.
+- I feel sorry sometimes for these sportsmen and women who put in just as much effort as the footballers. For example, athletes train at least as hard as footballers but have to be happy if they can earn enough to finance a decent education.
+- In the German football team players from different clubs need to get on with each other both on and off the pitch. In the grand coalition Christian Democrats and Social Democrats sit in the same boat and need to pull in the same direction.
+- There is no doubt the NATO-Russia Act should remain valid.
+- Especially in a very secular world, we should always stress what is common in the Christian religion.
+- If the euro fails, Europe fails.
+- If we look at where relations between the Soviet Union and Germany were in 1945 and where we stand now, then we have achieved so much.
+- The G7 - and earlier, the G8 - were a group of countries that shared the same values with regard to freedom and democracy, and through the annexation of Crimea, Russia made it clear at a certain point that these values of keeping the peace, integrity of the borders of a country were not being respected.
+- The majority of decisions in Europe are done by unanimity. That's why it is important to be to have good relations with all parts.
+- Having led many negotiations with countries outside the E.U. in the past, we would never enter the same compromises and reach the same good outcomes with states that don't shoulder the responsibilities and costs of the common market.
+- The people in East Germany have lived through so many changes in the last 15 years like never before in the country, and they did this often with great enthusiasm. But in the West we also have a high degree of transformations.
+- We have to ensure politically that what's doable can indeed by translated into law, but what's not doable mustn't become European law. Otherwise, the auto industry will work somewhere with higher carbon emissions - and we can't want that.
+- We have a duty as the state to protect our economy... We are for the protection of intellectual property.
+- Let me say this on a personal note. Without the United States of America, I would in all probably not be able to stand here before you today.
+- Germany stands in the fight against terrorism at France's side, united with many, many others. I am convinced that, despite all the difficulties, we shall win this fight.
+- I believe those that produce the least emissions in autos will also be those who have the greatest success worldwide.
+- India needs jobs, Germany needs people, and collaboration is crucial to meet the demographic needs of both countries.
+- There is a lot that binds Germany to Turkey, and even if we have a difference of opinion on an individual matter, the breadth of our links, our friendship, our strategic ties, is great.
+- Here we have the Schengen agreement, and the truth is that for years we trusted each other and set border controls on the outer borders of the European Union. And as was the case with the economic and monetary union, with this step, regarding the management of the Schengen area, we did not go all the way in terms of political solutions.
+- On the one hand, the financial projection is on the agenda - we will see if this problem can be resolved or not. I think it is a right idea to stage a special summit, which would deal with the question of priorities of European politics.
+- If we remind ourselves of the fact that every fifth American today rightly points and perhaps also with a certain degree of pride to his German ancestry or her German ancestry, we can safely say that we, indeed, share common roots.

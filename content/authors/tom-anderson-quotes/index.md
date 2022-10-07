@@ -1,0 +1,85 @@
++++
+author = "Tom Anderson"
+title = "Tom Anderson Quotes"
+quotes_len = "79"
+description = "the best 79 Tom Anderson Quotes"
++++
+- But for those who really want to make the world a better place, can we start looking at Bill Gates's path instead of Steve Jobs? I like my iPad, but Gates is one of the greatest heroes of our time. For me, that has nothing to do with Microsoft and everything to do with the Bill & Melinda Gates Foundation.
+- I had looked at dating sites and niche communities like BlackPlanet, AsianAvenue, and MiGente, as well as Friendster, and I thought, 'They're thinking way too small.'
+- I live in Hawaii part time and love shooting the ocean, both long exposures that capture the movement of water and with a fast shutter speed to freeze the power and force of a wave.
+- I can't stress enough how unimportant the camera really is. Any brand of camera will do. For 95% of my shots, the lowest end DSLR will be just fine.
+- It's kind of like, who cares about MTV anymore?
+- I wouldn't single out Facebook as a concern, because we've got different local competitors around the world.
+- Safety' hysteria destroyed MySpace in the press. It got MySpace banned from schools, Apple stores, and by well-meaning parents who had been terrorized by what they were reading.
+- Parents aren't clamoring for cell-phone companies to monitor their kids. Parents don't want to see what their kids are really like, but MySpace makes that really easy.
+- On Friendster, if you were a band and you made a profile, they would delete it. They didn't want bands on their site.
+- Bands are going to MySpace because it's free and they don't have to know how to do a Web site.
+- Newscorp has always been, for us, very easy to work with and they respect our opinions and let us run the site we wanted to. And, in fact, they wanted to keep us on. They weren't saying, hey, let's throw these guys out. They were buying into what MySpace was and the founders, and so it's been very good for me.
+- The first people in a company are the most important. They will hire people like themselves and create a culture that either works or eats away at the chance for success.
+- I've literally never seen a crowd react to a band the way they react to the Polysics. Signing them to MySpace Records was an obvious choice. I wanted to be the person to bring this seasoned band to a new culture and audience. I'm really proud of them.
+- Almost all the things you can do online can be enhanced by the social structure of MySpace.
+- Photography has literally changed my life.
+- I seem quiet. But when I get upset, I talk too loudly. I'm sort of an alarmist.
+- For most of our users, the vast majority of their MySpace friends are also offline friends. They're just connecting through a different medium when they're on MySpace.
+- We felt like we reached a point where MySpace in its original incarnation had peaked in a way.
+- The idea was that if it was a cool thing to do online, you should be able to do it on MySpace.
+- The less the camera is able to capture what you're seeing in a scene, the more editing it needs.
+- If you start out saying you want to be cool, you won't be cool.
+- When I was a kid, everyone wanted to be in a band - that was the path to girls, adulation, money.
+- It made a lot of sense to me that the music part of our site would work for filmmakers as well. They'll be able to upload clips. There will be a section where you can watch what they are doing. They'll tell where their screenings are. It took a lot longer than we wanted to because we were growing so fast.
+- We didn't expect it to be cool, with people trading URLs instead of phone numbers.
+- We want MySpace users to connect with celebrities in the same way that they do with musicians.
+- Making a website is similar to making a movie-hundreds of people work on it, one person makes the final decision, and they make them every minute of the day.
+- I tend to 'splurge' for convenience. I'll pay a lot to not waste time.
+- When you go to a band's MySpace page you will have the full discography of everything they've ever recorded that you can listen to online.
+- I don't know exactly where my life will lead. Adventure and the unknown has always been appealing to me.
+- We had a much bigger vision than creating a dating site.
+- I've always kept a low profile and said no to 'Saturday Night Live' and stuff like that.
+- Another part of my background was that I was in film school.
+- Expensive gear helps for night shots, but I wouldn't recommend beginners overspend on a camera.
+- We can't allow somebody to create a service like that, which reveals who's looking at your page. That's a violation of privacy.
+- I'd heard comedians working MySpace into their routines and giving out their URLs as early as 2004.
+- It can be a little scary. Like one time I posted a link to NPR because I thought it was interesting, and it took down their Web site.
+- Time is the most important thing to me - how can you do all the things you want to do with such limited time... I'm hoping science of life extension makes progress.
+- The Impact Channel and OurPlanet were created to increase awareness of environmental and social causes within the MySpace community.
+- We recognized from the beginning that we could create profiles for the bands and allow people to use the site any way they wanted to. We didn't stop people from promoting whatever they wanted to promote on MySpace.
+- Music is a major cornerstone of our success.
+- I mean, my mom knows Google, but she doesn't know MySpace.
+- I won't even say who I'm going to vote for. I don't want to make people feel like me, or MySpace, is endorsing anyone.
+- I think people are feeling more artistic and creative with something like Instagram that makes editing easy. That's a good thing for sure.
+- In one sense, Facebook is very focused as an address book, as efficient communication. It's like e-mail or like IM or something like that. And we do those things, too, but we do so much more. We try to focus on the whole world and all the things that people are interested in, rather than just people to people, or one to one communication.
+- It always helps to have someone who can say, No, we can do it faster this way, or We have to break the rules, even our own rules, to get things done.
+- The very first plan I wrote for MySpace was that it would be a portal, but a portal wrapped around your user profile.
+- We asked people why they didn't go to MySpace. A lot of people thought it was too hard to use, they thought it was a music site, or a content site. Privacy was a concern, or they'd say it was a site for teenagers.
+- Facebook really has made the world a better place.
+- Anything you do on the Internet, I want you to be able to do on MySpace. That's the goal and ambition.
+- During MySpace's run-up, journalists continually got their facts wrong about MySpace. They wrote story after story about how Facebook was bigger than MySpace when in truth Facebook wasn't even 1/10th the size of MySpace.
+- I have a very negative attitude toward business and businessmen.
+- Celebrities have been using MySpace since the site's launch and it's a natural extension for us to now offer them an aggregated channel where they can be in control of their own image.
+- Creative freedom and self-expression is what MySpace is all about.
+- When I left the work world, I started designing my dream house. I dived into architecture and bought seven vacant lots. My plan was to build one house, move in, and build the next. If the next was better, I'd move in and sell the previous one - so on and so forth.
+- If you knew me before Myspace, you'd probably thought I'd have been a scholar teaching philosophy in a university my whole life. If you met me before college, you'd probably have thought I'd be a musician for my entire life.
+- It sounds crazy, but even in the first plan that I wrote up, I mentioned AOL, Yahoo and hotmail, knowing we would be big. And its crazy to think that it happened.
+- Ultimately, our goal is to provide all artists with the opportunity to make a living on MySpace.
+- For years troops stationed all over the world have utilised MySpace as a lifeline to communicate with their loved ones back home.
+- And I always say sign up for MySpace and see what your kid is doing. Be his friend on MySpace. Know what your child is doing online because you're going to know more there than you'd ever know when he goes to school.
+- We want people to stay on MySpace. We'll give them whatever they might want to do.
+- People aren't interested in music on Facebook in the way they are on MySpace, that's one of the big keys here.
+- It's our hope MySpace Comedy will serve as a launch pad for up-and-coming comedians and as an attraction for the biggest names in the industry.
+- MySpace gives our members the ability to reach such an incredible range of people and have direct contact with them. I'm not sure how that devalues friendship so much as it expands the range of potential friends you can have.
+- The entertainment industry is a very noisy, crowded marketplace.
+- The connection between someone in Leeds and a comedian in Los Angeles would probably never happen if it weren't for MySpace, so it enables friendship and connection far more than it limits it.
+- MySpace is the site I wanted to be on.
+- Burning Man is like one big giant art installation in the middle of starkly beautiful desert landscape, and the attendees are creative in the way they dress.
+- We've tried to simplify the site because some people found it too difficult to use and were intimidated by it.
+- I saw how hard it was for even really talented bands to reach an audience.
+- I wanted to make a place for filmmakers and artists to come and 'do their stuff,' but I didn't expect it to have had the impact that it has.
+- Google is basically too big for anyone to go against in a serious way.
+- MySpace is so much more about culture and about creativity and expression. So in other words, you go on MySpace and you can find music, and you can find video, and things about politics, and things like that.
+- MySpace News is designed to let users decide what's most relevant to them, and we've given them hundreds of subjects to choose from.
+- It's not as much fun to go to karaoke alone, but when you do it through the Internet or on your MySpace page, then you can share it with people.
+- Instagram has really changed the travel industry.
+- It's our hope that MySpace Comedy, much like Music and Film before it, will serve as a launch pad for up-and-coming comedians and as an attraction for the biggest names in the industry.
+- Popular opinion is the biggest 'filter' for most people - they don't have to try something if they've already been told it's not cool.
+- I didn't expect major labels would embrace MySpace, and the original idea for music on the site was the unsigned bands, the independent bands.
+- From the very beginning, our driving passion has been simple: to create and foster a platform where people across the globe can not only meet and interact, but share music, videos, thoughts and ideas.

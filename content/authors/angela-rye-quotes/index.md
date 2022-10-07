@@ -1,0 +1,23 @@
++++
+author = "Angela Rye"
+title = "Angela Rye Quotes"
+quotes_len = "17"
+description = "the best 17 Angela Rye Quotes"
++++
+- Whether it's freedom to express, freedom to live, freedom to earn, freedom to thrive, freedom to learn, whatever it is, I want to make sure that I'm a part of these spaces and opening doors.
+- There's nothing new under the sun. We talk about the same things all the time on air.
+- Ben Carson said black people worked for less. I have breaking news: we built this joint for free. We didn't build it for less.
+- Do you think it's a good idea to be sarcastic about slavery?
+- Whether you want to do a letter-writing campaign or a march or start a social media hashtag - whatever it is - know that there are people out there that are thinking exactly like you're thinking and are also afraid to take that next and very important step.
+- If I can, in any way, give people the courage to say, 'Actually, no, the nonsense stops right here,' then I want to be a part of doing that. Especially if that means that our folks will be more free.
+- I am tired of people telling me that black people are beneath a standard when we have to be twice as good all the time.
+- Read things to not just know what's going on, but see it from different varying viewpoints.
+- I grew up always thinking that fighting for justice was our obligation, whether that's giving your voice to something, serving as a verbal advocate for someone, or physically being in spaces or occupying space to make and create change.
+- If our culture is so often readily and easily appropriated, imagine what happens when we embrace our full blackness and know that our contributions are just as important to the shaping of the country and, more broadly, the world.
+- My father constantly reminded me that he named me after Angela Yvonne Davis, a scholar and activist who was well known for her work in tandem with the Black Panther Party. That felt like a purposeful, beckoning call to engage in strategic resistance and to fight for the oppressed.
+- I am so proud to be black. I am, nevertheless, tired of the oppression. We need to develop and support a cohesive black agenda. We need to do what leaders have suggested since slavery. We need to recognize that while we are not monolithic, there is power in embracing a common agenda.
+- This country is not going to progress if we can't have decent civil conversations and be respectful to one another.
+- I never had a moment of realization about my blackness - I just was. Blackness was a central thread of my experience as a child and as an adolescent, as it is now that I'm an adult.
+- Not only did I always know I was black, I always knew we were and are beautiful, culturally rich, and creators of everything from the sciences to the arts.
+- Working with BET always provides a reminder of why I began to do this work. It is essential that we have platforms where we can discuss our politics, our challenges, and our culture through our respective lenses.
+- I am not interested in trying to convince and change the mind of a bigot.

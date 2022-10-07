@@ -1,0 +1,100 @@
++++
+author = "Lucy Worsley"
+title = "Lucy Worsley Quotes"
+quotes_len = "94"
+description = "the best 94 Lucy Worsley Quotes"
++++
+- I might once have had a pair of jeans briefly in my teenage years before I realised they weren't for me. I don't love my legs but, hey, they're mine, so I accept them.
+- Regency buildings are often said to lack the serenity of their early Georgian predecessors, or the intense scholarship of the subsequent Gothic revival.
+- Only in the nineteenth century, with the improvements to the water supply forced by the fear of cholera, and with the building of underground sewers, did the flushing toilet finally take its place in most homes.
+- My favourite accessory is a pair of long purple leather gloves.
+- Medieval people didn't have special rooms for sleeping, just a single living space for everything. They put up with this lack of privacy partly for the lack of other options.
+- I'd like to meet Mrs Cornwallis, who made Henry VIII's black puddings.
+- Medieval and Tudor people didn't treat buildings as a semi-disposable resource like we do.
+- One thing I know, and any female presenters will know this, is don't reveal any body part or bend over because freaks will freeze-frame it and put it on their nasty messageboards.
+- It's our job as curators to open up Hampton Court to visitors, and to look after the buildings and collections for the future.
+- Dorothy L. Sayers is absolutely my favorite The reason she stands above Agatha Christie, Ngaio Marsh, and Margery Allingham is because she was so subtly aware of the lot and trials of women of her decade.
+- Today's builders and town planners believe people inhabit 'places'. Yet medieval towns were perfect examples of what planners seek: densely populated, walkable communities in which people ate local, seasonal food, and rich and poor lived in close proximity.
+- But the BBC has made a big push to get women historians such as Amanda Vickery, Mary Beard and Bettany Hughes on TV and they have to be given credit for that. I am lucky to be a part of that.
+- I am quite old-fashioned: I wouldn't consciously think 'I am going to dress up in a sexy manner' because it's just not me. I like to look cheeky, friendly and approachable, and I wear bright colours, like a clown.
+- I have many pairs of long gloves because my wrists get cold as I also like coats with short sleeves - what Jackie O would have called bracelet-length sleeves.
+- The grand sweep of constitutional or political history is important, but a detailed history of daily life also gives you a wonderful insight into the strange mental worlds of people in the past.
+- Windows will grow smaller again and houses will contain much less glass - not only because of the high energy costs of glass but because it's thermally inefficient.
+- My first time skiing was in Vail, Colorado. It was brilliant fun until I whacked myself in the face with my ski pole.
+- I'd prefer to cook for friends at home than go to a restaurant. My mum is a feeder and I get it from her - I know when I visit her there will be three different types of home-made cake waiting for me.
+- Medieval kings left the job of kindness to their queens. If the queen begged for someone not to be beheaded, the king could show mercy without losing face.
+- I once rented the Georgian town house that Jane Austen lived in down by the Holburne Museum - so I lived in Jane Austen's house, and slept in Jane Austen's bedroom. You can walk along these Georgian streets and it's like you're in a Jane Austen period drama.
+- History was the subject that didn't seem like work. It was enjoyable. That's why I was drawn to doing it really.
+- Domestic life in the past was smelly, cold, dirty and uncomfortable, but we have much to learn from it.
+- My favorite thing is talking to people about history - that's what I like doing. The sort of history I do isn't just for professional historians.
+- Yes, if you lace your corset up as snugly as is humanly possible, it will undoubtedly impede your breathing and make you more likely to faint. But it's not certain that Victorian women really did that on a regular basis.
+- My ideal viewer is an 11-year-old girl who, like me, was once reading a book by Jean Plaidy and might be in the position of deciding what to make of the world and what to do with her life.
+- My own office life at Hampton Court is somewhat challenging food-wise. It's miles from anywhere, off the Chapel Court, deep inside the palace, up a spiral staircase of 51 steps. You can't just nip out for a sandwich.
+- Torture and cruelty are the words that come to mind when people think of the Tower. Here it was that the princes were murdered, Guy Fawkes racked and Henry VIII's queens executed.
+- As a curator, I've met endless people who feel a 'special connection' with Anne Boleyn, or Victorian prostitutes, or various other unlikely candidates.
+- Staymakers and fashion designers have always wanted us to purchase new clothes, so they change their output year on year - we feel out of date, and feel that itch to buy.
+- My dad, a geologist, was an expert in glaciers and permafrost, so we moved to a lot of cold places such as Canada, Iceland and Norway.
+- My father is a geologist and he really thinks that scientists are going to save the world, so he wanted me to be one.
+- Curating isn't just a matter of taste. It involves building up real knowledge of the items in your care. As the world gets quicker, and shallower, and bite-sized, retaining our ability to take a deep dive into history is more and more important.
+- You shouldn't hate your body parts. I have lovely little ears and eyelashes so long they sometimes get tangled in the machinery when I have my eyes tested.
+- If you lived in 18th-century England, you probably lived in a village, worked on the land, and your greatest fears were probably dying in a famine or of disease or in a war.
+- I don't want to be definitive or the last word on anything.
+- Many British people have a snap of their younger self, posing next to a Yeoman Warder or Beefeater at the Tower of London. I'm no exception, and my youthful visit created such an impression that in later life I set out to become one of the curators of the Tower.
+- As a child, my parents' attitude rubbed off on me; I have an old teenage diary that marks the moment when my parents decided to buy a colour television. I was very much against it and wrote that it was a waste of money.
+- My parents weren't keen on me watching television when I was growing up, in the 70s and 80s, which is ironic given that I've ended up working in it.
+- Once you become a curator, you will inevitably end up on TV, if only to talk about your latest exhibition.
+- I don't see any distinction between work and pleasure so I do spend a lot of what other people might consider my leisure time doing history things.
+- Lots of historians are sniffy about re-enactors.
+- I wish I could spend my money with more pleasure, but I was one of those kids who squirrelled away my pocket money.
+- Everything is different about the world of the past, including the way we think and move, and you get a sense of that through the clothing.
+- As with the Trojans or the Tudors, there are many evergreen stories that we come back to again and again. I think history documentaries are as much about the present as they are the past.
+- When I was little, all I really wanted out of my life was to become Nancy Drew. I've always enjoyed fictional sleuths, especially Nancy.
+- Mum encouraged my love of history. She was always dragging me off to visit historic properties, and then I reached an age when I suddenly appreciated it. We have a big overlap in interests and often work together.
+- People often misuse the term 'Regency' to describe art or antiques dating from a vague period between the 1790s and the 1830s, but technically the period only lasted between 1811 and 1820.
+- I have a cup of tea in my hand at all times. I have about 10 a day. I don't go for this hipster coffee nonsense. No flat whites for me!
+- My dad wanted me to be a scientist and I was set to study science A-levels. But after the first term I realised it would be much more enjoyable to study English and history, which didn't seem like work - so I switched.
+- As I am straight up and down, I make a good flapper. One of the highlights of my life was dancing the Charleston with Len Goodman in a nightclub in a cream, Twenties-style dress; it was the nearest I'll ever get to appearing on 'Strictly'.
+- I am a museum curator when I am not on the television and in our collection at Kensington Palace we have a book like Marie Antoinette's, which belonged to the daughters of George III.
+- I think you can be happy every day, if you are in the flow.
+- Two hundred years ago, bathrooms didn't exist. The bathroom's development has not been a straightforward matter, and you might be surprised to learn that many Tudor people had worse personal hygiene than their medieval ancestors.
+- It's very hard for me to find any other job that I would ever want to do because I love the one I have so much.
+- Britain can claim to lead the world in murder because it was a country that industrialized early. Other countries, going through the same process later, caught up and produced their own genres of detective fiction.
+- To wear stays forces you into the elegant, balletic posture of a Georgian minuet-dancer. As with the tight-lacing, there is still great debate about whether stay-wearing, which began in adolescence, actually changed the shape of the skeleton, or was just a cosmetic, temporary, alteration.
+- I've always being interested in clothes - and I'm also the curator of a significant dress collection with 12,000 objects in it - the Royal Ceremonial Dress Collection at Kensington Palace.
+- From creating a new sovereign to affairs of the heart, majestic moments to everyday life, when monarchy wants to send a message it uses a photograph.
+- I was a bit disappointed to discover that the French Riviera seems to have a large motorway running along the edge of it.
+- One of the great privileges of my job as a curator is occasionally taking people up onto the roof of Hampton Court for a tour.
+- I see bundling as a really important step in the journey toward marriage becoming a marriage of personal choice, rather than something you're just forced into by your parents for economic reasons, because you don't have to marry the man or woman after the night of bundling.
+- Being a historian, if only for the day, teaches you useful things like judgment, and the ability to detect when someone is lying to you.
+- My job is basically organising things, putting labels on them and keeping them straight!
+- If you work as a curator, as I do, at Hampton Court, you sometimes wonder if there might be more to life than Henry VIII.
+- My parents divorced when I was in my early 20s and have both happily remarried, so I have a large extended family.
+- I love visiting Landmark Trust properties, which tend to be historical follies in extraordinary places.
+- Jane, Henry VIII's third wife, wasn't present at her son's christening, as ritual dictated she had to spend another month in bed. From her chamber she could have looked down on the christening procession below, and must have felt great pride.
+- Lots of items that survive from the past are high-status, valuable things that people have treasured.
+- I see it as my job to try to make history to be a popular thing. The longer I keep going the less weird it will be to be a female historian.
+- The role of photography in crisis and recovery is fascinating, a dance between providing access and destroying the magic and mystique of the monarchy.
+- There seems to me to be something admirable, indeed noble, about the people arguing over Richard III. They're doers rather than naysayers, romantics rather than realists, people looking for meaning rather than numbness.
+- Historic Royal Palaces is an independent charity without funding from the royal family or the government. But I have met the Queen, she comes to open projects, and she is always very interested.
+- Endless Jane Austen film adaptations have given us the idea that the Regency was a classy, pretty, palatable period of history. Notable for their muslins, tea parties and flirting, you'd think that most Regency folk lived in highly desirable rectories.
+- The invention of the camera enabled the reinvention of the British monarchy for the modern era.
+- If you read Victorian manuals, they're crazy - the amount of attention they devote to the perfect making of the bed, the cleanliness of the bed, the hygiene of the bed.
+- When it comes to history I am shameless. I will do whatever it takes to get people involved.
+- I've most liked dressing up as a flapper. I've been flappered twice. But I care not only about the clothes they wore but what they stood for. It's early-liberated, earning money, having the vote, their potential husband probably died in the war, that kind of independence.
+- I want to look like I'm friendly, approachable and jolly.
+- Because of the demands of court politics and the public position in which they lived, George I, George II and their children ended up doing bizarre and horrible things to each other, such as kidnapping a baby.
+- Working in a museum has given me a connection to people - to the rest of humanity - that I never had before.
+- I like to wear clothes that have some kind of relationship with the past.
+- As a child I ate all sorts of veg because my mother was a hippie and grew them all and made our clothes.
+- I like all the types of supposed work that I do. It's a privilege: I can't believe I get paid for it.
+- In big museums, the role of the curator has shrunk in recent years as different branches of curatorial work - such as interpretation, or learning, or conservation - have split off and become professions of their own.
+- You would think that the weapons of a king and queen were perhaps their armies or centuries of tradition but what they have is the power of the media. The visual is almost more important than words because they don't have that many opportunities to speak.
+- A lot of people would say history is important because it helps us to predict the future. I don't think that it does particularly. What it really teaches you is that things have not always been the same, and they don't have to be the way they are.
+- I'm very interested in Queen Victoria's younger years at Kensington Palace. She was born in the dining room because it had stairs down to hot water in the kitchen.
+- I am interested in constitutional history, political history, the history of foreign affairs, but I think you can get at those subjects through the details of daily life.
+- A Georgian man's shirt had a long tail, which he tucked between his legs rather like a nappy. Over it went his 'breech liners', the long, linen forerunners of drawers. All of this was intended to keep his unwashable outer clothes free from the sweat and stink of his skin.
+- One thing that does seem to particularly annoy people is my voice and my very slight, to me unnoticeable, speech impediment.
+- Sales of corsets doubled between 1948 and 1958, possibly as part of the process of putting women back into the box, as they gave up the jobs and freedoms that came during wartime.
+- In the past, people didn't necessarily want their king to be kind. If a foreign power was threatening the country, they wanted him to fight.
+- There's a big mistake that people make with history, which is to think that people in the past were just like us, but wearing crinolines. They lived in different worlds.
+- What truly gives me joy is when I get a letter from a young woman who says they saw a programme, then read a book, then went to an evening class, and then studied a history degree at the Open University - and now I want your job.

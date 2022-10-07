@@ -1,0 +1,98 @@
++++
+author = "Robinho"
+title = "Robinho Quotes"
+quotes_len = "92"
+description = "the best 92 Robinho Quotes"
++++
+- Winning a derby is always a beautiful thing.
+- I have always wanted to play at clubs like Barcelona. It's a great club. Any player would be happy for them to show an interest.
+- Barcelona are a great club, and Brazilians have always done well there.
+- United are a club known all around the world. No matter where you grow up, if you love football, then you'll know about Manchester United.
+- I know some people expected me to be a Ballon d'Or winner.
+- In football, you know anything can happen and that everything can change from minute to minute.
+- Roberto Mancini did not make the most of me.
+- I am Brazilian, and I can't offer my best performance if I'm not happy in every aspect of life.
+- I've learnt that being second is worthless.
+- I was a young player at Real, but working with players like Zidane and Beckham every day taught me such a lot: how you win and lose as a team and how you must respect your team-mates.
+- I have to look for my happiness, and that is being out on the pitch, playing well, and scoring goals. That makes me happy.
+- I had a wonderful time in Spain. I had the pleasure of being a league champion twice in a row and playing for a big club like Real Madrid, which gave me a higher profile.
+- I always get lucky against Chile.
+- I want to be king of Manchester City.
+- People expect that you will play well and score a lot of goals, but it is not always possible.
+- Since I've been in Manchester, people recognise me all the time in the city. And they have been very kind to me.
+- I dream of playing in the English league.
+- When I signed for Real Madrid, it was like a dream.
+- In Spain, they go to the stadium and treat it like going to the theatre. In England, they go to support their team, to scream and shout, and do everything they can. I love that.
+- When a Brazilian player comes to England and is successful, he ends up opening doors to other players.
+- I liked Manchester, the club, the restaurants... but let us not forget the discotecas.
+- Kaka is a personal friend to me.
+- I don't regret the decision to leave Madrid, only the way that I left, which wasn't the best.
+- Football is all about having fun.
+- It's not easy to say no to a club like Barcelona. They are European champions, they're in a lovely city, and I like Spain a lot.
+- I want to stay at Real Madrid for a long time.
+- Real are the best club in the world. Any footballer dreams about playing there, and I am no different.
+- Of course I would like to play for Barcelona. Who wouldn't?
+- It's no good if you are at a so-called best team, but you sit on a bench.
+- People wonder why I smile a lot. It is because I am doing what I love best: to play football for people who love me. It makes me happy.
+- When you leave Real Madrid - a famous club worldwide - it's normal to get criticism.
+- It is terrible to be injured; you want to return to playing football.
+- I have played for the national team many times, so I am used to good things - and bad things - being said about me.
+- I owe a lot to playing on the street. And what was even better than playing on the street was playing football with my friends in the local graveyard. It was fantastic. We forgot what the time was and didn't even go home for our meals.
+- I want to be champion.
+- I want to win the World Cup. I want to be the world's number one.
+- The family is the foundation of everything.
+- I had one-and-a-half years of joy in Manchester, despite the city being a lot colder than Madrid!
+- Guangzhou Evergrande is a very unique club.
+- Milan, I was surrounded by great players; it wasn't the same at City.
+- It is an honour that a coach like Guardiola speaks highly of me, for him to rate me as highly as I have read that he does. I genuinely appreciate it - from the bottom of my heart.
+- The Premier League is very strong, physical football, and I am not a strong player.
+- My dream is Chelsea. They are great, and my objective is to play there.
+- The national team has always been a priority for me.
+- I came to Manchester City because I see them growing and getting bigger. Can they be as big as Real Madrid? Yes, I hope so.
+- Italy was the hardest league to score goals in. Those guys just love defending.
+- In Brazil, the coach respects the player's characteristics. In Europe, they are used to playing with two lines of four players, and they don't want to know what you can do. There, if you are a forward, the coach sends you on to the pitch just to run. You have to run, and that's it.
+- It is a big challenge for me to come to the Chinese Super League.
+- I want to win the Scudetto.
+- I play football like I dance.
+- If you ask my one regret, it is that I could not bring those City fans a trophy. That's the only thing that leaves me a little sad.
+- At City, when I was playing, I knew that at some point, the substitution board would go up, and I was going to come off because the manager didn't have trust in me. Then, you start to lose your confidence on the pitch.
+- At Madrid, I was only used for important matches.
+- Deco is a very skillful player. He thinks very fast on the pitch.
+- The Premier League is one of the best in the world, without a doubt. The stadiums are always full, and the atmosphere is incredible, but not every footballer is able to play in England. The character can be difficult for a foreigner.
+- Rio Ferdinand is the hardest opponent I have faced - strong and quick. He didn't kick you. He was so classy. I could do all my step-overs, but he would watch the ball and tackle so immaculately. He only got the ball.
+- I am very happy at Manchester City, and I intend to continue playing here for a long time.
+- I get depressed when things are not right.
+- I am a special footballer, and I need to be happy when I'm playing.
+- I am footballer, not a public relations person.
+- Individually, I think things have been very, very good for me in my first season in England.
+- For me, you can only be content when you're champions. You can only be content with winning away.
+- I saw United matches on TV as a kid in Sao Paulo. I loved watching Ruud van Nistelrooy. He was a hero for me because of the way he scored goals in all competitions.
+- I am enjoying playing English football. It is very beautiful. With every game I play, I feel more comfortable.
+- Manchester is a sensational venue for football but an awful place to live... the winter, the cold and the dark nights. It's very hard for a young Brazilian.
+- Unfortunately, my departure from Madrid was not pleasant, but those things are in the past, and I have learned a lot and matured.
+- I used the bus when I was growing up in Brazil. I don't want to diminish anyone who travels on the bus, but I haven't done that for a long time.
+- In every dressing room in the world, players say things to each other after a defeat, and then it gets forgotten.
+- I played in England for a year and a half, and I know how English teams play - very well.
+- Kaka is fantastic and has so much ability. He is strong, intelligent, and fast.
+- There was an image of me as a party guy. And yes, I liked to party.
+- I truly dedicate myself to my club.
+- I would love to win the Champions League.
+- In Brazil, I didn't have it easy growing up.
+- I know what I'm worth, and I don't feel I should be talked about as currency for someone else.
+- When you build a house, you have to start from the floor. You have to start from the bottom, the defence, and then you fix the attack.
+- I feel really sorry for the way I left Madrid, but the fans don't always understand what happens in these cases.
+- The city of Madrid is a beautiful city, and my family loved living there.
+- I'm blessed in that I have a family that has always helped me in everything I ever needed.
+- I do think I fulfilled my potential.
+- It is a physical game here in England, but I can cope with it.
+- I hope to make history at the club and become one of the great heroes of Manchester City.
+- The language of football is universal. You don't need to speak the local lingo in order to be able to communicate with a ball.
+- From the day I arrived, I could see City's project was destined to be a success and the club would grow - but I didn't think it would be quite so fast.
+- You can only be content with winning.
+- I've played three seasons at Real Madrid; I've given my all. I've scored goals, I've won two leagues, and that's not easy.
+- I think speaking English is beautiful.
+- I play for the love of football, not for the money.
+- Sometimes I am questioned why I play better for the national squad than at Manchester City. I am the same at both places, but City is one team, and the Brazil national squad is another.
+- I feel happy here and want to stay in Milan for ten seasons and then retire at the age of 36.
+- At Real Madrid, I learned a will to win.
+- I have always had a good relationship with Real Madrid fans, and I feel dear to them.

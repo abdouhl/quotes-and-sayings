@@ -1,0 +1,34 @@
++++
+author = "Kristin Hersh"
+title = "Kristin Hersh Quotes"
+quotes_len = "28"
+description = "the best 28 Kristin Hersh Quotes"
++++
+- I'm beginning to think I have two years encountering sexism without really realising it.
+- The songs keep on writing themselves, and I really love them. It's as close as I get to a religion.
+- Most of the younger people I knew didn't seem to have a handle on things; they hadn't found their place, they didn't understand how the world works, they didn't understand how to treat other people, and they didn't know how to stop thinking about themselves.
+- Men are allowed to write songs about people and women are allowed to write songs about women.
+- The songs become the show, which is how it should be.
+- I don't like what the radio plays for the most part.
+- I don't have the inclinations that other people seem to have as far as the business is concerned.
+- Good taste - that's all you really need when you're playing an instrument.
+- Nirvana was pop. You can have distorted guitars and people say it's alternative, but you can't break out of pop music's constructs and still get extensive radio play and media coverage.
+- MP3's are perfect.
+- I guess I'll just slip into the studio after the next time with the Muses, and then just keel over and die.
+- I grew up in a commune where no one considered me female, particularly.
+- My brother and I were meditating before we were 6 years old, having to stare at the wall and chant.
+- I don't like the idea of famous people.
+- That's my dream job, to be able to mail songs out to people who want to hear them. Paste my face on them and not travel all over the world trying to sell them.
+- We need a day of the dead. That's a perfect celebration.
+- To do it nationally or internationally, you have to follow a few more rules.
+- I felt like it was a great secret when I found out that I could be in my 30s.
+- We didn't really swallow much of the Jesus thing, but we got the vocab.
+- Before you can make good music, you just have to shut up. Then the music can say what it has to say.
+- I have to play as much of the game as I allow myself to get the music heard. But it's not unlike the rest of the world, so I'm not as up in arms about it as I could be.
+- I don't mind what the market is, but why is it vapid? If they're such a bunch of idiots, why don't you show them good music instead? They're not going to know the difference.
+- I would go to radio stations and they were supposed to be interviewing me and playing my record and they would say, We're playing too many women right now, we can't play your record.
+- You have to follow every melodic line, every emotional idea, or you don't get your money's worth.
+- I've always chosen my band members based on their sense of humor. It might sound stupid, but it means not only are they fun to live with on a tour bus for years, but humor implies intelligence.
+- My parents didn't treat me as if there was anything in the world I couldn't do, except be unkind.
+- Popular music sucks so bad right now.
+- If you're the band leader you ask more of yourself than anyone else, so they tend to raise the bar for me.

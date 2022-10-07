@@ -1,0 +1,22 @@
++++
+author = "Catherine Mary Stewart"
+title = "Catherine Mary Stewart Quotes"
+quotes_len = "16"
+description = "the best 16 Catherine Mary Stewart Quotes"
++++
+- Angie Dickinson in 'Hollywood Wives' took me under her wing. If you look at that cast, I was definitely an 'outcast'... so to speak. Most of them were of the same era, or just so much more experienced that I was.
+- Acting is very personal. I don't want to be like anybody else. There are positions I would like to be in - like Meryl Streep's, for instance.
+- 'Night of the Comet' established me as a strong woman. And let's face it, this business is very surface and one dimensional - so it's easy to get typecast.
+- Robert Preston in 'The Last Starfighter' had an aura. It was almost a surreal experience meeting him. He exuded charm, warmth and that movie star magnetism that is impossible to describe.
+- When I graduated from high school, I made the decision to pursue my dance training in London, England. I was so scared at first, not knowing if this little girl from small town Canada could possibly make it with these highly trained London dancers.
+- Both TV and movies seem to be produced in a more similar way as time goes on. It used to be that movies were much bigger productions on every level and took much longer to shoot. I liked that. But with the advent of digital, everything can be done much quicker and cheaper, and that seems to be the goal of most movies and TV these days.
+- 'The Last Starfighter' was the first movie I did in the U.S. It was an absolute joy to be a part of it. 'Night of the Comet' was a labor of love. Truly a collaborative effort. I am eternally grateful for the experiences.
+- I don't have a favorite genre. I love to work and live vicariously through every character. It's all about trying to bring the character to life and get the story across in a way that resonates with the audience. It's always interesting and challenging in a gratifying and unique way.
+- I have nothing but admiration for the actors on soap operas. It is unbelievably challenging to put out an hour show in one day.
+- New York is a great place to be as an unrepresented actor because there are so many 'open auditions' that you can show up for without being submitted by an agent.
+- I love acting, and ultimately all my characters are very different, and each character I love in a different way.
+- I realized that 'performing' was what I wanted to do when I did my first professional gig as a dancer with my company 'Synergy' in Canada. I was overwhelmed with how it felt to perform in front of an audience.
+- Lance Guest in 'The Last Starfighter' had such integrity and held himself to such a high standard that I just wanted to raise your own standard to meet it. He is a hard-working, giving actor. He made me feel secure and better in my role opposite him.
+- I became very close with Charles Bronson and his wife, Kim. We did 'Sea Wolf' together along with Christopher Reeve. I've been lucky enough to work with some amazing, legendary actors. I worked with Rod Steiger twice, for instance.
+- There's no limit to what you can accomplish, but there's always someone one step ahead of you, so it's a constant uphill battle.
+- I began dancing when I was 7 years old. I was told that I had the perfect ballet dancer's body and had these crazy high arches in my feet that resulted in an amazing point. Ballet was very disciplined and, frankly, a little boring, so I eventually transitioned to gymnastics. I loved that, although I never reached a competitive level.

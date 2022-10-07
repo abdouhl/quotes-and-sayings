@@ -1,0 +1,22 @@
++++
+author = "Camilo Villegas"
+title = "Camilo Villegas Quotes"
+quotes_len = "16"
+description = "the best 16 Camilo Villegas Quotes"
++++
+- I've always said it: I don't want to be the only Columbian playing on the PGA Tour, so, guys, just play some good golf and come join me here.
+- I beat myself a little bit too much sometimes. When you beat yourself a little bit too much, there's little things that make you miserable.
+- I'm kind of a perfectionist, and it gets in the way with my putting sometimes. Golf is a messed-up game. When you feel you've figured it out is when you're going to struggle.
+- I don't believe in hitting a bad shot and then insisting it's no big deal. No, you just messed up, so react. I'm not saying you need to throw your club. I mean, take 10 seconds to get angry at yourself, but then start over.
+- I miss Colombia. It's a great place.
+- I believe I've accomplished my goals of trying to get better every year, and a little bit of that, a little bit of luck, a little bit of everything just falls in place, and you end up on top.
+- Sometimes when you play a golf course for the first time, you just got to be committed to your targets.
+- I'm very competitive, and I want to win.
+- It annoys me a little when people try to be positive when I don't play my best. I play to win. I'm like that. I'm like any other player. I'm never happy.
+- Lots of people still don't think of golf as a sport.
+- I love to eat a lot, but I try to eat healthy stuff. Especially when you're riding, sometimes I get hooked up with the cycling and when you're riding three, four, five hours, then you can put whatever you want in your body.
+- I always save a few special outfits for the final rounds of a tournament, because they put me in a more positive mindset and I then make better decisions.
+- I like big crowds. I find it easier to focus.
+- I enjoy every second I'm in the gym. I love to challenge myself, push myself; obviously there's a lot of different routines and a lot of different stuff we do - love cycling, and again, it's part of my lifestyle.
+- Am I good enough to be No. 1? Sure, but who's gonna break Tiger's legs? I want to be the best. Can I? Oh, believe me, I will be trying. Hard. You grow up in Colombia, and everything is limited. Then, I come here, and you have everything. A trainer, nutritionist, coach. I'm very lucky. Many doors open, and I have a path to take.
+- We have a bad image in the world, I've got to admit. I just want people to think twice about Colombia. Don't go by the first impression.

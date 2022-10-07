@@ -1,0 +1,63 @@
++++
+author = "Kerry James Marshall"
+title = "Kerry James Marshall Quotes"
+quotes_len = "57"
+description = "the best 57 Kerry James Marshall Quotes"
++++
+- My introduction to art history was like everybody else's. You see an art history book that has works by Rembrandt and Leonardo da Vinci and Michelangelo. Yes, these things are great. But I don't see a reflection of myself in any of these things I'm looking at.
+- A close friend of mine described me as a radical pragmatist. I embrace this no-nonsense distinction wholeheartedly. It is a character trait that matches the sense of myself I've had from as far back as I can remember. I am not one who goes in much for magical thinking. I don't believe in destiny, fate, or things like divine guidance, either.
+- The invention of the African American, or the Haitian or Jamaican, is a consequence of the transatlantic slave trade.
+- For black people, everything we do has to be ratified and endorsed by a power structure that is white. And that reinforces a kind of racial hierarchy where whiteness is the privileged position to be in, and ethnicity is problematic.
+- Blackness has always been stigmatised, even amongst black people who flee from the density of that blackness. Some black people recoil from black people who are that dark because it has always been stigmatised.
+- What I hope 'Mastry' ends up doing is completely undermining or doing away with the notion that artists are a savant: that they do things that can't be articulated, driven by inner turmoil they don't have access to.
+- You have to recover the capacity to imagine yourself as an ideal and figure out how to project that into the world.
+- I see life and the world simply as an arena for competition. That's just what people do, and there are always going to be winners and losers.
+- When you go to an art museum, the thing you're least likely to encounter is a picture of a black person. When it comes to ideas about art and about beauty, the black figure is absent.
+- If people keep telling you you can't do a thing, then you need to find a really good reason to continue. If someone tells you you can't do something, how will you know? If someone tells you something is impossible, how will you know?
+- When you grow up looking at Superman, Batman, and all those superheroes, you take it for granted that is what superheroes are supposed to be. So then, when I see art books at the library, and I'm seeing Leonardo da Vinci and Michelangelo and Rembrandt, I think that's what artists look like.
+- When I started, I was aware of using the black as a rhetorical device. It's understanding that black people come in a wide range of colors, but you find instances in a lot of black literature in which the blackness is used as a metaphor. In some places, you can find an extreme blackness used as a descriptive.
+- The history of political movements in the African diaspora is that the solution to the problem is never in the hands of people who are advancing the movement. I try and operate on my own terms.
+- My first black-on-black picture was 'The Portrait of an Artist as a Shadow of His Former Self.' I started using it as an emblem of this undercurrent of wickedness, malevolence, and irony - all of that.
+- You don't see black people winning Nobel prizes for physics or economics or any of the industries or institutions that shape the way the world operates.
+- I used to always say - and I think a lot of artists think of it this way - that when you see a black figure, the way the critical establishment operated, you can only imagine that figure having a sociological value. They never say the ways in which their aesthetics were equally worthy of consideration.
+- I see myself as having fulfilled a lot of my ambition. All the things I dreamed of achieving, I've achieved for the most part.
+- To me, if there is any sort of value added to the accumulation of knowledge over time, then the work of artists should be a reflection of that accumulated value, accumulated knowledge. You have to demonstrate that you have the sophistication to put that into play in the work you're making.
+- Paintings don't just happen. I am not a proponent of the idea of an artist as someone who kind of magically makes things and has no real control or isn't willfully producing a certain kind of thing. It is labor-intensive, and it is research-intensive. You are making one decision after another, trying to get at something you think is important.
+- The revision of any kind of established model is always a political act.
+- I have been a stalwart advocate for the legacy of Charles White. I have said it so often, it could go without saying. I have always believed that his work should be seen wherever great pictures are collected and made available to art-loving audiences.
+- For black people who are really dark - and a lot of black people were averse to be dark skinned - it was believed that you'd be so dark that you couldn't see them at night unless they were smiling or you could see the whites of their eyes. At one time, it was a sharp comic barb that got levelled at some people.
+- In Western Catholicism, darkness was evil. In the colonial and imperial context, dark skin was always weak, powerless, subjugated. If you see these images all the time, they become commonplace, and they no longer become a spectacular or sensational thing.
+- The National Gallery is the place that means to represent everything that's good and important in art and show what it believes everyone who is a citizen should recognize and engage.
+- As a black person, I'm used to going to places in which I might be the only black person that shows up there. This experience has an effect on the way you see yourself in the world and what it means to be black in the world.
+- What you're trying to create is a certain kind of an indispensable presence, where your position in the narrative is not contingent on whether somebody likes you, or somebody knows you, or somebody's a friend, or somebody's being generous to you.
+- When art works travel from place to place, what you have is the opportunity to engage with the intellect of another person who has made a thing that should have enough information in it in the way it's constructed to start thinking about why that picture got made - not why it is relevant to you.
+- I stumbled upon Charles White purely by chance while looking through a book 'Great Negroes, Past and Present' in the library at Forty-Ninth Street Elementary School in South-Central Los Angeles. I was in the fifth grade.
+- I don't want the pictures to mean things. But the implication of the image and its relationship to the people that are viewing it is something I'm really interested in.
+- People ask me why my figures have to be so black. There are a lot of reasons. First, the blackness is a rhetorical device. When we talk about ourselves as a people and as a culture, we talk about black history, black culture, black music. That's the rhetorical position we occupy.
+- One of the reasons I paint black people is because I am a black person.
+- Artwork operates on two different levels: On one level, there's artwork as a mode of expressivity, and then there's the other side, where the image is a construction that is meant to engage in a discursive field in order to perform a particular function.
+- People don't really want to hear me say this, but a black person who will give a million dollars to the Museum of Modern Art but won't give a million to the Studio Museum in Harlem is simply mistaken.
+- Progress has always been understood to be driven by exceptional white men. Whether it's the military victories we've achieved, the philosophical foundations that are the underpinnings of the nation, or our economic ingenuity, all this has been articulated through narratives of exceptional white men.
+- At a certain point, you have to decide whether you'd be satisfied always acknowledging the beauty and the greatness of what other people create or if you want to be in the same arena.
+- When I go to the movies, I'm expected to identify with all of the characters, and most of them are white. But when you put a black character in there, somehow the white audience isn't expected to identify with them. That's a problem.
+- The U.S. was founded as a white supremacist nation; that's just what it is.
+- Abstraction and representation are supposed to be going down two very different paths, one sociological and the other aesthetic.
+- If I go to the museum and see white bodies, black bodies, Asian bodies, Latino bodies, then I will expect to see those things every time I go. That matters a lot.
+- There are fewer representations of black figures in the historical record.
+- If you think about the way we experience art, the paradigm is still Western European. If I go to the National Gallery, what am I going to see the most of? I'm not going to see a whole lot of black figures in pictures.
+- There's this idea that many of the attitudes and personality developments in black folks in the diaspora are a consequence of this unresolved trauma. There have been attempts by black artists to try and figure out how to represent that in some kind of way.
+- I don't believe in hope. I believe in action, if I'm an apostle of anything: There are always going to be complications, but to a large degree, everything is in your hands.
+- Too often, if you look back through the history of representation and you take the work of African-American artists, the work is on such a modest scale that it becomes sort of inconsequential.
+- If you ever find yourself on a boat in the middle of the ocean, you look around in every direction and don't see anything. That's a terrifying experience.
+- I gave up on the idea of making art a long time ago, because I wanted to know how to make paintings; but once I came to know that, reconsidering the question of what art is returned as a critical issue.
+- Clarity is important. Part of what I'm trying to do with some of these pictures is eliminate as much of the potential, as many kind of readings as people might want to make, as possible.
+- You can't be born in Birmingham, Alabama, in 1955 and grow up in South Central near the Black Panthers headquarters and not feel like you've got some kind of social responsibility.
+- I try to make work about things that matter.
+- Working from live models is too much trouble; it takes too much time.
+- There's nothing more special than intellect and labour that makes painting work. There's no magic there; it's information, and it's work.
+- Every step on my way to becoming an artist seemed preordained. The right people were always in the right places at the right times to boost me to the next level. I was fortunate to be selected for a summer drawing class offered to teens at the Otis Art Institute of Los Angeles County.
+- My ambition was never to make a lot of money. It wasn't to travel around the world. I was really just struggling to make the best pictures I could make.
+- If you walk into any magazine store, I guarantee that nine out of 10 covers will feature white, blonde, blue-eyed, slim women because that's still the ideal of beauty. When a black or Asian figure shows up in a fashion magazine, she's the exception, not the rule.
+- I think the only value of being in school is that everything you do should be a problem that needs to be solved. Everything should be a challenge.
+- The lighter the skin, the more acceptable you are. The darker the skin, the more marginalised you become. I want to demonstrate that you can produce beauty in the context of a figure that has that kind of velvety blackness. It can be done.
+- My dream was always to be in museums. It's a big and important milestone and a fulfillment of one of my primary ambitions.

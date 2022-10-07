@@ -1,0 +1,25 @@
++++
+author = "Tom Freston"
+title = "Tom Freston Quotes"
+quotes_len = "19"
+description = "the best 19 Tom Freston Quotes"
++++
+- Travel early and travel often. Live abroad, if you can. Understand cultures other than your own. As your understanding of other cultures increases, your understanding of yourself and your own culture will increase exponentially.
+- Travel is the best and probably cheapest graduate school you can buy.
+- I always hustled to make money and pay for school. I was never afraid of hard work.
+- Innovation is taking two things that already exist and putting them together in a new way.
+- I measure success in terms of the connection with the audience, which we've been able to do in spades. I mean, it's very hard to do that. You think about it, you go back in time, you can say, 'Well, there's, like, 'Saturday Night Live' and 'Rolling Stone' or 'MTV.' I think 'Vice' is in that category now.
+- If you look at the Internet, it's been hard for a lot of the traditional media companies to launch viable brands.
+- Read, listen to and watch everything you can. Explore the corners of popular culture and the arts. And, of course, these days you have to stay maniacally plugged in to the cutting edge of whatever technology is taking your profession into the future - otherwise you're toast.
+- I've never been fired in my life. From anything. I've never failed at anything I've tried.
+- We, as Americans, have so much to learn here. We have a shockingly low level of global awareness and familiarity and little idea of how the world sees us. And those disturbing facts keep getting us into a lot of trouble.
+- People often say that a bad event is a 'blessing in disguise.' Trust me, experience will teach you that some are unbelievably well disguised. Everyone gets fired, or decides to make a radical change at some point. Everyone suffers setbacks.
+- Only true love can fuel the hard work that awaits you.
+- I always imagined myself somehow as an electron around some atom, and you're just, like, bouncing around and spinning. There was a never-ending supply of places to go, people to see, things to do, and fitting it all in became kind of an art.
+- When I got fired, I had a feeling of loss because Viacom had been a passionate long-term relationship. But I got my balance back. I guess it's like getting jilted by a girlfriend, a serious girlfriend. You move on.
+- There's almost nothing that distracts you from your day-to-day problems more than a trip. You're totally consumed in the present, you've got new sense impressions, you've got all this stuff to digest.
+- I think online is a better platform. If you look at the metrics, if you look at the delivery system, if you look at social - all of the things that online can do - TV can't compete.
+- Sometimes I just like the feeling of being a minority and seeing how far you can push yourself in extreme circumstances.
+- Authenticity is really important, and sometimes that's really hard to get.
+- The skills you acquire can always be effectively redeployed. You will look back on setbacks and be grateful for the catalyst that came not a moment too soon.
+- A career path is rarely a path at all. A more interesting life is usual a more crooked, winding path of missteps, luck and vigorous work. It is almost always a clumsy balance between the things you try to make happen and the things that happen to you.

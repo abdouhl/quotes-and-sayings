@@ -1,0 +1,30 @@
++++
+author = "Tracy Kidder"
+title = "Tracy Kidder Quotes"
+quotes_len = "24"
+description = "the best 24 Tracy Kidder Quotes"
++++
+- What interests me is trying to catch the reflection of the human being on the page. I'm interested in how ordinary people live their lives.
+- Continuity is one of the things I like about New England.
+- I know that to write you have to have stories you want to tell. You have to keep your mind alive, and you have to work hard.
+- You do the right thing even if it makes you feel bad. The purpose of life is not to be happy but to be worthy of happiness.
+- If you live in the same small place long enough, something you don't like is bound to happen.
+- At first, I spend about four hours a day writing. Toward the end of a book, I spend up to 16 hours a day on it, because all I want to do is make it good and get it done.
+- Being a professional writer is not an easy way to make a living.
+- The combination of domesticity and wildness - that's a deep expression.
+- I always want to write something better than the last book.
+- I do believe that enduring geological features are important, though I don't think I can be clear about exactly why.
+- I think if the writing comes too easily, it shows - it's usually hard to read.
+- Paul Farmer has helped to build amazing health care system in one of the poorest areas of Haiti. He founded Partners in Health, which serves the destitute and the sick in many parts of the world from Haiti to Boston and from Russia to Peru.
+- In a very basic way, a prominent landmark such as Mt. Holyoke tells you where you are. They let you know that you're not the first person in a place.
+- If you had an essentially happy childhood, that tends to dwell with you.
+- What I like about non-fiction is that it covers such a huge territory. The best non-fiction is also creative.
+- The hardest thing was learning to write. I was 13, and the only writing I had done was for Social Studies. It consisted of copying passages right out of the encyclopedia.
+- I never planned on doing a book about Paul Farmer or his organization. I met him in Haiti when I was on a magazine assignment. It's almost like his story sort of fell in my lap.
+- People say you can't teach writing, but I think that's nonsense.
+- Things were here before you and will be here after you're gone. The geographic features, especially, give you a sense of your own place in the world and in time.
+- I wrote a novel about the combat experiences I didn't have in Vietnam.
+- I usually write about ordinary people and ordinary things, but Paul Farmer is the least ordinary person I've ever met... He's the leader of a small group of people who hope to cure a sick world, and I hope my book can help in some small way.
+- I want my prose to be as clear as a pane of glass.
+- When I select a topic, it's usually a commitment of two to three years of my life.
+- I tell beginning readers to read a lot and write a lot. If you want to write a book, find a subject that's really worth the time and effort you'll put in.

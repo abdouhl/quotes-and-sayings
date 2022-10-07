@@ -1,0 +1,30 @@
++++
+author = "Kim Woo-Bin"
+title = "Kim Woo-Bin Quotes"
+quotes_len = "24"
+description = "the best 24 Kim Woo-Bin Quotes"
++++
+- From the traditional point of view, I am not handsome.
+- My parents say to cherish the people around me, and I try to meet their satisfaction by maintaining a long relationship with people I meet.
+- I usually like listening to music that only have melodies and no lyrics.
+- I was a rather quiet student, studying hard. Once, I was ranked fifth in a school exam out of everyone in the same grade.
+- Outwardly, it might seem that I like to go out a lot, but I like quiet days at home more.
+- After I got popular, my company gave me a new car. It's not a personal car, but for schedule purposes. It's a little bigger than a Carnival. It even plays TV and DVD!
+- I have been a huge fan of G-Dragon for a long time, but I felt a bit hesitant to talk to him.
+- I should be careful to women, but I say, 'I love you,' a lot to my parents and people, whether they are men or women.
+- I really like unhealthy food, so I eat a lot of fast food. I also like Chinese.
+- I said I wanted to be a model when I was in middle school. Everyone close to me raised doubts except for my parents. My parents trusted me and gave me full support.
+- There are many things that only teenagers can do. Many things that they learn while they are teenagers will become important tools for them after they grow up, and I hope teenagers would make choices that they will not regret in the future.
+- There is a big dining table at In Sung hyung's house. That's our hangout spot, and we drink teas and chat.
+- I started studying acting to become a better model. But, in the course of doing so, I found myself feeling the same thrill and enthusiasm that I felt the first time I came to walk on the runway.
+- I used to fill my stomach with water because I didn't have money to pay for food.
+- Love always comes up to my mind when I think about my parents.
+- Before I started my modeling career at 20, I used to replay fashion show videos on-line and study how famous models walk and pose on runways.
+- I'm not a good singer.
+- I don't have high standards in taste; I prefer soju over wine.
+- I don't even sing in front of really close friends. It's embarrassing. I don't really sing when I'm alone, either. I just hum enjoyably.
+- I listen to songs that are usually on the music charts.
+- My favorite phrase is, 'God only gives struggles to people who can overcome it.' I saw it in a book, and it helped me out so much.
+- When people give me the choice to either sing or dance, I'd rather dance than sing.
+- When I first came to Seoul to start model work, I felt bad asking for financial support from my parents, so I lived in the sauna for about six months.
+- Expressing myself is one of my strengths.

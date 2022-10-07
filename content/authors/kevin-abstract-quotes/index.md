@@ -1,0 +1,70 @@
++++
+author = "Kevin Abstract"
+title = "Kevin Abstract Quotes"
+quotes_len = "64"
+description = "the best 64 Kevin Abstract Quotes"
++++
+- I want to give black kids a new superhero.
+- The way we like to make music is we'll announce a project when there are zero songs, and then we take that pressure and try to make an album really fast.
+- I wanted to blend in 'cause I knew I was different.
+- I'm never going to search for anyone's acceptance. I'm just going to be me, and people are eventually going to have to accept it.
+- There are no rules when I'm making stuff. That's why I'm glad I'm not signed. No one's telling me I got to drop this type of single or this video.
+- I just want to be Kevin Abstract and exist and help as many people as possible who are struggling with whatever they're struggling with.
+- It's always been my dream to come to L.A.
+- The underground always has the best ideas. Sometimes those underground artists transcend and make it to the mainstream, but most of the time, the big guys just steal from us.
+- I've never seen a boy band that had members who look like us - kids of color from all over the world - and met on the Internet.
+- When you mention Bieber, Lorde, One Direction, I want to be on that list. But at the same time, when you say Lil Uzi Vert, I want my name to pop up, too. I'm kinda in between both. I wanna bring them together and exist.
+- I don't want to be a queer icon. I want to be an icon.
+- I might not ever fully know who I am, but I also believe that I could be whoever I want, whenever I want.
+- I am everything Donald Trump is against.
+- It's OK to get your feelings hurt.
+- I really want to only put out three projects from Kevin Abstract as far as solo bodies of work.
+- I wrote 'Echo' a few months after moving out of my sister's apartment in Atlanta. I was 17 and just finished high school. I didn't go to prom and didn't walk the stage. I just dipped.
+- It's hard to accept the truth, especially about yourself.
+- No one in my family was creative. One of my sisters went to a university, and pretty much, most of my siblings live a basic and dull lifestyle.
+- I want to speak for people who can't speak; they're afraid to speak.
+- I know I'm not what everyone says I'm supposed to be. But I'm gonna say what I want, and this is me, and I'm gonna be American whether you like it or not.
+- Whatever we were saying in our music had to represent something and really stand for something. I just wanted to do something with purpose.
+- NWA was all-American; Wu-Tang was all-American. It was just a part of America you may not have seen at the time.
+- Ever since I was a little kid, I wanted to start a record label.
+- Money makes it easier to dream.
+- I never thought I could sing. I still don't.
+- Find people whose morals and vision align with yours, and follow that.
+- I'm just super into redefining things.
+- We just want people to feel something that they've never felt before. Or at least, something they haven't felt since they were little kids.
+- Everything feels better in London. And if my life feels better, then it's easier to make music.
+- I think it's awesome when you meet someone that can kind of just get you 110 percent, and no matter how long that lasts, you kind of just take it for what it is and embrace it.
+- I don't want to be that artist who's doing the teenage angst thing and draw it out my whole career.
+- I think the most important part of the teenage years is wondering.
+- As soon as I left Georgia, my narrative became about taking risks and the fight for creative bedroom artists with no platform.
+- I feel like I would have been able to be the creative I am anywhere in America just because I have access to the Internet.
+- People will tell you for years whatever you have to say isn't important at all. So when you have someone who breaks the mold and speaks up - and you see and identify with that - they become your hero.
+- I believe that self-discovery is an ongoing thing.
+- Hip hop's all about expression. That's why I got into it.
+- When you're bored, you get creative.
+- I always used to say, at the end of the day, I want Brockhampton to be like Paramount or something, and you don't really know who's behind it. You just think about Brockhampton and all the types of content we provide.
+- For some reason, being gay can be such a sad thing in media, so it's really cool to see someone like me who doesn't look like, I guess, the stereotypical gay guy.
+- I just always wanted to be part of something where I felt like I belonged.
+- I think cliche is a good thing sometimes.
+- We just want to uplift people, inspire people, and get people through their day.
+- I want kids to live through this character I've created. I want them to say that they are Kevin Abstract because they relate to it that much.
+- I don't really have a blueprint to follow besides watching interviews. Well, I guess the blueprint I do follow is Def Jam, in a way, just because it started in a small space, which is so similar to how we started.
+- I think we're always scared, but we have each other to lean on, so we're not being extremely vulnerable in front of the world by ourselves. We have each other.
+- I don't know what it is that I love so much about high school, but I'm attached. The empty hallways. The teachers. They made me feel so much.
+- I just wanted to have my own dynasty. I wanted my own Cash Money or Roc-A-Fella. Outside of that, I also wanted my own media company.
+- The biggest pop star in the world shouldn't be a boring white kid from Canada - the biggest pop star in the world should be a creative black kid from Texas that doesn't know how to come out to his family - that's a way more interesting story, and it gives a new type of kid some hope.
+- Most of the time, with artists like me who go on to become superstars, you never see them when they are still lost and trying to figure life out.
+- I'm always around creative people, and I'm trying to work on something constantly at all times.
+- Here's the thing: we don't write music for a universal statement; we just share our experiences. And that's all it is. It's always raw and very authentic.
+- In order to make a change, I have to exist in a traditionally homophobic space such as hip-hop. If I were to just be this queer rapper who only spoke to queer kids... I don't think I could as effectively make a change for another young, black, queer kid growing up in Texas.
+- I'm super inspired by Master P and early moguls. They were doing everything. I wanna do that, too. Twenty-six albums in one year. It's possible. Very possible.
+- I just want people to be able to put on 'American Boyfriend' and accept to not know. To not know anything about everything.
+- Having to deal with, like, family problems in front of the world is very difficult.
+- A lot of my music is about self-discovery because I focus on my teenage years.
+- We did what we wanted to do, made it work, and made our own rules - and the best art we could - along the way.
+- Social media is awesome because I can somewhat paint myself the way I want people to see me.
+- I won't have a standout moment until I perform at the VMAs, meet Ryan Gosling, and hug Sky Ferreira.
+- I figured it out at a young age: I could meet as many young people online and try to form my own family or my own record label group.
+- The Kevin Abstract project kind of represents being socially awkward in high school, which I'm low-key kind of tired of.
+- Me just existing and being myself is making change and making things easier for other young queer kids. I want to be me and express that and break new ground along the way.
+- I always wanted to make something that was bigger than me, that wasn't just one person.

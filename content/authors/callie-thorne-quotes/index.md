@@ -1,0 +1,18 @@
++++
+author = "Callie Thorne"
+title = "Callie Thorne Quotes"
+quotes_len = "12"
+description = "the best 12 Callie Thorne Quotes"
++++
+- Even though the third season of 'Necessary Roughness' was only ten episodes, they were an extremely intense bunch of episodes, especially toward the finale.
+- So, it's like: I'm an OK singer; I'm an OK guitar player and you put them together and... it's just OK.
+- The last season of 'Rescue Me' is going to be very sort of half and half: it's how you think 'Rescue Me' would end versus something very outside the box. And, they do it in this sort of perfect way - it's only nine episodes, you know. Very stream-lined.
+- I would love do a guest spot on 'Castle' because Nathan Fillion is so dreamy, and he and I are friends. And I think we could have a lot of fun.
+- I think that in any role you have, whether TV or film, it's hard to do comedy and drama within one story.
+- Whatever God or whatever higher power you believe in, they brought us to this earth in a perfect way, and you have to learn to love yourself. Otherwise, it's an exhausting way to be.
+- I've been watching 'Californication' since the pilot aired and had always thought that it would be so much fun to guest star on.
+- I would kill to be on 'Dexter,' and I would double kill to be on 'True Blood.' I would pay them to let me come be a vampire or a vampire victim. No joke!
+- I sang a lot in college - I was in a choral group in college. But, then, when I moved to New York, I really just concentrated on acting.
+- The thing I most connect with is the idea of not giving up. And that's a thing I have in my own life. You have to trust your instincts and keep trying.
+- I suffer from an amazing amount of insecurities, and I'm grateful that my body image, it's normally not something I pay attention to.
+- I do not know a lot about football. I guess I'm a Patriots fan because I'm from Boston? But I'm getting to know a lot more about it, and I'm finding it fascinating.

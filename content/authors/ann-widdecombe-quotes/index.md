@@ -1,0 +1,106 @@
++++
+author = "Ann Widdecombe"
+title = "Ann Widdecombe Quotes"
+quotes_len = "100"
+description = "the best 100 Ann Widdecombe Quotes"
++++
+- It is quite wrong that one group of people should regularly and deliberately flout the law, boast about it and get away with it.
+- I think a sense of family, of commitment to family, and of helping each other and standing by each other, are essential. I pity anyone who doesn't grow up with that.
+- I've never understood this business of 'I could always have had something more.' If what you had was good, then thanks be to God.
+- Cats are so wonderful because they're furry, purry and totally independent.
+- The first visit I made to Australia was in 1996 when I was the prisons' minister and was looking at other countries' penal systems.
+- Our knowledge of animals and their behaviour has come a long way. We can no longer justify imprisoning them, robbing them of everything that is natural and important to them and turning them into objects of ridicule for our amusement.
+- We have no blasphemy laws these days but with that freedom comes the responsibility which should always attend the exercise of free speech: truth, courtesy and an awareness of impact. It is the last of these which is so neglected by so much modern comedy.
+- The Arctic has huge glaciers, frozen waterfalls and floating ice. This is scenery on which man has left no mark, which has stayed unchanged for centuries, wild, bleak, hauntingly beautiful; it is a part of God's creation we have made no effort to tame.
+- It is a huge asset to law and order that serious or persistent criminals should be taken out of the society on which they prey. It makes life safer for the law-abiding and on the whole prisons are pretty good at containing those who have been committed to them.
+- I am not an enthusiast when it comes to cities, preferring rolling scenery, wildlife and stars to museums, monuments, architecture and traffic.
+- I can't hear rhythm.
+- If you'd said to me when I was 21, 'You're going to get into parliament, be a senior minister of state, shadow health secretary, shadow home secretary, a privy councillor, be endorsed by the Times as a candidate for Speaker, have four novels published, and then have great fun after you retire,' I'd have said, 'That sounds like a good life.'
+- I am so used to seeing a blond in the mirror that I forget that for most of my life I was very dark. Old photos are still a bit of a shock.
+- The Home Office is a vast department where business as usual means that something is going wrong and, given the nature of the business, the disasters rarely lack a high profile.
+- Strictly's strength is its appeal to all the family. The greatest compliment I was paid during my stint was from a lady at Paddington station who told me that every time the programme came on her four-year-old son would demand: 'Where's that granny, Mummy? I want the granny to win.'
+- The E.U. is terrified that we might become a competitor on its doorstep and that is exactly what we should be.
+- It is a fundamental principle of democracy that citizens obey the law or incur whatever penalty applies to its breaking.
+- After 23 years closeted at Westminster, where often all you can see out of the windows are other parliamentary buildings, I appreciate space, and I retired to Dartmoor to find it.
+- Everybody who talks about 'Strictly' talks psychobabble. They say they're going on a journey, or trying to build their confidence, or getting over a divorce or something. People say there must be a deep reason to do these things. But there isn't! I'm just having fun.
+- Usually my Easter reading consists of 'Who Moved the Stone?,' which gets dusted off annually and read, often in one sitting, to remind me of the miracle of redemption, resurrection and life after death.
+- We did it! Britain is no longer a member of the European Union. By 'we' I mean the 17.4 million Britons who voted Leave, Nigel Farage who fought for the cause for 25 years, Brexit Party MEPs, Tory Party members who were brave enough to desert their party in droves at the Euro-elections and, of course, the Daily Express.
+- Actors and entertainers can become parliamentarians, so why should parliamentarians not become entertainers and actors?
+- There is nothing like a long, breezy walk on Dartmoor to make me feel I have arrived in heaven. The beauty of creation is all around and I feel closer to the creator Himself.
+- I was still in parliament when the Labour government passed the Freedom of Information Act. As the then shadow home secretary I queried whether in some areas it did enough to open up the work of government to public scrutiny.
+- In my schooldays, I was Titch, Skinny and Freckles. These days, I answer to Karloff, Fatty or even Twiggy from my more sarcastic friends. If they called me Ann I should wonder what I had done to offend them.
+- If we deny our culture and become nothing and everything, that weakens us.
+- I shall not miss the hectoring and backbiting and the lack of generosity towards fallen foes, but I will miss the sheer clubability of parliament. If one fancies a coffee or a meal or a drink then it is always possible to find at least one person out of 646 whose company is congenial.
+- Marriage isn't about two people; it is the basis for the family. That's why it's unique, and therefore I think society can say we're keeping marriage for a man and a woman.
+- My detractors, who delight in using my name as a byword for unattractiveness, will find it hard to believe, but looking in the mirror is a pleasant experience.
+- I always said it was my ambition to have a library - I have one - and my dream was to have a pool. Then 'Strictly' came along.
+- Satisfaction is a major player in the happiness stakes.
+- Professionals use 'Strictly' as a relaunch of flagging careers. In my year Kara Tointon won. She had been talking about giving up acting in favour of interior design, but the glitter ball led to a role as Eliza Doolittle in the West End.
+- Men are easier to get on with than women. They tend not to make emotional demands on you.
+- I'd rather form my own party than ever join Ukip. We could call it the Widdy Mob. I'm joking.
+- All of us, whether public figures or private individuals, should feel safe in our own homes and not fear surveillance from nosy neighbours.
+- Secularism has no central goal, it's just promoting endless relativism. That's why there is a huge moral drift in the country. Everybody is infallible except the Pope, if you like.
+- History is not merely a procession of people in fancy dress fighting wars. It is crucially the story of man's evolution from grunting cave dweller to serious thinker, from cruelly retributive law to merciful law, from casual barbarism to care and compassion.
+- I don't have a problem with other people having different faith; my problem is if we confuse respecting that with surrendering our own faith.
+- My father was in the admiralty and he rose to a very senior position. He was very formidable; a bit grumpy, but I loved him dearly.
+- In the 1990s, while the Maastricht debate was raging, I was a minister in the Major government. Every single piece of legislation we proposed had to be scrutinised for compatibility with E.U. law.
+- It's not a question of being out of touch or traditional. It's a question of wanting to preserve marriage as uniquely between a man and a woman. Gays get full civil rights with civil partnerships anyway.
+- Never judge something by whether it is popular or not. You don't have to follow trends. No one thought William Wilberforce was right at first.
+- I am not normally a fan of organised tours: few public figures are, feeling themselves objects of constant curiosity.
+- Almost anybody from the past will hold views discordant with the present.
+- The political classes are despised when they deal in sound bites, embrace tokenistic campaigns and feather their own nests while trying to please all of the people all of the time.
+- Believing in God was something I took as much for granted as the air I breathed. Religion wasn't something that came out of a box on Sunday.
+- Happiness is best defined by its antonym, which is less 'unhappiness' than 'anxiety.' Anyone who is not oppressed by intolerable worry or grievous pain is almost certainly happy, whether rich or poor, well or ill, successful or frustrated.
+- Insult is in the ear of the listener. Statements of fact cannot be insulting unless you feel that the label applied indicates some failing, moral or otherwise, in yourself.
+- Not even the severest critics of Jeffrey Archer can deny his style.
+- Commerce and politics do not go with royalty, full stop.
+- Of course Meghan Markle wasn't driven out of this country by racism. It is a ludicrous claim and symptomatic of how ridiculous the must-be-offended-at-all-costs brigade has become.
+- That's the joy of retirement - you're not trying to develop a career any more.
+- For most of my political life I was not ecstatic but I was happy because I had huge confidence in the causes I espoused and the work I was doing. Even under extreme pressure I was satisfied that I was fighting a good fight.
+- I left the Church of England because there was a huge bundle of straw. The ordination of women was the last straw, but it was only one of many. For years I had been disillusioned by the Church of England's compromising on everything. The Catholic Church doesn't care if something is unpopular.
+- Hindsight is a wonderful thing.
+- The child in the womb has no voice but Parliament's. Many MPs who voted for the 1967 Act did not think they were abandoning the unborn because they were fooled by the supposed safeguards. Now we know just how ineffective those safeguards are.
+- Great political leaders risk unpopularity, patiently explain their case and confront prejudice, bigotry and vested interests.
+- The regime in too many prisons is one of idleness, and locking up someone from such a background in idleness virtually guarantees re-offending. Instead there needs to be a full day's work every weekday in either the workshops or the education department or preferably a mixture of both.
+- It is a truth universally unacknowledged at Westminster that there is life after politics.
+- Cats, unlike dogs, are independent creatures. They do not need walking and are content to be alone all day, providing they are fed.
+- One of my best moments was getting a constituent out of jail in Morocco, by which of course I mean I got him released not that I sprung him.
+- Some of the finest comedies have chosen the Church as its subject and would indeed make most Christians laugh, give or take the occasional wince as a barb goes home. I have very fond memories of 'Our Man at St Marks' and long for the day when it is released on DVD but I won't hold my breath.
+- I don't analyse myself.
+- On the whole, my disposition is to say yes, unless I've got good reason to say no, and I think that's being in public life.
+- I suspect my own journey to Brexit has closely followed that of Britain's. I had doubts, then I decided we should stay in, then I had very serious doubts as our island began to sink under a tide of regulations and our government lost control of the immigration system.
+- We need less political correctness and more political courage.
+- Some books are like an hors d'oeuvre - light, tasty and leaving you longing for the main course which is never going to come - and some are like Christmas lunch immediately after a cooked breakfast.
+- If I were queen for a day, every city would have to spend one hour in utter silence: no music in shops and restaurants, no honking of horns, no conversations on mobile phones. Only birds would be allowed to sing.
+- People wanted to protest, and Ukip's a conduit for that.
+- If any further proof were needed that the Liberal Democrats live up to neither part of their name, then the treatment of Roman Catholic Robert Flello would have provided it. They were glad enough to have him when he defected from Labour but have now deselected him because he supports neither abortion nor gay marriage.
+- The Royal Opera House? I once had the immense privilege of appearing there and was awed by the air of refinement of those seemingly ethereal beings who floated about in the highest echelons of musical accomplishment, effortlessly producing virtuoso performances in several different languages.
+- The postcode lottery means that the level of care you get differs hugely around the country, and the health service simply cannot meet every demand that is put upon it.
+- I do not mind if a PM or leader of the opposition is single but if he or she chooses to dispense with marriage despite living with someone and having children, then I think that shows a contempt for marriage which sends an unfortunate message.
+- I am not a natural dancer, not even a half way competent dancer.
+- If someone calls you fat and you are fat, then it will be hurtful only if you feel you should not be fat.
+- Parliament was an institution of enormous standing when I was aspiring to go in. It isn't now.
+- I am toothy, dumpy, ugly, overweight, a spinster - what the hell?
+- The state does not belong in bedrooms. So I'm not authoritarian. I don't say: 'You shouldn't do this, you must do that.' What I do say is that the state must have a preferred model, and the model that has served us throughout the millennia is marriage - a man and a woman in a union that is generally open to procreation.
+- Cats are ideal for politicians. I had two when I arrived at Westminster, Sooty and Sweep, who had come with a flat I had bought six years earlier in Fulham from someone who was about to go abroad. There was a better offer ahead of me but she took mine because I would take the cats.
+- Unfortunately, if the man who leaves the prison gates is just as likely or - as is sometimes grievously the case - more likely to offend as he was when he entered them, then we fail not only the individual but public safety as well.
+- Gentle mockery or sharp satire aimed at Christians and their leaders have been replaced by abuse of Christianity itself.
+- I am a Conservative: I'm never going to be anything else.
+- Mice are everywhere at Westminster but many MPs, including me, did not report them because we were afraid of their possible fate.
+- I have always believed prison can be very, very good for you but not by the act of deprivation of liberty alone. There has to be more to life inside than that.
+- Our state ceremonies have a religious foundation. We have compulsory religious education. And the Church should be a moral guardian. We have in this country a long Christian heritage and Christian culture and we shouldn't be in too much of a hurry to give that up.
+- An MP is an MP whether male or female.
+- Britain must govern Britain and nothing less will do.
+- Having served as a member of parliament for more than two decades, I'm well aware that there can be genuine constraints that affect the speed at which certain issues progress.
+- Car horns were invented to warn other drivers of your presence, not to express displeasure or greetings.
+- My mother always said bringing me up was a tiring business, which I 'believe. For instance, when we lived in Singapore, the Chinese staff used to leave their slippers at the bottom of the steps. Every night, I used to go and remove their slippers. I stopped being tiresome at about 14.
+- Everything I did in politics affected somebody.
+- I am a passionate opponent of fox hunting because the fox runs in fear of its life over a prolonged period, hearing the hounds getting closer and closer. Barbarous does not even begin to describe such a sport.
+- Example and general milieu, once considered so important in the nurture of children, are sacrificed on the altars of the false god we call free choice but which imprisons us all in a collective moral paralysis and delivers an anarchy that the State itself shrinks from challenging.
+- Well, I spent 23 years in politics, and bits of that were fun.
+- The modern notion of background music is a loud thump, thump, thump. It isn't only conversation it kills but also concentration.
+- It would be nonsense to try to suggest that somebody who tried to rouse 2,000 people to their feet - which is what I used to do at conference - doesn't have any element of exhibitionism about them.
+- In 1999 my father died and my mother was coming to live with me. So I left my Kennington flat and bought a house with a garden because my mother loved watching the birds.
+- Always carry a handkerchief. Especially in television studios.
+- Stand-up comics tend to make two assumptions: that Christians have no sense of humour and that all their audiences are unbelievers.
+- What I do not like is militant secularism, whereby anything is acceptable as long as it's not Christian.

@@ -1,0 +1,60 @@
++++
+author = "Kevin Mccloud"
+title = "Kevin Mccloud Quotes"
+quotes_len = "54"
+description = "the best 54 Kevin Mccloud Quotes"
++++
+- Building design isn't trendy.
+- There's no reason for your imagination to be fettered by money.
+- Building a house from scratch in the middle of a field is a bit like building a prototype car. As with all prototypes, if you're building a car you usually have the luxury of producing several prototypes before you arrive at the production line version - so the opportunity for changing things is quite rich.
+- The more of your private life you put into the public domain, the smaller your private life becomes.
+- Generally speaking, I think that if you do anything with commitment and passion, it will come good.
+- I'm terrified of being poor, I always have been. It's growing up as a Methodist. I'll spend that bit of extra money to get a better seat on a train sometimes, because it's quieter and calmer, but I refuse to spend money on clothes.
+- People have got to get over the fear of not being able to trust others. I come across people who are very successful in their own sphere, and really believe they can do it all themselves, but they can't.
+- My favourite authors include Trollope and Dickens.
+- I spend a frightening amount of money on books.
+- I like the absurd and the surreal: the Coen brothers, Bunuel, Kubrick.
+- Building your own house is a primal urge, one of those universal genetic drives like the need to provide for your family.
+- I'm terribly fastidious. I like symmetry and neatness, but my house is as chaotic as any other family's.
+- If you said to me, 'Lie down on that concrete floor and fall asleep,' I could do it. I can sleep anywhere at any time of day on any surface.
+- What happened in 2008 stopped people in their tracks. People stopped looking at their homes simply as commodities to exploit and starting thinking about how they might personalise that space and make them less bland and more autobiographical, and that's healthy, I think.
+- I've had my fair share of colds, which last longer than they should and can cause wheezing, so I avoid people who are sneezing like the plague and am scrupulous about hygiene and hand-washing.
+- You cannot use the democratic process for the procurement of excellence.
+- As a property developer, I learned a long time ago to choose your battles wisely and that, unfortunately, compromise is a given.
+- I hate negativity. I hate people who say the phrase 'I hate'. I really don't like the word 'hate.' Dislike, frightened of, terrified of, or yukky - but not 'hate.'
+- I admire anyone that follows the road less travelled.
+- I've forgiven all my enemies - even those who have stolen money from me.
+- I don't enjoy living in a white box flooded with light. I like shadows, small spaces, old furniture.
+- It's possible to be satisfied with a day's work or a cake, but a life... what is a life but a history of events badly remembered?
+- Your home should be about enriching the daily experience.
+- Living an environmentally responsible lifestyle can seem like a Scrooge-like list of don'ts. Don't take that flight, don't buy that car, don't eat those blueberries flown in from somewhere far-flung.
+- I don't want anything that I buy to have done any harm to anyone or anything.
+- I cannot look at modern buildings without thinking of historical ones.
+- My father, an engineer, was the gentlest man I knew.
+- I'm driven by issues, not driven to be political.
+- Luckily I have never missed a day's filming or work due to asthma.
+- I've got a farm in Somerset, and I think it's God's own country. I love it.
+- I am a big fan of long drop, composting toilets - I like the cycle of using waste. When you have experienced one and seen what comes out of the bottom, it is amazing stuff. It's the most beautiful, driest, sweet-smelling compost.
+- I'm really quite conscious of clothes and the way they fit and don't regret wearing anything. Not even the five-inch stack heels I wore with three-button high-waisters at comprehensive school. Regret is for wimps.
+- A friend of mine once wrote a silly article about all these metrosexuals like David Beckham wearing sarongs, and she described me as a 'heteropolitan.' I don't know what that means. I think it was a joke.
+- We are borrowing money from future generations. We are borrowing the carbon impact, the resource impact from future generations to get stuff cheap now. We have swept the dirt and dust from our society under the carpet - but this carpet is on other side of the planet.
+- Life involves other people and it is a compromise.
+- Because I live in the countryside, I want a building which encourages me to have a fully formed relationship with the environment. It gives me an opportunity to not just be inside or outside, but in a range of contexts.
+- I've got lots of friends who are musicians, and there is a fair proportion of broken marriages and relationships as a result. You are on the move all the time. It's difficult if you have kids, and it's hard to make money unless you are in the premier league.
+- Self-builders are the adrenalin junkies of the DIY world; it's the equivalent of base-jumping off the top of the Gherkin to land in a paddling pool.
+- Architecture was pretty much the sexiest thing to be doing from 1700-1800.
+- The thing that I champion is sustainability. My terror is that suddenly we see it as a luxury, not an essential. That's a danger.
+- A great deal of energy is wasted in hating people, and I can honestly say I've no wish to expend such a precious resource on being outraged about anyone.
+- Every decently-made object, from a house to a lamp post to a bridge, spoon or egg cup, is not just a piece of 'stuff' but a physical embodiment of human energy, testimony to the magical ability of our species to take raw materials and turn them into things of use, value and beauty.
+- I don't look at what people do with their homes in terms of money, but the social and personal value of what they're trying to do and achieve.
+- If I welcomed people into my lovely home every week in the pages of a magazine, they'd soon see how incredibly dull it is. It's important to maintain a bit of mystique.
+- There's nothing you can do about busted ribs. You just have to wait for them to pop back into place again.
+- When I left university, I idled around without focus for much too long.
+- I was never a hugely successful theatre designer. I painted a lot of scenery and did the lighting, and my lighting business grew out of that.
+- I don't know whether other asthma sufferers find this, but I've noticed that even when I've got my asthma under control, I often develop another problem such as an ear, chest or sinus infection and sometimes even joint pains.
+- Building your own home is about desire, fantasy. But it's achievable; anyone can do it.
+- Every breath we take as human beings damages the planet.
+- I'm not too fond of really cool design. I've got quite kitsch taste really, in things like tableware. I'm quite a sucker for 1930s pressed glass.
+- I'm quite shy. Television presents an amplified version of yourself. When I'm on camera I'm pumping more adrenaline, I'm being a bit more engaging than I am in everyday conversation, but that's normal, isn't it? Otherwise nobody would want to watch.
+- One mustn't mistake bling for excellence, just as one mustn't mistake quiet for mediocre.
+- I have a recurring nightmare that I wake up in a gutter with nothing. I've had it all my life. That's why I work, I think.

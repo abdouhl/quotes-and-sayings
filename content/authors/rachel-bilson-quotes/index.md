@@ -1,0 +1,56 @@
++++
+author = "Rachel Bilson"
+title = "Rachel Bilson Quotes"
+quotes_len = "50"
+description = "the best 50 Rachel Bilson Quotes"
++++
+- I think beauty comes from within, and society paints a ridiculous picture.
+- I know this sounds terribly shallow, but I've been mapping out my outfits for the next day every day since I was little, even before high school.
+- Hash browns are my favorite breakfast food.
+- I've been in relationships where we've said 'I love you' after two weeks.
+- I love romantic comedies, or romantic dramas - basically anything with love in it.
+- My guilty pleasure is Flamin' Hot Cheetos.
+- That's a rule in the business. No tongue. You can't really get into it, otherwise, it's weird. I think that particular scene made his (Adam Brody) girlfriend jealous. There were issues.
+- I can hang out with all my boyfriend's friends. I know how to roll with the guys.
+- Guys are so visual.
+- When a guy can make fun of you, thats attractive. Who knew that teasing could have so much power over women!
+- I secretly want to be a rapper!
+- My daily beauty regimen consists of washing my face before bed and putting on moisturizer.
+- I like to be comfortable, and don't like to be cold, and I don't like to wear anything I'm not in the mood for.
+- I'm actually not on Twitter.
+- A few years ago I was at a party and this guy threw me over his shoulder, ran across the street, put me in his car, and stuck his tongue in my mouth.
+- I love corduroys, because they are really comfy and they're cozier than jeans. They come in nice autumn hues - colors that you can have fun with.
+- Leather accents on pieces make it fun and spices up an outfit.
+- The more aware a man is of a woman's body, the better. He needs to know he has to tend to a woman. She might not always return the favor, but a man always has to tend to a woman first.
+- I like everything European. Even my GPS has a British accent - it's way less annoying than the American one.
+- Y'know what? This is what I go by: It doesn't matter how good-looking a guy is, it just depends on his personality. If a guy can make you laugh and make fun of you, then that's what would win me over. So, yeah.
+- I don't do the super-clean-living L.A. thing.
+- I envy the sensibility in Europe, appreciating beauty in women as they age. I'm going to go that way. I might dye my gray hair for a bit, but beyond that the buck stops. I'm not having any work done.
+- I've always loved fashion.
+- Dating co-stars is natural. When you're working with someone, it's habit.
+- I've been in so many love triangles on TV and in real life.
+- It's important not to ditch your mates when you're in a relationship. Lots of girls do it, but you need to remember they will always be there for you.
+- You've got to use your celebrity for good stuff, not evil. I think it's lame when people act as if they're better than everyone!
+- I definitely have family on the brain.
+- My quick beauty tip is always have a tinted gloss of some kind to give you some color even if you have no makeup on.
+- Having kids is something I want to see in my future - I hope.
+- I just really love being in my pajamas.
+- I love shorts in the colder climates, because you can wear them with chunky sweaters and jackets. It's cute and funky.
+- All I can say is, I don't talk about the personal stuff. It's the one thing you can keep to yourself. At least you try to.
+- I love cooking and baking.
+- I hate being too pretty.
+- I'm attracted to mysterious men. Every woman can relate to that, right?
+- Love shouldn't play by the rules. It's all about chemistry.
+- I know I look super young.
+- I'm the fourth generation to be in show business. It's pretty neat; it's nice to have that family history.
+- You can tell a lot about a person from his underwear.
+- I'm into menswear slacks that are comfortable.
+- My unusual beauty tip is that I often use Vaseline to take my make up off. It works great and is good for sensitive skin.
+- I like a man who can build things. Whittle me something out of wood and I'm sold.
+- I don't mind being the center of attention as a character but in real life it's not for me.
+- I know of my sex appeal. I know about sexuality, and I know how to use it - tastefully, of course.
+- All of my friends, I consider childhood friends because we met when I was probably 13, and I'm still friends with them today. It's really nice that I have that core group.
+- I'm not sure if I want to continue to work when I have kids.
+- I love candy!
+- My favorite albumn ever is Jeff Buckley's GRACE. I feel a weird unexplainable connection to him.
+- I'm not into the gym. I prefer dancing or tennis.

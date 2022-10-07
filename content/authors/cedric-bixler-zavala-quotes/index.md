@@ -1,0 +1,72 @@
++++
+author = "Cedric Bixler-Zavala"
+title = "Cedric Bixler-Zavala Quotes"
+quotes_len = "66"
+description = "the best 66 Cedric Bixler-Zavala Quotes"
++++
+- I'm a huge Tchad Blake fan.
+- I like to think I take care of my body a little bit more, I'm not screaming as much.
+- I want to be known as someone who grew up a little.
+- I'd hate to think that the stereotypical American is someone who just says 'Hi - bye' in conversation. That's how Europeans see us. And I'd like to think that not all of us are like that.
+- The kid in me has ADD.
+- I had 8-tracks when I was a kid.
+- It makes us feel normal when people think we're being too arty or whatever.
+- It's hard to turn my internal dialogue off from that character I become.
+- To me, prog-rock is ELP. And for me personally, that stuff is really boring.
+- I gravitated towards Jim Ward, because I knew he was totally into the work aspect of being in a band.
+- Our music would probably be a really dark ocean, so you may not know where you are. It's not so literal. It's like a David Lynch movie.
+- There's this whole list of old personalities that I can act, as corny as that sounds, or as method actor as that sounds.
+- When you're just a breath away from North Korea, it boggles your mind that that exists, or that something like the Khmer Rouge ever existed. You wonder how we allow that to happen as human beings; how we allow the human condition to get so depraved and desperate.
+- Most people like to backpack through Europe; I think the States is big enough for you to have an adventure in.
+- We all turn into something different, I'm just glad that I'm aware that I've had this alter ego since I was five years old and thankfully it hasn't got me into too much trouble.
+- Rock bands are not exactly magnets of functional people.
+- At the Drive-In was very meat and potatoes - a one-trick pony. Everyone was attracted to us because we put on a good live show.
+- Who is anyone to say who doesn't deserve to come to this country? I'm a mutt, we're all mutts. Immigrants from whatever country are humans, we have to help each other.
+- To be involved in the subculture of punk rock puts you in a minority.
+- That romantic notion of a band being a total democracy is just like lying to yourself in the mirror.
+- You know Bad News, 'The Young Ones?' I learned not to spend a buttload of money on a sixth member.
+- I'm a video store guy. I like thumbing through things and holding them.
+- The story of my life is the Chicano experience personified.
+- But although I appreciate our audience, we don't do things for them. It's all for us - we play really self-indulgent music.
+- Mars Volta was always about embracing what 'too much' was and the excess of it. I never thought there would be an audience for it.
+- At The Drive In came out in a period of time when Stereophonics and Limp Bizkit were huge. And there was this dark grey void - I'm not saying we filled it - but we were just a different colour at the time.
+- Growing up, everyone around me in El Paso, Texas, was all about watching 'The Wall' and, you know, 'Money' and 'Dark Side of the Moon,' which are fantastic records, of course.
+- I had foot problems, and I ended up having to get surgery.
+- If I speak my version of Spanish in Spain, they laugh. Same with Mexico. It's an alien world to me.
+- Paranoia can be such a powerful hallucinogen if you're not careful - but it's great to kind of recognize it as that.
+- I have definitely had a big impactful change since 2010, and it's rough to look in the mirror, but it's such an important thing to do that.
+- Growing up, I learned the value of sticking up for my brown-skinned friends amongst my white-skinned friends.
+- The only time we actually even think about our music is in interviews. We have to explain why we do what we do, even though it seems pointless to us to explain it. The rest of the time we just do what we do and don't worry about it.
+- It's great to just keep going and throw new stuff out there.
+- I constantly ask why one of my kids has the tantrums that he does, and it's not because he sees videos of me acting like that onstage but because we're bound by blood.
+- I personally never trusted the audience.
+- You come to a point in your life where you don't want to just keep repeating yourself.
+- I have cancelled shows before for knowing full well that my heart was not in it at that moment. Why? Because its an insult to the audience.
+- I think other people's interpretations of what I've written are a lot better than what I have, because I don't understand a lot of what I write.
+- I do have a sense of spirituality.
+- You want to embrace what the idea of pop music is. Not necessarily the stereotype of pop music; there was a time when you'd say 'pop music' and conjure up images of the Sweet, or Marc Bolan. That, to me, can be avant-garde still.
+- To me, religion is the reason there is so much conflict in this world, and I think it's just so unnecessary to believe in this blue-eyed, white-bearded, white-haired God.
+- Sometimes 'Frances' can be about finding the missing piece, trying to look for biological family as opposed to maybe realizing your family is whoever is around you at the time.
+- In my high school the Mexican cowboys, the chilangos and rancheros, didn't like the punk rockers.
+- I would feel weird if I wasn't able to be longwinded, or have information-overload on our songs.
+- The 20-year-old version of me had all this energy, and wanted to be obnoxious with his art and wanted to communicate even though he didn't know what he wanted to communicate.
+- I wanted to be Paul Stanley or Gene Simmons.
+- You don't understand what you're angry about as a young man. You have those young man blues.
+- We have the ability to attract and repel at the same time, which I think you should embrace. Otherwise, you're just going to be, like, this Neil Diamond act.
+- I've still got a lot of tantrums to throw.
+- I think that's what propelled our band, the fact that we put on something that was visibly attractive to people and then maybe the music comes later. I don't know what it is that people really like about us but that's part of the equation.
+- Amputechture' is my personal way of describing enlightenment, or just the celebration of this person who is a shaman and not a crazy person.
+- I've said this many times: Rock 'n' roll is this magnet for dysfunctional people who only know how to communicate through the medium of a live show.
+- It's only a matter of time before machinery becomes sentient. It's going to happen because we're already slaves to all of it.
+- Rock 'n' roll says, 'Hey, man, this is where you can be normal,' and then after a while you grow up and you go, 'Wait a minute. Oh, by the way, I learned how to do these cool things, but I never learned how to speak my mind. I never learned how to express myself emotionally. I should have been paying attention more.'
+- But if you work in the rock industry, you should realize that the most important bands are the troublemakers.
+- All I can do is move forward with my music and just be happy that Mars Volta ever happened at all.
+- It's too bad that the idea of witchcraft and sorcery is a taboo subject matter.
+- It all started in a local park in El Paso called Madeleine Park. At a ditch, a very small ditch, that everybody used to go skateboarding in. It was me and Jim Ward and an acoustic guitar. He and I constructed the very first phases of At The Drive In.
+- It's inspiring to see Black Flag looking like Vietnamese farmers with big beards and those kind of Vietnamese farming hats showing up at a Mohawk-mania club in England and being spat at because they don't sound or look like Exploited; they sound more like Black Sabbath than Black Flag. I love that.
+- As corny as it sounds, and not to sound like a hippie, I think there are these spirit forces in nature, and we have to be careful not to offend them.
+- I think a lot of people could do with buying a Flying Burrito Brothers record - it does wonders for you.
+- 'Goliath' is about nine, 10 minutes long, and the end of it is so interesting, we didn't really want it to be used as a single.
+- I was in dire need of a band that was serious about getting out of El Paso.
+- In the information age, you can study all you want and discover the past in order to rediscover the future.
+- I've come to realize that at the end of the day, it's only you yourself that creativity comes from.

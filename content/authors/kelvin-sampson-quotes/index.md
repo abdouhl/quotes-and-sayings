@@ -1,0 +1,106 @@
++++
+author = "Kelvin Sampson"
+title = "Kelvin Sampson Quotes"
+quotes_len = "100"
+description = "the best 100 Kelvin Sampson Quotes"
++++
+- I was not real good at anything. I was just OK at everything.
+- My dad has always been my role model.
+- I learned quickly in the NBA that you keep one eye open at all times and one ear closed. You can't react to everything you hear or see.
+- When I was at Oklahoma, I always felt like I had to control the game because we didn't have great scorers. So, I had to figure a way to win.
+- I just coach my team. I just focus on coaching my team.
+- My heading was NBA head coach. I didn't want to be back in college for a lot of reasons.
+- With federal recognition, the Lumbee Tribe would become a full player in Indian country, no longer second class Indians in the eyes of the federal government. As such, we would employ our substantial skills and abilities to help correct problems faced by Indian country and make significant contributions.
+- Dreams do come true.
+- I didn't realize the difference between coaching college and coaching the NBA. It's a totally different animal.
+- You just have to be secure and understand what your beliefs are and how determined you are.
+- The one thing that young coaches should do is if there is an NBA team in your area, get to training camp and see the coaching that goes on.
+- Washington State was a tough recruiting spot.
+- Any time you work with your son, it's special.
+- When you decide to go into coaching, obviously you don't forget why. That's to help develop young people, help them chase their dreams, help them reach their goals.
+- If you are an Oklahoma football fan, you have one of the best football programs in the nation.
+- I have never intentionally provided false and misleading information to the NCAA.
+- I came to Indiana for one reason: I think you can win championships at Indiana.
+- Coaching is competitively addictive. It just gets in your blood, especially if you win.
+- There are incredible decisions made in a 48-minute game with a 24-second shot clock and the last two minutes of a game.
+- I've always been a goal-oriented person.
+- I didn't want to end my coaching career as an assistant in the NBA.
+- I learned a lot in the NBA.
+- Sometimes players just take a little while to develop.
+- Getting to the NBA really helped me personally on a lot of levels. I liked it so much that I wanted to stay there.
+- You coach at a have-not school, and you have to have a competitiveness and a resolve and resiliency about you that's different, or you'll never make it. You've got to find a way to do more with less.
+- I've had kind of a nondescript college career.
+- What's an easier way to say 'bad?' Let's go with 'abysmal.'
+- In this business, a lot of coaches are running around thinking they're the reason their teams are winning.
+- I like that there is a lot of work to be done.
+- I loved the NBA. I really did.
+- When I first got to Oklahoma, it was really a blessing that coach Sutton was at Oklahoma State. He made me a better coach.
+- In my formative years, when I was a little kid, I'd get out of elementary school, and because my mother worked as a nurse, I'd have to find a way to get a ride to the high school and watch my dad's team practice.
+- You remember all your teachers.
+- The people who know me, know me. Those are the only ones I worry about.
+- There's some things assistant coaches aren't ready to do. They're not the head coach.
+- Indiana basketball is bigger than one person.
+- Leaving Oklahoma for Illinois is not the no-brainer some think it is.
+- Being Native American, we were different than everybody else, but I never felt like I was different.
+- I don't think I was a good enough coach to help an NBA team win a game when I first got to that league.
+- The reason you get into coaching in the first place is to help and develop, try to make people better.
+- We have the wrong people chasing Osama bin Laden. It ought to be athletic directors and reporters. They'll find you.
+- The most important thing in the world to me is my faith and my family.
+- It's a big deal to get to the NCAA Tournament.
+- I'm really proud of what we are building at the University of Houston, and hope I spend the rest of my career here.
+- Pembroke is my foundation. Everything that I've become is because of those people.
+- I was comfortable in Pullman; I really was.
+- I've been taking off my tie for a lot of years. When I take it off, I usually throw it down.
+- Nobody believed in us. Everybody made fun of Houston basketball. I can't say I blamed 'em.
+- One of the first things people think of when they think of Native Americans is reservations. We didn't have any idea what that was. We were just young kids growing up in normal blue-collar America.
+- One of the things I enjoy most about what I do is I can give my father joy.
+- No one would have ever thought College GameDay would be coming to the University of Houston, I know that.
+- Teams that just play on one side of the floor are going to struggle against defenses that load up on that side.
+- My main influence was my father. He was a great high school coach. I thought one day, if I got lucky, I could be a head high school coach.
+- Sometimes Kellen calls me 'Coach.' Sometimes he calls me 'Pops.'
+- I'm 50 years old and been a college coach for 23 years, but after 12 years, no matter where you are, there are ups and downs.
+- My personality is more like my mother's. She was fiery. She had more of a temper. I always thought she had enough determination that she could do anything. She could fix anything. I think all children need that feeling from their parents.
+- The tobacco markets I worked in were segregated. If you went to the bathroom, there was 'White,' there was 'Colored,' and there was 'Other.' I grew up in that.
+- As an outsider, when you think of Indiana, you think about a place that not only has championships but a championship tradition.
+- One of the ways to use your depth is to play with speed.
+- My dad was a high school coach for 30-plus years in North Carolina, and he was inducted into the North Carolina High School Coaches Hall of Fame. He's the best coach I've known, in every way, all the way around - relationships, motivation, going the extra mile, always putting his kids first and foremost.
+- I never thought the NCAA violations for the phone call would ever rise to the level it did.
+- When I left college ball, I think I was prepared to coach a team, but I don't think I was prepared to help the team win.
+- Scott Skiles was a master tactician - they're all masters, but he is elite. He knew how to manipulate his team from an X's-and-O's standpoint.
+- You're not a loser in anything until you quit. Don't quit.
+- Little old University of Houston jumping up, swinging with the big boys, and that's something to take pride in. I'm happy for our fans, I'm happy for our alumni, but more importantly, I'm happy for our players.
+- I liked coaching in an underdog situation.
+- I have made the very difficult decision to leave my position as head coach of the men's basketball team at Indiana University.
+- Karen is as good a coach's wife as I've ever been around, and she's better than most. She loves basketball and has a great understanding of my responsibilities, my possession.
+- Kevin McHale was a master communicator and knows how to coach stars, and that's a unique gift because you take an old-school guy that's used to coaching his way, he'd have a hard time coaching them cats now, but Kevin knows how, and he has the patience of Job.
+- The bad teams in our league are the ones who don't pass the ball well.
+- I've had teams where we've had to get on a bus for 200 miles, play a game, and then drive 200 miles back.
+- The most overrated thing is that you're a good defensive team because of your coaching. No. You're a good defensive team because you care and because it's important to you.
+- The coaching community is really tight-knit.
+- Iowa State's a great team; I know how tough they are in Ames.
+- There were a lot of things that happened at Indiana that I was proud of.
+- The one thing about Lumbee people is that there's so many stereotypes about Native Americans, especially reservation Native Americans, and we all tend to get lumped under that umbrella. But the Lumbee are non-reservation. I grew up no different than anybody would in normal American communities.
+- I learned to be more flexible offensively, to not talk as much in practice.
+- Guys like Andre Miller and Kevin Garnett - they're posting up hoping a second guy will run at them so they can pass. You're better just playing one-on-one in the post if you can.
+- When I was at Oklahoma, I didn't think it could get any bigger than that.
+- I had to take care of my family. That was my No. 1 goal.
+- Sometimes the harder you work, the more likely you are to maybe break a rule.
+- Scott Skiles is one of the best coaches in the NBA, someone I observe and learn from on a day-to-day basis.
+- You don't want to get stuck playing 40 minutes a game with your small lineup.
+- In basketball, there are no trap games. If you walk out on that court and lose a game, it's because the other team beat you. You played poorly. But there's no trap game.
+- Some guys have all this talent, and you wonder why they can't put it all together. Well, they don't do any of the little things.
+- The thing that surprised me is you hear a lot about NBA guys, do they really want to be coached? My experience is they really do want to be coached. They want a plan: 'How are we going to win the game?' And they'll follow that plan.
+- Racism was a big part of our community. I'm not going to revisit history, and I'm not going to call out those communities, but the communities we grew up around, we were treated like second- or third-class citizens.
+- The University of Houston is a program that should have national relevance.
+- You choose who you want to be.
+- I always talk about my dad because he was a coach, and I became a coach.
+- It was never my intent to come back to college.
+- I don't think the fans pull for or against a coach.
+- Tim is old school. He plays that way. That's why a lot of fans identify more with a Tim Heskett than with someone who is more dynamic. The more dynamic guy might be more pleasing to the eye, but he doesn't contribute any more to his team winning than Tim does.
+- Coaching is what I love to do, and I think I'm pretty good at it.
+- My father had four jobs every summer. He taught driver's education. He sold World Book Encyclopedias. He sold life insurance. He worked the tobacco market. From the time I was really, really small, I went with him. Obviously, I didn't get paid.
+- Tough teams win when the shots are not going.
+- All I wanted to do is coach in the NBA. I didn't want anything to do with college basketball.
+- I used to think 63 was old.
+- I'm saying when young men get to the NCAA Tournament, let's find a way to get their parents and their brothers and sisters a plane ticket and a hotel room. I don't think that's asking too much.
+- I always coached mostly the have-not schools.

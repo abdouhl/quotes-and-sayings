@@ -1,0 +1,87 @@
++++
+author = "Lauren Bacall"
+title = "Lauren Bacall Quotes"
+quotes_len = "81"
+description = "the best 81 Lauren Bacall Quotes"
++++
+- I adored 'Breaking The Waves,' so when Lars von Trier wanted me in 'Dogville,' I was beside myself with joy. He works in a way that nobody I've ever worked with works.
+- I've always felt that work - learning from people who know more than I know - is what keeps you going.
+- It was Howard Hawks who changed my life.
+- I hope I'm thought of as not just a showbiz personality, but as someone who has lived a life and who has hopefully made a contribution to something along the way - someone who is a human being as well as an actress.
+- I was always a little unsteady in my self-belief. Then there was the Jewish thing. I love being Jewish, I have no problem with it at all. But it did become like a scar, with all these people saying you don't look it.
+- I would hate now to be married. It does occur to me on occasion that, if I fall and hit my head, there will be no one to make the phone call. But who wants to think about that disaster, I'd prefer not to.
+- It's inappropriate and vulgar and absolutely unacceptable to use your private life to sell anything commercially.
+- What is the point of working all your life and then stopping?
+- My definition of a star is someone who really lasts for a very long time.
+- I was this kid, and I was scared to death of all these pros around me... My head would shake, and my hands would shake, and I discovered if I kept my head down and looked up, my head would not shake, so I started to do that when I could, when it was appropriate in a scene.
+- Imagination is the highest kite one can fly.
+- Legends are all to do with the past and nothing to do with the present.
+- I always wanted to work with Spencer Tracy, which never happened, although I knew him well. And I never worked with Cary Grant.
+- When a woman reaches twenty-six in America, she's on the slide. It's downhill all the way from then on. It doesn't give you a tremendous feeling of confidence and well-being.
+- I don't look in the mirror; don't like what I see; never have. I am not my idea of a beauty. Never was. This is not false modesty. I've just never been enamoured of my face, which of course is magnified umpteen times on screen.
+- I finally felt that I came into my own when I went on the stage.
+- In actual fact, I've never been one, even from childhood, to kind of analyze myself very much.
+- I don't sit around thinking that I'd like to have another husband; only another man would make me think that way.
+- You can't always be a leading lady.
+- Stupidity is not my favourite thing; I cannot deal with it.
+- I suppose there are times when I can't believe that I've lived the way that I have and done the things that I've done. Life's a joke anyway. It's all ridiculous. It's all so short.
+- It's just a fact of life that I don't think I've ever been taken particularly seriously in movies by movie makers. I don't know why.
+- Find me a man who's interesting enough to have dinner with and I'll be happy.
+- I like to work with really good professional people - anyone with real talent.
+- There were times, sure, I wanted my career to go better. But once it starts to go downhill, you can never get back, or only to some degree.
+- I think your whole life shows in your face and you should be proud of that.
+- We live in an age of mediocrity.
+- I loved reading Grimm's fairy tales and Hans Christian Andersen, and I loved to dream about other worlds and other lives. Maybe that has something to do with having an incomplete family, being an only child. All I know is I loved to pretend, and all that was in tandem with my wanting to be an actress.
+- All the Warner actors were real actors. They started in theater and led very straightforward lives - you never saw entourages around. The MGM girls were the glamour girls, and they always had the makeup and hair people with them and all that.
+- Looking at yourself in a mirror isn't exactly a study of life.
+- I'm not a sedentary person. I've always been active.
+- You are welcoming to everyone when you're a liberal. You do not have a small mind.
+- When a person who is very ill decides to treat it like a slight virus, you play that game. If you make a big scene, I think it is yourself you are doing it for, not the person who's ill.
+- I used to dream of being other places, other people. It was an escape for me.
+- When you talk about a great actor, you're not talking about Tom Cruise. His whole behavior is so shocking. It's inappropriate and vulgar and absolutely unacceptable to use your private life to sell anything commercially, but I think it's kind of a sickness.
+- I used to tremble from nerves so badly that the only way I could hold my head steady was to lower my chin practically to my chest and look up at Bogie. That was the beginning of The Look.
+- Acting is a life of rejection.
+- That was my original dream, anyway, to be on stage. I think the stage is an actor's place because actors, it belongs to you.
+- I'm a big fan of Daniel Day-Lewis. He's a marvelous actor. He stands alone, I think.
+- I was never my favourite subject.
+- I am not a has-been. I am a will be.
+- Men need to feel important. They feel better when they're with younger girls or unknown girls.
+- For my peculiar face, I look best when I look as though I'm not wearing make-up.
+- You learn to rise above a lot of bad things that happen in your life. And you have to keep going.
+- You can't acquire a voice. Either you have it, or you don't.
+- You realize yourself when you start reflecting - because I don't live in the past, although your past is so much a part of what you are - that you can't ignore it. But I don't look at scrapbooks.
+- I never believed marriage was a lasting institution. I thought that to be married for five years was to be married forever.
+- Stardom isn't a profession, it's an accident.
+- Young people, even in Hollywood, ask me, 'Were you really married to Humphrey Bogart?' 'Well, yes, I think I was,' I reply.
+- I'm a total Democrat. I'm anti-Republican. And it's only fair that you know it... I'm liberal. The L word!
+- You can't start worrying about what's going to happen. You get spastic enough worrying about what's happening now.
+- When everything happens to you when you're so young, you're very lucky, but by the same token, you're never going to have that same feeling again. The first time anything happens to you - your first love, your first success - the second one is never the same.
+- The big rule is that you must never get mixed up with a married man - never even look sideways at another woman's fella. Boy, I really was terrific at obeying that rule, wasn't I?
+- Patience was not my strong point.
+- I am essentially a loner.
+- If I could have lived as an actress in any period, it would have been the 1920s - I would have loved to have been part of that speakeasy era.
+- My mother was the greatest example to me of anyone I've ever known. She didn't have an easy life. I adored her. She worked hard all her life, and she was the one who set my values. She was quite an amazing woman, although she wasn't tough at all.
+- A woman isn't complete without a man. But where do you find a man - a real man - these days?
+- I studied dancing for 13 years. And loved to dance. Always wanted to dance with Fred Astaire.
+- Film is not a woman's medium. If you weren't the hottest kid in town, men stayed away from you.
+- A man's illness is his private territory and, no matter how much he loves you and how close you are, you stay an outsider. You are healthy.
+- I happen to watch public television more than anything else. I'm also a news junkie, so I watch a lot of CNN.
+- I remember my oldest son, Steve, saying to me once, 'I don't ever remember seeing you with an apron on.' And I thought, that's right, honey, you did not. That was his concept of what a mother should be.
+- My feeling about the movies is that most of them are terrible. If you don't have a decent script and a decent director, forget it.
+- I love being Jewish; I have no problem with it at all. But it did become like a scar, with all these people saying you don't look it.
+- I'm not tough, and I never have been. I suppose over the years I've built up kind of a veneer to protect myself because I have functioned on my own for a long, long time, and I have never had a lot of flunkies preceding me to clear the way.
+- Movies are great fun and wonderful when they're good. But you never get to see them till six months after they're finished. So you never get a sense of whether they're really well liked or how good they are. And you don't really know what the finished product is going to be like, because it's a director's medium.
+- God - if the press ever quoted anyone correctly, it would be brilliant.
+- I wasn't brought up as a society girl to go to balls and be a debutante and marry the social set and money and go to parties. No one in my family lived like that. And I never wanted to live like that. I was brought up to believe in work. I always wanted a career. Always.
+- I don't consider myself a great actress. I'm just trying to stay alive, actually. I think I'm good, and I've learned a lot, certainly, mostly in the theater. I've been sloughed off movies for years. But what can you do? That's life.
+- I don't have an entourage. In fact, I have no live-in help.
+- In Hollywood, an equitable divorce settlement means each party getting fifty percent of publicity.
+- A famous love story is hard to maintain when you both live in the spotlight.
+- Actors today go into TV, which I don't consider has a lot to do with acting.
+- They're guys who want to screw around all the time, which interests me not at all. God knows we've done that, been there, and we don't want to do that any more.
+- I wish Frank Sinatra would just shut up and sing.
+- I put my career in second place throughout both my marriages and it suffered. I don't regret it. You make choices. If you want a good marriage, you must pay attention to that. If you want to be independent, go ahead. You can't have it all.
+- I figure if I have my health, can pay the rent and I have my friends, I call it 'content.'
+- The biggest misconception people have about me is that I'm in control of every situation. I'm rarely in control of any situation.
+- When I was a kid, it was Bette Davis. She was my idol. I used to cut school and sit in the back of the theater; of course, I would have snuck in because I couldn't afford a ticket.
+- I called my business manager in California and said, 'Sell all of my stock' - what little of it I had - and it's the only smart financial move I ever made.

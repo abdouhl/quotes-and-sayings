@@ -1,0 +1,106 @@
++++
+author = "Alexander Gustafsson"
+title = "Alexander Gustafsson Quotes"
+quotes_len = "100"
+description = "the best 100 Alexander Gustafsson Quotes"
++++
+- I want to beat DC. I want to avenge my loss.
+- I'm not satisfied with being ranked second and third.
+- I've always seen myself as a big light heavyweight fighter, I have a big frame and walk around quite heavy. So I've always had to cut around 33 lbs to make weight.
+- If it was up to me, I wouldn't lose at all, but when it happens, that's when you have to show your real strength.
+- A win is a win, but a decision for me is not an option any more.
+- A loss is always a loss.
+- Every fight is a learning experience, whether it's a win or a loss.
+- I didn't and still don't watch sport all that often, but I did see all the Pride fights back in the day, which is when I first saw MMA and I felt that's something I really want to do.
+- The main thing I learned in San Diego was I can't do this and compete with the best guys in the world if I'm just doing MMA as a hobby. It has to be my job.
+- I try to understand the sport more and more as I develop, and I try to be a better fighter overall and work on everything, not just every aspect, I try to combine it too. I work on it every day, and I try to be a better fighter in every practice.
+- I'll fight anyone, it doesn't matter to me.
+- It's everyone's goal to be a champion and I'm no different.
+- I feel like five rounds is nothing for me.
+- That feeling of getting your hand raised. It's hard to explain with words, you have to do it to understand the feeling of a 'W.' That's what drives me.
+- There are so many things that could happen and will happen that are out of my control.
+- I like to go to bed very early and get up very early.
+- As a person, I learned that I could push myself.
+- We're supposed to be role models.
+- DC is a big boy, as tall as he is wide.
+- We used to see spectacular things with Jon Jones when he fights.
+- I want to beat the best guys.
+- Vests are for more than just function - they are fashion.
+- I'm a kinda strong person and kinda heavy.
+- Yes, I think I have talent.
+- I think motocross is a much more dangerous sport than what we do. These guys are flying through the air at high speeds rising their lives. What we do in the octagon is not even close to what these guys do on the course.
+- I'm a better fighter than Rumble. I've got too many tools for him.
+- It's a sport. Sometimes you lose and sometimes you win.
+- I do not want to be in fights where people see me as an obstacle on the road. I want to be the man challenging.
+- I'm done thinking about, 'I have to go up to be a title contender, I have to stress.'
+- I just hate losing.
+- I love the sport. I don't have to work. It's a kind of work we're doing, but if you can do what you love every day, that means something.
+- I try to always eat something good like protein pre-workout.
+- I thought I was ready for a title shot after I beat Shogun.
+- I'm going to show everyone my real potential and I know I have the potential to be the best in the world.
+- If I wasn't into MMA, I would definitely love to get into motocross. That is a much tougher sport.
+- I do not want to be a fighter that people should beat to get a title fight.
+- In the past when I'd made my 33 lbs weight cut there would always be some small injury, my back, my knee or something else.
+- When you fight in the UFC and train with the guys that I train with, you learn that there is always still a lot of work to do.
+- I know I can beat Jon Jones.
+- I've never been a talker. I've never been a good salesman when it comes to selling fights.
+- I can eat almost anything and still keep weight as long as I'm training hard.
+- I'm not a decision guy. I want to finish guys.
+- It feels like my life is much more than fighting in the Octagon.
+- It's not always about reach, it's about footwork, it's being fast, in and out, stuff like that.
+- I know I have potential to be the best in the world.
+- I'm a pretty big guy so heavyweight for me it comes very naturally.
+- If you just train because you have to train, it's not the right reasons.
+- I'm just a dog person. I love my dogs.
+- I'm not a trash talker, that's not my thing. But if someone asks me, I'm going to say what I feel and what I think.
+- When it comes to a title fight, if I will fight Jon Jones one day, if he's still the champ, I will be more than ready for it. I will take home the belt.
+- I am a fighter and it's what I do, what I live for.
+- It's not always shine and good feelings in training. But when it comes down to it you need to have that happiness and motivation in training.
+- It is difficult, but you need to be honest with yourself as an athlete, and have a team telling you the right things, being honest with you.
+- Having the fans behind me is a really good push.
+- I'm such a self-critic, that I find it hard to give myself credit for something.
+- I wouldn't duck anyone. I'll fight anyone.
+- You have to improve; that's how you develop.
+- It's hard to just go one day from another to being one of the best fighters in the world to just stop doing what you love to do.
+- I know I have the potential to beat DC.
+- I've been learning a lot in my years, it's not just the fight itself, its a lot mentally fighting each other, that's something I learned later days. I realize now it's very important.
+- When you take that step to watch a fight you lost, it's takes some courage.
+- I'm just taking one fight at a time and trying to fight the best guys, and have fun doing it.
+- To take the belt from the champ you need to finish him.
+- I learned I can't not be at full strength and fight.
+- I like to step into the Octagon and just show what I'm made of.
+- You can't relax, even for a millisecond in this sport.
+- I try to get better with every fight - my boxing, my wrestling, my jiu-jitsu, everything.
+- I'm a morning person.
+- That's what the sport is all about - stay busy and don't forget to have fun while doing it.
+- I've got my speed, my precision. I have tools. I'm going to use them.
+- I want to be the champion one day, but I don't want to get ahead of myself.
+- I do not want to be a journeyman.
+- My big focus is to win every fight.
+- I won a lot of fans and that means a lot to me as a fighter.
+- Everybody in Sweden knows MMA now. It's mainstream.
+- I'm an athlete, so giving a suit a casual look is important to me. Sometimes I wear sneakers with my suit or I will wear a blazer, tie and collared shirt with jeans.
+- It's a fun thing to do. Everyone thinks it's fun to shoot.
+- I often eat a lot of food when I eat and I eat maybe three or four times a day. I eat a good breakfast I have a protein shake or something between breakfast and my workout. After working out I have a shake and then eat lunch.
+- I tend to keep my suit look casual but I like a good pocket square. It can change the look of any suit and give it an 'old school' feel. My preference is to make the square unique - different from the tie and suit color, so it really pops.
+- DC is smart and he's a big inspiration for me. Thirty-nine years old and two belts. I can't really trash the guy and I can't really have beef with him.
+- For me to train good, I need a goal.
+- When you're fighting a guy like DC, he's just coming in and pushes you. You have to push him back.
+- One day you are on the top, the other day you're on the bottom. That's how it works.
+- I'd like to be remembered as the greatest ever.
+- For an elite athlete the fans are everything.
+- You have to think tactically and you can't just go in and swing against the first best opponent.
+- I'm just blessed to be fighting in the UFC.
+- I feel my conditioning is one of my strengths.
+- DC is tough and he's such a good athlete. I think he's better at heavyweight than he is at light heavyweight. I think he's stronger, he can eat and he doesn't have to stress about the weight.
+- Even wrestling, now, I wear the helmet all the time. I'm not going to make that mistake again ever in my life.
+- We are not in the playground anymore, it's not about who is the toughest, it's about my career, I want to have a long and successful career.
+- I think Manuwa is a very dangerous fighter.
+- I win over Anthony Johnson six out of seven days. But, the only thing that wasn't supposed to happen, happened.
+- I will continue as long as I know I have the potential to be the best.
+- Whenever you're training and warming up for the fights, you have your friends around you, you have friends that will compete and we push each other.
+- I'm not one to trash talk my opponents. If the talk is on, then let's go, I'll say the truth - nothing more or less. But it doesn't affect me in my competition.
+- Luke Rockhold would be a good payday.
+- Things change very quickly. You have to be prepared and ready and on your toes at all times.
+- I'm just going to go through Anthony Smith, I want to get that W, beat him, and just look for the next challenge basically.
+- As a 6'5' guy, the suit fit is extremely important. Getting a suit made for my body means it will fit in all the right places. For me, I look for a suit that fits well in the arms and shoulders and allows me to move... after all, I'm a fighter, so it needs to give me room to breathe.

@@ -1,0 +1,18 @@
++++
+author = "Tom Barrett"
+title = "Tom Barrett Quotes"
+quotes_len = "12"
+description = "the best 12 Tom Barrett Quotes"
++++
+- If the rain spoils our picnic, but saves a farmer's crop, who are we to say it shouldn't rain?
+- It may take practice to think more positively and more compassionately, but just as you must train a puppy to behave the way you want it to, you must train your mind to behave itself. Otherwise, like the puppy, your mind will just make a lot of messes.
+- I'm very confident that not only will the other candidates who ran for this office support me but all of their supporters will as well. So yes, I'm very confident that I will get their support.
+- Education, in K-12, technical college and universities needs to be a top priority in Wisconsin.
+- Certainly we're going to continue to see those commercials that I call 30-second drive-by shootings. And they're going to have a lot of money to do it. But we're going to combat it.
+- As mayor of Milwaukee, I've had many developers come and many businesses come and have asked for financial assistance from the city, and my questions have always been: how many jobs are we talking about and are these family-supporting jobs.
+- I'm not going to be the rock star of the far right and frankly on the rock star of the far left.
+- With the increased cost of gasoline, it doesn't appear that we're going to see a slowing of interest in mass transit. I think it's going to continue to grow.
+- Chaos in the world brings uneasiness, but it also allows the opportunity for creativity and growth.
+- I'm pleased to have the support of working men and women throughout the state of Wisconsin. And I found in the primary I did. Now the key is to get that turnout activated. And we know we can do that. Again, the temperature here is very, very high on both sides of the aisle.
+- I think one of the strengths of Wisconsin's economy is it's diversity - and in making sure that we're doing everything we can to have a state government that's responsive to that and being here and encouraging people to expand their businesses here.
+- The thought you have now shapes your experience of the next moment. Practice shaping the moment.

@@ -1,0 +1,100 @@
++++
+author = "Cory Gardner"
+title = "Cory Gardner Quotes"
+quotes_len = "94"
+description = "the best 94 Cory Gardner Quotes"
++++
+- The Trans-Pacific Partnership has the potential to reshape America's relationship with the nations of the Pacific Rim, enhance U.S. leadership in this critically important region, and provide a major boost to our economy.
+- We must pursue immigration reform - it's something we have to do, something that starts with border security.
+- It's time for Republicans to rally behind this campaign in order to put forth the best candidate to stop Hillary Clinton in November. I am confident Ted Cruz is that person, and I'm thrilled to endorse him for president.
+- I don't get everything right the first time.
+- A lot of nasty things were said about me in my own party about my unwillingness to demand the government shutdown.
+- To say that we should engage in some hypothetical about, 'Will I vote for Trump,' that's defeatist. I'm not going to be a defeatist.
+- My dad, well, he sells tractors, just like my granddad, and I'm darn proud of that.
+- I think the climate is changing, but I don't believe humans are causing that change to the extent that's been in the news.
+- I've tried to convince members of my party that we should not allow the hair on the backs of our necks to bristle every time somebody mentions renewable energy.
+- This isn't a Republican issue. This isn't a Democrat issue. This is something that both parties and people around the country have agreed to. They don't want Guantanamo Bay detainees in the United States.
+- I don't think Donald Trump is going to be our nominee.
+- Saddam Hussein was a brutal dictator.
+- Any nominee is going to have to earn my support.
+- Let's put Coloradans in charge; let's put Westerners in charge of the West.
+- I am glad that our country is starting to have a serious conversation about how to repair our broken immigration system - it is long overdue.
+- I guess the news is this: If you're a Republican and you smile, liberals don't like it. Maybe that's because Democrats are afraid that I've been able to show an optimistic vision for this country.
+- The president named Obama is probably not going to repeal the bill that's named after him.
+- I think a 'no' vote is giving the victor, whoever that may be, the win without your participation.
+- Industrial hemp is a safe substance with many practical commercial applications.
+- Our country needs a new generation of leadership, and I believe that Marco Rubio presents this nation with the greatest possibilities and opportunities to meet the challenges of the next generation.
+- Funding for women's healthcare must actually go to fund women's healthcare, not to line the coffers of an organization under increased scrutiny for reprehensible, inhumane behavior.
+- The RNC had been incredibly supportive of my efforts in 2014... I couldn't have won without them.
+- One of the things that's always amazed me about people who attack me, saying I'm opposed to renewable energy, is I'm pretty sure I'm the only Republican who had an energy bill vetoed by a Republican governor.
+- I think Donald Trump has a significant number of issues where he is not a Republican.
+- I think Republicans are going to do better than Hillary Clinton any time of the day.
+- The idea we would create some kind of religious test for entry into the country is absolutely wrong.
+- There are far too many politicians out there who take the wrong position and stick with it and never admit that they should do something different.
+- When it comes to the environment in our own backyard, we understand it far better than anybody in Washington D.C.
+- We're thinking of creating a board of experts across the sectors of industry, to identify successful programs and to make recommendations about programs that are working and aren't working.
+- The overwhelming majority of Coloradans don't want Guantanamo Bay detainees in the United States or Colorado.
+- Senator Udall focused his entire campaign as a social-issues warrior, and that was rejected by the people of Colorado, who embraced our plan of creating jobs and opportunity, growing energy independence, looking at education opportunities for the future, and making sure we're focused on protecting this great Colorado environment.
+- We have a responsibility to be responsible stewards of tax dollars.
+- Mark Udall votes with President Obama 99 percent of the time.
+- I think people need to be treated with respect, and that's what we've demanded from everyone.
+- Now, President Obama has to make a decision. He can either propose a nominee who can win over the majority in the Senate or defer his choice to the voters, who in November will elect a new President and a new Senate, which will be responsible for confirming a nominee who will provide balance to the Supreme Court.
+- Every member of the Senate has a constitutional duty to follow the Constitution and to uphold the Constitution.
+- Hemp has the potential to be a major boon to Colorado agriculture, giving farmers another viable and profitable option for their fields.
+- I believe the climate is changing.
+- We have to protect the rights of the American people.
+- I've learned to listen. I don't get everything right the first time.
+- I'm not going to defend Sen. Udall's failed record.
+- There is no such thing as a federal personhood bill.
+- I support Marco Rubio.
+- I don't think it is ever enough for a governing majority to simply be opposed to things. We have to be for things.
+- We hear people talk about putting a price on carbon, but they won't talk about how much that price of carbon is.
+- This is a government program run amok, and we owe it to the taxpayers to find out exactly what happened before Eagle-Net wastes any more money.
+- Besides the conventional military threats, North Korean cyber capabilities are growing.
+- We can't disrespect people for having a different opinion.
+- I used to play against a high school football team that always used to run the single wing. And eventually, other teams figured out that they ran the single wing. And so they prepared for it. The Democrats are stuck running the single wing.
+- I oppose the personhood amendment. Years ago I'd said that I'd supported it - it was the wrong idea. Looking at it, talking to people of Colorado, I don't support it.
+- We're doing everything we can to solidify my base of support in the 4th Congressional district.
+- Mark Udall wants to run a social issues campaign. He definitely wants to run as the social issues candidate.
+- I think the American people aren't looking for loyalty amongst candidates to other candidates. What the American people are looking for is loyalty to the American people.
+- Guantanamo Bay is a facility that I think should be utilized by the United States for detainees, say, out of Syria.
+- We got to protect Medicaid.
+- There's no time, place, or purpose of a government shutdown or default.
+- Anytime you present a message that is seen as hate, you're going to have a negative impact.
+- The Republican Party has to be the party of optimism and giving our children a better starting point. We have to make sure we're broader, more inclusive, and reaching out to every community.
+- If China is doing business with a company that ends up putting money back into proliferation activities, then we'll sanction that company and China.
+- I have signed the personhood petition. I have taken the petitions to my church and circulating into my church. And I have a legislative record that backs up my support for life.
+- Let's make sure we're doing what we can in our own backyard to gain our energy independence and to create American jobs with American energy.
+- What can we do to put more Colorado in Washington and less Washington in Colorado?
+- From what we understand about participation by women and minorities, we need to do a better job of exposing people early in their careers to STEM fields.
+- There is no doubt that pollution contributes to the climate changing around us, but what I refuse to do is support a climate tax bill like Waxman/Markey put in place that would have cost farmers and ranchers in the state, that would cost small business the opportunity to grow, that would increase that bills that families pay, $1,700 a year.
+- What's the difference between me and Mark Udall on contraception? I believe the pill ought to be available over the counter, around the clock, without a prescription. Cheaper and easier for you.
+- Quite frankly, I'm running a campaign on the economy and jobs and economic opportunities for the American people.
+- The bottom line is a record of ideas. The bottom line is a plan for how to get this country back on track. It's not about attendance - it's about goals and opportunity to move this nation forward.
+- I will say this - I certainly will not be voting for Hillary Clinton.
+- The Keystone Pipeline would create good-paying jobs. Not only where the pipeline is being built, good-paying construction jobs, but manufacturing and service opportunities in Colorado along with the Keystone Pipeline.
+- If you look at the Constitution, the two clauses of the Constitution make it very clear the president shall nominate, and the Senate shall provide advice and consent. It's been since 1888 that a Senate of a different party than the president in the White House confirmed a Supreme Court nominee.
+- I look forward to continuing to hear what Donald Trump has to say about his vision for this country.
+- I've made sure that I've stood for privacy and the rights of the people time and time again.
+- The fact is, our men and women in uniform, the bravest in the world, did everything they could to protect this country from a terror threat and to protect others from the terror threat that was Saddam Hussein. And nobody can deny that we are in a better place because Saddam Hussein is dead.
+- We would create thousands of jobs in Colorado if the Keystone Pipeline were to be built.
+- There's an old saying in politics: You never run the same race twice. Democrats are running the same race three, four, five times. It's an old ploy, and Coloradans see through it.
+- Any proposal that allows people who are here illegally to cut to the front of the line is amnesty.
+- America is a nation of laws, and it is wrong for Congresswoman Markey to propose bending the rules for a group of people whose first act in this country was to break the law.
+- Nobody expected Darryl Glenn to win, and he's won every time.
+- If Barack Obama weren't a U.S. citizen, I'm sure Bill and Hillary Clinton would have figured that out by now.
+- We have antiquated policies that were put in place in the 1970s that prohibit us from exporting our crude oil, yet we have allies around the globe asking the United States to provide them with a stable supply of energy.
+- There's a real question of what the United States could do if we detain somebody out of Syria right now.
+- Perhaps the CDC should quit spending money on things like jazzercise, urban gardening, and massage therapy and direct that money to where it's appropriate in protecting the health of the American people.
+- I urge Congress to quickly take up and pass trade promotion authority so we can conclude a TPP agreement. Our position in the world depends on it.
+- While our nation's attention is rightly focused on the Middle East, the North Korean threat has grown exponentially, while there seems to be a falling asleep, so to speak, at the switch when it comes to North Korea.
+- Any immigration-reform effort must begin first with border security and enforcement of the law.
+- Sen. Udall can only talk about one thing: He's a social issues warrior.
+- Republicans have always talked about having a big tent, but it doesn't do any good if the tent doesn't have any chairs in it. Bringing Latinos to the forefront, bringing women in is absolutely critical.
+- We just can't stay in a safe Republican seat and sit back and watch while this country goes down the wrong path.
+- I do not support legislation that would ban birth control.
+- He's a nice guy who will never change the Senate. He is the Senate. Eighteen years in politics, and he's got two cousins who are senators, too. Mark Udall's dad even ran for president.
+- I'm not going to speculate about legislation that I haven't seen before.
+- Ted Cruz caught the momentum in Wisconsin that I think that Donald Trump thought was his and his alone.
+- As a result of the strategic patience policy, we now have North Korea testing four times an atomic weapon; they've violated numerous United Nations sanctions, U.S. sanctions by launching ballistic missile tests.
+- We have a number of challenges ahead of us.

@@ -1,0 +1,106 @@
++++
+author = "Lee Ranaldo"
+title = "Lee Ranaldo Quotes"
+quotes_len = "100"
+description = "the best 100 Lee Ranaldo Quotes"
++++
+- One of the things I loved - or I love still - about this Occupy movement is it's got a very gentle core. I mean, it's really decidedly nonviolent in the face of all kinds of situations.
+- Whenever I work on an album and the time comes to do all the artwork, the only thing I think of is the LP artwork. When we worked on the 'Electric Trim' artwork, we spent weeks and weeks making the LP artwork great, and then the CD artwork came together in a day or two. The LP is what's important to me.
+- I have nothing against change or evolution, and I'm not one of those people who wants the city to be what it was 40 years ago or whatever, because that's not what New York is, really.
+- After Hurricane Sandy, my family and I stayed in our apartment in lower Manhattan before things normalized. We're lucky enough to live on a bit of high ground, so we weren't flooded... but it was intense. Since there was no light, water, or electricity, I spent a lot of time playing acoustic guitar in the evenings.
+- Our audience seems to be able to handle whatever kind of weird opening acts we turn them on to. I mean, sometimes it happens to be something like a band like Nirvana or Mudhoney, and other times, its just weird noise crews that we dig up.
+- Sometimes it takes us a long time to build up songs, and we really work the structures over and over and build in lots of noisy parts.
+- One of the key guitars in my career has been an early-Seventies Fender Telecaster Deluxe that I had before Sonic Youth started and that I played pretty much throughout Sonic Youth.
+- One thing I always loved about vinyl was the length of a side, around 20 or 22 minutes. That's the perfect length of an attention span for listening time, you know? You could listen and give it all your attention. Put on something that's 70 minutes, and nobody's sticking around past the first 20 or 30 minutes.
+- What Nirvana's success means is that certain radio stations now have their ear more cocked to bands like us; they're more open to playing more stuff.
+- The world is going to end for each of us in a prescribed time, and you sort of understand that your time is limited at a certain point, and you want to get done the things you want to get done. You don't want to leave things undone, because you only have a limited amount of time.
+- Sonic Youth was a collective. There's something fantastic about the idea of making music is a social activity.
+- We used to have endless discussions with journalists about that: 'Why are you calling it noise? It's not noise, it's music,' and make references to everybody from John Cage to whoever.
+- I've always been an acoustic guitar player, and I've pretty much continued to play acoustic guitar throughout all of the Sonic Youth periods. My material for Sonic Youth often started on acoustic guitar.
+- We're not playing your typical guitar tuning, so there is no normal chords for us to get our footing with. We're pretty much making it up as we go as far as the sounds we're creating. Oftentimes, the song will be inspired by just a certain kind of block of sound that somebody creates.
+- New York always has a lot of creativity going on.
+- Every band runs its course.
+- I always use the Rolling Stones as the whipping boy for this, but they still play old songs as 90% of their set, and we would die if that were the case.
+- You don't work in isolation anymore. Anybody can write a song and put it up on the Internet the next day.
+- 'Europe '72' was a super influential record full of fantastic songs and amazing experimental musicianship. I always valued both of those aspects in what Sonic Youth has done through the years - being able to get very abstract and very concrete within the same song.
+- Sonic Youth was not a singer-songwriter band. It was an electric collective. And, whatever else people's perceptions of Sonic Youth were, it was always about putting together a time-based composition - and that is exactly what songwriting is, in its classic form.
+- When I first learned guitar - when I was 14 or 15 - I had an older cousin who showed me some stuff. And he was into all these tunings. He was showing me tunings that people like David Crosby or Neil Young used - like dropped D and open D tunings.
+- Change is always good. It brings you to a new place.
+- It's not like we set out to antagonize the audience in any way. We're just presenting our music; it's really much more innocent.
+- Usually my records are made trying to capture the essence of a band playing in a room.
+- I've never been a huge Zeppelin fan, much to the chagrin of everybody else in my former band. But certainly those Pink Floyd records, I was really into them, especially 'Dark Side of the Moon.'
+- I think Thurston's and my weird tunings lent Sonic Youth a very different sound from the get-go. In the band's 30 years - aside from covers - there are maybe two or three songs we wrote using traditional tuning.
+- I came late to Sandy Denny and Fairport Convention. I don't know why, but that's the beauty of music - songs and voices are there when you need them, when you're ready to find them, whether in their time or after.
+- It's easier to write about a celebrity, a personality, than it is to dig in and write about the music.
+- We're not really an underground band anymore, and we're not a mainstream band, either.
+- You look out on the street, and everyone has their heads in their phones. Nobody's really looking up at the sky or the buildings and taking the day in. I try to be conscious of it, but everybody falls prey to it.
+- Probably the most fun thing we do in our lives is getting up on stage.
+- I don't know what the vintage Sonic Youth sound is.
+- When Sonic Youth writes music, we write everything in a very communal way. It doesn't matter who brought something in initially; it all gets transformed by the band.
+- When I was in the first years of university, I fell in more with the visual arts crowd because it was more interesting than where music was.
+- 'Daydream' brought us to the top of the heap of the indie-college market and recognition by all of our peers; 'Daydream' kind of capped off everything we set out to do when we started as a band, in terms of, like, wow, wouldn't it be great to make a record that a lot of people liked and listened to?
+- When you listen to early Leonard Cohen records or Joni Mitchell records, you feel like a window is being opened into someone's life.
+- In Sonic Youth, at the end of 'Expressway to Yr. Skull,' we'd tap on the backs of our guitars to get this low-level feedback, and if I leaned forward, and the guitar hung off my body, it would resonate differently.
+- Being someone who plays gigs and finding many, many memorable ones in different ways, I guess I'd have to say I don't really have a single favourite one that I could pick out.
+- We always operated within a sense of community not just about the band. It's important to the way we define ourselves. It's the entire world in which we operate.
+- By the time Sonic Youth formed in 1981, my musical tastes had left the Dead behind, but I was always very proud of the fact that we had three different singers singing individually from different points of view, like the Dead.
+- When I first moved to New York, I was friends with a lot of dancers - people from Merce Cunningham's company and things like that.
+- We got our first significant pieces of press in the 'New York Rocker' from early gigs at CBGB.
+- During the whole time in Sonic Youth, I was happy to put my energy into that. It would have been very difficult to do a solo project.
+- In the week following Sandy, we weren't flooded, but we were without everything else - I ended up living by candlelight - no phones, no computers, no light, no power. If we took a walk at night to go and find something to eat, it was completely black, with no lights coming out of the windows, no street lights: a very apocalyptic feeling.
+- I'm very interested in the distance and the space between those two poles: very concrete, song-based stuff on the one hand and very improvisational, abstract stuff on the other. I don't see any reason music should exclude one or the other, and I think the pairing of them together makes for very interesting music in a lot of ways.
+- 'Europe '72' came out right around the time that I started going to see the Dead, and it had a huge impression on me.
+- I read a lot of science fiction, and it's ingrained, in a certain way, and I've been very involved with Kerouac and the Beats, but before that, it was a lot of science fiction.
+- As far as we're concerned, we're always Sonic Youth, and we're always making a Sonic Youth record. We just see it so much more as a continuum than a periodic thing. We're just in the studio making the next record, and we don't relate it to anything other than what's going on at the moment.
+- I ride a bicycle. I make artwork and do other kinds of stuff - but in terms of unwind, I like to play tennis and ride.
+- Sonic Youth has a very democratic process for the most part. It almost doesn't matter who brings in an initial idea; everything gets worked over by the band and kind of co-written by everyone in the end because everyone's ideas get contributed to it.
+- When we first started, in the early Eighties, we had some crappy guitars - Japanese knockoffs that wouldn't hold standard tuning. Later, we'd shove drumsticks or screwdrivers under strings to scheme new noises, sure. But initially, open tuning was a technique used to make our cheap guitars sound better. It wasn't academic or conceptual.
+- I've always played acoustically - it's how I learned. I grew up listening to Leonard Cohen, Joni Mitchell, Neil Young, Dylan and what have you.
+- I gravitated to New York City in the late '70s to pursue a career in visual art, which is what I trained in at university.
+- I don't mourn the old, romantic, dirty Times Square, although it was more unique.
+- I felt like the last thing we did, 'The Eternal,' and the touring we did behind it was some of the strongest stuff we'd ever done, and the band was very much a vital entity.
+- People assumed we called the record 'Murray Street' because of its proximity to the World Trade Centre, but that wasn't it at all. Before the attacks, I had simply been walking around taking pictures of things, and I had this photograph of the street sign. We felt it was somewhat evocative and decided to use it on the back cover of the album.
+- My main pedal is the Ibanez Analog Delay, the AD9 or the AD80, whichever one it is. That's my go-to pedal for short delay. I don't think I could live without that pedal.
+- Obviously, for Geffen, if it wasn't for us, it's quite possible that bands like Nirvana or Beck would not be on the label.
+- I really liked the Jean-Luc Godard movie, 'Film Socialisme.'
+- One thing I always hated with CDs is when people started putting 65 to 75 minutes on their albums.
+- I've been sort of writing sketches for songs on my own forever and putting them down on cassette tapes. Yet for years and years and years, my main songwriting outlet was as a member of Sonic Youth, and for most of our time together, our best songs were written in a group setting, where the four of us were getting together in a room.
+- Sometimes, you don't know where your inspiration's going to come from.
+- I didn't intend to make one solo record, much less two. It's really a matter of seeing how it goes.
+- I'm just old enough to be able to say I got those very first Beatles records right as they were hitting America. My father brought them home. It was definitely the earliest musical influence on my life, and still one of the greatest.
+- I absolutely love Las Vegas. I've been there a bunch of times on my own.
+- Songs seem to always spring from improvisation.
+- Signing to a major, there weren't many bands from our sphere that were doing it. I mean, obviously R.E.M. had done it, and Husker Du and the Replacements had done it, and maybe Soul Asylum, but that was probably about it. Those four bands were pretty much the only ones from that milieu that had signed to a major.
+- I saw the Dead in '73 at Nassau Coliseum, and that same year, I saw them at the crazy, big Watkins Glen festival. It was just outrageous. It was amazing to see the reciprocity between them and their audience.
+- I guess, from the beginning, Thurston and Kim were the dominant singers in the band, and although I was singing in bands previously, I guess I mainly deferred to them a lot in terms of who was singing the bulk of the songs.
+- The Grateful Dead always had their iconography down pat.
+- Like everybody else, I love a good pop song. You know, there's nothing like it. I also just really like music that goes off on extended forays of extrapolation into different areas. So it's kind of nice to be able to move between those two poles.
+- I'm so used to knowing what to do with an electric guitar and amplifier, but with an acoustic guitar, it's different, but I still have an amp and a whole bunch of pedals.
+- As a rock fan, you read of the big labels and the multinationals and the big tours with road crews and semi-trailers full of gear, and playing stadiums. In the '90s, that's what we did.
+- I've been lucky enough to be in this amazing band, and to me, a band is really a collaborative unit, and that's definitely been what Sonic Youth has been.
+- When Sonic Youth wrote music, we would rehearse for months before anybody heard anything.
+- I guess I see 'Goo' half as a really New York record because I think there are a lot of really particular New York references on it, but I also see it, for us, as the first of our records that really opened up to the larger world around us.
+- We find that the more you talk about it, the more you head off any spontaneous inspiration that might happen.
+- Obviously, Sonic Youth has been a huge part of my life for many, many years, and I love all those guys dearly.
+- The Strokes will never get anywhere after that first record.
+- Listening to the Beatles' music figures into pretty much all of my childhood memories.
+- My solo shows require a sit-down, indoor space.
+- There is still nothing under the sun quite like a Grateful Dead concert.
+- I have great memories of the old Times Square - wouldn't have missed being here to see that place for the world - but I can also deal with the new Times Square in the overall scheme of N.Y. City 2010.
+- When I was in grade school and high school, I did a lot of chorale singing. And the chorus would be tenor, bass, and alto and soprano.
+- Sonic Youth has always been the vehicle for my writing, you know, because it's a collective songwriting entity: we write our songs as a group.
+- Sonic Youth played one show before we even had a drummer. It was just me, Kim, and Thurston. The lights slowly went down, and the set was just 30 minutes of feedback.
+- We'll go in one direction with one album, and then we like to do the opposite right away. But it's not like we ever have an idea before we start - that would be too artificial. It all starts from just sitting in a room and playing.
+- To some degree, I consider myself a writer, and so I have a strong relationship with literature.
+- Sometimes, for me, lyrics are derived from poems that I'm working on, and they kind of cross back and forth between the two.
+- We're a rock band. We're proud of it. We're not an art band, a noise band, or an extreme band.
+- Bands rise and surface in the British press so regularly that, for the most part, unless something really catches my ear, I feel like, 'Oh, if they're still around in two years, I'll see what they're up to.'
+- My wife's from Canada, and we're Canadian citizens.
+- We'd been on Geffen for a long time, and I think we felt that we needed a change. I just don't think we felt very close to the people at the label after all this time or that they understood what we were trying to do. I don't have any regrets, because at the time we signed with Geffen, it was the right thing to do.
+- I always think that, for me, being someone who comes out of electric guitar experimentation, the idea of playing acoustic guitar is, in itself, kind of a radical move.
+- Sonic Youth could never really get it together acoustically - quite frankly, it wasn't something we were really that interested in.
+- Signing to a major label was an experiment for us. It was a challenge: working in a big studio with a producer was a challenge in a lot of ways. It all shaped what the band went on to become through the '90s. After we made 'Goo,' we went out and toured with Neil Young in ice hockey arenas for three months, and that was the same kind of thing.
+- Being a guy who was a geek with tape machines in the early days and really interested in how records get made, I was inspired in particular by how the Beatles were innovating when they were making those records late in their career while using the studio in a maximal way.
+- I'd rather have vinyl and a download code than a CD any day.
+- I recognise that the whole issue of downloading and intellectual property rights is not an easy one, but on the whole, I'm a fan of downloading, both legal and illegal, and the open-source ethos that it harbours for the future is a good one.
+- I'm married to a Canadianm so I have a lot of fond thoughts about Canada. I think about the prairies of Manitoba, where my wife is from, and I have a lot of friends and relatives on both coasts and have spent a lot time in Canada from Nova Scotia to B.C. In some ways, it's a much more sane country than the U.S.

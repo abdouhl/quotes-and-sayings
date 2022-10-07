@@ -1,0 +1,20 @@
++++
+author = "Alistair Cooke"
+title = "Alistair Cooke Quotes"
+quotes_len = "14"
+description = "the best 14 Alistair Cooke Quotes"
++++
+- A professional is someone who can do his best work when he doesn't feel like it.
+- Curiosity endows the people who have it with a generosity in argument and a serenity in their own mode of life which springs from their cheerful willingness to let life take the form it will.
+- Cocktail music is accepted as audible wallpaper.
+- Man has an incurable habit of not fulfilling the prophecies of his fellow men.
+- It's an acting job - acting natural.
+- People, when they first come to America, whether as travelers or settlers, become aware of a new and agreeable feeling: that the whole country is their oyster.
+- The best compliment to a child or a friend is the feeling you give him that he has been set free to make his own inquiries, to come to conclusions that are right for him, whether or not they coincide with your own.
+- As always, the British especially shudder at the latest American vulgarity, and then they embrace it with enthusiasm two years later.
+- Curiosity is free-wheeling intelligence.
+- These doomsday warriors look no more like soldiers than the soldiers of the Second World War looked like conquistadors. The more expert they become the more they look like lab assistants in small colleges.
+- Canned music is like audible wallpaper.
+- People in America, when listening to radio, like to lean forward. People in Britain like to lean back.
+- Hollywood grew to be the most flourishing factory of popular mythology since the Greeks.
+- These humiliations are the essence of the game.

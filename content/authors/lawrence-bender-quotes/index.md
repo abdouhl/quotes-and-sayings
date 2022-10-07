@@ -1,0 +1,26 @@
++++
+author = "Lawrence Bender"
+title = "Lawrence Bender Quotes"
+quotes_len = "20"
+description = "the best 20 Lawrence Bender Quotes"
++++
+- To be sure, governments will remain critical to any comprehensive effort to save our planet.
+- Film is a very collaborative medium. If you're smart enough, you learn how to maintain your vision while drawing resourcefully from all the people around you.
+- The average ordinary citizen can do a lot of different things when it comes to the climate crisis.
+- Honestly, when I had the idea to make 'An Inconvenient Truth,' and I was going out and raising the money, and I said, 'I want to make a movie about Al Gore's slide show, will you give me a million dollars?' People thought I was insane, looked at me cross-eyed.
+- Making movies is my profession. I like doing it a lot.
+- In 1998, I was screening 'Good Will Hunting' at Camp David. And I was saying, 'Nice to meet you, Mr. President. Nice to meet you, Mrs. Clinton.' Madeleine Albright, Sandy Berger, Senator Daschle. It was an extraordinary day.
+- I had one of those light bulb 'a ha' moments while screening 'Good Will Hunting' in Camp David in 1998 - Madeleine Albright and the Clintons were there, and I just became really inspired by all of these amazing people. I left the screening asking myself what I could do.
+- I think politics is really important to our lives. At its best and highest form, it can make the biggest difference in the world and at its worst, it is the worst skullduggery on planet Earth.
+- Being scared is really a good thing. It's being scared of being scared that's bad. Being scared of walking through your fear, going to a place of true creativity - that's what an artist is, that's what he does. If you do that, then being inspired by your contemporaries or people from the past is really great.
+- Being with Al Gore on the red carpet in Cannes was exciting - he's like a rock star unto himself!
+- If you go back and look at President Reagan's speeches, they bring you to tears almost.
+- I was with - he wasn't the president then, but - Barack Obama, when he was running, in Washington, during Black Congressional Caucus Weekend, and did a panel about global warming with him. It was almost as if I switched careers for a while, and became a political activist.
+- You know, people have actually changed the way they think about nuclear weapons now, post-Cold War, post-9/11. The threat of nuclear weapons is not so much Russia attacking the United States, China. It's not a state-to-state - it's obviously terrorism; it's proliferation.
+- It's been ingrained in me, from my parents and others, this idea of making a difference in the world.
+- I am not married yet, but I think ultimately in a good marriage it is the relationship which is the most important thing. It is not a matter of who is right and who is wrong; it is a one plus one equals more than two.
+- There are definitely strictly independent movies. 'Gummo' is one. Another is one I made, 'Fresh,' a $3 million movie which Boaz Yakin directed.
+- It became my first passion, the first thing I really fell in love with. I joined the Ralph Robinson Ballet company, and then went to New York and became a dancer. I thought I'd die before I did anything else.
+- Sure, 'An Inconvenient Truth' was my first documentary. What a wonderful experience. I saw Al Gore doing his slideshow presentation, and had this nutty idea that we had to make a movie out of it.
+- After 'An Inconvenient Truth' came out, a lot of people came to me with their causes, and there are a lot - water, poverty, and so many, many more.
+- What I would say to filmmakers, if I may be so bold or so arrogant, is to draw inspiration from other filmmakers, but go to the place in your own gut where everything is nothing. That's a very Zen thing to say, but that place of nothing is where real creativity comes out of.

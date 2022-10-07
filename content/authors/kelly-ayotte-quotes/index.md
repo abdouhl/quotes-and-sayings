@@ -1,0 +1,22 @@
++++
+author = "Kelly Ayotte"
+title = "Kelly Ayotte Quotes"
+quotes_len = "16"
+description = "the best 16 Kelly Ayotte Quotes"
++++
+- I believe that restricting the rights of law-abiding gun owners will not prevent a deranged individual or criminal from obtaining and misusing firearms to commit violence.
+- I think that passion is the secret ingredient that drives hard work and excellence. My passion is to serve the public: to be in the arena of public policy, to have the opportunity to solve problems for our country, to be in a position where I can make a difference.
+- None of us is certain about the outcome of the Arab Spring.
+- Unfortunately, no matter how frivolous the lawsuit, you still, of course, have to pay people to defend you on it.
+- President Yanukovych, the deposed president, essentially, he gutted the Ukrainian military. And so I think we could provide some more assistance to them in that regard.
+- As a former attorney general. I have the greatest respect for the criminal justice system. But it is not good at intelligence gathering.
+- Carly Fiorina has campaigned hard in New Hampshire to earn support from voters.
+- Based on what our country stands for. We can't fail to stand for democracy.
+- It is a privilege to serve the country in the United States Senate and serve the people of New Hampshire. I wake up every day with a sense of purpose.
+- I'm the only pro-life woman in the Senate. I take this issue very seriously. I'm the mother of two children.
+- When I went back to New Hampshire after graduating from law school, my plan was to go work for a private firm because I had to pay some student loans off and make money and really just be in the private practice of law. Which can be very rewarding.
+- The Russian economy is a one-trick pony. They're totally focused on natural gas and oil.
+- We can't continue to kick the can when it comes to the fiscal state of this country.
+- In the United States, because we are a nation of laws, you can lose an election and keep your life. In the United States, you can lose an election where you can disagree with our leaders or our government, and you won't lose your business; you won't lose your family, and you won't lose your freedom.
+- You're really earning the support of New Hampshire voters, and you've got to do that one-on-one grassroots campaigning here, even if you have the most money.
+- If I am going to pick and choose the laws I defend, I wouldn't be doing my duty as attorney general.

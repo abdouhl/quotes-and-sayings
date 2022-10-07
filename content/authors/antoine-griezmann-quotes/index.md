@@ -1,0 +1,73 @@
++++
+author = "Antoine Griezmann"
+title = "Antoine Griezmann Quotes"
+quotes_len = "67"
+description = "the best 67 Antoine Griezmann Quotes"
++++
+- The more matches I play, the better I feel on the pitch.
+- I do not feel like I am on par with Messi and Ronaldo yet. I need to win trophies to match them. I try to help my team and country as good as possible to do just that.
+- Ronaldo used to be my neighbour, and he passed my house every day. We always greeted each other.
+- Playing a final is great, but it's winning it that counts.
+- The Ballon d'Or? It's up to the journalists to vote. I do not go to bed every night thinking about it. I just try to do my best and score as many goals as possible.
+- I need to feel happy outside.
+- I'm always proud to be popular with the fans. I try to smile and do my best. If they like it, it's even better.
+- Every training session, I work hard to improve my weaknesses and build on my strengths.
+- I'm very happy, and I try to answer the encouragement I receive on social media through my efforts on the field, for everyone from the fans who buy a shirt to those who encourage us inside the stadium.
+- If I am happy in my personal life, I will be happy in my profession.
+- On a personal level, I have no hard feelings towards the clubs that didn't want me.
+- I want to win titles with Atletico.
+- I'll give everything I have to be one of the best players in La Liga.
+- When I wasn't playing, the most important thing was to stay patient.
+- I always play with long sleeves because Beckham always did it. He is my idol. He had a lot of class both on the pitch and outside. Nobody had his right foot. I would love to speak with him, but in Spanish because I don't speak English.
+- My goal is always to improve what has been done the previous season and also collectively seek to do better than the year past.
+- I felt really proud when Simeone said I am destined to reach the level of Messi and Ronaldo. I always want to give my all for him. He motivates me.
+- I'm lucky my parents raised me well.
+- We used to have championships in the streets with my friends, and whoever scored a goal was the happiest boy in the world. Now, every time that I score, I go back to being a child: the happiness of scoring a goal is unexplainable.
+- I don't want them to compare me to one or the other - I want people to know me for being Griezmann.
+- I prefer games with many goals.
+- Many clubs rejected me, but I wanted to be a footballer and to learn as quickly as possible, so I persisted until I got into Real Sociedad when I was 13.
+- There are a lot of bad people in football, and players can be afraid to go to stadiums and get abused.
+- We've lived through some extraordinary moments, and the saddest moments as well. We have to learn.
+- I think in French, but I get angry in Spanish.
+- I like PSG, but not Ligue 1.
+- I want to try and pay back the confidence and care that the people at Atletico have always shown me.
+- I try to be a complete player - in attack and in defence - and to improve every year.
+- Even before the season starts, the fans look at the dates for the Madrid derbies. They all want to be there; they're big games.
+- It's true that the training and mentality in Spain is totally different to how it is in France.
+- It's not a personal mission to win La Liga, but I want it very badly.
+- El Cholo is a great coach: he asks a lot of his players and demands a lot of intensity. If your guard is down even a bit in training, Cholo tells you put extra effort in quickly.
+- When I'm close to the penalty area, that's where I feel more comfortable.
+- I always had a frisson when I heard the Champions League music. To play in that competition, to score a goal in it, is something special for me.
+- I was just a kid who had arrived in the world of professional football and thought he could do anything he wanted. But I have learned from my mistakes. I have done everything to change, both on and off the pitch.
+- I work every day to improve and reach my top.
+- With Real Sociedad, I felt that I needed to leave.
+- Players do not come out of the closet because they are afraid. We have to appear hard and strong, but we are afraid of what people will say about us. Of course, I have nothing against anyone. I respect everybody.
+- At Atletico, I've improved at the highest level, and in the Champions League, I've turned a corner.
+- I try to be the best and give the maximum so that people can say I'm among the top players.
+- If one day I came to Ligue 1, it would be to Lyon or Marseille.
+- I do not feel the need to play in Ligue 1, nor in the Premier League or in Serie A.
+- The fact is I do feel very Spanish, like when I'm talking to my wife and daughter in Spanish at two in the afternoon. I even think in Spanish when I get angry!
+- I feel great at Real Sociedad. It is a second family for me.
+- Scoring goals is nice, but I'm nowhere near Platini. I hope I can get closer to him.
+- I was 14 when I arrived at Real Sociedad. No team wanted me in France. I trialled for around eight clubs, and then Real came.
+- With hard work and effort, you can achieve anything.
+- I'm very happy at Atletico. I'm very proud to play for these fans, with these players, and with this coach. I want to try and pay back the confidence and care that the people at Atletico have always shown me.
+- My objective is to be among the best.
+- I've never liked losing, ever since I was a boy in Macon, my hometown. I couldn't watch other teams lifting trophies.
+- When I'm on the pitch, I enjoy myself, and I try to give my all.
+- In 90 minutes, anything can happen.
+- Winning titles, that's what I'm looking for.
+- I went to the final of the Champions League, and I scored 32 goals. This pressure does not weigh too much. I'm on the field to have fun and give pleasure to the fans.
+- Speed isn't everything, but he'd be a great striker at Atletico. Usain Bolt would be perfect for our game. Me behind and him up front. The best!
+- The Ballon d'Or is one of my objectives, but it will be complicated so long as Ronaldo and Messi are around.
+- I'm so good at Atletico. Honestly, I don't see myself leaving.
+- I always ask Paul Pogba about Manchester United. I think they are a huge club with a really good infrastructure.
+- Every player dreams of playing a Champions League semi-final, and we will give everything.
+- When I started watching matches, it was those of Marseille. After that, it was Lyon. I went to see them all the time in the league or the Champions League with my dad.
+- With every side I've played for, I've always tried to fit in and joke with my team mates while enjoying good times with them on and off the pitch. And that's what's happened with Les Bleus.
+- People might talk more about Real Madrid and Barcelona than about Atletico, but what matters to me is what happens on the pitch. We compete with them year after year. I am not interested about the club's reputation.
+- I want titles: it's what I want and what I lack. I give everything for it.
+- I hope to become a real striker.
+- I always demand intensity in training. That's my style, and I like it.
+- It is the best thing to have great games, and the tiredness matters little.
+- The United States is where I want to finish. I love the States. I want to have a subscription to NBA and go with my children to every game. I can already see myself there. I do not yet know the city, but why not play for Beckham's franchise in Miami? Playing under Beckham would be the best.

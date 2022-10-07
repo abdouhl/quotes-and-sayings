@@ -1,0 +1,106 @@
++++
+author = "Toyah Willcox"
+title = "Toyah Willcox Quotes"
+quotes_len = "100"
+description = "the best 100 Toyah Willcox Quotes"
++++
+- I'm not vegetarian. I eat what I crave, but most of the time I don't crave meat.
+- If my 20s were a time when the way I looked was my calling card, then it feels as though my 60s will be a reinvention.
+- I am disproportionately ambitious.
+- I was at stage school in Birmingham Rep when I was called down to London for an audition in the National Theatre. Maximilian Schell, the film actor, was casting Tales from the Vienna Woods. He was looking at me for a small, but significant, role.
+- I think people need reassurance that there is an afterlife. That's perfectly understandable.
+- My mother never slept.
+- I have a very powerful belief structure. I'm very spiritual. I'm not religious but I am spiritual.
+- I just find social media such a robotic experience, whereas punk was right in your face.
+- I moved to London to work at the National Theatre and spent my first wage packet on Patti Smith, Bowie and Velvets records.
+- See, I hold myself through my own muscle strength. That is why I'm built like Arnold Schwarzenegger.
+- The world doesn't reward talent, it mostly rewards those who are connected.
+- I have always fought against being gender specific. I just don't like being identified as female: I'm a person.
+- I've studied nutrition since I was 23 and I began to find that a lot of my eating habits were to do with boredom and frustrations rather than hunger. When I was thirsty I would eat rather than drink.
+- I love my work and that's the only thing I think about.
+- I cannot emphasise enough how important exercise is. I have to do at least a three-mile fast walk a day, usually in the afternoon. Movement is incredibly important in helping my body use up my energy.
+- I've never lived with a 'be careful' philosophy.
+- My favourite city of all has to be Seattle as it seems to encapsulate everything that is great about both Britain and America.
+- The NHS is something we should put above everything else.
+- I can't live in a world of dullards. So I think on that level, I'm definitely punk.
+- I don't think my insomnia is fixable: I think it's in my DNA.
+- I remember my mother doing housework until four in the morning and then a couple of hours later taking me to school.
+- I was offered a part in the stage version of 'Calendar Girls,' but the part is so predictable. It just makes me angry when I read the script.
+- We are all part of a vibrant, energetic life force and my overwhelming belief is that the mind survives outside of the body and it survives and works outside the body.
+- I love being in the United States because I feel so energised there.
+- I was very naughty, even as a baby.
+- I'd like young people to seek my advice, and trust that the decades I have lived through have added to my abilities to be a valuable contributor to the workplace and society.
+- I have absolutely no sense of my success whatsoever, in fact, I only have a sense of not doing what I intended to do. I don't know who I am.
+- I think very fast and visually and I have to write down an idea right away or it will be lost forever.
+- As a young child, my family holidays were always in Rock, Cornwall, with my parents, older brother Kim and sister Nicola.
+- My 30s were a nightmare because I was so uncomfortable. If I could have unzipped myself and stepped out of my body, I would have done.
+- Remember all those you work with. You never know when you will meet again.
+- I had no interest in people telling me to be feminine, to be ladylike, to wear dresses - it just made me rebel completely.
+- I define myself by my work, so I'd be a sad creature without working. I just wouldn't get up in the morning.
+- Not sleeping is a problem when you get older. Not only is it linked to weight gain but the whole point of sleep is it allows your body to heal and replenish itself which is vital for good health.
+- I'm 5ft 1in and despise being small. People think I'm cute and cuddly, and I'm not.
+- You either decide to age gracefully or not to age. I'm definitely the latter.
+- Until I was seven, I was very close to my mother because I was so ill and she had to teach me how to walk and talk. But then she had another child, a little girl called Fleur, who died. When she came home from hospital there was a bit of a distance between us. It was never talked about again.
+- Punk helped musical fringes get attention. Stuff like Nirvana could never have happened without it.
+- I am creative with both my limitations and my sense that everything is possible.
+- I want to make money but not if it involves exploitation.
+- My sleep pattern got disrupted around the time I was taking my O-levels, but in those days nobody really addressed things like that in children.
+- Melissa Caplan made my costumes from the 70s to the mid-80s. I was very influenced by futurism and reading a lot of Marge Piercy.
+- I'd had a strict religious education.
+- There's an irony about making a film about punk because punk isn't supposed to have feature films made about it.
+- I'm just not interested in the norm. The only example I can give you is I can't go to a hairdresser and talk about holidays. I just don't live in that world. It's not me.
+- I have a habit of needing cake or chocolate when I get an energy dip around 4 P.M. I wish I could stop.
+- I always fly British Airways. I find them to be the most dependable and I need to be on time when I'm travelling for gigs.
+- The late 80s was quite a difficult time for me as an artist because I'd almost become a parody of myself. All people wanted was pink hair and for me to sing 'I Want to Be Free.' There's nothing wrong with either of those but people need to see you as a person for you to be an artist.
+- If I need a bit of RI&IR, I'd go to the Maldives because technology can't reach you.
+- I believe in the paranormal and I accept it but I don't change my life around it. I'm not an avid follower, as it were. I am open-minded.
+- My own teenage style was modelled on Barbara Hulanicki's Biba look, which was based around smart 1930s chic. Roxy Music crystallised that look and made it high fashion. You felt that they were living the dream.
+- Look and image were very important - there was already incredible pressure to look feminine and sexy but I wanted to look individual and strong. I didn't have any role models except Little Nell from 'The Rocky Horror Picture Show.'
+- Between 2007 and 2016, I had a large white rabbit called WillyFred. I was happiest pressing my ear to his fur and hearing his heart beat.
+- I have experienced ageism and sexism. In my 20s, I was told by a camera lighting man I needed plastic surgery. In my 30s I was constantly told I needed to lose weight.
+- At one stage I was using crutches on stage and couldn't walk more than 20 yards but a hip replacement in 2010 sorted that out.
+- My mother is not a naturally happy person and is very complex. She won't allow any of us to touch her. Not even my father hugs her. And, as a family, we never kiss each other. Yet we do have a close relationship.
+- My mother, Barbara, was a dancer from the age of 14 to 19. She toured with the comedian Max Wall in a dance group of six girls.
+- Punk is the voice that shouts the loudest from the silence of inertia.
+- Growing up with dyslexia and struggling in the classroom because of it, I know how infuriating and frustrating it can be to be treated wrongly as though you're of below par intelligence.
+- I think Marilyn Manson has a better take on America than Michael Moore and I don't think he's appreciated for his intellect.
+- I am very wealthy and I could nurture a child very well.
+- Acupuncture has made all the difference to my sleep.
+- If you don't protect the NHS, you're going to have health ghettoes where people can't get treated.
+- I have a very strict lifestyle. It's a vegetarian household and we grow our own produce.
+- Some people believe tarot cards are a form of black magic or senseless new age mysticism but for me they are a practical way of talking directly to the universe.
+- Live to live. Don't live to die. And never stop learning.
+- I turn a lot of jobs down because they are patronising.
+- I'm really muscular because my mother had to teach me how to straighten my own spine. It wasn't good for my relationship with her because she was dictatorial about it, but in the end I was able to disguise what I had.
+- I was completely unconventional in everything, which my mother found very difficult. I was a huge tomboy.
+- I want a state funeral with bells ringing across the land! Then I'd love the congregation to do the hokey cokey and for can-can girls to dance down the aisle. I've already bought the plot in Worcestershire next to my parents.
+- I have always had disrupted, broken sleep.
+- I've always played all the old songs. I'd go and see Peter Gabriel or Madonna and be surprised if they didn't play all the hits. People don't want to come and hear the B-sides.
+- If science can help us have the same quality of life we enjoyed when we were much younger, we should grasp it with both hands.
+- I take books on learning to bed - music theory, colour theory - and usually my brain thinks, 'Um, I think I'd rather turn off,' than learn something.
+- One man is quite enough for me, I'd find three exhausting!
+- Because of my career I have a huge wardrobe of fantastic costumes and they take up almost an entire house. Many of my stage outfits are worth a lot of money. To save cash I buy my more practical outfits from Primark.
+- Women of all ages need to be present in the media to instill girls and young women with self-confidence about their futures. And women of my age need healthy role models. Otherwise, how can we build the future dreams we still deserve to have?
+- Far too many of my peers were taken in by the jet-setting rock star lifestyle and didn't realise the money might not last forever - but I have always had an eye on the future and invest in a syndicate to share risk.
+- I try to eat small meals throughout the day.
+- In my industry who you know is very important.
+- I've lived with my dyslexia and gone on to have a successful recording career, but academically I never had a chance in hell because I didn't fall into that bracket.
+- My father, Beric, ran a joinery business and owned two factories.
+- You should never undermine friendship and loyalty.
+- I was every mother's nightmare - I was a hair model from 14, and I started coming home with red, blue, green hair.
+- My parents were incredibly strict. My father went through a stage where he'd line us up every Friday and cane our hands if we'd been naughty. And this was mainly to pull my brother into line. My brother is five years older and my sister's eight years older. He would use a little bamboo cane, which my brother saw most of.
+- Everyone else at school was terrified of me, and they were always laughing at me.
+- In my experience, women are conditioned to expect and accept that life will not only let them down, but they themselves will be the reason for their own downfall in the fullness of time.
+- This human body is very much a vehicle that's used to the constraints of time but once the body is old and used up our minds go into an eternal space.
+- I have a confession. I don't enjoy animation. I have no idea why because I absolutely adore doing voiceovers. I think part of me feels that animation has put an actor out of work.
+- In 2010 I had to learn to walk again when I had my legs made the same length, after living with one leg two inches longer than the other until the age of 51.
+- Snob value has great appeal. I have a couple of properties on the French Riviera that have doubled in value - I may buy more as the region continues to be developed.
+- I hated every minute of my schooldays.
+- My early family life was incredibly happy but I was very, very protected and very much living in a bubble. I was born with my legs bent inwards and clawed feet.
+- When I was young I just regarded not sleeping as a fantastic way to pack more into my days. I always reasoned that life's so short, it seemed crazy to waste it sleeping.
+- I'm prudish.
+- My relationship with my father was absolutely wonderful. He was the love of my life and pivotal in my life. He was a good, kind man with very strong Buddhist and spiritual beliefs. He could do no wrong and he was my best friend until he died in 2009.
+- When punk started, it wasn't subtle.
+- Getting older doesn't worry me, what does is getting unfit.
+- When I left home at 17, I became successful astronomically fast. But I think my parents were so frightened of me failing that they focused on that more than my success.
+- New Orleans is thrilling. The history is as rich as the food.

@@ -1,0 +1,26 @@
++++
+author = "Tabitha Soren"
+title = "Tabitha Soren Quotes"
+quotes_len = "20"
+description = "the best 20 Tabitha Soren Quotes"
++++
+- I worked at NBC and MTV for two years, and it was very interesting to see the comparisons of audiences and the way that I would have to present a story to the two different places.
+- Gossip is easy, politics is hard.
+- At NBC I wasn't really sure if the grandparents were going to get my sense of humor on a particular topic.
+- When I was a freelancer, I thought this journalism thing was a racket, and now that I'm where I am now, I know it's a racket.
+- At MTV, although the audience is smaller, I found it more interesting to deliver news to a specific group of people, because my story then did not have to try to be all things to all people.
+- If the breaking news story had to do with hard news, politics specifically, I had a lot to do with it. If it had to do with music, Kurt Loder was more involved.
+- At MTV, it's very nice sometimes to be able to be very specific. Specificity really makes a news story interesting because you can color it in that personality.
+- If the breaking news event has something to do with young people, specifically with MTV's audience, there was a higher chance that I would actually go cover it with a television camera instead of just write the story myself and read it on the air.
+- It's not like I just have to go to Washington and go to the White House everyday, and go to the same press conference at 10 in the morning and then be briefed at 4 in the afternoon, and then get a story on at 6.
+- In the New York Times, you're going to get completely different information than you would in the USA Today.
+- Online, you have things like Slate Magazine, which has a lot of commentary and analysis of stories, so it gives you a fuller picture. I would compare that to a news magazine or the New Republic.
+- Caring about policy is important - people in washington forget.
+- Some of those stories in local newspapers are just as dull and boring as the stories that I get from on-line services, which are basically sort of straight news.
+- I've been told I'm a player, but people still don't always return my calls.
+- For the last year I've been at Stanford University as a student and I've had time to read the newspaper.
+- The constant variety is the most interesting part of my job.
+- Knowing policy does help make the gossip more understandable.
+- I'm surprised and disappointed in American culture.
+- It's nice to know about something as soon as it happens, and obviously a newspaper can't provide that.
+- You have a specific, defined audience-at MTV, they assume the audience to the news is 15 to 30 years old and they do a lot of research about the things they're interested in.

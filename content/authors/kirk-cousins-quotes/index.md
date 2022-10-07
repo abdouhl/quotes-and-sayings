@@ -1,0 +1,72 @@
++++
+author = "Kirk Cousins"
+title = "Kirk Cousins Quotes"
+quotes_len = "66"
+description = "the best 66 Kirk Cousins Quotes"
++++
+- Life is about balance. You don't want to live out of whack over here or out of whack over here. I want to win and be well compensated, and I think there's a balance to find. It doesn't have to be one extreme or the other.
+- Ultimately, I've just got to keep playing football and try to do it the best I can and try to continue to be a high-level quarterback, and if I do that, trust that in the long run things will work out.
+- When you go to college, you're on your own. It's you and God. It's a question of what are you made of and how much is God a part of your life. So when I went off to college, I knew that was going to be the case.
+- I joke with people - and Kyle Shanahan used to say this - that my swagger is having no swagger, but that kind of becomes my thing.
+- I had a phenomenal six seasons in Washington and really can't say enough good things about my experience there. It's tough to move on from teammates, from everyone involved in the organization, from coaches and teammates, to the chaplain, to even friends in the community, our neighbors.
+- I mean, my dad, is really the biggest leadership influence in my life and I believe Jesus was the greatest leaders that ever lived and I think He had the most impact on humanity of anybody who ever walked the planet.
+- I was fortunate to have a dad who was very involved, very present, very wise.
+- I'm totally cool being self-deprecating.
+- I've been raised and taught to believe that privilege should lead to responsibility - in fact to greater responsibility.
+- I'll put it this way: I couldn't just go out the practice without looking at the playbook, without looking at notes. I wouldn't be able to do much.
+- To have a platform to make a difference ultimately, which is what I want to do with my life, we've got to win football games. When you're highly paid and your losing, no one really cares what you have to say.
+- I don't believe it's too far-fetched to think that we as college football players can make a significant, positive difference in the youth culture of America simply by embracing the responsibilities that accompany this place of privilege.
+- I'm going to do all I can, control what I can control and I think one thing I can do beyond just playing the best I can is to start really coaching and leading other people so that I can never walk off the field saying, 'Hey, I did my part but so-and-so didn't,' that can't happen.
+- I think at times where I fail as a leader is probably when I haven't allowed the Holy Spirit to lead and when I do allow the Holy Spirit to handle it - I think that's when I'm most successful as a leader.
+- I've called the spring game for Big Ten Network for Michigan State. It's a great opportunity to still stay around the game, to be able to feel like you're close to the action. I'm very analytical, so I think it fits the way I think.
+- If we win, everybody will feel good. If we lose, all the other things just don't really matter. Winning is what matters to me.
+- When you say was it you being silly or letting yourself go, or is it you being intense? I would say it was me being me. I would say that me being me is probably yes to all of that. So having fun, playing with passion, it matters to me, competitive.
+- Every player looks forward to free agency.
+- Sometimes when I get frustrated and ticked off, there's a little more fire there. It can also get you in trouble if you're not careful, but I think within reason it can help you.
+- My plan always was to play college football, hope to get a few snaps in and then go on to medical school. As I went further in my career and got to my junior year, I realized as I looked around, 'I got a shot here, and I might as well go after it.'
+- If you're not plugged into something like Athletes in Action or Campus Crusade, it's difficult to keep your eyes focused on Jesus Christ because the world is telling you differently, and your sin-nature is telling you differently.
+- If you could, say, draw it up, I'd be a Redskin the rest of my career.
+- I really put the medical school thing on hold and really chased after my football dream. And I guess I'm still chasing. I'm eight years in the NFL, and I feel very fortunate to be where I am.
+- I'm pretty much a .500 quarterback in my career so far and I don't think that's where you want to be, and that's not why you are brought in or people or excited about you.
+- I constantly want to be learning, growing and better understanding things. And see where that takes us.
+- I think some of the best pieces of advice for me was when I talked to some of the great players who have had success in this league how much they emphasized the importance of rest, that you can't just go 100 miles an hour all 12 months of the year every day and just keep going. That is a recipe for burnout.
+- It comes down to your decision-making and obviously you can get better and better as a decision-maker as you play, and get reps and go through experiences and learn but football's the same as life, you got to be a great decision maker to have success.
+- I think I play better when people say keep showing us what you've got, keep showing us. And whatever's going to get me to play at a high level is what I want to do.
+- We've got too many cool guys for me to try to be cool. We've got enough of that. I can just be boring and dorky.
+- Like everybody else, I am naturally selfish, and so I'm going to think about myself.
+- I haven't had a chance to pick where I wanted to play since 2007 when I chose to go to Michigan State.
+- I knew the statistics of playing pro football were 1% of 1%, so I just never planned on it.
+- My job was to play football the last 16 games and do my part, and then in the offseason, really, it's just sit back and let the team or other teams let you know that they want you.
+- And I think at the end of my life, it's not going to be about what I did for myself, but what I did for others. Maybe it's staying after practice to do hand signals with the guys to help them get caught up to speed. To make it about others - I think that's what leadership is all about, quarterbacking is all about.
+- I got a small window of time to be an NFL quarterback. Some day when I'm done playing I can sit back and look at what we accomplished, or how does it feel, or what's it like.
+- If I have my best year yet in 2018 but we're 8-8, I didn't go to the next level. That's the reality of it.
+- Guys can see through fake! They can tell someone who's just trying to check the box! So, I've got to be Kirk Cousins and believe that'll be good enough!
+- I'm not a guy who wants to skydive and open my parachute at the last minute. I want to open my parachute right away and know what's coming.
+- Sometimes you want to ease into the situation and maybe sit in the back row for a while and allow time to get adjusted and then speak up.
+- Well fatherhood has been a joy, it's been a challenge and it certainly takes a lot of energy! You know, when I leave you start a whole new chapter of work when you come home and it really gives me a picture of what my Heavenly Father is like, looking at me.
+- The opportunity to play in the Big Ten was one that I could not pass up.
+- When I come home from work, if I just played a really good game and I'm on top of the world, I think changing a diaper will humble me pretty quickly. On days when I struggle, I'll come home and I'll realize that it's not the end of the world.
+- Growing up in the Chicago suburbs, I was a college football junkie. My mom attended the University of Iowa and so I can remember I used to run around the backyard in a number 6, Tim Dwight Iowa jersey when I was very little.
+- Coming out of high school, however, I wasn't a decorated recruit. As a result, I found myself one month from signing day with only two scholarship offers and they were from the Mid-American Conference.
+- When you make bad decisions bad things happen. And it was so simple. You know, the decisions you make are going to become the life that you live!
+- When you look at the best of the best, those quarterbacks played with one team. And if you point at a couple guys who didn't, who changed teams, it really was against their will.
+- I think at times I have to be careful not to stick my foot in my mouth and not to have the pedal to the metal at all times, because that can hurt me as a quarterback.
+- When things are down, we can't hit the panic button, and when things are up, we can't relax. We've just got to stay consistent.
+- I've always had that chip on my shoulder, felt the need to prove myself.
+- I think if Joe Montana or Peyton Manning had their way, they would've stayed where they had won Super Bowls and played so well. They wouldn't have had to leave.
+- I've had teammates that are mirror guys. While they want to win, what they're really concerned about is themselves. In a win, they could be upset. In a loss, they could be happy. All that mattered was their own success. Window people, on the other hand, measure success by the contribution they make into the lives of others.
+- The accumulation of knowledge is a powerful thing.
+- I want to win football games first and foremost. But I also want to be enlightened and educated on issues and just keep an open mind, keep a listening ear.
+- What impact are you making, not only today, but for eternity? What impact are you making to leave a legacy?
+- I've never been one to just let everyone see what I'm about, so sometimes there is a misperception.
+- Winning is everything, especially at this stage of my career - I'm going into Year 7. Because I've been franchise-tagged twice, I've been in a position where it's not about the money so much; it's about winning. I want to win.
+- I want to be where I'm wanted, and that's what I've said all along. When a team is willing to step up and commit to me fully for the long haul, then why would I want to be anywhere else?
+- I've been taught that human nature is such that the place of privilege most often and most naturally leads to a sense of entitlement. The notion that I deserve to be treated as special because I'm privileged. The truth is, privilege should never lead to entitlement.
+- And I have to be willing to be patient to allow God's plan to unfold and not go ahead and try to make my own circumstances happen for me. So, I've learned that He can be trusted for every need and desire but at the same time that may require patience on my end.
+- At the quarterback position I would say mental is just as important as physical. Then there's that emotional component too.
+- I think whether home or away, it's playing a full four quarters, doing good things on offense all the way through the game rather than just in spurts.
+- I just don't get my hopes up. I don't expect too much from people in the league because you just never know what could happen.
+- I think that being a Christian, a Jesus follower, teaches you to be selfless, to be hard-worker, to be tough, to be persistent and I don't know a single coach in the country that doesn't want those qualities from his players.
+- I used to tell people that in 2012 when I was trying to understand where am I most likely to be drafted and who are the three or four teams that have pursued me the most and it would make sense that they would pick me, I never thought of who would be least likely to draft me.
+- Discipleship, following Jesus Christ is the toughest thing that you're going do in your whole life. You're not going to find anything tougher.
+- I prayed about it, and I do believe that the Lord, at least in my life, likes to use one-year contracts and not long-term contracts.

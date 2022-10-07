@@ -1,0 +1,64 @@
++++
+author = "Charles De Gaulle"
+title = "Charles De Gaulle Quotes"
+quotes_len = "58"
+description = "the best 58 Charles De Gaulle Quotes"
++++
+- I might have had trouble saving France in 1946 - I didn't have television then.
+- I have come to the conclusion that politics are too serious a matter to be left to the politicians.
+- One cannot govern with 'buts'.
+- Old age is a shipwreck.
+- The leader must aim high, see big, judge widely, thus setting himself apart form the ordinary people who debate in narrow confines.
+- I have heard your views. They do not harmonize with mine. The decision is taken unanimously.
+- France cannot be France without greatness.
+- Treaties are like roses and young girls. They last while they last.
+- Faced with crisis, the man of character falls back on himself. He imposes his own stamp of action, takes responsibility for it, makes it his own.
+- Don't ask me who's influenced me. A lion is made up of the lambs he's digested, and I've been reading all my life.
+- The great leaders have always stage-managed their effects.
+- No country without an atom bomb could properly consider itself independent.
+- When I want to know what France thinks, I ask myself.
+- In the tumult of men and events, solitude was my temptation; now it is my friend. What other satisfaction can be sought once you have confronted History?
+- You have to be fast on your feet and adaptive or else a strategy is useless.
+- Hearing Mass is the ceremony I most favor during my travels. Church is the only place where someone speaks to me and I do not have to answer back.
+- The better I get to know men, the more I find myself loving dogs.
+- A great country worthy of the name does not have any friends.
+- Silence is the ultimate weapon of power.
+- The graveyards are full of indispensable men.
+- To govern is always to choose among disadvantages.
+- I grew up to always respect authority and respect those in charge.
+- In order to become the master, the politician poses as the servant.
+- There can be no prestige without mystery, for familiarity breeds contempt.
+- One does not arrest Voltaire.
+- The sword is the axis of the world and its power is absolute.
+- France has lost the battle but she has not lost the war.
+- As an adolescent I was convinced that France would have to go through gigantic trials, that the interest of life consisted in one day rendering her some signal service and that I would have the occasion to do so.
+- Since a politician never believes what he says, he is quite surprised to be taken at his word.
+- In politics it is necessary either to betray one's country or the electorate. I prefer to betray the electorate.
+- Patriotism is when love of your own people comes first; nationalism, when hate for people other than your own comes first.
+- Never relinquish the initiative.
+- Authority doesn't work without prestige, or prestige without distance.
+- Politics is too serious a matter to be left to the politicians.
+- I have against me the bourgeois, the military and the diplomats, and for me, only the people who take the Metro.
+- Church is the only place where someone speaks to me and I do not have to answer back.
+- Only peril can bring the French together. One can't impose unity out of the blue on a country that has 265 different kinds of cheese.
+- For glory gives herself only to those who have always dreamed of her.
+- How can anyone govern a nation that has two hundred and forty-six different kinds of cheese?
+- I was France.
+- I respect only those who resist me, but I cannot tolerate them.
+- You'll live. Only the best get killed.
+- Nothing great will ever be achieved without great men, and men are great only if they are determined to be so.
+- No nation has friends only interests.
+- You may be sure that the Americans will commit all the stupidities they can think of, plus some that are beyond imagination.
+- We are not here to laugh.
+- I have tried to lift France out of the mud. But she will return to her errors and vomitings. I cannot prevent the French from being French.
+- Treaties, you see, are like girls and roses; they last while they last.
+- It is not tolerable, it is not possible, that from so much death, so much sacrifice and ruin, so much heroism, a greater and better humanity shall not emerge.
+- The true statesman is the one who is willing to take risks.
+- Once upon a time there was an old country, wrapped up in habit and caution. We have to transform our old France into a new country and marry it to its time.
+- You start out giving your hat, then you give your coat, then your shirt, then your skin and finally your soul.
+- China is a big country, inhabited by many Chinese.
+- A true leader always keeps an element of surprise up his sleeve, which others cannot grasp but which keeps his public excited and breathless.
+- Deliberation is the work of many men. Action, of one alone.
+- When I am right, I get angry. Churchill gets angry when he is wrong. We are angry at each other much of the time.
+- Diplomats are useful only in fair weather. As soon as it rains they drown in every drop.
+- Greatness is a road leading towards the unknown.

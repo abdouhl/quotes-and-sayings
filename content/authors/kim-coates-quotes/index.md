@@ -1,0 +1,12 @@
++++
+author = "Kim Coates"
+title = "Kim Coates Quotes"
+quotes_len = "6"
+description = "the best 6 Kim Coates Quotes"
++++
+- I know people have tattooed my 'Sons of Anarchy' photos, they've painted them, on their bikes. I've seen a few of those, sent to me through friends, where they've actually taken my 8x10 Tig photo and put it right on their bike.
+- When I decided to go to university I didn't know what I wanted to do. When I had an opportunity to take an elective I took Drama by chance, even though I'd never taken a Drama course or even been in a play in high school. Two years later I was majoring in Drama and I knew I wanted to be an actor.
+- I'm so not scary. I'm a pussycat. But what are you going to do, right? I mean, these cheekbones, and I guess these eyes, and the big nose... this is what my momma and my poppa gave to me, and that's the deal.
+- I barely leave my cage, my house.
+- It's not like I don't want to play the guy next door. But sometimes they're not the best written or the most complicated. But I am very, very particular about my bad boys. There are certain types of characters I will not play. I've said no so many times to so many parts that are just way too dark. You have to be careful.
+- See, what I don't like listening to is when writers go, 'And then the person cries.' 'Or the person does this.' It's there, but it's not the Bible. I wait and see what happens to me on the day.

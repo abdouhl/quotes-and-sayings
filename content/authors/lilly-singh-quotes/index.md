@@ -1,0 +1,97 @@
++++
+author = "Lilly Singh"
+title = "Lilly Singh Quotes"
+quotes_len = "91"
+description = "the best 91 Lilly Singh Quotes"
++++
+- I'm by no means an expert at giving advice on depression, but I would say that a lot of my show is about making the decision to be happy. We all think that happiness is something that just falls into our lap. But it's something you have to really work on.
+- You need to know who your ideal viewer is, and mine is a 14-year-old screaming female. And I'm thrilled about that. I am thrilled.
+- 'Unicorn Island' is the synonym for my happy place. It's a really beautiful message: that happiness is one of the hardest things you'll ever fight for, but it's the only thing worth fighting for.
+- I think one of the most beautiful things about YouTube is that it makes the world a smaller place. You realize that we're all different, but we're all the same. And if you think about it, it's a beautiful concept.
+- I love wearing makeup! It's just that if you choose not to wear it, that's OK. And if you choose to wear it, that's OK as well.
+- I've had fans do some pretty awesome things... I once had a fan do a mock proposal for me in Mumbai, inside a McDonalds... and I've had fans give me some precious things. I had one fan give me her mother's ring; I've gotten some pretty intense stuff. And I always get drawings and scrapbooks from fans, which is also pretty cool.
+- Growing up, I idolised Madhuri Dixit. She's my favourite actress, and I used to pretend I was her all the time.
+- I wanted to be a musician. I wanted to be a superstar. I wanted to be on stage. I wanted to perform. I wanted to be in movies. But as you grow up, those dreams kind of fade away, and you're hit with reality, and you're like, 'Oh, not everyone can be Lil' Bow Wow?' Fine.
+- It's everyone's responsibility to build up other women rather than tear them down. Be self-aware and proactive. It's not wrong to have those thoughts, but you can change how you respond to those feelings. Take a mental step back, and think about why you're feeling that way.
+- I really have this desire to make it known that the Internet exists and YouTubers are important. And not only are YouTubers important, our followings are incredible.
+- The good thing about me is, I only do deals with people that I love to begin with.
+- My job requires me to always be on. I'm always getting my makeup done for a shoot.
+- When I uploaded my very first video, I was just looking for something to make me happy. I was confused about what I was doing in my life and had earned a degree that I didn't really enjoy. With that video, I was finally doing something I was passionate about. So it was my way of self-medicating.
+- I am absolutely terrified to move... I truly, truly believe that success lies outside of your comfort zone, and my house has been the greatest comfort zone for me.
+- When I started out the videos, I was dealing with depression, and I wanted to make inspiring videos for others, which would end up inspiring me in turn. I wanted to show the world that it was possible to make a positive switch in life and start over.
+- Everyone's voice should be heard when it comes to racial barriers.
+- I've discovered home is not a place anymore. It's the people around you.
+- It's really important to talk to yourself and look at yourself in the mirror and love who you are.
+- The majority of people call or message me because they need something or they want something. You never know what people's intentions are.
+- The sad reality is that girl-on-girl hate is such a big issue in schools, at work, or online, and it never made any sense to me because, as women, we know how awesome other women can be.
+- I know the video platform so, so, so well. I know the perfect mixture of how comedic a piece has to be, what the video has to be like, what the song has to sound like, to make it successful.
+- I recently caught myself giving a pretty girl the cold shoulder because I felt intimidated. She was so gorgeous, and it made me feel insecure. I wasn't even aware until someone pointed it out to me. I was so embarrassed! I recognized those thoughts and made a point to be more friendly to her because there was no reason to be cold.
+- Life is designed to knock you down. It will knock you down time and time again, but it doesn't matter how many times you fall - it matters how many times you get back up.
+- Growing up, I was always creatively inclined, and when YouTube came about, it was like getting the perfect platform to showcase what I wanted. Personally, I was going through a dark phase in my life, and I decided to make videos and basically go by the adage, 'If you want to cheer up yourself, go cheer up someone else.'
+- Sometimes I'll be sitting on Facebook at home and see all these people getting married, having kids, having that life that I was told I should have. And sometimes I feel like I'm doing something wrong. Am I the stupid one here? Am I not doing what I'm supposed to do? And that's also equally as stressful.
+- When I was younger, I always wanted to be someone in the entertainment industry.
+- I think what people like about my channel is that I am not perfect. I always point to my pimple, my bad hair day... people relate to that. They are watching somebody who is exactly like them and talking about things that they experience as well.
+- No matter what I put out, somebody will be offended. I made a video on 10 reasons to smile, and it has dislikes. That should be an indication that there will be some who get offended no matter what you do. The best you can do as an entertainer or as someone who performs is to follow what you believe in.
+- Everything I do with my day is related to Superwoman. I'm either doing conference calls or writing a script or reading a script, editing a video, shooting a video.
+- In my life I've gone through a lot of really hard times. I went through depression and had so many challenges that I overcame. And I overcame because I just decided to be happy.
+- I like to describe my stuff as observational comedy.
+- If you say, 'I don't want to offend anyone,' then don't get on stage. Just ask yourself, 'Do I think it is right? Do I think it is offensive? And do I think that everyone is okay to hear this? If I truly believe this, then I should go and do this.'
+- When I posted my first video, I remember it hit 700 views after a week, and I was like, 'Oh my God, this is amazing.' I was over the moon.
+- Honestly, I just wear what makes me feel good. So many people come up to me, and they're like, 'Did you know you're a tomboy? You should try wearing dresses.'
+- There is no casting director; there is no producer monitoring your upload button. Anyone that looks like anyone can upload a video. I think YouTube and the digital space does set a really good example for the rest of the industry in that sense.
+- When I first started, all the media I ever got was, 'Hey! There's this Indian girl. And even though she is Indian, she gets views and stuff.'
+- My creative process is a bit manic at times, to be honest. I wake up Monday and Thursday stressed because I don't have a video. I usually - with the exception of maybe a handful of videos - wake up, write the video, shoot the video, edit the video, release the video all in the same day.
+- Superwoman is more of a performer, which Lilly isn't. Having said that, I guess both of them are completely over the top, dramatic and full of energy.
+- Independent content these days can be more successful than previously because of the power of social media. However, there are still systems in place to make sure independent artists don't get as far as signed ones.
+- Regardless of where life has taken me, I'm always excited to come back to Canada. I will forever be a proud Canadian. In fact, a lot of my success comes from the fact that I come from a diverse place, and that translates into my comedy. I will always be Team Canada.
+- I don't know who came up with this idea that it's cool to hate on other girls, 'cause it's not.
+- A majority of my YouTube friends I've made because I made a trip down to California and literally tweeted them saying, 'Hey! Come over - let's shoot something!' And then two strangers will just meet up, talk, and shoot something.
+- I can go to my premiere at the Chinese Theatre, and everyone will know me, and everyone will cater to me. And then I'll go to an audition and get rejected left, right and centre. They don't watch my videos, and they don't really know who I am. It is like starting from scratch when it comes to traditional Hollywood.
+- I'm actually not making fun of my real parents. I've taken stereotypical traits of my real parents, my aunts, my uncles and parents of every race and put them into these two characters, who are just over-the-top ridiculous and super-alpha parents about everything.
+- I want to do everything I can possibly do to step outside the box.
+- You are not any different. You can do anything you want. So many times, I've been asked what I think of women stand-ups. If you actually look around, there are so many female comedians starring in the biggest TV shows.
+- On my Superwoman channel, I am more of a performer, I am aiming to make you guys laugh. With vlogs, it's just me and my day, boring or fun.
+- I always say that when I first started, my videos were very veered towards Indian people.
+- When I used to live in Toronto, I would always be the busiest person out of all my friends... no one could relate to what I was doing. When I'm in L.A., I constantly feel like I'm keeping up with people, and I love that.
+- The parent characters that I portray are Indian because I grew up in an Indian household. Having said that, I feel like people of all cultures would relate to those parents.
+- Everyone can relate to the story of fighting for happiness.
+- A big part of depression is feeling really lonely, even if you're in a room full of a million people.
+- You need a really solid foundation of friends and family to keep you where you need to be.
+- Competition gives birth to a lot of success, and if no one ever challenged you, you wouldn't go anywhere. It makes sense to compete with others for a promotion at work. But so many women take it a step further and won't even support other women. They end up competing over things that don't make sense - like how we look.
+- Sometimes I'm having conversations with my friends, and I feel like they can't relate to me anymore. I'm like, 'Oh, my God, let me tell you about my experience on 'Fallon'!' And they'll be like, 'Oh, my God, let me tell you about my trip to the mall!' It sometimes feels lonely.
+- I am pretty weird - as weird as in my videos. The only difference is Lilly is not a performer, and Superwoman is. So Superwoman is very fearless. You'll never see her nervous. You'll never see her sad. But Lilly is a human. She is the person behind Superwoman, who gets sad and tired sometimes.
+- My fans are honestly so unique and so similar. Wherever I travel, they are so, so different but so the same.
+- I'm an extreme workaholic.
+- I'm like, 'I think I'm just going to wear what makes me happy,' so I'm just really big on wearing things that reflect my personality, like colorful hats and weird shoes and things that I just think are fun.
+- I was the first South Asian female to do comedy videos on YouTube. But at the same time, all races face their barriers, and I've learned through YouTube, if it's not race, it will be sexism, if it's not sexism, it will be homophobia. It will always be something, and all voices should be heard.
+- I got into psychology simply because that's what my sister did, and I grew up in a family that was very, like, 'Follow your sister's footsteps.' I went to the same school she went to, did the same degree she did... really had no interest in it, to be honest.
+- I think why my content does so well with so many different types of people is because it speaks to everyone. I'll make a Soca music reference, I'll use a Tamil word, I'll do a Jamaican Patois accent. I know about all these people, and I'm not afraid to indulge in their culture.
+- There's no escalators - there's only staircases to success. There is no substitute for hard work.
+- When I first started YouTubeing, the idea was, 'Oh, YouTube is going to be a stepping stone to get to other places,' and I just totally don't agree with that. I think YouTube is amazing. The digital space is amazing.
+- I know one of the reasons I first started making Youtube videos was because no one looks like me.
+- The platform got me out of a very dark period of my life, so I love YouTube genuinely.
+- If you want to make YouTube your career, you have to accept that it is also a business. I know everyone's like, 'It's my passion, it's my hobby.' And that's fine; I support that. But if you want to make it your career, it does have a business side.
+- My partnership with YouTube is one that I really, really treasure and I want to carry through. I mean, I don't just say it because I work with them; I genuinely am a fan of YouTube, so that's where I'd want to see my content.
+- I still make videos in my bedroom by choice because that's the feel of my comedy, but the opportunity to make longer format content with a production company, with a team that's a bit more elevated in that sense, is really exciting for me because it's not that it's better than what I've already been doing, but it's different.
+- After a long day at work, I want someone to come home, turn on my video and think, 'Oh my God, how girls get ready? This is hilarious. I love this; I'm forgetting about all my problems.'
+- I'm the type of person who doesn't hope, dream or wish for things. I work and work and work.
+- Happiness is the only thing worth fighting for in your life.
+- I'm my own boss, my own editor, my own shooter, my own writer, everything. This is all stuff I learned through trial and error... failing at a lot of things has taught me how to succeed at them eventually... you roll with the punches.
+- I'm a South Asian female that talks about relationships and periods and dating and all these things.
+- I will forever and always identify with Scarborough - no matter where I move.
+- I want my channel to be a place people go even if they don't care about Lilly. I don't want them to have to know about Lilly or care about me as a person to enjoy my content.
+- Every day, something new gets thrown at me, and I'm like, 'How did this happen?' I've gone through some of the craziest life experiences because of YouTube.
+- I don't say no as much as I should. I'm an extreme workaholic. So I can be sick, and I still say yes to anything. When you are the CEO of your own company, editor of your own videos, your own writer ,and you do every role yourself, you have a hard time saying no to opportunities.
+- For anyone aspiring to be anything, I would like them to realise dreams require work. So work big time.
+- I just love what I do so much.
+- The best way to describe my work is comedy in a very, very real way. I'm not scared to look silly on camera. I take everyday situations we all go through and put a very real twist on it - things people can relate to.
+- When I was coming out of depression, I made one random video. It wasn't funny or anything, but just the idea that people I didn't know were watching it made me feel less alone than I'd felt in a long time.
+- When I was younger, I had this fairy tale that you can have the eight hours of sleep and be a healthy, balanced person and still achieve your goals. The reality is, that hasn't always been the case.
+- I'm a Beyonce fan, and when I'm looking at her, I'll think 'Oh my God, her life is so awesome, and she made it.'
+- On an average day, I will spend 90 percent of my waking moments working on 'Superwoman.' I'm a huge workaholic. My hobby is 'Superwoman.'
+- I swear Kim Kardashian's first marriage lasted longer than some of my iPhone chargers.
+- When I make my own videos, I am the writer, the editor, the lighting person, everything - that's why my videos are blurry.
+- My inspiration comes from my real life experiences.
+- I am not looking for a relationship right now. I have no interest in putting my time or effort into another person, nor do I need another person to put energy into me, OK? Because that's what granola bars are for.
+- You have a character who is wearing a scarf on her head on a billboard in LA, New York, Sydney and Melbourne. That's how I would face barriers being thrown at me.
+- Love who you are, embrace who you are. Love yourself. When you love yourself, people can kind of pick up on that: they can see confidence, they can see self-esteem, and naturally, people gravitate towards you.

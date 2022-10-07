@@ -1,0 +1,64 @@
++++
+author = "Adena Friedman"
+title = "Adena Friedman Quotes"
+quotes_len = "58"
+description = "the best 58 Adena Friedman Quotes"
++++
+- We tax our companies more than any other country in the world, so we really are not really encouraging businesses to grow and expand, and over time, that's going to make it so that we diminish our role in the global economy.
+- You never stop learning.
+- I'm hoping that other people can learn from me, both the mistakes I've made or the opportunities I've had, or for the decisions I've made: for instance, not to go and take a lot of different jobs in a lot of different places, but to stay in one place for most of my career.
+- If it's a cliche to say that intellectual curiosity keeps your mind sharp, your senses alert, and your capabilities cutting-edge, that's because it's true.
+- Even the mundane task may have something to teach you - especially if it's a task you haven't performed before.
+- Nasdaq is investing in the technologies, talent, and capabilities that solve the complex challenges our clients face.
+- I was always first in, last out, but not inefficiently.
+- We believe behavioral science, cognitive computing, and machine intelligence are essential to a successful, holistic surveillance offering and critical to efficient and effective organizational compliance with an increasingly intricate global regulatory environment.
+- If someone gives you an opportunity, you better maximize it so that he wants to give you the next one.
+- You need to have a lot of human judgment involved in the financial industry in terms of risk management, in terms of investment decisions, and things that really allow us to blend the best of technology and the human brain.
+- You can't be successful in business without taking risks. It's really that simple.
+- Entry-level jobs are excellent opportunites to educate young women about the realities of the financial world and can prepare them for the next move up within the firm or another area of the financial industry.
+- I like the idea of using all this science and technology to allow for our clients to have a deeper insight into the market.
+- I would like to be known as a great leader, not as a great woman leader.
+- Ideas are only as good as your ability to communicate them.
+- My favorite kick is the roundhouse. I'm very capable of kicking a tall person in the head with a roundhouse.
+- I've always been on the business side - running P&L and working with clients.
+- It's hard not to take it personally when being wait-listed, passed over for a promotion, or losing a client to a competitor. But while feeling aggrieved may be an understandable reaction, it's not productive - it's not a good use of the experience.
+- Don't assume that opportunity will come to you. Put yourself forward when there is an opportunity.
+- The companies that choose to list on Nasdaq are among the most innovative, risk-taking businesses in the world, and they are proof to us all that prudent risk-taking drives our economy forward.
+- It's important to experience as many parts of an organization as you can - because some day, you may have the chance to lead that organization.
+- The ability to have influence and create change and drive the strategy of an organization is really what excites me.
+- If you really think about the fabric of the United States, or the finance of any economy, finance is a true underpinning of what makes the economy great - if it can be done successfully, responsibly, and with a client orientation.
+- Every time you feel entitled, you're making a mistake.
+- Regardless of how or where you enter Wall Street, use your inherent skills and strengths to succeed.
+- One of the things I liked about the movie 'Minority Report' was they used a lot of futurists as consultants to really try to understand what the world really would be like in 50 years.
+- By definition, risk exposes businesses to danger.
+- New products, new markets, new investors, and new ways of doing things are the lifeblood of growth. And while each innovation carries potential risk, businesses that don't innovate will eventually diminish.
+- A leader who listens is one who is malleable and willing to refine her views and actions as she learns new information or hears a better idea.
+- Be the optimist in the room.
+- I feel like I grew up in the investment business. My dad was at T. Rowe Price his whole career. We lived in Baltimore and had a small social circle, so most of my dad's friends also worked for T. Rowe.
+- You can get wrapped up in that megamerger mentality.
+- I have been measured on my merit and on my accomplishments.
+- I come to work every day thinking I have to earn my job, and I really believe that. I don't have a given right to my job; I need to prove my value in my role every single day.
+- We need to make sure we are constantly staying ahead, thinking about what is coming.
+- There are a lot of jobs in the financial industry that do need a math major.
+- Rejection should ignite soul-searching, and the soul-searching must be absolutely honest.
+- The best thing we can do with rejection is to make it a learning experience - rejection is a great teacher.
+- We definitely are a supporter of lowering corporate income tax and managing through the reprehension of cash for companies because we do think that'll give them more ammunition to grow their businesses and expand what they do.
+- Some companies have a very well-defined program that they bring young people into to help them figure out what they really like to do to get them exposure to senior management early.
+- Empowering those around you to be heard and valued makes the difference between a leader who simply instructs and one who inspires.
+- I just think of myself as a hard-working person who loves my job.
+- If you're not making use of even the most routine assignment to learn something, realize that many of your colleagues and coworkers are.
+- To be the best CEO you can be, you have to be passionate about the business you're running. And I have true passion for the financial markets and the financial industry.
+- Listen to clients, employees, and peers and stay open to their ideas, feedback, and answers. Doing so is vital to the success of any leader.
+- We have the Nasdaq private market. But we also want to make sure that every investor has an opportunity to ultimately join in growth and the success of these great companies that we have that have been formed in the United States.
+- Always be listening and learning.
+- I really believe that I've been a better parent from being a working mother.
+- When I was a kid, I'd always wanted to take karate, but my parents wouldn't let me because I did a lot of other things, including ballet.
+- Flat-out, the time I wasn't working I was spending with the kids and my husband.
+- I had children very young. You go through a period of immense guilt about being a working mother.
+- In 1998, Nasdaq started a project called Next Nasdaq - or what Nasdaq was going to become - and they decided to handpick some of the up-and-comers. I was chosen as one of the people. It was a great opportunity for me and, I guess, a reflection of the fact that I was seen as someone who was developing her career pretty well.
+- Play well with others.
+- Starting a new job can be nerve-racking , but it's also exciting. You're embarking on a new future, positioning yourself to write a fresh story on a clean slate.
+- One of many strengths that I often see in successful women on Wall Street is a responsible balance between risk taking and risk mitigation - the ability to assess situations smartly and make the right medium-to-long-term decisions without being lured into reckless, short-term profit-taking.
+- Many women try to advance in their careers by having all the answers; by being the go-to person for information and advice; or by building expertise in a particular field. However, as they progress, gain broader responsibilities, and grow into leadership roles, they realize that their span of control is too vast to be able to know every answer.
+- Nobody gets through life without experiencing some form of rejection, which is why everybody knows how awful it feels.
+- The financial service industry has an image issue.

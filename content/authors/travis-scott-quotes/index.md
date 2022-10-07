@@ -1,0 +1,98 @@
++++
+author = "Travis Scott"
+title = "Travis Scott Quotes"
+quotes_len = "92"
+description = "the best 92 Travis Scott Quotes"
++++
+- I'm a magician, like David Blaine. I could never fall.
+- You've gotta motivate kids. They wanna grow up. They got problems. You've gotta give 'em that music to make 'em feel like they're OK, and it's only a couple of artists that do that.
+- I feel like everyone just gets constricted by their parents or, just, life.
+- My mom used to work for Coach and Louis Vuitton, in retail. So, I've always been around it. I've always had that connection. Always.
+- There's a lot of us out here that are birds, man. We all need to just fly.
+- Money is something that keeps you alive and healthy and just keeps you focused. It's the drive. It's the passion.
+- I design music; I don't produce it.
+- My whole story is straight mythical. It's tangible, but it's also what life could be.
+- My music isn't rappity-rap-rap-rap.
+- I'm just here for good times, man. I want people to have the best time ever. Especially if they're around me.
+- I've been really trying to put people onto, like, my sound since I was, like, 17, 16.
+- I'm a big fan of Kid Cudi. He was, like, the only concert I think I went to as a kid. He was on tour with Asher Roth.
+- I think of Westernized culture as a good visual for my music.
+- I'm attached to the beat. The beat speaks words. I love music.
+- I have this old Polo jacket. I've got to bring it wherever I go. And I have this one cape that somebody gave to me. It's this jumpsuit with this cape on the back that this one person gave to me. It's clutch.
+- My work ethic is crazy. I'm a producer, an artist, and a video director.
+- I always hate when, like, my favorite performer has a boring moment. Especially when they got mad hits.
+- I don't know if he remembers, but the first time I ever met Cudi was the first time I met Kanye. I've never told anyone this, but it was the same day. That was the first time I was around G.O.O.D. Music at all. I was sitting like, 'Man, I'm in the presence of 'Ye and Cudi. This is the art level where I want to be.'
+- I'm La Flame at all times. That, at times, can be bad, at times can be good.
+- I'm always up for collaborating with brands and people who actually design, but doing your own line is a whole other beast. I don't think I could deal with the criticism.
+- I want to do what Kid Cudi did for kids for my generation.
+- Raging and having good feelings and having fun is something I plan on doing and spreading across the world. I just need air and a mic.
+- 'Days Before Rodeo' is just the journey of me finding out who I am.
+- A nerd can call another nerd a nerd.
+- Everybody just has different steps in their life that they take to do what they should.
+- I know what my identity is.
+- I love my fans more than anything.
+- I see hip-hop as going in a self-managing place. It's very culturally controlled and artist-controlled. It's not really based on a label anymore. Everything is pretty much in the control of the artist. Which is amazing.
+- I'm not hip-hop.
+- My grandad, he has his doctorate in psychology.
+- In my whole career, all I wanted was acceptance from Kid Cudi. I don't care about nothing else! This dude saved my life.
+- I was in early on with 'Yeezus.'
+- I feel like God put me here to help out with people's soul, man.
+- When I was three years old, my dad bought me my first drum set.
+- I have black friends, but I don't just hang out with black kids. I might pull up with Indian kids, white kids, black kids, whatever.
+- I'm not a gangsta.
+- I never produce a song, whether writing it or making a beat, and give it a wack visual or wack performance. I'm like a trifecta.
+- You can't buy swag.
+- The most ironic thing is my grandfather has his masters in music composition; he was a jazz composer. My dad was a musician, too. He played more, like, soul music.
+- I don't need a stage to perform. We just need something to stand on.
+- Me being in Houston, I wanted to leave there because it was only known for one thing. That's why I hit N.Y.; that's why I hit L.A. That's why I hit Paris, London. I just picked up basically everything, but I morphed it into what Travi$ Scott is and into what I know is fresh.
+- I'm a Bieber fan, man! That kid is ill!
+- Cudi should be a top tier artist... I think he fathered a lot of the style of music. He's a good influence and a good help.
+- I must say, I've been in the studio with Jay Z, dog... I thought the freestyle thing was a myth. But, bro!
+- Kanye and T.I. both engage with what I'm doing.
+- Beyonce is, like, the highest level. We all reach for that level.
+- I don't write; I just go in the booth.
+- I've got a song with Roscoe Dash - that's next level, man.
+- With albums like 'Rodeo,' 'Days Before Rodeo' and 'Owl Pharaoh,' I was really tuned into wanting to get people to understand my conscious and who I was mentally and who I am mentally.
+- You can't buy being a rock star.
+- When you come to my show, it's like a no-holds-barred, underground Royal Rumble.
+- Kanye is the leading eagle: he's like the president who stands up for kids like us who have ideas.
+- That's where I get my whole music theory from, my pops and my grandfather.
+- My mom worked for Apple, and my dad owned his own business.
+- I have devoted myself to the Rockets.
+- You can't buy vision, and you can't buy aesthetic.
+- I consider myself an artist, which is, like, the most played term, but I believe it.
+- I'm big on diversity. My music is very diverse; I don't want it to ever be typecasted.
+- I wouldn't make music with you if I didn't know you. If you're a good artist, and if you know it as well, I'm down.
+- Growing up in Houston, the music scene is super boring.
+- Yes, money is important. But it's all about the creative process.
+- Sometimes I might be sleepy, and sometimes I've literally been sleeping backstage, woken up, gone straight on stage or gone crazy. It's not like I psyche myself; I don't do any of that.
+- I skipped 'College Dropout' and 'Late Registration' and went straight to '808s & Heartbreak.'
+- I was a smart kid. I went to private school in middle school and got kicked out.
+- You've gotta really touch people to move them to buy your records.
+- I want first and foremost to help other artists, launch new names, to provide opportunities. I want to do for them what happened to me, but better.
+- I feel like Houston is one of the leading things in music culture. Everyone loves the Houston culture. It needs to have its own monument, its own moment for artists like me, artists like Beyonce who set it off.
+- I don't get why radio shows allow artists to do shows without creative control, without any art direction at all. Instead of that, I get their press guys, their camera guys to be my backdrop of my show.
+- I was on mad platinum albums... I produced and wrote on them.
+- Honestly, I really can't speak on others, but in a sense, I feel like every artist always has their problems with the industry because we all want to have our creative way.
+- I remember my mom bought me one of their shirts for Easter so that I could wear Helmut Lang for Easter. That was my first piece.
+- I felt like 'Owl Pharoah,' not everyone understood who I was as an artist.
+- I feel like more artists like me should be on the radio. Everything is, like, so controlled by, like, super popular music. You know what I'm saying? Like, c'mon.
+- I like how fashion is becoming more like music. It's more adaptive to young kids. It's more adaptive to a more on-the-go lifestyle. More street vibe. But I've always been into it.
+- Every time I go into the studio, it's some next level, man.
+- James Blake is a real good friend of mine. He's real different than what you thinks. He's super turned up.
+- One day, Travi$ is going to be moving like The Beatles.
+- I was working with Jay Z while I was still learning how to be who I was about to become.
+- I don't look at myself as a designer; I'm focused on music.
+- I'm super nice - I just get excited!
+- I was born in Houston, Texas. I grew up in Houston, by Missouri City. It's, like, a suburb in the area; it's middle-class. But I used to stay with my grandma in the hood from ages one to six.
+- I'm not into just one thing; I always felt like I had to have my hand in everything revolving around what I do, whether it's directing videos, making beats, making music, performing.
+- I feel like everything needs to be stylised; that's always been my mindset.
+- I feel like 'Birds in the Trap' seem united; it's just metaphor for ones in their box that are stuck and can't get their creative idea out.
+- Drake is an amazing person. Also, a magician. He's a big brother, super-talent; he's cool.
+- There are people who take fashion at different levels, but personally, I'm just a kid with it.
+- I don't really write. I'm an on-the-spot type of person. This beat, let's listen to it; let's vibe. And then I'll do a melody, and then we'll go back and do it.
+- You grow up in a small community, there's no outlet like New York or L.A.
+- I'm an artist. I produce, I direct, and all of that goes into the music.
+- I think, with production, I pay very close attention. 'Cause that's my favorite thing in music. That's the whole drive. That's the reason.
+- Fans be reflecting the way I be making music.
+- My A&R at Epic got fired the first week I got signed.

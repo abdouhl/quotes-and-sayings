@@ -1,0 +1,27 @@
++++
+author = "Ann Maxwell"
+title = "Ann Maxwell Quotes"
+quotes_len = "21"
+description = "the best 21 Ann Maxwell Quotes"
++++
+- The writing partnership is a good collaboration for the same reason the marriage works, which is two people who can stand alone choosing to stand together.
+- My daughter loves romances. She's a Ph.D student at George Washington University, and when my first book without a clinch cover came out, she said to me: 'Finally, a book I can read on the Metro.'
+- Some people are born for the city. I'm not one of them.
+- I've always been one of those people who wondered 'What if...'
+- I have always loved the wild places between the Sierra Nevada range and the Rocky Mountains. The east face of the Sierra Nevada is steep and largely unknown, a wonderful setting.
+- Fiddler is keenly aware that justice and law don't necessarily equate.
+- Traditionally in crime fiction, women exist as a bedroom convenience or to screw up in order that the plot may progress. I wanted no part of that.
+- You can only write your own vision.
+- Not only is it OK for a woman to write about a tough guy, but it might even help sell him.
+- As science-fiction was what I read in college, it was natural that I should be tempted to write it. So I did, and continued to do so, even while I was co-authoring mysteries with my husband Evan.
+- I am far more pragmatic than the stereotype of the sex permits.
+- When we moved to Laguna Niguel, there was one four-way stop sign between the freeway and PCH.
+- I'm a great believer in possibilities.
+- The West Coast is so different from the common perceptions of it.
+- The good news, when you write with another, is that you never have an empty page in front of you. The bad news is... you never have an empty page in front of you.
+- The wonderful thing about romance is that there are so many flavors of it!
+- Having a Weim means never having to work alone again. I have two Weims. When they think I've been working too long, they stage an intercession.
+- I think that I had read so much fiction that the craft itself sort of sank into me. I didn't read any 'how to' books or attend any popular-fiction-writing classes or have a critique group. For many years into my writing, I didn't even know another author. For me, a lot of reading was the best teacher.
+- Love is itself an expression of strength.
+- If Nora Roberts were a man, she'd be on the cover of big business magazines as the next Charles Dickens.
+- You love each book. They're your children.

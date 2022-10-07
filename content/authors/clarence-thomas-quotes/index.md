@@ -1,0 +1,55 @@
++++
+author = "Clarence Thomas"
+title = "Clarence Thomas Quotes"
+quotes_len = "49"
+description = "the best 49 Clarence Thomas Quotes"
++++
+- I think Juan stopped short - he got halfway to the destination and got off the train. He is certainly an excellent writer and a good person, but I'm not a nationalist.
+- I think segregation is bad, I think it's wrong, it's immoral. I'd fight against it with every breath in my body, but you don't need to sit next to a white person to learn how to read and write. The NAACP needs to say that.
+- When you look at where the real problems are among minorities in our society, particularly blacks, it's at the bottom. It's the people who are in school systems that don't educate, neighborhoods where there is a lot of crime, drugs, the whole bit.
+- I certainly have some very strong libertarian leanings, yes.
+- It's fascinating that people, there's so many people now who will make judgments based on what you look like. I'm black. So I'm supposed to think a certain way. I'm supposed to have certain opinions. I don't do that. You don't create a box and put people in and then make a lot of generalizations about them.
+- Oh, I don't think Tom Sowell would tell anybody to join the administration. That's not his style. But I think his attitude has always been if it had to be done he'd prefer me to do it than somebody else.
+- Any discrimination, like sharp turns in a road, becomes critical because of the tremendous speed at which we are traveling into the high-tech world of a service economy.
+- I'd been very partial to Malcolm X, particularly his self-help teachings.
+- There's a difference between someone who's 'harsh' and someone who is 'hard.' Life was hard. You lived in the South, as my grandparents did, and you had to survive. That is hard. In order to respond to that, he had to become a hard man, with very hard rules, very hard discipline for himself, very hard days, hard work, et cetera.
+- You didn't think of angels as white or black. They were angels.
+- I was Catholic. You talk about a minority within a minority within a minority: a black Catholic in Savannah, GA.
+- Unfortunately, the reality was that, for political reasons or whatever, there was a need to enforce antidiscrimination laws, or at least there was a perceived need to do that.
+- My job is to write opinions. I decide cases and write opinions. It is not to respond to idiocy and critics who make statements that are unfounded. That doesn't mean that people shouldn't have constructive criticisms, but it should be constructive.
+- Good manners will open doors that the best education cannot.
+- And I don't think that government has a role in telling people how to live their lives. Maybe a minister does, maybe your belief in God does, maybe there's another set of moral codes, but I don't think government has a role.
+- I grew up in a religious environment, and I'm proud of it.
+- I don't know one of my friends who is considered a conservative who has not had to go back and thoroughly think through everything. You do a lot of soul-searching - 'cause we are not going to win any popularity contests.
+- I grew up in a religious environment, and I'm proud of it. I was going to be a priest; I'm proud of it. And I thank God I believe in God, or I would probably be enormously angry right now.
+- Even as someone who's labeled a conservative - I'm a Republican I'm black, I'm heading up this organization in the Reagan administration - I can say that conservatives don't exactly break their necks to tell blacks that they're welcome.
+- When I went into the seminary, I was one of those victims of New Math and had not had Algebra I and had no idea what we were doing in New Math in the ninth grade. But when I went into the seminary, they had gone the traditional route and taught first-year algebra.
+- I was sympathetic to virtually all groups that wanted to get away from the old system.
+- My grandfather was a man, when he talked about freedom, his attitude was really interesting. His view was that you had obligations or you had responsibilities, and when you fulfilled those obligations or responsibilities, that then gave you the liberty to do other things.
+- There's a difference between someone who's 'harsh' and someone who is 'hard.' Life was hard. You lived in the South, as my grandparents did, and you had to survive. That is hard.
+- My grandfather, as I said, was industrious. He'd had a variety of jobs and decided sometime in the 1940s that he would never work for anyone. He was also a very independent man.
+- I've probably given more speeches, been on TV more than any other member of the Court - or almost any other member of the Court.
+- I still have a 15¢ sticker on the frame of my law degree. It's tainted, so I just leave it in the basement.
+- And I thank God I believe in God, or I would probably be enormously angry right now.
+- The thing that bothered me when I was in college was that I saw myself rejecting the way of life that got me to where I was.
+- I tend to really be partial to Ayn Rand, and to The Fountainhead and Atlas Shrugged.
+- You have a number of choices. You could continue to always fight against people who are really distractions. They're people in the cheap seats of life. Or you can do what you went there to do.
+- I went into the seminary when I was 16.
+- People get bent out of shape about the fact that when I was a kid, you could not drink out of certain water fountains. Well, the water was the same.
+- I was never a liberal. I was radical. I was cynical. I was negative. But, I was never a liberal. I always saw that as too lukewarm for me.
+- I don't believe in quotas. America was founded on a philosophy of individual rights, not group rights.
+- It would seem that some black people want to say that when you, as a black, become successful, you cease to be black. That's ridiculous.
+- There are so many people who have this idea of who I am because I'm black.
+- I do think that our freedoms are at risk.
+- If I were a black liberal, I would be hailed, I guess. But I'm not. I mean, I think for myself. I want to make my own decisions.
+- We've talked more about civil rights after the Civil Rights Act of 1964 than we talked about it before 1964.
+- I disagree with the prevailing point of view of some black leaders that special treatment for blacks is acceptable.
+- But what I believe is that if a person's individual rights or right to be a part of our economic system is violated under statute, we aggressively go after it. But we don't issue mandates to businesses that you've got to do this and you've got to do that.
+- It really bugs me that someone will tell me, after I spent 20 years being educated, how I'm supposed to think.
+- I hear people say it affected your self-esteem to be segregated. It never affected mine.
+- But I know that the vote of 9 out of 10 black Americans for the Democratic Party or for leftist kinds of policies just is not reflective of their opinions.
+- My grandfather could barely read. My grandmother had a sixth-grade education. They were people who were industrious. They were frugal.
+- My grandparents had died in 1983, and suddenly my brother is out jogging before Mass, and he dies.
+- I think, though, if I had to look at the role of government and what it does in people's lives, I see the EEOC as having much more legitimacy than the others, if properly run.
+- The myths that are created about the South, about the way we grew up, about black people, are wrong.
+- I have to admit that I'm one of those people that thinks the dishwasher is a miracle.

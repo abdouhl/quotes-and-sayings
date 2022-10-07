@@ -1,0 +1,66 @@
++++
+author = "Tariq Ramadan"
+title = "Tariq Ramadan Quotes"
+quotes_len = "60"
+description = "the best 60 Tariq Ramadan Quotes"
++++
+- Muslims must speak out and explain who they are, what they believe in, what they stand for, what is the meaning of their life. They must have the courage to denounce what is said and done by certain Muslims in the name of their religion.
+- If religious people deny paradise to their opponents or to 'non-believers,' atheists would likewise seek to eliminate 'dangerous' believers with their 'childish' ways and their heads in the clouds.
+- The challenge for Muslims in America is to respect the fears of ordinary people while resisting the exploitation of those fears by political parties, lobbies and sectors of the media. To meet this challenge, Muslims must reassess their own involvement, behavior and contributions in American society.
+- We must delve deep into history the better to engage a true dialogue of civilisations. Fear of the present can impose upon the past its own biased vision.
+- Our pluralist society must provide its citizens with the tools to understand religions, their symbols and their practices.
+- We must confront our own racism. Discriminatory housing and employment policies are nothing more than institutionalised racism.
+- Fasting is, first and foremost, an exercise for identifying and managing adversity in all its forms. With faith, in full conscience, fasting calls women and men to an extra degree of self-awareness.
+- In the name of the rule of law, democracy and human rights, we cannot accept that the rights of individuals (Arab or Muslim) be trampled upon, or that populations are targeted and discriminated against in the name of the war against terrorism.
+- It is of the highest importance to provide equal access to the labour market. Governments should act to establish equitable employment standards and penalise racial discrimination.
+- The young people who join extremist groups are clearly suffering from massive deficiencies in religious knowledge and are often politically gullible (when they are not attempting to salve pangs of conscience by cutting themselves off from a life of delinquency).
+- The world is a complex place, and the influence of the media in its representation and its power of communication and interpretation is a remarkable amplifier of emotions, and of illusions.
+- South Africa never leaves one indifferent. Its history, its population, its landscapes and cultures - all speak to the visitor, to the student, to the friend of Africa.
+- If people who cherish freedom, who know the importance of mutual respect and are aware of the imperative necessity to establish a constructive and critical debate, if these people are not ready to speak out, to be more committed and visible, then we can expect sad, painful tomorrows. The choice is ours.
+- South Africa is labouring to find its revolutionary path; the colours of the Rainbow Nation have difficulty blending together; the wealthy elites (white, black or Indian) profit from de facto segregation.
+- Cultures are never merely intellectual constructs. They take form through the collective intelligence and memory, through a commonly held psychology and emotions, through spiritual and artistic communion.
+- Culture constitutes an essential element of social and political liberation. As people rise up across the Middle East and North Africa, the diversity of their cultures is not only the means but also the ultimate goal of their liberation and their freedom.
+- The process of reclaiming the self is one of reconciliation with meaning.
+- Tunisia's responsibility, and especially that of its political and intellectual elites, is enormous. All the protagonists of the nation's social, cultural, economic and political life must work to overcome useless and counterproductive polarisation, and to find solutions to domestic, regional and international problems.
+- Our emotions are often beautiful, but they can also be dangerous. They represent our spontaneity, and seem to speak to us of our freedom.
+- The great majority of Americans do not know much about Islam but nonetheless fear it as violent, expansionist and alien to their society. The problem to overcome is not hatred, but ignorance.
+- The philosophical connection between the Islamic world and the West is much closer than I thought. Doubt did not begin with Descartes. We have this construction today that the West and Islam are entirely separate worlds. This is wrong.
+- The 'army camp' that coordinates the agencies of our brain is vulnerable, both in itself and from within. In effect, he who can know and master its functioning and psychology from outside can become twice its master.
+- Ramadan is, in its essence, a month of humanist spirituality.
+- Lack of consistency is a weakness shared by all nations.
+- Instantaneous and mass communication is the mother of mass naivety. Should we then lose hope? Is there any hope? But to lose hope is as dangerous as to nurture false hope. Where then can we find hope that is responsible?
+- I want to be an activist professor.
+- It is only through the opposition of ideas that we can learn to be self-critical, to work towards intellectual humility.
+- History is replete with ideologies of freedom, justice, liberation of the downtrodden and the exploited, that have been turned against the very people they had mobilised, or that have reproduced the same logic of exclusion and terror toward those whom they claimed to set free.
+- While criticism of Israel is legitimate and justifiable, it cannot be an excuse - in any way, shape or form - for anti-Semitism.
+- Cultures, along with the religions that shape and nurture them, are value systems, sets of traditions and habits clustered around one or several languages, producing meaning: for the self, for the here and now, for the community, for life.
+- In its haste to bolster nationalism, in its obsession with security, Europe is losing its soul.
+- Every country in Europe needs immigrants for its economic survival.
+- Advertising, music, atmospheres, subliminal messages and films can have an impact on our emotional life, and we cannot control it because we are not even conscious of it.
+- Political rhetoric leads only to confusion.
+- Freedom of expression is not absolute. Countries have laws that define the framework for exercising this right and which, for instance, condemn racist language.
+- This simple truth is the essence of my message to Muslims throughout the world: know who you are, who you want to be, and start talking and working with whom you are not. Find common values and build with fellow citizens a society based on diversity and equality.
+- Being Muslim has become synonymous with pointed questions, with tension and mistrust, even with conflict. It has become a global phenomenon with profound consequences for inter-communal relations, political rhetoric and policies at the local, regional, national and international level.
+- Religious symbols should be visible in public space, in a dignified and non-provocative manner. Christmas trees here, Jewish menorahs there and, further along, a minaret - these symbols represent human life in all its diversity.
+- No civilisation can claim to have a monopoly on universal values and no one can claim to be always faithful to his own values.
+- The fact that Western Muslims are free means that they can have enormous impact. But it would be wrong to claim that we are imposing our ways on the West. New ideas are now coming from the West. To be traditional is not so much a question of protecting ourselves as to be traditionalist in principle.
+- Violence against embassies and civilians must be categorically condemned. At the same time, we must attempt to understand why such events occur.
+- Clarity and consistency are not enough: the quest for truth requires humility and effort.
+- The very moment you understand that being a Muslim and being American or European are not mutually exclusive, you enrich your society. Promote the universal principles of justice and freedom, and leave the societies elsewhere to find their model of democracy based on their collective psychology and cultural heritage.
+- Discomfort levels in our societies are rising, or so it would seem. In theory, we invoke diversity and tolerance. But in real life, we raise our hackles and withdraw into ourselves.
+- Mankind must be positively and constructively wary of mankind, of their fellow man, of their families, of the members of their faith community, of their fellow-citizens.
+- Malaysia is a country unlike any other: Full of promise and fragility. Its history, cultural and religious diversity make it a rich, compelling and surprising land.
+- We must master our egoism, and through this mastery, step outside ourselves and educate ourselves in giving. Fasting requires that we rediscover all that is alive around us, and reconcile ourselves with our environment.
+- Our democratic societies are in danger. In allowing ourselves to be infiltrated by fear, to be blinded by the passion of identity, we are entertaining the most serious illusions about our freedom.
+- National politics and elections are dominated by emotions, by lack of self-confidence, by fear of the other, by insecurity, by infection of the body politic by the virus of victimhood.
+- The philosophy of fasting calls upon us to know ourselves, to master ourselves, and to discipline ourselves the better to free ourselves. To fast is to identify our dependencies, and free ourselves from them.
+- Terror will crash down on us if we fail to understand that a pluralistic society requires the personal and daily commitment of every citizen.
+- The rich stick together; the poor and the marginalised are thrown together.
+- My experience of living with people of diverse religions and cultures taught me that one will never be at peace with the other if one is at war with oneself.
+- Instead of looking outside of ourselves and counting potential enemies, fasting summons us to turn our glance inward, and to take the measure of our greatest challenge: the self, the ego, in our own eyes and as others see us.
+- Many U.S. organizations believe that I am being barred from the country not because of my actions but because of my ideas. The conclusion seems inescapable.
+- The 21st century - and the atheists - needs the presence of religion, just as religion must deal with the real challenges and the thinkers of the day in order to sharpen the conscience and the intelligence of those who study the timeless sacred texts in a spirit of responding to the questions of their time.
+- Fear and its accompanying emotional reactions have become part of the public mindset. Such reactions, while often legitimate, are also being exploited with increasing frequency for political ends.
+- The strength of democratic societies relies on their capacity to know how to stand firm against extremism while respecting justice in the means used to fight terrorism.
+- The month of Ramadan is the world's most widespread fast and yet its teachings are minimised, neglected and even betrayed (through literal application of rules that overlooks their ultimate objective).
+- Times have changed; so must the lenses through which we see the political future.

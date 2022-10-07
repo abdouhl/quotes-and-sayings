@@ -1,0 +1,51 @@
++++
+author = "Kurt Sutter"
+title = "Kurt Sutter Quotes"
+quotes_len = "45"
+description = "the best 45 Kurt Sutter Quotes"
++++
+- I wish I had tougher skin, but I don't.
+- My dad was disappointed in me because I was obese, and he was a sports guy. As a result, I spent a lot of time in that basement. I could go down there and escape and be whatever I wanted to be. I had a huge fantasy life. It always involved vengeance.
+- For me, money is about respect, and that is really important to me.
+- If there's any secret to my success, it's that I just hire people who are smarter and more talented than I am.
+- My wife, Katey Sagal, has transformed herself from a sitcom cartoon to a dramatic powerhouse.
+- I navigate through the world with the excitement and determination of a child. That's why I'm an artist. I'd die without an outlet for expression. Unfortunately, more often than not, that childlike energy is the maturity level I bring to many circumstances.
+- Never in the history of 'The Shield' was the word 'LAPD' ever mentioned. We would mention districts, like Wilshire and Hollenbeck and Marina, but Farmington was a fictitious district, and we never actually uttered the word 'LAPD.' So that was sort of the deal we made with them.
+- I'm drawn to the classic antihero, the guy who's probably made a bunch of mistakes and really has the capacity to go either way. That's the most interesting type of character for me to watch, to see what decisions they'll make. There's a lot of gray area there for a writer to explore.
+- All the people who follow me on Twitter know my sense of humor. I sometimes forget the blogosphere will give it more weight than I intended.
+- The rumor is not true: I am allowed in the state of Texas.
+- I joke that I learned the essentials of storytelling from Hanna-Barbera, but I pretty much did. That kind of television is what enamored me as a kid, and that's what really got me hooked. You could say that's where it all began.
+- The lazy blogosphere has given up on journalism and now trolls Twitter for their on-the-record in-depth articles.
+- I'm a guy who has problems with moderation. All or nothing. Binge and purge. Kill or be killed. Gray is not a color I wear well. I should be dead. I know that. I should not be successful. I know that too. My daily existence is a toss of the coin - one side, fear, the other side, gratitude.
+- By the time I was a teenager, I weighed 400 pounds.
+- I've been riding motorcycles since my early 20s, and I loved the hipness of the subculture.
+- The stuff that I learned on 'Sons,' the education of how to tell stories, was part of that mythology. It's hard to look at it and go, 'Oh, if I knew this, I would have done it this way,' because the fact is I like to think that all that sort of unraveled as it was supposed to.
+- I've learned in most areas of my life, to bounce heated choices off other people. Co-workers, my agent, my wife, a sponsor, etc. A majority of the time, that keeps me on the right side of things.
+- The whole Twitter phenomenon is really indicative of what's happening in this country. And I say this in condemnation of myself as much as anyone else - we are growing into a nation that has no time, desire or capacity for truth. All we can handle is 140 characters of knowledge.
+- I am a pile of reworked flaws weaved into a semi-functioning man.
+- I'm way too hypersensitive.
+- I'm a storyteller... I haves a God-given gift that I can share with you and perhaps entertain you and bring you along for the ride... So when anybody tries to take that away from me, or impede that, I get defensive.
+- I've made a career writing about fictitious anti-heroes. To create these worlds, I've spent a lot of time with active members on both sides of the law. And if I had to pick the most interesting of the two, the choice is obvious - we all love the guys in black.
+- Actors always feel more comfortable when there's an actor directing, in terms of vocabulary and breaking down a scene.
+- Me personally, I'm a guy who it took a long time to figure out what I'm supposed to be doing. I relate to a lot of that finding oneself a little later in the game, or being thrown a curve later in the game.
+- When I was doing research on the M.C.s and spending time with these cats, one of the things that struck me and made me realize that I could deliver this world to an audience was their really dark and acute sense of humor.
+- What I learned in 'Sons' is that I would come in with a blueprint of a season and how it would go, and I realized that the looser my grip was, the better it became because the story found itself. Things happened as I wanted them to in terms of the bigger mile markers, but the fun part was I never knew how we would get there.
+- Man's inhumanity to man is as old as humanity itself. Some people just do evil things. Most do not. A billion people have seen 'Batman' movies over the past 20 years, and they have been entertained and inspired. One man saw it as a sick entry point for mass murder. The one is tragic. The billion are not. I choose to write for the billion.
+- I'm a guy desperately in need of buffers. I have big feelings, big reactions, big emotions. All the things that serve me as an artist, but challenge me as a socially-responsible human being.
+- Unlike fiction, which you create before you go into production, with reality you kind of create it after everything is produced. The drama and the storytelling is really done in post.
+- The trap in Hamlet is he's the most passive of Shakespeare's characters. He's not a Richard III, not out there taking a lot of action. It's a lot of asides and soliloquies where he's wrapped in angst, and that's not a very interesting character.
+- I knew from being on 'The Shield,' and having some experience in the financials of all of it, that after seven seasons, the production model changes and reverts back. It becomes a much more expensive show to do, and perhaps the economic feasibility of it somewhat goes away.
+- I like to take fictitious characters and circumstances and wedge them into a real world.
+- The allegations against Harvey Weinstein are clearly deplorable. No matter how many great films he's bullied into production, or his guilt-induced contributions to left-minded ideals, this kind of intimidation and abuse of power is perverse and utterly unforgivable. Period.
+- I'm not, like, a gregarious guy. I don't walk into a room and want to engage people. I'm just not wired that way. One on one, I'm fine.
+- I can be arrogant, I can be insufferable.
+- You have to be driven by something greater than you, where you don't surrender, and you commit to something like that.
+- I was really exposed to great old-time literature - the classics, the poetic realists like Strindberg and Ibsen and all those guys. I was really inspired by all those guys. That's when writing became a primary focus.
+- I don't read a lot of fiction, but one of my favorite authors is William Kennedy; his books, to me, almost read like historical dramas because the mythologies are so detailed as he wove fiction with the factual history of Albany.
+- I don't think or write from big ideals.
+- One of my favorite movies is the old Depardieu film 'The Return Of Martin Guerre,' which is actually a true story and a book.
+- I know the book on me is I'm bombastic and over-the-top, but I think people who know me know that's a part of who I am, but it's not who I am.
+- I do not write political shows; I should not write political shows.
+- 'Sons' was about working class white guys. And even though I didn't grow up in a motorcycle club, I grew up in a working-class, white-guy neighborhood.
+- Here's the deal with 'Bastard.' I loved that show, and for me, it was such a palate cleanser, going from writing urban vernacular and crime to, essentially, iambic pentameter. I loved the mythology of that world based on history, but what it came down to was money.
+- What happens on 'Mad Men' in terms of the acting and the writing and the directing, it's superior. And yes, it has tremendous cache and buzz because it's become iconic, but it also deserves all the kudos and the awards as well, because it's a beautiful show to look at.

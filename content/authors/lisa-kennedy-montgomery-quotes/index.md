@@ -1,0 +1,101 @@
++++
+author = "Lisa Kennedy Montgomery"
+title = "Lisa Kennedy Montgomery Quotes"
+quotes_len = "95"
+description = "the best 95 Lisa Kennedy Montgomery Quotes"
++++
+- There are libertarians who are survivalists, who live in the middle of nowhere and who are ready for the world to end. And then there are pragmatists, and I would consider myself to be a pretty pragmatic person.
+- It's really great when you can admonish a lawmaker, but at the same time, get them to talk about the process of making government more transparent, then that's great.
+- Do you know who pays for socialized medicine? You do. And do you know what people do when they think it's abundantly free? They loot.
+- I talk to a lot of Democrats.
+- I've met a lot of great Republicans.
+- Oh my garden, I hope Cory Booker runs for president, just to watch him lose.
+- There is no more divisive character in modern politics than Steve Bannon, as he symbolizes the devil incarnate for the heaving, emotional left.
+- Social conservatism was really bringing me down. And I realized, as time went on, that I wasn't a Bush conservative. I was really a libertarian.
+- Sleep and hydration are the very best things you can do for your skin. You want to drink water and green tea throughout the day and get as much sleep as you possible can.
+- Beto is banking on his sacharrine positivity as the ultimate antidote to President Trump's honest saltiness.
+- For years we've been told by secretive power hoarders we need to compromise some of our hot freedom for security. Civil Libertarians have always known that hogwash claim was stinkier than week old trout jam, and we have warned about compromising liberty in the name of safety.
+- I definitely think my ancestry has something to do with my politics. And I think being deeply suspicious of government and communists is implicit in a lot of first-generation immigrants, particularly from Eastern Europe. My mom came over from Romania when she was a kid and they fled the commies who took their family hemp farm.
+- I didn't like Jenny McCarthy when I first met her.
+- What's great about MTV is that it belongs to whatever generation is the steward at the time.
+- If people want to watch music videos you can go to Youtube. But it would be great if there was still music on TV that people could check out and be visually excited by an artist.
+- Style in New York is much more accessorized and tailored and L.A. is way more flowy and day-to-evening. It is fluid and a lot of flip-flops and long skirts, which I think is great.
+- We all know what happens with socialized medicine: rationing and stagnant care.
+- There's a difference between John Bolton and Mike Pompeo.
+- When I was at Lakeridge High School, in my junior and senior years, my choir and theater department raised money so we could go to New York and see Broadway shows. It really changed my life.
+- God bless America!
+- I come from a very long line of very superstitious Romanian women who hold on to their chastity probably way too long.
+- There really shouldn't be public schools, should there?
+- All fraudulent elections should be condemned, including those in Turkey and Russia. And we need to be doubly mindful not to indulge amateur socialists in this country, because even though a Bernie Sanders presidency is a joke, the consequences of diet communism are deadly serious.
+- I do watch reality TV every night.
+- Pulling punches because someone happens to be a woman is disgusting.
+- I think that most people are natural libertarians.
+- Beto is not a transformational political saviour. He is a hypocritical hack who's so lightweight he goes where the wind blows even if it tumbles him and the economy to irreversible hell.
+- Wealth creation and job growth are nothing to be ashamed of, and the expression of economic creativity is a beautiful manifestation of freedom.
+- Caving into blather and peer pressure never bolstered anyone's argument.
+- I was born in Indiana and raised in Oregon and there's a strong sense of individualism, particularly in Oregon. And my mom is an artist, so there was always a lot of emphasis placed on expression.
+- In the beginning MTV was totally cool. Later on, there was more specific wording as to what I was allowed to do in public and the press.
+- She is like a monkey virus and will infect you and bleed you dry after you've given her too much personal information, and no reaction, word or deed from Courtney Love should surprise anyone.
+- All of Obamacare has resulted in human suffering.
+- So I think we need to set up an 'American Ninja Warrior' obstacle course at the border and whoever can make it - you can't fake it - they get through.
+- I have never kissed a woman, but Madonna in all her glory with coney bras and burgundy black 'Vogue' lips makes me rethink my heterosexuality.
+- We don't need any more regulation from government. You don't need overarching moralism to tell you how to live because human beings actually have a pretty well-developed moral center. The more government intrudes on the basic decisions you make, the further away you get from your natural morality.
+- Leaders' like Maduro, Erdogan and Putin hate freedom because it gives filthy peasants too much say and power over their own lives.
+- I loved my time at MTV because the music was critical; the music was our thrust. That's what the channel was all about. And I loved that, because we were pushing the limits with how we were covering and interviewing and consuming music and bands.
+- It is never ok for politicians to abuse their power for self enrichment, and even for has-beens and also-rans there has to be some brand of justice so present and future presidents don't get lured into taking crafty, well disguised bribes pretending it's 'charity.'
+- In politics there is plenty of division, hostility, tribalism, posturing; but there's almost no curiosity. Instead of wondering why someone holds a certain set of beliefs and asking how they came to them, it is easier to gather a mob and silence opposing viewpoints by force.
+- If Rick Santorum and Rachel Maddow are both gunning for you, it probably means you're on the right track.
+- I have had babies, so I've had ultrasounds and am very thankful for them.
+- Socialism is antithetical to freedom, because when it breeds and thrives, people die.
+- I love New Year's in Times Square so much.
+- Here's what set MTV apart from places like ABC News and other bastions of liberal news dissemination: we had a prime demographic, a twenty-four-hour cycle, and an aura that simply could not be manufactured, bought, or faked by the major networks.
+- Work always triumphs over dependency, as anyone who is engaging in the economy can attest.
+- That's not the way the government works. You can't just take $1 billion from this program, $1 billion from over here, and then put it toward your pet project.
+- Going on 'Howard Stern' was embarrassing.
+- Washington is nothing if not an orchard of absurdities, and poking fun at power brokers is neither sex blind nor for the faint of heart.
+- I have no problem with military and entitlement reform, lower costs raise freedom.
+- I called Rory McIlroy a leprechaun and believe me I wanted to call him much worse.
+- People at Fox are very close, and always feel like they're part of something. We may not agree on every issue, but it is a very special place.
+- With debt free college there is absolutely no incentive to rein in administrative costs when the government is foolishly pushing everyone to get a degree, regardless of need or desire, which only perpetuates the silly cycle for another generation.
+- My mom was very disappointed when I came out as a Republican in high school. And being a Republican in high school was really fun because all of my teachers were extremely liberal. Expressing anything that was counter to their deeply held beliefs was so easily unsettling that that form of contrarianism was very comfortable.
+- What people consider my worst interviews were kind of the best, as well, in a way, because they were so surreal, like J Mascis.
+- Like sexual harassment in the workplace and two-martini lunches, VJs are the stuff of legend whose time and train have passed, but I was fortunate enough to sneak into the express and ride it through the greatest age.
+- Easy spying is supposed to nab bad guys, but what happens when the small cabal of desperate men who head the security state see the future president as the bad guy?
+- What's cooler than pretending you hate money and giving away someone else's stuff under the guise of 'fairness?' You know what's cooler than that? Having the ability to make your own money, your own damn choices and not being subjected to mob theft that steals opportunity right out from under you.
+- It's really rare that you get to work with people who are passionate about what they do and show up every day and really put themselves into something.
+- Madonna taught me more philosophy than Ayn Rand.
+- I have nothing wrong with comics and writers poking fun at the President, as long as it's funny. When it's the same retread jokes with predictable punchlines, that's when it's offensive.
+- When the tax law changes and people are allowed to choose where their hard earned money goes, then do-gooders can opt to have their money go wherever they see fit. I would rather keep mine and invest and donate with greater efficiency.
+- Heavy handedness and entitlement goody bags are no way to solve our immigration and border crisis, but I've learned to expect almost nothing from the dimwits in power who feel entitled to take everything.
+- I have a really curly hair.
+- The promise of socialism is a lie.
+- I made myself a promise that every time I turned on the microphone, no matter what it was, I was going to say something of value.
+- I celebrate political protest, it is necessary and protected for a reason, but make it good people!
+- Parents, teachers, professors, economists, pundits, entrepreneurs, tinkerers and misfits all have to do a better job of unapologetically singing the praises of capitalism and free markets which unequivocally demonstrate the ability to pull people out of poverty and improve and lengthen their lives.
+- Implying women are too weak to take a joke is *implicitlty* sexist, and ridiculous.
+- Conservatives who decried Trump's rise (and those who scoffed at his chances of winning a single primary were legion) are the same 'purist' boxing snobs who could never grasp the popularity - and populist legitimacy - of wrestling.
+- It must be hard being Jim Carrey. His precipitous fall from comedic grace has climaxed in a sad thud as the once brilliant rubber-faced comic has transformed into an unfunny, thick human hemorrhoid.
+- I want my girls to see that if something is really important to you, you have to move hell and high water to make it work.
+- If you thought car maintenance was covered by Uncle Sam and you never saw a bill, what would keep your from getting new brakes every few months?
+- I really like Savannah Guthrie. I think that she is a very likable person.
+- Buttigieg was a naval reservist who served as a lieutenant in Afghanistan, so he has seen first hand how American foreign policy has veered wildy off her once-well-rooted tracks.
+- If you leave government life for greener private sector pastures, why on earth do you still need to peep into the nether reaches of national secrets unless you're either addicted to preserving that special power or you plan on making sweet cash off your top secret stash?
+- We don't want to raise sheltered children. They should see different parts of the country, and they should experience things.
+- I had such a warped self-image. And I really think America thought I was an eccentric loudmouth. I thought I was demure.
+- Here is a piece of advice: If you want to strengthen your views, challenge them.
+- I love the influence of surf culture on fashion in L.A.
+- I love reality shows, and I love talking about them.
+- Abortion, to me, is an issue of personal responsibility.
+- I mean, the whole enterprise, all of Obamacare is immoral.
+- If money weren't cool, pseudo-socialists like Bill Maher and Chelsea Handler would tell jokes for free in soup kitchens.
+- It was Comey who wrecked the FBI and allowed this witches brew of biased managers to simmer and boil over when things didn't go as he planned.
+- Everyone wants to be liked. It's a basic human impulse for some of you, and that explains the turn-on-a-dime hypocrisy from people like Jim Carrey and Sean Penn.
+- I loved 'Breaking Bonaduce.' I was amazed it made it on TV. It was so raw, so disturbing.
+- It's hard to pin Beto down on what he really stands for. Between the clumsy apologies and vacant platitudes, he doesn't seem to have a set of philosophical priorities other than using his goofy ears to do a lot of listening so he doesn't have to make any truly bold policy declarations.
+- People think that libertarians are probably greedy and anti-social, and I'm sure some of them are. But the nice thing about it is, it's really an umbrella term that covers a lot of different people.
+- If you think about the kind of people you want to have in this country, you want people who are hardworking, people who are ethical, people who look out for their families and their communities and people who are very physically strong.
+- I don't have the stomach for 'Fear Factor.'
+- I'm consistently pro-freedom. No matter where I go, whether it's Fox or when I'm walking around the block or going to the dog park, I will agree with people on pretty much half of everything. Freedom is something I believe in across the board, and I will fight for that.
+- Both my parents were Democrats. My dad was definitely more of a fiscally conservative traditional Democrat. My mom was more of a feminist Camelot Democrat. They definitely had an idealistic view of life as it should be in the United States. And they had a sense that government had to have some hand in making people's lives better.
+- James Comey is a corrupt, narcissistic weirdo.
+- Beto O'Rourke speaks in annoyingly pert platitudes like some mediocre yoga instructor who promises to 'build a movement.'

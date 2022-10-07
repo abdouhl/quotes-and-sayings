@@ -1,0 +1,113 @@
++++
+author = "Travis Kalanick"
+title = "Travis Kalanick Quotes"
+quotes_len = "107"
+description = "the best 107 Travis Kalanick Quotes"
++++
+- Safety is number one at Uber... so we make sure the system is in place so riders get the safest ride possible.
+- We're just technologists.
+- Every Uber employee should be proud of the culture we have and what we will build together over time.
+- Immigration and openness to refugees is an important part of our country's success and, quite honestly, to Uber's.
+- I'm a natural-born trust-buster.
+- I'm an engineer by trade, and what engineers do is they go and build, and they don't think a lot about storytelling.
+- What we like to say is that the vision for Uber is the cross between lifestyle and logistics.
+- There will be a huge, huge positive impact for society when driverless cars become a thing.
+- Ultimately, progress and innovation win.
+- After Scour, I started a company called Red Swoosh. The idea was to take those litigants who sued us for a huge amount of money and turn them into customers with the same technology. I wanted to get them to pay me. It was a revenge business.
+- You can bend reality, but you cannot break it.
+- When you are talking about, 'I will lose my sanity for real,' that's when it's time to move on.
+- Some city-council people are really awesome, but most are uninspired.
+- We always find a way to learn and to get better.
+- Imagine if we could create the most just workplace in the world. We would naturally be a magnet for all the great minds out there.
+- We want transportation as reliable as running water.
+- I think Uber is just very different; there's no model to copy. It may be the reason why we've been a lightning rod in so many ways, because we don't do anything conventional... And then I think also, as an entrepreneur, I'm a bit of a lone wolf.
+- I like pralines-and-cream ice cream.
+- In my first start-up, I didn't get any salary for four years, so I had to move back with my parents.
+- The folks who rock Uber value their time; they appreciate nice things with a taste of luxury and loathe inefficiency.
+- Acknowledging mistakes and learning from them are the first steps.
+- I talk a lot about justice. I'm about it. I'm also about civil disobedience.
+- If Uber is lower-priced, then more people will want it. And if more people want it and can afford it, then you have more cars on the road. And if you have more cars on the road, then your pickup times are lower, your reliability is better. The lower-cost product ends up being more luxurious than the high-end one.
+- If there was a mobility service that's cheaper than owning a car, more reliable, and you get to sit in the back seat instead of being stressed out in the front seat, why would you own a car?
+- You have to find ways to find that center, to find that balance, to find sanity, because again, we are getting bigger, and people look at us that way. We have to find that new balance.
+- In many ways, we look at Uber as the safety net for a city.
+- There is a core independence and dignity you get when you control your own time.
+- Hamilton is my favorite political entrepreneur.
+- I wake up in the morning with a list of problems, and I go solve them.
+- In some way, L.A. respects the young guy that's out there just trying to make it happen, but in some ways, they disrespect that, too.
+- You have to be willing to stand up for what you believe in, and the rule of law is one of those things.
+- Uber is a global business. We don't think just in terms of the U.S.
+- We did a year of Uber in San Francisco before we went to a second city. You get those processes down, then you really get started.
+- Uber exists because of mobile telephones.
+- I think a lot of folks feel like Uber was a company they missed out on. Sequoia passed on us three times.
+- If somebody can offer value at a cheaper price, they should. But that also means Uber should, too.
+- I was the straight-A student but sort of a little bit of debating my parents all the time, trying to find when they weren't logically correct.
+- I've never been derogatory towards taxi drivers.
+- The regulatory systems in place disincentive innovation. It's intense to fight the red tape.
+- A regulator is supposed to create and enforce a standard.
+- I know about traffic.
+- Based on my experience, I would say that rather than taking lessons in how to become an entrepreneur, you should jump into the pool and start swimming.
+- I have been trying to understand the regulators.
+- There's hundreds of millions of people that are card members at AmEx - all of them should be using Uber.
+- My politics are: I'm a trustbuster. Very focused. And yeah, I'm pro-efficiency. I want the most economic activity at the lowest price possible. It's good for everybody; it's not red or blue.
+- I used to be a computer engineer, and I can make really good code, and we can make systems that work really well, and we can make the application a great experience, but when you have to translate bits to atoms, you need folks who are used to working with city governments, with state governments, and so I like to say we're in a political campaign.
+- If you can make it economical for people to get out of their cars or sell their cars, and turn transportation into a service, it's a pretty big deal.
+- I think that's where the world is going. People will not own cars; they'll have a service that takes them where they want to go, when they want to go there. And that's what Uber is.
+- I spent a disproportionate amount of my time in a car in L.A. I'm 35 years old. If you add up the hours spent in cars, it would be years.
+- In China, the government is involved in business in many different ways. They're involved in media and business. When you go to China, you have to rethink how you're doing everything. You have to become Chinese.
+- It was a privilege to meet Rev. Jackson, and I learned a tremendous amount from his insight.
+- When people start to perceive you as the big guy, you're not allowed to be scrappy, fierce.
+- If you are focused on profits right out of the gate, you're gonna have the smallest profitable business that has ever been seen.
+- I've had failures myself before Uber.
+- Think of a world where there is no ride-sharing; people are driving themselves to work. You now have 30 people being served by 30 cars. Those 30 cars are only served 4% of the day; 96% of the day, they're stored somewhere. Around 20% to 30% of our land is taken up just storing these hunks of metal that we drive around in for 4% of the day.
+- Money doesn't buy happiness, but it does pay for therapy.
+- Every day, I get a little smarter.
+- What I like to say when you get into something that feels like a bubble or, at least, feels irrational is that you still want to build a company that has a strong discipline, business-building culture.
+- There's been so much corruption and so much cronyism in the taxi industry and so much regulatory capture, that if you ask for permission upfront for something that's already legal, you'll never get it.
+- There's probably some misunderstanding of who I am and how I roll.
+- We're in the business of delivering cars in five minutes, but once you can deliver cars in five minutes, there's a lot of things you can deliver in five minutes.
+- China is just so different from the rest of the world.
+- As much as I'd love to give everybody a really cheap option, it's just simply not possible in certain sorts of extreme events... I guarantee that our strategy on surge pricing is the optimal way to get as many people home as possible.
+- Uber riders are the most affluent, influential people in their cities.
+- The world isn't always great.
+- If you get stuck too much with the way you want the world to be, you will find that the world passes you by.
+- I'm a passionate entrepreneur. I'm like fire and brimstone sometimes. And so there are times when I'll go - I'll get too into the weeds and too into the debate, because I'm so passionate about it.
+- Adventure with a purpose is what we do.
+- I got really good at negotiating from a place of weakness.
+- I call it dark energy. If you are unreliable, customers just disappear.
+- If you're operating from strong principles, you can compromise when the person on the other side is operating from principles you respect.
+- You can't control who you fall in love with.
+- What I've learned as we've gotten bigger is that it's really, really important for us to take all the opportunities to tell our story, because as we grow and have a bigger impact on cities, if we don't tell our story, somebody else will.
+- Competition is good.
+- Being Uber means being efficient.
+- I am from Los Angeles, and my parents are from Los Angeles.
+- The way I try to simplify my job is that I have two lists - I have a list of all the crazy, interesting problems that I get to solve every day or that need to be solved, and I have a crazy list of things I'd like to invent. And I kind of just prioritize them and work my way down, and try to simplify what I do when managing a big company.
+- Sports uplift us. It's celebratory, gives us optimism and joy.
+- Competition is fun.
+- I really love numbers.
+- The ability for somebody to put their arm out and get a taxi is fundamentally different then having a 10-minute pickup time. It just is.
+- Every problem is super-interesting and has its own nuances, and you solve it today, but you try to solve it with an architecture. You build a machine to solve the problems that are like it later. And then you move on to the next.
+- Millennials aren't buying cars anymore. They don't want to drive. They don't want to own these cars. They don't want that inconvenience.
+- We need to figure out how to merge political progress with actual progress.
+- Imagine if you put many, many years of your life into something and were passionate about it, and you spent every waking moment putting love into it and trying to make it better, and people didn't understand that. You'd want them to.
+- I don't believe that you can make decisions on anything without having all of the details.
+- Limos, from the beginning of time, they know who they're picking up, they usually have a credit card on file, they know where the pickup location is, and so there's essentially a prearrangement of sorts, and, of course, the limo customer knows the driver, knows the company, knows the rates. All we've done is make it more accessible.
+- Surge pricing only kicks in in order to maximize the number of trips that happen and therefore reduce the number of people that are stranded.
+- You want supply to always be full, and you use price to basically either bring more supply on or get more supply off, or get more demand in the system or get some demand out.
+- I believe in creating a workplace where a deep sense of justice underpins everything we do.
+- If Uber wants to catch up to Google and be the leader in autonomy, we have to have the best minds. We have to have all the great minds.
+- At Uber, we say, 'Always be hustling.' Even if you are an introvert and you haven't got hustle in you, you better get a co-founder who does. And if you haven't got enough hustle to find a co-founder who's got hustle, it's going to be tough. You've got to have a little hustle in you.
+- Even before you get to self-driving vehicles, there's just a huge amount of positive things that happen to cities when you do ridesharing.
+- There's a harsh reality to situations where demand outstrips supply.
+- I think the stress will kill me. I think it will be the stress.
+- There are a lot of rules in cities that were designed to protect a particular incumbent, but not to move a city's constituents, a city's citizens, and the city itself, forward. And that's a problem.
+- We want to get to the point that using Uber is cheaper than owning a car.
+- I'm a geek. A techie geek.
+- Uber is efficiency with elegance on top. That's why I buy an iPhone instead of an average cell phone, why I go to a nice restaurant and pay a little bit more. It's for the experience.
+- We have to bring out the truth about how dark and dangerous and evil the taxi side is.
+- When you start to automate, you start to do the self-driving thing, you make it much more efficient. When these cars go into self-driving, you start to become a robotics company.
+- I've been an entrepreneur since I was 18. I started a company with a bunch of buddies that got funded in my senior year, and that's when I finished school. It was called Scour, a peer-to-peer service, file-sharing.
+- As an entrepreneur, I try to push the limits. Pedal to the metal.
+- I prefer building rather than fundraising.
+- I like to say time is a luxury.
+- We have this culture valued at Uber, which we call the champions' mind-set. And champions' mind-set isn't always about winning. It's about putting everything you have on the field, every ounce of passion and energy you have. And if you get knocked down, overcoming adversity.
+- In order to keep the love going, you want to keep it fun.

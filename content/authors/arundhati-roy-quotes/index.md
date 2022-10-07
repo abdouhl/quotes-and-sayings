@@ -1,0 +1,58 @@
++++
+author = "Arundhati Roy"
+title = "Arundhati Roy Quotes"
+quotes_len = "52"
+description = "the best 52 Arundhati Roy Quotes"
++++
+- The amassing of unfettered wealth of individuals and corporations should stop. The inheritance of rich people's wealth by their children should stop. The expropriators should have their wealth expropriated and redistributed.
+- I am a Maoist sympathiser. I'm not a Maoist ideologue, because the communist movements in history have been just as destructive as capitalism.
+- I think many people were surprised by the victory of the Congress, because it was really hard to see beyond the sort of haze of hatred that the Hindu nationalists had been spreading.
+- I could have lived anywhere in the world now if I wanted to.
+- The Occupy movement found places where people who were feeling that anger could come and share it - and that is, as we all know, extremely important in any political movement. The Occupy sites became a way you could gauge the levels of anger and discontent.
+- In California, there are huge problems because of dams. I'm against big dams, per se, because I think that they are economically unfeasible. They're ecologically unsustainable. And they're hugely undemocratic.
+- I have truly known what it means for a writer to feel loved.
+- You begin to realize that hypocrisy is not a terrible thing when you see what overt fascism is compared to sort of covert, you know, communal politics which the Congress has never been shy of indulging in.
+- All my books are accidental books - they come from reacting to things and thinking about things and engaging in a real way. They are not about, 'Oh, did it get a good review in the Guardian?' I don't care.
+- Today, we seem to be striving towards injustice, applauding it as though it's a worthy dream, made sacred by the caste system.
+- In a way, writing is an incredible act of individualism, producing your language, and yet to use it from the heart of a crowd as opposed to as an individual performance is a conflicting thing. I do stand alone, and yet it's not about being an individual or being ambitious.
+- I think people ease into this careerist professionalism, so if you're a writer it's your job to manufacture books as opposed to writing them and to go to festivals and spend your life emotionally invested in reviews or the awards. You have to shrink your universe in a way. To me, it's the opposite.
+- The mullahs of the Islamic world and the mullahs of the Hindu world and the mullahs of the Christian world are all on the same side. And we are against them all.
+- The Congress has historically played covert communal politics in order to create what in India we call vote banks where you pit one community against another and so on in order to secure votes.
+- I don't want to play these games of statistics any more; I have done that. I don't want to be imprisoned by that, or by the morality that is expected of activists. I have never been that pristine person, that role model.
+- As a writer, I have to go to a different place now. As a person... I want to step off whatever this stage is that I have been given. The argument has been made, the battle remains to be fought - and that requires a different set of skills.
+- Novels are such mysterious and amorphous and tender things.
+- You have come to a stage where you almost have to work on yourself. You know, on finding some tranquility with which to respond to these things, because I realize that the biggest risk that many of us run is beginning to get inured to the horrors.
+- I'm not ambitious. I don't want to get anywhere, I don't want anything more. I sometimes think that for me that is the real freedom, that I don't want anything. I don't want money or prizes. I want people to know that a war is going to be fought.
+- Caste is about dividing people up in ways that preclude every form of solidarity, because even in the lowest castes, there are divisions and sub-castes, and everyone's co-opted into the business of this hierarchical, silo-ised society.
+- The fact is that America's weapons systems have made it impossible for anybody to confront it militarily. So, all you have is your wits and your cunning, and your ability to fight in the way the Iraqis are fighting.
+- There are people who have comfortable relationships with power and people with natural antagonism to power. I think it's easy to guess where I am in that.
+- I think one of the saddest things that's happening to literature is that it's getting over-simplified by this diet of simple political ideas.
+- When you say things like, 'We have to wipe out the Taliban,' what does that mean? The Taliban is not a fixed number of people. The Taliban is an ideology that has sprung out of a history that, you know, America created anyway.
+- I do what I do, and write what I write, without calculating what is worth what and so on. Fortunately, I am not a banker or an accountant. I feel that there is a time when a political statement needs to be made and I make it.
+- Pity the nation that has to silence its writers for speaking their minds.
+- I think the kind of landscape that you grew up in, it lives with you. I don't think it's true of people who've grown up in cities so much; you may love a building, but I don't think that you can love it in the way that you love a tree or a river or the colour of the earth; it's a different kind of love.
+- To me, there is nothing higher than fiction. Nothing. It is fundamentally who I am. I am a teller of stories. For me, that's the only way I can make sense of the world, with all the dance that it involves.
+- My mother is like a character who escaped from the set of a Fellini film. She's a whole performing universe of her own. Activists would run a mile from her because they could not deal with what she is.
+- There can be nothing more humiliating for a writer of fiction to have to do than restate a case that has already been made.
+- I'm living to the edges of my fingernails, using everything I have. It's impossible for me to look at things politically or in any way as a project, to further my career. You're injected directly into the blood of the places in which you're living and what's going on there.
+- Years of imprisoning and beheading writers never succeeded in shutting them out. However, placing them in the heart of a market and rewarding them with a lot of commercial success, has.
+- Fiction is too beautiful to be about just one thing. It should be about everything.
+- I am very conscious that, from the time of 'The God of Small Things' was published 10 years ago, we are in a different world... which needs to be written about differently, and I really very much want to do that.
+- Everybody can't have the life of a normal, average American person in India - they can't. So, it's about egalitarianism. It's about sharing things more equally. It's about access to natural resources.
+- I'm a social cripple in a cocktail party. My idea of a nightmare is people standing very elegantly dressed in a room with a drink in their hand. I'm just like, 'Urghh!'
+- If we were to lose the ability to be emotional, if we were to lose the ability to be angry, to be outraged, we would be robots. And I refuse that.
+- Torture has been privatized now, so you have obviously the whole scandal in America about the abuse of prisoners and the fact that, army people might be made to pay a price, but who are the privatized torturers accountable too?
+- Another world is not only possible, she is on her way. On a quiet day, I can hear her breathing.
+- For many people, the family is portrayed as the settled place of reasonable safety, but as anyone who has read 'The God of Small Things' would know, for me it was a dangerous place. I felt humiliated in that space. I wanted to get away as soon as I could.
+- Everyone thinks I live alone, but I don't. My characters all live with me.
+- Do you think that the people of South Africa, or anywhere on the continent of Africa, or India, or Pakistan are longing to be kicked around all over again?
+- If you ask me what is at the core of what I write, it isn't about 'rights', it's about justice. Justice is a grand, beautiful, revolutionary idea.
+- To call someone like me a writer-activist suggests that it's not the job of a writer to write about the society in which they live. But it used to be our job.
+- Some writers like to boil down headlines of liberal newspapers into fiction, so they say there shouldn't be communal riots, everybody should love each other, there shouldn't be boundaries or fundamentalism. But I think literature is more than that; these are political views which most of us hold anyway.
+- I would never, ever use a novel to do thinly disguised political information dissemination. For me, all these experiences, they sat in me, and they got broken down into my body, and I sweated it out. It's not because I want to talk about 'issues.' For me, a novel is a way of seeing the world.
+- I have nothing against romance. I believe that we must hold on to the right to dream and to be romantic. But an Indian village is not something that I would romanticize that easily.
+- I kind of resent the idea that the whole world has to be interested in the American elections.
+- When I decided to write 'The God of Small Things', I had been working in cinema. It was almost a decision to downshift from there. I thought that 300 people would read it. But it created a platform of trust.
+- Democracy no longer means what it was meant to. It has been taken back into the workshop. Each of its institutions has been hollowed out, and it has been returned to us as a vehicle for the free market, of the corporations. For the corporations, by the corporations.
+- Sometimes I think the world is divided into those who have a comfortable relationship with power and those who have a naturally adversarial relationship with power.
+- I never, ever decided that I had to write a novel because, to me, there's no such decision that ought to be made. It's only something that I felt compelled to do, and it began to evolve.

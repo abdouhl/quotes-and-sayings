@@ -1,0 +1,44 @@
++++
+author = "Tori Kelly"
+title = "Tori Kelly Quotes"
+quotes_len = "38"
+description = "the best 38 Tori Kelly Quotes"
++++
+- I remember growing up singing; even when I was just three years old, I was singing all the time in the house. My parents said I was singing before I could even talk properly.
+- 'Unbreakable Smile' was based off one of the songs I wrote for the album - it was actually the first song I wrote for the album without realizing it yet. I think I wanted to name the album that because it seemed like that was just the theme of that chapter in my life and just the theme of all the songs put together.
+- Everything I write about either I have gone through or I know somebody has gone through, so it's very close to me, but sometimes it's about taking those feelings and exaggerating on them a little bit: being a bit more dramatic but still keeping them relatable.
+- I would like to be somebody young people, young girls, can look up to.
+- I really grew my own fan base. I started posting videos on YouTube with the help of my parents.
+- It'd be cool to do something with Coldplay, and Ryan Tedder's amazing.
+- It's so important to me to take care of my voice. I do a lot of vocal warms-ups right before I go on.
+- People will come up to me at shows and tell me that a song touched them in a completely different way than I wrote it. That's fun. Fans translating it in their own way.
+- I think, for me, the goal was never really for my EPs to go mainstream. I think the intention of them was to create a little bit of buzz and to show my musicality because I wrote and produced the EPs myself. The goal was to experiment, with no rules.
+- Reggae is definitely a natural influence. Even living in Southern California, near the water, you get that reggae feel.
+- I'm a '90s kid, so I went into the entire album process wanting to incorporate little touches of that sound from hip-hop and R&B. Just enough to where you hear it subtly and then go, 'This kind of reminds me of that time.'
+- One of the most important things to me as a songwriter is to make music that's young and fresh but also soulful and real. I want people to feel like they know me once they listen to my songs.
+- Why do we even use hashtags? It's just like a sub-thought. Who clicks on hashtags? Nobody.
+- My style is very laid back. I like to be comfortable, but with some kind of piece that pumps it up a little bit - something more high fashion.
+- My fans were the ones who discovered me on YouTube. I don't ever want to forget that.
+- I feel really comfortable when it's just me and a guitar. It's special and more vulnerable to strip it down. It can be scary, but it's also empowering.
+- Nineties hip-hop was a big influence for me; it still is. I love '90s everything. And it's when I was born, too. I'm a '90s kid for sure.
+- My first competition, I guess, singing-wise, I was six years old, and there's a video of it, too. I'm just, like, stick straight. I'm not moving at all, and I'm just singing.
+- I started writing music when I was 15 in my bedroom, and I'd post them on MySpace, and from there it shifted to doing covers on YouTube and building my Twitter.
+- My faith is a huge part of my life. I don't force it into my music, but it's in my experiences, so it comes through. People pick up on what they want to pick up on, but any way strangers connect to a song that I wrote is awesome.
+- All my life, I was even just wanted to attend the Grammys, like, just be there, so the fact that I'm nominated for Best New Artist, it feels like a dream.
+- When I walked into the studio, the chorus of 'Nobody Love' was already set. For me, the challenge was to make it have depth.
+- I was actually signed at a very young age - I was 12 - and one thing led to another, and I ended up in a mutual split from the label. But it was probably the best thing that could have ever happened, because I was able to kind of leave the industry side of it for a minute and focus on the independent side.
+- After I shower and put in all my products, I hang out with the diffuser with my head flipped over for five to seven minutes. But before I use a hair dryer, I'll towel-dry my hair. Actually, drying your hair with an old T-shirt is a great trick. It helps to get all the extra water out, without bringing on frizz.
+- I'm so thrilled to be partnering up with William Rast. I'm such a fan of the brand and being a part of the new campaign has been amazing.
+- The first time I worked out I almost threw up. I did not feel good at all. My friend said, 'You have to get past the first month, you're going to feel so much better.' And she was right: After about 30 or 40 days, I saw changes.
+- I think with my journey so far, it never felt like an overwhelming, overnight success story. I think that's good for me because I really got to take my time.
+- I think in 2016 I'm going to focus on performing a lot more and doing as many shows as I can. There's plans to tour more, and that's where my heart is - doing the live shows.
+- I really like to rock it natural and let my hair go wild, but when I do style it, I slick all the hair over to one side with pins. It's either that or a messy bun.
+- 'American Idol' was fun; it was definitely an experience. I was 16 years old when I did it, and I was curious about how I would do on the show.
+- I've never seen myself as a pop singer. I grew up listening to gospel, soul and rock. My approach to pop is that, when I was doing my album, I wanted to have raw, genuine lyrics, but wanted it to be easy to process.
+- When I'm on stage, I generally wear what I would wear every other day, but I think my hair is probably bigger on stage - it seems to be my accessory!
+- I've always been a fan of a good skinny jean, which William Rast does so well. I can dress them up or down, and they feel good throughout a long day.
+- My style is understated because everything I wear, I want it to have an effortless feel to it. I always want to be comfortable in my clothes and feel like myself, but I like to usually throw in some edge in there somewhere, even just with a leather jacket. But overall, always gotta keep it classy!
+- I know Pentatonix. I knew them before they were even a group.
+- Gospel was the root of everything in my house, so there's a touch of that in everything that I do. If soul counts as a genre, I would also say that's the common thread throughout everything I do. There's rock and soul influence, too. The pop element comes at the very end and making the song catchy so people will remember it.
+- 'Funny' is really cool live. You break it down into an acoustic set, and sometimes I'll do that one unplugged and off the mic, depending on the venue.
+- I use this brand called Ouidad; they're great. Not Your Mother's is another one. Garnier Fructis. I use a bunch of stuff. Literally, I just throw a huge concoction of stuff in my hair after I get out of the shower, and then I diffuse it.

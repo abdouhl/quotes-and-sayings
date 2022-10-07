@@ -1,0 +1,90 @@
++++
+author = "Randy Pitchford"
+title = "Randy Pitchford Quotes"
+quotes_len = "84"
+description = "the best 84 Randy Pitchford Quotes"
++++
+- Blue Shift' is a game that I'm very proud of.
+- I mean, of course there's art in video games - duh.
+- Of course, the idea that a robot can have a sexual identity is kind of an absurd one.
+- One of the things I wish Sony would do is get behind 'Borderlands,' because I'd love to see a Vita version of the game.
+- When I'm in line at the grocery store, I might pick up one of those tabloids. I might not even buy it. I'm just gonna sit there and read the headlines and chuckle at how stupid that stuff is, even though I'm reading it anyway.
+- Demand alone might let a business case be created, but things driven by that will have a risk of being soulless. You need it being driven from both directions. You need the nexus between demand and creative passion that wants to make something.
+- Duke Nukem' helped bridge the gap between games designed for adults and what they wanted in their entertainment as adults who also wanted to have fun. 'Duke Nukem' bridged that gap and helped bring those things together. It's one of the reasons it succeeded at the time.
+- As successful as 'Borderlands' is and as much fun as everyone is having going after all the loot and finding and using all the weapons in the game, I often think that we really missed the mark by only doing 87 bazillion guns.
+- Most single player games put a lone character against an army that is just standing around waiting for the player to show up and defeat them.
+- And Duke Nukem, I think he is the most iconic videogame character in the industry. I think Lara Croft is the female and Duke Nukem is the male. Between them, they're the most iconic figures in videogames.
+- Teamwork is a significant part of 'Counter-Strike: Condition Zero' and many of the secondary objectives require you to effectively work with your squad.
+- Sometimes we do derive some entertainment when we 'appreciate' something, and sometime we feel something when we're moved. So a lot of game makers want challenge themselves with 'can I move someone?' or 'can I get them to respect me as an artist?'
+- Each scenario in 'Battleborn' is kind of like a TV episode, you can play them in any order, and each one has a beginning, middle, and end. And they are super replayable.
+- With 'Duke Nukem Forever' it was a different level of commitment for me with reference to helping the creators be true to their vision. I've been able to enjoy this game as much as a fan as I am a part of the creative process, and that's a very rare and unique for me.
+- I have a lot of respect for those in medicine that are trying to extend our lives or help us when we're sick.
+- The philosophy at Valve and Gearbox is that if things can't be done better, they shouldn't be done at all.
+- I think the first things I did, I used to try to create digital versions of Dungeons & Dragons that would help me generate a character, that would roll the dice for me.
+- Condition Zero' introduces quite a bit of content and gameplay to 'Counter-Strike' including new weapons, characters, mission types and even new technology to enhance to look and feel of the game.
+- I've only experienced it a few times where you get to have a thing that simultaneously gets some critical respect, some critical success, while also having sales success. Sometimes you get one or the other if you're lucky.
+- I think it's safe to say that 'Half-Life' was influenced by every first person action game that preceded it.
+- We're trending towards the holodeck. Eventually we'll have a system that's indistinguishable from reality.
+- The first-person shooter genre owes itself to 'Duke Nukem.'
+- If we look at 'Borderlands,' I can't honestly say that there is anything about how well the game sold that I'm disappointed about.
+- I think I would not be who I am if I did not have experience both as an audience and as a performer in those early days of my career. It taught me what entertainment is all about.
+- I wonder if too frequently publishers and developers are so caught up with going after new, untapped audiences that they can forget to care for the largest, most loyal and reliable audience there is - the current gamer.
+- Taking 'Duke Nukem Forever' on was a very easy decision for me to make.
+- When you think of what 'Borderlands 3' should be, it should be massive. It should be bigger and better than 'Borderlands 2.' It should carry forward the story.
+- We decided we were going to do more 'Brothers In Arms,' and we were also going to create something original that no one else was doing, and that's what led to 'Borderlands.'
+- One of the neat things about Gearbox that I love is, we don't look at our designs as a totalitarian regime and we're all really happy to let designers and creators within the studio explore in our space.
+- Things that are created with passion tend to work out better than things that are assignments that we don't really want to do.
+- A mission to entertain the world is a good one because it's impossible to achieve.
+- If you're going to take a risk, some people will like what you offer, and some definitely won't.
+- The Dreamcast version of 'Half-Life' is great - it looks better than the original PC version and it's the only way console owners can enjoy 'Half-Life: Blue Shift.'
+- There's no trend lines that work in entertainment. You can break any trend line by offering value that we as consumers of content want.
+- We're convinced that Frisco Square is the perfect environment for Gearbox Software's new headquarters and we are eager to break ground, build out and move in so that we may join the community and bring everything we can to the city as a Frisco business and as Frisco citizens.
+- I want to make sure that people with talents, who want to perform or to develop their act, know that the Peacock Theater exists and to reach out to us and know that there's a safe and fun place for them to develop their material.
+- Sometimes you stumble when you push yourself harder and you're trying to run faster or whatever. We forgive ourselves, pick ourselves up, and keep running. We don't cry and stop running because we skinned our knee.
+- There's a different kind of experience you have when you experience live entertainment versus the kinds of media we tend to consume most of, when we're watching television or films or reading books. Live entertainment is a whole different beast.
+- Do something good, and people want that! Do something less good, and people want it a little less!
+- I did not acquire the franchise merely so people could experience 'Duke Nukem Forever.' That was, sort of, the toll to pay to give 'Duke Nukem' a chance at a future.
+- I've decided, because we have a short time here, that those of us that create joy and happiness, that's a really noble thing.
+- There are several cool cross-overs between 'Blue Shift,' 'Opposing Force' and 'Half-Life.' The plots are all designed to work nicely with themselves and the observant player will catch many cross-references.
+- What a lot of people don't know is that I got started as a professional gamemaker when I moved out to Texas to join George Broussard and Scott Miller and Allen Blum who created Duke Nukem, to join those guys and become part of the 'Duke Nukem 3D.'
+- The hallmarks of the 'Brothers in Arms' series are about authenticity, squad combat, brotherhood between soldiers.
+- I owe my career to 'Duke.'
+- Up until 'Blue Shift,' 'Half-Life' characters were repeating, expendable entities. In 'Blue Shift,' important named partners will work with you over the course of several levels and objectives in order to overcome the hazards of the plot.
+- From a narrative perspective, 'Blue Shift' for the PC and 'Blue Shift' for the Dreamcast are very similar.
+- If you're successful, 'Blue Shift' has what many have called the most satisfying 'Half-Life' ending yet.
+- My dad used to build computers for the U.S. government, for military intelligence. So he always had computers around the house.
+- No gamer, whether you've played 'Duke 3D' or you haven't, can play 'Duke Forever' without having experiences that surprise them.
+- Myself and the team at Gearbox have a very keen interest in cross-platform play.
+- Wired gave 'Duke Nukem Forever' the first Vaporware Award, and then the next year it won No. 1 vaporware again, and then again and again until Wired decided, you know what? 'Duke Nukem' is just going to get the lifetime achievement award for vaporware.
+- Why is 'Borderlands' different from every other game with respect to DLC? It's because we haven't really worried about what the past models are. We just thought about what would be fun for us to make and what there would be demand for if it were to exist.
+- PAX is not a show about retailers, not a show about journalists. It's about players.
+- I, personally, trust Valve. But I'm just saying, honestly, I think a lot of the industry doesn't.
+- But it's only through joy and happiness that life has any value or purpose.
+- You don't really want to talk about 'Duke' in terms of, how many levels are there, how many guns does it have, how many monsters... It's got everything it needs in terms of that, but it's always been about the experience.
+- Borderlands' asks you to pick a class, and once you've chosen that character class, you've committed yourself to that game session.
+- I've been stealing from the Alien films throughout my entire career.
+- I've always wanted to ride a sail barge and drive a sand skiff.
+- We are fortunate that there is a lot of demand on us to deliver our brand of interactive entertainment within the powerful franchises we have at Gearbox Software and the challenge for us is growing to meet this demand.
+- Good games teach what works and bad games teach what doesn't.
+- When people take risks and it's not rewarded, in the case of 'Mirror's Edge,' it's makes it harder for others to be comfortable taking risks.
+- There is always the person who's got to stand on the sandcastle, they must crush it.
+- Borderlands' is a horrific failure if our goal is to entertain the world.
+- I've got a 6,000 square-foot home in Plano that probably costs as much as a three-bedroom house in Van Nuys.
+- Just as 'Half-Life' redefined the first person action game, 'Half-Life' for Dreamcast redefines what an extension of a great PC game to console should be.
+- The key is when we make mistakes, we want to be able to correct them and we also want to be able to learn from them so that we do not make the same mistake twice.
+- There are times when you can take yourself seriously and there are times when you can cut loose. It really depends on your goals and it depends on what you're promising the customer.
+- I have immense respect for Christopher Nolan for taking a character called 'Batman' - taking a comic book - and making people believe in him in a real world context.
+- Perhaps 'Borderlands' can be a lesson for all of us - that when making a videogame, we should not be afraid to identify gamers as the audience.
+- As a creative, as an artist, I'm just excited when people want my stuff, and want to experience it.
+- When we shipped 'Borderlands 2,' we didn't ship it with a plan of how the level cap was going to increase. We didn't have any software built or strategy in place.
+- The mission of Gearbox is to entertain the world and with the record-breaking success of 'Borderlands 3,' we're excited to take one more giant leap down that road.
+- In 'Condition Zero,' failure has greater consequences and success offers greater rewards.
+- I remember when I discovered The Beatles with music and The Beatles peaked before I was born and when I discovered them I felt really special.
+- You can polish and iterate and double down on what the magic was. You can make a much better thing. A much cleaner thing, a much more solid thing. And that's what 'Borderlands 2' is to 'Borderlands.'
+- Usually when we finish a game and we're at the end, we're sick of it. We want to put it in the box and be done with it. But with 'Borderlands,' it's actually become a productivity sink at Gearbox, because we're just having fun.
+- If I have something that I've finished with, and someone else might find value in it, the idea of passing along for a price is a rational transaction. It exists in many aspects of our lives. But I do have to say that media is a different beast.
+- The sequel to 'Aliens' is not a movie, it's a video game. How cool is that? That's how important our industry has become.
+- I'm in the business to make games - I love entertaining people.
+- A very important part of game development is testing - something that a lot of developers don't do.
+- If you're making entertainment on a grand scale, if you're reaching millions, there will be tens of thousands of people who absolutely hate us, and some percentage of those will take it upon themselves to let us known how they feel.
+- In 'Colonial Marines' you come into the game as a marine, and how you play depends on your equipment and by the choices you're making in real time.

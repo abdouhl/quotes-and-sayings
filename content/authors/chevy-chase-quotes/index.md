@@ -1,0 +1,104 @@
++++
+author = "Chevy Chase"
+title = "Chevy Chase Quotes"
+quotes_len = "98"
+description = "the best 98 Chevy Chase Quotes"
++++
+- Parrots make great pets. They have more personality than goldfish.
+- If you get 'hot,' everyone's nice to you.
+- Once I got married and had kids, I moved away from romantic roles, because it seemed wrong to have my three-year-old wondering why Daddy was kissing someone else.
+- When you stop to realize that Abraham Lincoln was probably never seen by more than 400 people in a single evening, and that I can enter over 40 million homes in a single evening due to the power of television, you have to admit the situation is not normal.
+- The best comedy I ever did was when people didn't know who I was.
+- Television doesn't make stars. It's the written media, the press, that makes stars.
+- Nobody prepares you for what happens when you get famous, and I didn't handle it well.
+- With Clinton, there's no question that I would have made fun of his out-and-out lying. But he's also a good friend.
+- It wasn't as if I was simply some guy who had never seen the other side of the tracks.
+- Live a life of grace. You'll be a better person for it, and so will your children.
+- You can't observe as much if you're observed by others.
+- The idea of trying to write sketches the same way we did on Saturday Night Live every day would be damn near impossible.
+- Chaplin was my idol. I remember watching those movies at this little theater in Woodstock, N.Y., when I was probably 6 and laughing so hard at the surprises, like Keaton suddenly being dragged by a streetcar.
+- It's never a good idea for a celebrity to sign autographs or take pictures if a crowd is gathering.
+- All my children inherited perfect pitch.
+- Ideally, I'd like to go right back to getting $7 million a picture and being the headliner. That's probably not going to happen.
+- Fame is a very unnatural human condition.
+- You may have read that I went to M.I.T. In 1982 I filled out a Who's Who survey with joking responses, and they never bothered to check the facts.
+- I just went into this business for laughs. I guess I don't mind being an actor so much now.
+- I come from a much freer kind of performance thing, where I rely on my own improv and my own sense of humor.
+- For me, what makes you laugh makes you laugh.
+- Damn, I had some great moves. I still have them; I'm just not using them at home a lot.
+- Avoid fatty foods, Bensonhurst, and hair care products.
+- If you're in the White House, it's your house, and you can invite whatever friend you want.
+- It seemed that my brother and I were always fighting in the back seat, and there was never any real reason for it.
+- Last good pratfall I did, I broke bones in both hands. I still feel it when people shake my hand.
+- I've been too funny in my life to have to play a character who's... moderately funny.
+- Be Funny. Be naturally funny. If you're not, get out of the business. Be compassionate.
+- I tell the person I won't take a picture or sign the autograph, but I will shake their hand. That kind of personal touch is all they're really seeking.
+- I watched every single Charlie Chaplin film.
+- What's funny is funny. The same thing that made you laugh a hundred years ago makes you laugh now.
+- I have been asked to direct many times and usually said no.
+- If what you do in life is perform to open up eyes and minds, to make people laugh, then it better damn well be new! It shouldn't be just a repetitious 'Hey, I'm still here!'
+- I was a young, new, hot star, and I had this unbelievable arrogance. As time went on, the strident narcissism and arrogance slowly diminished. But I was definitely there. I'm older now. And a big crybaby.
+- Anyone who wants to run has to be a Jimmy Swaggart, minus the default.
+- I was very involved in political satire, and I'd been writing parody for 'Mad' and 'National Lampoon,' so I made up some strange story about Gerald Ford.
+- I would love to do a movie with Albert Brooks; we're so different, but I find him so funny, and I can be just as seemingly narcissistic as he comes off, the 'it's all about me' kind of thing.
+- I am just happy that I have children. I don't care what they want to do!
+- I think I need to be taken away, dropped in some territory with just a lot of loud guys.
+- It's so important, people laughing.
+- A laugh is a surprise. And all humor is physical. I was always athletic, so that came naturally to me.
+- Who made me laugh when I was growing was Chaplin and the Marx Brothers, and then moving on, there were so many that I was a writer for for many years: I was a writer for the Smothers Brothers, Lily Tomlin, then I started on 'Saturday Night Live' as the head writer the first year we started it.
+- Yes, I've seen Louis CK. I wouldn't in any way make a degrading remark about Louis CK, but the question is do I think anyone is funny? And the answer is not too many people. He might fit right in there.
+- I've usually had two styles: the Fletch character and the Clark Griswold character.
+- When I saw 'Caddyshack,' I realized I couldn't act.
+- The first thing that happens is that you're overwhelmed by so much attention. It's just so unnatural. Only people who've been in that position can realize what it's like. I mean, you have to be there.
+- You could knock my teeth out and break my nose, and there'd be something funny about it to me.
+- Frank Capra's grandson was a second Assistant Director on 'Christmas Vacation.'
+- It's not like I am working with the great innovators of all time, but at the same time, they are my friends.
+- The fact was, Ford kept stumbling around. I didn't want him in the White House. I wanted Carter in, and I had a forum of 20 million people watching.
+- There was a whole slew of 'Cops and Robbersons,' just films that didn't measure up, that didn't stand for anything comedically. They were purely for a paycheck.
+- There are very few solid family films. A lot of the writing is awful.
+- All those car battles with my brother Ned were excellent training. Even now, on the set, if we're getting into a vehicle, I'll yell 'shotgun' first. Thus forcing Steve Martin into the back of the car.
+- I'm Chevy Chase, and you're not.
+- I was always the guy getting kicked out of my classes at school for having an attitude problem.
+- I turned down 'Forrest Gump.'
+- All preconceptions when you laugh go out the window. Laughter kills it.
+- Break as few bones as possible and make as much noise as you can.
+- I prefer movies because the money is better and certainly because you really know where you stand when you are making movies, and I have made a lot of them: 50-something - I don't know.
+- I'm a New Yorker, and I live in the country.
+- Laughter kills lonesome. It's one of the great things in our lives.
+- It will eventually be discovered that the more you sleep, the healthier you are. Which means you'll really be at your healthiest when you pass away.
+- Every Vacation movie didn't just make the studio money. They each made the studio a lot of money.
+- There's no vacation from being a parent.
+- Parodies came about because Mr. Ford was actually one of the better athletes of our presidents... but he continually had physical accidents... he was an easy target for me. The main idea was to get people laughing.
+- I have three daughters. I wanted them to be raised where there are real seasons and where everyone their age wasn't trying to get into movies.
+- What interests me is being alive and being with friends that I care about and being as creative as I can given circumstance.
+- I've always loved the 'Weekend Update' people.
+- It was pretty clear that I was a funny guy, just as a guy.
+- Anybody can reach anywhere from five to 15 million people weekly making a president look like an idiot, as I did back then, or Tina Fey did with Sarah Palin... You're always preaching to the choir one way or the other.
+- I don't know if my looks will ever get any better, but my pratfalls sure won't.
+- I guess I look so straight and normal, nobody expects me to pick my nose and fall.
+- I turned down 'American Gigolo.' There are many films - like 'Ghostbusters' - that I turned down... The first one I did was 'Foul Play' with Goldie Hawn, but I turned down 'Animal House' - I turned that down.
+- 'Weekend Update' can be presented as a full 20-minute sketch, and there's a lot of room there.
+- I think the Clintons are brilliant. I've never met a person as intelligent as Bill, and I think Hillary is right up there with him. They're too smart for Washington.
+- Most of the films I've done were ruined in the postproduction, not during filming.
+- Comparing 'Christmas Vacation' to 'It's A Wonderful Life' is the silliest thing. That film starred the greatest movie actor of all time, and the idea that our movie could ever be connected in some fashion to something so brilliant and beautiful always made feel like, 'That's all they had to write about?'
+- The raising of an eyebrow, how you do it; when you look, how you look. All those little things are physical.
+- For one thing, you need a lot of self-confidence to be on the top of your field. There are times probably where I appear to be over-confident or arrogant. It's really in the eye of the beholder.
+- Let's not call physical comedy falling down and pratfalls. All humor is physical, no matter how you dish it out. It's timing, like a dancer or an athlete would have.
+- We never could have performed live for an hour and a half every week if we were doing drugs.
+- I made about 28 movies, and I think about five of them were good.
+- I'd never be tied down for five years interviewing TV personalities.
+- They can't make any of these talented young actors Fletch. You might as well make a movie called Chevy Chase.
+- In this business, you can come and go in a second.
+- I did very well when I was younger, and I am fine.
+- Anything I have blown a lot of money on? Well, I have three daughters and a wife - that's four women, and I'm working on a sitcom, so you could say that I am just trying to stay alive!
+- To me, talk shows are those things during the middle of the afternoon where the underbelly of society is made to look like Middle America.
+- It's incredible. Twenty-three minutes on the air, and I've got to shoot for twelve, fifteen hours a day. What the hell's that?
+- It took me 20 years of making movies to learn how to do it.
+- It's about timing and rhythm. But who could be better than Chaplin or Keaton?
+- I learned a lot about handling fans from established stars.
+- Thank God I have the right friends.
+- Any good actor has to have a good sense of humour, too; they have to be able to manipulate people.
+- My father was the funniest guy I ever met. I'm not sure if I stole his stuff or if I inherited it.
+- The best advice I can give you about falling is to never land.
+- I did comedy and parody television in the '70s. I was a liberal Democrat, and it was a very heady year.
+- I really love making movies. I just have this yearning in my stomach to go back and somehow subversively screw up television a little bit again.

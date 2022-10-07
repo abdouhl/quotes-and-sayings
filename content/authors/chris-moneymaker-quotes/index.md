@@ -1,0 +1,33 @@
++++
+author = "Chris Moneymaker"
+title = "Chris Moneymaker Quotes"
+quotes_len = "27"
+description = "the best 27 Chris Moneymaker Quotes"
++++
+- I'm comfortable with the hold 'em, Omaha and stud high-low. But the other two games aren't my strongest games. I'm not comfortable at all with razz or stud.
+- Never in a million years did I think the sport of poker would blow up the way it did.
+- Although I have to say, it's become a lot harder for me since I won the world series because everyone wants to beat me. For example, bluffing is really tough now, because there's always someone who calls me on the off-chance that they'll then be able to say they read a world champion's bluff.
+- I always pretend like I'm nervous no matter what. I try to fall asleep.
+- For the most part, I get to do what I want to do. If I want to play poker, I can. If I don't want to play poker, I don't have to.
+- The beautiful thing about poker is that everybody thinks they can play.
+- I actually do quite well in Omaha. It's one of my better games. I love pot-limit Omaha and Omaha high-low. I do quite well in them. If I play in a casino, I usually play some kind of mixed game with Omaha and hold 'em.
+- But I want people to understand that poker's not all glamorous, it's not all being on TV and making tons of money. It's a hard life. It's a lot of travel. It's a lot of weird hours.
+- If you're a poker player and you show up at a casino at 8 a.m., you're going to be by yourself or with some people that are rocks and just don't give you any action.
+- I used to sports gamble a lot and I was getting killed on that but then I found poker and really enjoyed it. But it was a hobby more than anything else. I played it every day but only on pretty small stakes.
+- The competition has improved tremendously. In 2003, I could teach a guy how to play poker in an hour and he could win some money. Today, it would take days. The game has gotten so much tougher. So I will spend my time with my family and play when I can.
+- When I was broke, no one ever offered to buy me a beer. Now that I have quite a bit of money, everybody tries to buy me beers. Where were all these people back when I was in college and broke?
+- World Class players can lay down the toughest hands and play any two cards at any time without fear. Their reads are impeccable.
+- Not having the online game has made it more difficult. There are a lot of young and upcoming players in poker. But you don't get to see them because TV has sort of been taken away.
+- If you see me playing a $1/$2 no-limit on PokerStars, I'm probably experimenting with something, trying something new seeing how it works.
+- You have it or you don't... I think I have it.
+- My biggest fear was public speaking, and then having everyone know who I was, it was definitely weird at first. When I first won, it was definitely a culture shock, it was something I wasn't quite ready for.
+- Poker has such an element of competitivness that other games don't have.
+- The pros really like all the new people playing poker because they love the dead money; but when the money wins they don't like that very much at all.
+- If you want to make money and have action, you need to work from like, 10 p.m. to 6 a.m. Those are the hours. That just doesn't fit with a lot of people's schedules. And that's just the start of it. You've got to realize what you are getting into.
+- I'm the first person in my family to play poker.
+- I don't play a lot of tournaments, but if I don't win a tournament in a year, people are like, 'What in the world is going on?' People don't realize how hard it is to win tournaments. You're not going to go out and play 10 tournaments and win one of them. Your odds aren't that good.
+- My favourite movie right now is probably 'Hitch', a Will Smith thing.
+- I've talked a lot with Greg Raymer and Joe Hachem. Being on Team PokerStars with them has helped me out quite a bit. I've traveled around Europe playing with them. I've also talked with Robert Williamson here and there and Jim Worth. So I've had some good people to talk to and bounce ideas off of.
+- I don't like the way I ever appear on TV.
+- Poker is meant to be enjoyed.
+- When I had a full-time job, I really wasn't that busy, but now I'm really busy. I guess that's a good thing.

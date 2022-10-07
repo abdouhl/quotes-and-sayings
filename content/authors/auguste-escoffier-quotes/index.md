@@ -1,0 +1,16 @@
++++
+author = "Auguste Escoffier"
+title = "Auguste Escoffier Quotes"
+quotes_len = "10"
+description = "the best 10 Auguste Escoffier Quotes"
++++
+- Experience, which plays such an important part in culinary work, is nowhere so necessary as in the preparation of sauces, for not only must the latter flatter the palate, but they must also very in savour, consistence, and viscosity, in accordance with the dishes they accompany.
+- Stock is everything in cooking, at least in French cooking. Without it, nothing can be done. If one's stock is good, what remains of the work is easy; if, on the other hand, it is bad or merely mediocre, it is quite hopeless to expect anything approaching a satisfactory result.
+- The painter, sculptor, writer, and musician are protected by law. So are inventors. But the chef has absolutely no redress for plagiarism on his work; on the contrary, the more the latter is liked and appreciated, the more will people clamour for his recipes.
+- Everything is so unstable in these times of progress at any cost, and social customs and methods of life alter so rapidly, that a few years now suffice to change completely the face of usages which, at their inception, bade fair to outlive the age - so enthusiastically were they welcomed by the public.
+- Having realised that in cooking there was a vast field of study and development, I said to myself, 'Although I had not originally intended to enter this profession, since I am in it, I will work in such a fashion that I will rise above the ordinary, and I will do my best to raise again the prestige of the chef de cuisine.'
+- Novelty is the universal cry - novelty by hook or by crook! It is an exceedingly common mania among people of inordinate wealth to exact incessantly new or so-called new dishes.
+- What feats of ingenuity have we not been forced to perform, at times, in order to meet our customers' wishes? Those only who have had charge of a large, modern kitchen can tell the tale.
+- Great dangers give birth to great resolutions.
+- Jellies are to cold cookery what consommes and stock are to hot. If anything, the former are perhaps more important: for a cold entree - however perfect it may be in itself - is nothing without its accompanying jelly.
+- Any sauce whatsoever should be smooth, light (without being liquid), glossy to the eye, and decided in taste. When these conditions are fulfilled, it is always easy to digest, even for tired stomachs.

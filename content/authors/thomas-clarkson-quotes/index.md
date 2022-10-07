@@ -1,0 +1,14 @@
++++
+author = "Thomas Clarkson"
+title = "Thomas Clarkson Quotes"
+quotes_len = "8"
+description = "the best 8 Thomas Clarkson Quotes"
++++
+- There are few retreats, that can escape the penetrating eye of avarice.
+- Most of the slaves, who were thus unconditionally freed, returned without any solicitation to their former masters, to serve them, at stated wages; as free men. The work, which they now did, was found to better done than before.
+- Mankind have their local attachments. They have a particular regard for the spot, in which they were born and nurtured.
+- We cannot suppose therefore that God has made an order of beings, with such mental qualities and powers, for the sole purpose of being used as beasts, or instruments of labour.
+- Should slavery be abolished there, (and it is an event, which, from these circumstances, we may reasonably expect to be produced in time) let it be remembered, that the Quakers will have had the merit of its abolition.
+- It appears first, that liberty is a natural, and government an adventitious right, because all men were originally free.
+- Neither can men, by the same principles, be considered as lands, goods, or houses, among possessions. It is necessary that all property should be inferiour to its possessor. But how does the slave differ from his master, but by chance?
+- When mankind first saw the necessity of government, it is probable that many had conceived the desire of ruling.

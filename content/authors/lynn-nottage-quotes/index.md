@@ -1,0 +1,110 @@
++++
+author = "Lynn Nottage"
+title = "Lynn Nottage Quotes"
+quotes_len = "104"
+description = "the best 104 Lynn Nottage Quotes"
++++
+- Here's the dilemma of the modern age: There used to be actions that workers could take, in the form of a strike. But now, that's being pre-empted by lockouts. They don't even have that leverage to protect their jobs.
+- The act of saying what you do helps shape you as an artist.
+- I think that human beings were incredibly resilient; otherwise, we wouldn't keep going.
+- What I often do when I'm writing, if I can't find that story, I go out and I hunt for it.
+- When you're fighting for an increasingly smaller portion of the pie, you turn against each other; you create reasons to hate each other.
+- In my family history, there are generations of women who were abandoned by men. It's one of the themes of my family.
+- Once working people discover that, collectively, we have more power than we do as individual silos, then we become an incredibly powerful force. But I think that there are powers that be that are invested in us remaining divided along racial lines, along economic lines.
+- By the time I reached 50, I'd accumulated many unresolved fears and desires.
+- The more you go to a theatre and the more you hear stories you aren't necessarily familiar with, the more open you become.
+- I wrote 'Ruined' and 'Vera Stark' at the same time. That's just how my brain functions - when I'm dwelling someplace very heavy, I need a release.
+- Each play I write has its own unique origin story.
+- A lot of the factories that had been the bedrock of many small cities were being shut down, which led me to investigate what I'm calling the 'de-industrial revolution.'
+- Broadway is a closed ecosystem.
+- Silence is complicity. I believe that.
+- I love my people's history. I feel a huge responsibility to tell the stories of my past and my ancestors' past.
+- I always describe race as the final taboo in American theatre. There's a real reluctance to have that conversation in an open, honest way on the stage.
+- African American women in particular have incredible buying power. Statistically, we go to the movies more than anyone. We have made Tyler Perry's career. His films open with $25 million almost consistently.
+- I think folks who are resistant to engaging in art become less so once they encounter art that really reflects them.
+- It's much easier to conjure characters strictly from your imagination than to have to think about whether you're representing people in a truthful way.
+- I teach at Columbia, and I'm always looking for books I can lose myself in during the 45 minutes I'm on the train.
+- It remains an incredible struggle for women in theater, and, in particular, playwrights and directors, to get their work seen and to not only get seen, but to get it to Broadway.
+- I know what I'm trying to say, so I'm always open to learning how to say it.
+- I think of myself as a healing artist.
+- Like Alice Walker and Toni Morrison, I try to balance reality with how we'd like the world to be.
+- In many ways, I consider those to be my formative years, because when you're in school, you have a distant relationship to the world in that most of what you're learning is from books and lectures. But at Amnesty, I came face to face with realities in a very direct and harsh way.
+- All of my plays are about people who have been marginalized... erased from the public record.
+- By and large, the theatre establishment is run by a white majority.
+- It's very important for me to have dialogues across racial lines.
+- Even in Congo, where conflicts are happening, people have births, weddings, deaths, and celebrations.
+- 'Intimate Apparel' is a lyrical meditation on one woman's loneliness and desire. 'Fabulation' is a very fast-paced play of the MTV generation.
+- I feel like 'Sweat' arrived on Broadway at the moment that it needed to. I feel like a commercial audience was not prepared for 'Ruined' or 'Intimate Apparel' for many different reasons.
+- If the Tony Awards want to remain relevant in the American theater conversation, then they need to embrace the true diversity of voices that populate the American theater.
+- Ultimately, we're incredibly resilient creatures. People really do get on with the business of living.
+- I see procrastination and research as part of my artistic process.
+- The essence of creativity is to look beyond where you can actually see. I don't want to dwell in same place too long.
+- Broadway's never my end goal because of the plays I write. These are tough plays. Of course there's a lot of humor, but my goal is just to reach as wide an audience as possible, however that happens.
+- When you begin a play, you're going to have to spend a lot of time with those characters, so those characters are going to have to be rich enough that you want to take a very long journey with them. That's how I begin thinking about what I want to write about and who I want to write about.
+- As a woman of color, slowly and with some coercing, the not-for-profit theaters around the country are beginning to recognize and embrace the power of our stories, but with regards to Broadway and other commercial venues, we remain very much marginalized and excluded from that larger creative conversation.
+- American audiences very rarely deal with material outside their borders.
+- For me, the first thing is to tell a good story.
+- 'Ruined' was a play which was somewhat of an anomaly in that I did not take a commission until it was finished because I really wanted to explore the subject matter unencumbered. Otherwise, I felt as though I'd have the voice of dramaturges and literary managers saying, 'This is great, but we'll never be able to produce it.'
+- I am a storyteller by trade.
+- When I sat in rooms with middle-aged white men, I heard them speaking like young black men in America. They had been solidly middle class for the majority of their working careers, but now they were feeling angry, disaffected, and in some cases, they actually had tears in their eyes.
+- Who wants to see the same play again? I certainly don't want to write the same play again and again.
+- I do see myself as an old-fashioned storyteller. But there's always a touch of the political in my plays.
+- I am a Tony voter; it is an honor that I take seriously. Each season, I enter the process with a degree of enthusiasm and optimism, which dissipates as I slowly plow through show after show.
+- I like to go into a space, listen, absorb, and then interpret.
+- It's very easy, when we're reading those articles on the 20th page of 'The New York Times,' to distance ourselves and say, 'It's someone else.'
+- Winning the second Pulitzer firmly places me in conversation with this culture.
+- I was repeatedly told that there isn't an African American woman who can open a show on Broadway. I said, 'Well, how do we know? How do we know if we don't do it?' I said, 'I think you're wrong.'
+- I love Twitter.
+- I wouldn't say I see my work as having a political ideology. Lynn Nottage certainly has a political ideology. I think that the work is an extension of who I am, but I don't think that when I write the play I'm looking to push the audience one way or another.
+- The stage is the last bastion of segregation.
+- For me, playwriting is sharing my experiences, telling my stories.
+- The great thing about 'Vera Stark' is that my research was watching movies, screwball comedies, so I could literally sit back and relax.
+- I've been asked a lot why didn't 'Ruined' go to Broadway. It was the most successful play that Manhattan Theatre Club has ever had in that particular space, and yet we couldn't find a home on Broadway.
+- My grandfather was a Pullman porter, and my father put his way through college by cleaning floors at night in the libraries. I understand that working people are in some way the bedrock of my existence and the existence of many people here.
+- I am interested in people living in the margins of society, and I do have a mission to tell the stories of women of colour in particular. I feel we've been present throughout history, but our voices have been neglected.
+- The theatre should reflect America as it's lived in today. And that is a multicultural America.
+- I always thought of my mother as a warrior woman, and I became interested in pursuing stories of women who invent lives in order to survive.
+- The people sometimes who are closest to us are the ones who bear the brunt of our frustration.
+- Plays are getting smaller and smaller, not because playwrights minds are shrinking but because of the economics.
+- If you lead with the anger, it will turn off the audience. And what I want is the audience to engage with the material and to listen and then to ask questions. I think that 'Ruined' was very successful at doing that.
+- I remain committed to telling the stories of women of the African diaspora, particularly those stories that don't often find their way into the mainstream media.
+- I'm always hyperaware of the way in which working people are portrayed on the stage.
+- My fears about where theater is going - it's the Hollywood model, where people are chasing the almighty dollar and making commercial decisions based on nothing more than generating income for themselves and their theaters.
+- My parents are avid consumers of art, collectors of African American paintings, and have always gone to the theater. My mother has always been an activist, too. As long as I can remember, we were marching in lines.
+- We use metaphors to express our own truths.
+- I think sometimes you need distance to reflect.
+- The person whose work introduced me to the craft was Lorraine Hansberry. The person who taught me to love the craft was Tennessee Williams. The person who really taught me the power of the craft was August Wilson, and the person who taught me the political heft of the craft was Arthur Miller.
+- There were not a lot of women in the theater department - it was really run by men, and so the message was that women can be onstage, but women can't really be backstage.
+- In senior year at college, Paula Vogel was my playwriting teacher; she is the first person to introduce me to the notion that a woman could actually forge a career in the theatre. Up until then, the possibility seemed remote and inaccessible, as I had very few role models who directly touched my life.
+- Replace judgment with curiosity.
+- Growing up in New York City, I'd flirted with the idea of driving, but between the subway and the sidewalks, I'd never needed to learn.
+- Women are standing up and leaning forward and asserting their power.
+- By the sheer act of writing, we are trying to place value on the stories that we're invested in.
+- In listening to the narratives of the Congolese, I came to terms with the extent to which their bodies had become battlefields.
+- Before I start, I create a set list that I listen to while I'm writing. For 'Intimate Apparel,' I loaded Erik Satie, Scott Joplin, klezmer music, and the American jazz performer and composer Reginald Robinson.
+- I'm interested in people who are dwelling outside the mainstream. And very often, those people happen to be woman of color.
+- There was no way I was going to write about Africa and not include the triumphant continuity of life that had also been part of my experience there. It's not just war and famine all the time.
+- We live in a global society, and I don't think we can talk about, quote unquote, 'American themes' anymore.
+- The presence of a bed changes the way people interact.
+- There is an enduring feeling that women can write domestic dramas but don't have the muscularity or the vision to write state-of-the-nation narratives.
+- I'm a schizophrenic writer.
+- Saying, 'I'm going to create jobs' is great, but before you create jobs, something has to be offered to alleviate some of the suffering now.
+- We need to diversify the people who are backstage and producing and marketing these shows. It's the limitations of these people that are holding Broadway back.
+- I don't think any of us could predict Trump. Trump is the stuff of nightmares. But in talking to people, I knew there was a tremendous level of disaffection and anger and sorrow. I know people felt misrepresented and voiceless.
+- There's never any ebb in human misery.
+- I was really interested in the way in which poverty and economic stagnation were transforming and corrupting the American narrative.
+- I wonder: Would there be a black president if people hadn't already begun imagining, through film and television, that a black man is president? It's self-actualization.
+- I knew that there was a great deal of depth and life that was sitting just beyond my mother's gaze.
+- My interest in theatre and storytelling began in my mother's kitchen. It was a meeting place for my mother's large circle of friends.
+- In the business of war, the role of women is really to maintain normalcy and ensure that there is cultural continuity.
+- People probably have different philosophies about this, but I think that when you're first shaping the play and trying to find a character, the initial actors that develop it end up imprinting on it - you hear their voices; you hear their rhythms. You can't help but to begin to write toward them during the rehearsal process.
+- I try to be led by my curiosity.
+- It is such a joy to join a legacy of amazing female playwrights who have managed to break through the glass ceiling and reinvigorate the Broadway stage by bringing a fresh and necessary perspective.
+- I would like there to be gender equity. I would like the Broadway season to reflect sort of the demographic of the country.
+- I find my characters and stories in many varied places; sometimes they pop out of newspaper articles, obscure historical texts, lively dinner party conversations and some even crawl out of the dusty remote recesses of my imagination.
+- I'm a contemporary playwright in a postmodern world.
+- I need a release from whatever I'm writing.
+- It's incumbent on us to reach beyond the confines of the institutions that traditionally produce art and find new ways to get it to the people.
+- If you're looking at the people who head the institutions, there are very few African Americans or people of colour. I'm talking about the major theatres that position themselves as serving all audiences. What you find is, by and large, people who are shaping what we see, and the people who are the tastemakers are white.
+- I can't quite remember the exact moment when I became obsessed with writing a play about the seemingly endless war in the Democratic Republic of Congo, but I knew that I wanted to somehow tell the stories of the Congolese women caught in the cross-fire.
+- My hobby is raising my children.

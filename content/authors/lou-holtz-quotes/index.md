@@ -1,0 +1,117 @@
++++
+author = "Lou Holtz"
+title = "Lou Holtz Quotes"
+quotes_len = "111"
+description = "the best 111 Lou Holtz Quotes"
++++
+- I think everyone should experience defeat at least once during their career. You learn a lot from it.
+- If you look at the history of Notre Dame, if you hire a coach who's been successful at another college program, they're going to be ultra successful at Notre Dame because the talent will always be there.
+- If you made me the national commissioner of football, I'd tell you one thing that I would mandate. The second Saturday in September, we're going to have conference day. Everybody from the SEC plays a Big 12 team. Everybody from the Big Ten is going to play the ACC. Everybody from the Big East is going to play the Pac-10.
+- Everyone goes through adversity in life, but what matters is how you learn from it.
+- My wife told me if there is any rumors about me, it better be about politics and not about my social life.
+- I have to admit, I sometimes wonder how much more successful I would have been as a coach had it not been for my spending summers on the golf course. I could have watched more film, that's for sure. One advantage Joe Paterno had over me was that he didn't play golf.
+- In football, it's the job of the player to play, the coach to coach, the official to officiate. Each guy is charged with upholding his end, nothing more. In golf, the player, coach and official are rolled into one, and they overlap completely. Golf really is the best microcosm of life - or at least the way life should be.
+- No matter what happens on the field, getting an education makes you a winner.
+- When I die, and people realize that I will not be resurrected in three days, they will forget me. That is the way it should be.
+- I've followed Notre Dame football since 1946, when I listened on the radio and Johnny Lujack tackled Doc Blanchard in the open field to preserve a 0-0 tie.
+- The key to winning is choosing to do God's will and loving others with all you've got.
+- As a coach, one thing that used to frustrate me was one player would make a bad decision, and that's all you would read about in the papers all over the country. We have so many athletes do so many wonderful things for other people, and you never read about it.
+- I just have an enthusiasm for life.
+- At home I have a copy of the April 21, 1986, issue of 'Sports Illustrated.' I'm on the cover with the blurb, 'Can Lou Do It?' I'd just arrived at Notre Dame, and with spring football underway, I was the focal point of that week's coverage.
+- Our cellar home had a kitchen and a combination bedroom and half bath, which meant we had a sink next to the bed. We had no refrigerator, no shower or tub, and no privacy. My parents shared the bedroom with my sister and me.
+- An agent won't help you get drafted higher, won't make you win more games, and won't make you faster or stronger.
+- I have no desire at all to become the winningest coach at Notre Dame. The record belongs to Knute Rockne or some other coach in the future.
+- Don't be a spectator, don't let life pass you by.
+- I used to pray that God would make me a great athlete, and He never did.
+- I was born January 6, 1937, eight years after Wall Street crashed and two years before John Steinbeck published The Grapes of Wrath, his Pulitzer Prize-winning novel about the plight of a family during the Great Depression.
+- See, winners embrace hard work.
+- I was raised a Catholic on both sides of the family. I went to a Catholic grade school and thought everybody in the country was Catholic, because that's all I ever was associated with.
+- We can all be successful and make money, but when we die, that ends. But when you are significant is when you help other people be successful. That lasts many a lifetime.
+- Motivation is simple. You eliminate those who are not motivated.
+- I'm so old, I don't buy green bananas any more.
+- I was raised in a religious environment, and my wife is one of the more religious people that I have ever known.
+- At age nine, I got a paper route. Sixty-six papers had to be delivered to sixty-six families every day. I also had to collect thirty cents a week from each customer. I owed the paper twenty cents per customer per week, and got to keep the rest. When I didn't collect, the balance came out of my profit. My average income was six dollars a week.
+- Sacrifice, discipline and prayer are essential. We gain strength through God's word. We receive grace from the sacrament. And when we fumble due to sin - and it's gonna happen - confession puts us back on the field.
+- When people need love and understanding and support the most is when they deserve it the least.
+- In golf, the player, coach and official are rolled into one, and they overlap completely. Golf really is the best microcosm of life - or at least the way life should be.
+- To win a national championship, you've got to be a little lucky.
+- Had I been a great athlete, I'm not sure I would have even gone into coaching. I may have turned out feeling that my life ended when my athletic career ended, as happens so many times with various athletes.
+- I give opinions, not advice.
+- You aren't going to find anybody that's going to be successful without making a sacrifice and without perseverance.
+- It is a fine thing to have ability, but the ability to discover ability in others is the true test.
+- Winners embrace hard work. They love the discipline of it, the trade-off they're making to win. Losers, on the other hand, see it as punishment. And that's the difference.
+- I don't exercise.
+- My first assistant-coaching job in football was at William & Mary in 1961. The pay wasn't much, so to get $300 more per year, I agreed to coach the golf team. I didn't even know how to keep score, and really, my main job was not to wreck the van on the way to tournaments.
+- Ability is what you're capable of doing. Motivation determines what you do. Attitude determines how well you do it.
+- If what you did yesterday seems big, you haven't done anything today.
+- On this team, we're all united in a common goal: to keep my job.
+- When I work a game as an analyst, all I do is look at the game like a coach.
+- I don't think there's been anything in the game of football in my lifetime that has changed college football more than redshirting.
+- You'll never get ahead of anyone as long as you try to get even with him.
+- I can't believe that God put us on this earth to be ordinary.
+- It's not the load that breaks you down, it's the way you carry it.
+- One thing about me is I try to be honest.
+- Do right. Do your best. Treat others as you want to be treated.
+- I look at athletes in all sports and try to picture what kind of football player they'd be, what position they'd play and so on.
+- I do think coaches need to get away from the game more, though. It's good for them.
+- I think that everybody needs four things in life. Everybody needs something to do regardless of age. Everybody needs someone to love. Everybody needs something to hope for, and, of course, everybody needs someone to believe in.
+- Whenever you give up something, you must replace it with something.
+- Life is ten percent what happens to you and ninety percent how you respond to it.
+- God looks after children, animals and idiots.
+- I follow three rules: Do the right thing, do the best you can, and always show people you care.
+- My philosophy in life is, Decide what you want to do. You have to have something to hope for.
+- For victory in life, we've got to keep focused on the goal, and the goal is Heaven.
+- I never learn anything talking. I only learn things when I ask questions.
+- A lifetime contract for a coach means if you're ahead in the third quarter and moving the ball, they can't fire you.
+- If you're bored with life - you don't get up every morning with a burning desire to do things - you don't have enough goals.
+- Virtually nothing is impossible in this world if you just put your mind to it and maintain a positive attitude.
+- When all is said and done, more is said than done.
+- When I left the University of Notre Dame, I honestly felt I would never coach again.
+- I'm an old man, and all my life I've said that Notre Dame should remain independent because it's a national school.
+- All my life, I've been trying to make a hole-in-one. The closest I've come is a bogey.
+- We were at a beach one summer, and I had a bathing suit on. My wife looked at me and said: 'Boy, you are skinny, aren't you?' I said: 'Honey, I'd like to remind you that it was minor defects like this that kept me from getting a better wife.'
+- The man who complains about the way the ball bounces is likely the one who dropped it.
+- You don't go to Notre Dame to learn something; you go to Notre Dame to be somebody.
+- ESPN is a great organization to work for.
+- Don't run if you can walk. Don't walk if you can stand. Don't stand if you can sit. Don't sit if you can lie down.
+- Successful people will always tell you you can do something. It's the people who have never accomplished anything who will always discourage you from trying to achieve excellent things.
+- I believe in the crucifixion of Jesus Christ.
+- In the successful organization, no detail is too small to escape close attention.
+- No one has ever drowned in sweat.
+- I think that we have opportunities all around us - sometimes we just don't recognize them.
+- I believe - we all pay taxes. I'm happy to pay it, but I hate to have it abused, money wasted, no accountability. That's going to bother you.
+- I think life is a matter of choices and that wherever we are, good or bad, is because of choices we make.
+- I'll assure you this: I will have nothing to do with politics.
+- We have an obligation to help people that cannot help themselves. The mentally retarded, the physically retarded, et cetera.
+- How you respond to the challenge in the second half will determine what you become after the game, whether you are a winner or a loser.
+- When the bank asks me about my assets, I include my friendship with Regis Philbin.
+- If you try to fight the course, it will beat you.
+- I look like I have beriberi and scurvy.
+- Notre Dame is the one school that has a national recruiting base, from Florida to Texas to California.
+- Football coaches don't have real problems.
+- You're never as good as everyone tells you when you win, and you're never as bad as they say when you lose.
+- All an agent is going to do is buy things for a player, damage his eligibility, and make the player dependent on them.
+- My first assistant-coaching job in football was at William & Mary in 1961.
+- How do you know what it's like to be stupid if you've never been smart?
+- If you burn your neighbors house down, it doesn't make your house look any better.
+- If Tiger Woods had played football, he would have been a quarterback.
+- If he's got golf clubs in his truck or a camper in his driveway, I don't hire him.
+- God answers prayers, but he doesn't always answer it your way.
+- The Sisters of Notre Dame at St. Aloysius Grade School influenced my life tremendously. This was due to the fact that they encouraged you always to make sure that God is the focus of your life, and they didn't allow you to do anything except to the very best of your ability.
+- I'm proud to be part of the Dr. Pepper Scholarship Giveaway. It's a great program that gives me the chance to brighten the day for some lucky college students with free tuition.
+- Nothing on this earth is standing still. It's either growing or it's dying. No matter if it's a tree or a human being.
+- The University of Notre Dame does not redshirt, and I endorse that policy completely. I am very much in favor of redshirting, but not at Notre Dame. But there's no doubt about it. It puts us at a huge disadvantage.
+- I do know this: God does answer your prayers, but it's not always in the way you expect. God knows what's best for us, though, so there's no need to worry when things don't go how we originally wanted them to go.
+- Don't tell your problems to people: eighty percent don't care; and the other twenty percent are glad you have them.
+- I truly believe the things Notre Dame stands for.
+- I don't drink water, haven't drank water in 40 years.
+- The problem with having a sense of humor is often that people you use it on aren't in a very good mood.
+- Coaching is nothing more than eliminating mistakes before you get fired.
+- Show me someone who has done something worthwhile, and I'll show you someone who has overcome adversity.
+- In the nineties, everybody wants to talk about their rights and privileges. Twenty-five years ago, people talked about their obligations and responsibilities.
+- I feel that God wants me to coach; otherwise, he wouldn't have put the desire in me.
+- I won't accept anything less than the best a player's capable of doing... and he has the right to expect the best that I can do for him and the team!
+- My wife doesn't even want to spend 2 hours with me.
+- I'm no genius.
+- I believe that having a spiritual life is so important in everybody's life.
+- After winning, most teams become individuals; most teams become complacent.

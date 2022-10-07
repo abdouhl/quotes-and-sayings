@@ -1,0 +1,101 @@
++++
+author = "Kirstin Maldonado"
+title = "Kirstin Maldonado Quotes"
+quotes_len = "95"
+description = "the best 95 Kirstin Maldonado Quotes"
++++
+- I always wanted to write a sad song that sounds happy. I think everyone can relate to this emotion.
+- I fulfill a part of myself in Pentatonix. And then, we can all step away individually and do the specific things we like because we're all so different in musical tastes.
+- I'm always trying to tell fans to love themselves. I see them going through a ton of hardships on Twitter and being bullied. It's really important and easier said than done to take care of yourself. A lot of people put themselves out for others and don't really think about mending themselves. Sometimes, they get a little lost that way.
+- When the movie 'Selena' came out, I got really obsessed with her, and my mom and I went and saw it.
+- Gwen Stefani was just the most incredible frontwoman. She was the total cool girl.
+- Being able to wake up every day knowing I'm living out my dream of performing is the best feeling in the world.
+- I would definitely go back to 'Kinky Boots' because that family, I think, is so wonderful and incredible, and my role and my part were just so fun to play. But I would definitely love to do other shows as well.
+- As individuals, we are so different in our personalities, lifestyles, how we grew up, and our culture.
+- I couldn't be more excited about doing 'Kinky Boots' on Broadway; it's going to be a delicious challenge!
+- It depends on the arrangement. It could take 3 hours, it could take 3 days, it could take a week. 'Thrift Shop' took one arrangement session. We did it all in a circle that day. 'Evolution of Music' and 'Evolution of Beyonce' took a bunch of different sessions.
+- I was so happy to be able to be a part of Broadway Bares and had the best time ever!
+- My favorite thing to hear is when people will come up and be like, 'I started an a capella group at my school!' or 'I got my best friend, and we wanted to sing, too!' And then they start groups.
+- We're just a joyous band, and our music is just fun, happy, and nostalgic.
+- I never planned out my wedding.
+- I guess, just being in a group, I had never thought to question my individual artistry.
+- My mom and dad weren't together, so I never thought I would get married.
+- Literally, when the pilot came out for 'Glee,' I think we had a watching party or something. We were all seniors, and everyone all of a sudden in the show choir were so excited. We were like, 'This show is awesome. It's so cool. This is exactly us.'
+- All my doppelgangers are random girls.
+- I've learned that even just as an individual, regardless of who I am, and regardless of who anyone is, to really be true to yourself and your own self expression and really use your voice for that.
+- I loved performing and knew it was what I wanted to do for the rest of my life, that regardless of monetary success, I wanted to make an impact while doing what I loved and that would be successful for me.
+- We're very comfortable in our own sound and what we do, and so that's where our inspiration is from - just things that we are truly inspired by or that we think will work well for us, and not just because something is Top 40.
+- When I was a kid I was always listening and singing along to Disney compilation CDs.
+- My favorite singer was Shania Twain. I would love for her to sing with me. And J. Lo - they are my favorites.
+- I want to inspire people to tear down their walls, especially for teenage girls.
+- I love singing our Christmas songs every chance we get. It's really cute.
+- I feel like it has been a journey throughout the years to be accepting of my culture - I always felt different and not as accepting of it.
+- Every single 'no' that you get, you know that that was an experience that you learned from. Keep going.
+- I shaved a quarter of my hair one time, and my poor nana was crying when I FaceTimed her, but I was like, 'It's just hair! It's fun.'
+- I love snow cones.
+- Ever since I was little, Broadway had always been my passion.
+- Music is so universal, and so I love that we can all be different, and we can all just show that.
+- What better way is there to raise money for such an important organization like Broadway Cares/Equity Fights AIDS than by celebrating all types of bodies, all types of relationships, and just acceptance overall?
+- We do a cover of Charlie Puth's 'Attention' that I really, really love and I think really grooves.
+- I love all the 'Harry Potter' books. Those are just my favorites.
+- Adulting is hard.
+- I think people are always going to say things about you or disapprove of your relationships or your ideals or your beliefs or something, but I think you have to stand up and stay strong in who you are and not let it affect you.
+- Even before Pentatonix, I always thought that I would be out here in New York doing Broadway and doing musical theater. That was what gave me the passion for music in the first place, so it's been really, really, cool.
+- I'm pretty gloriously positive and naive in a way.
+- Jennifer Lopez and Sara Bareilles are my tops! Both incredibly hard-working and talented women.
+- I think YouTube has been super instrumental in our success as well, because I think there's something really important about seeing and hearing what we're doing.
+- I love Halloween - I'm a die hard.
+- When Pentatonix started, my whole vision of what I thought my life was gonna be completely changed - in a great way, obviously. I never thought that I would have the confidence to do this.
+- The first artist that did it for me with just production was James Blake... I was just blown away... I feel like James Blake kind of was the one that introduced me into that world.
+- I remember moving to California and feeling so strange because I'd always seen myself moving to New York.
+- Success is not defined by money or status, necessarily, but by how many people you've impacted and how fulfilled you feel with your decisions. If you can garner all of these things, then more power and success to you, but all in all, you must feel happy and satisfied with what you personally have put out into the world.
+- That's the power of the Internet: you can literally find everything.
+- I started voice lessons when I was eight years old.
+- It is based off the pentatonic scale, which is a five-note scale in music. And there are five of us. We were going to be The Pentatonix, but we dropped the 'The' and added an 'x' to try and be cooler.
+- Honestly, the most excited I've ever been for Christmas is when I get a big fluffy blanket.
+- A bully is going to be a bully, and you have to stand up for yourself. You can't expect everyone else is going to come and run to your aid. You have to stand your ground; that's very important.
+- We have a really incredible fan base... they're... the ones that are rooting for us and buying the music and streaming it. They're just really, really amazing... and we're just so thankful for them.
+- I want people to see that I'm just a girl who went for her dreams.
+- Surround yourself with good people who support and love you. And have confidence in yourself and your abilities!
+- I thought I would move to New York and be on Broadway; that was my goal. I was very work-focused.
+- Jennifer Lopez, she's my girl! And Shakira... I really like her.
+- A cappella group names are hard!
+- I watch a lot of Disney.
+- I've always loved lyrics, so I used to listen to Sara Bareilles - more folky, singer-songwritery people.
+- I think a capella and Christmas music just go really well together.
+- My career started the second we auditioned for 'The Sing-Off' on NBC in 2011.
+- Sara Bareilles is one of my favorite singer-songwriters of all time.
+- The energy that a crowd gives you is so amazing and so fun because when the crowd's having fun, it makes us even more excited, and it feels like we're all having fun together. It's like a big party.
+- In my honest opinion, in 'Volumes I' and 'II,' we were still trying to figure out our sound.
+- I always feel good after I change my hair. You get a haircut and feel positive and ready to take on the day.
+- Our album stuff, we bring it to our producer to help us finesse. But anything that's been on YouTube and a lot of the stuff that's been on the album, too, it started from us just sitting around in a circle and jamming it and finding where the parts fit.
+- I feel like 2013 was one giant snowball of me being confused with my place in life and within the group. A lot of it was self-confidence issues, a lot of outside issues, and a lot of me questioning the future of what I was doing. And my mistake was letting all that influence me so that I wasn't the best I could be in life!
+- I'm so proud of 'Break a Little.'
+- We sing popular songs and show it can be done a cappella. It's fun music.
+- I've slowly become more comfortable as an artist and as a person.
+- I think, now that I've been writing songs in general, whether it's for the group or for me, I definitely feel like I got a little trigger happy, because it was so exciting to have production and create and put a lot in there.
+- I do want to do more acting! I love it. It's so fun.
+- Jennifer Lawrence can play me. We look exactly the same.
+- I feel like a lot of like the old-timey Christmas songs, the classics, a lot of it is very vocal. A lot of harmonies and, like, crooners, it puts you in that holiday spirit, I feel like.
+- So many people don't believe in themselves; people are worth so much more than what social media shows.
+- I think the first big thing I did: I sang at my mom's wedding when I was almost 8, so 7... that was my first thing.
+- We're grateful for our diverse fans.
+- Everyone comes to music when they are mourning, when they are happy - for anything.
+- Coming out of a group, it's always really fun and creative to do your own thing.
+- It's really, really cool that we've been able to have these opportunities to surround ourselves with these people because they're brilliant. Like, Dolly Parton is legendary, and she's maybe the nicest person I've ever met in my entire life and, like, amazing.
+- A miserable karaoke experience is when people are trying really hard and trying to show off. You have to just be chill - that's what makes karaoke fun.
+- Moving to L.A. and making albums was an exciting outlet, but I always thought I'd be slumming it job to job in N.Y.C. with hopes of being on Broadway!
+- We always try to make every song we do sound like a track. It's vocal, but we want it to be really full so no one really can even know if it's a cappella. It's not like it's missing anything, per se.
+- I remember seeing 'Chicago' and 'Legally Blonde' and waiting by the stage door.
+- People aren't always going to approve or like what you have to say. But as long as you believe in it and are happy, that's all that matters.
+- When I was a kid, I was obsessed with Shania Twain. I would always go sing the song 'Honey I'm Home.' I was, like, 12, and I'm singing about coming home from work and PMS and stuff.
+- Honestly, sometimes, it takes a negative to bring about a positive.
+- I really wished I'd learned Spanish. I took it all in high school and was planning on trying to be fluent in it. I would get Selena tracks and sing with them and stuff like that.
+- The experiences you gain by doing something solo - you have such a great work effort there as well, one we all have now - we can all bring it back to the group.
+- I love being able to fulfill such a huge and special part of myself with Pentatonix. But there is still so much more to me that, honestly, people don't get to see because we're in a group.
+- I always wanted to do musical theater. That was where I saw my life going since I was a musical theater major in college before I went to Pentatonix.
+- I think it's cool to do a summer outdoor show because, growing up, like, those were always the shows and the concerts that I would get to see, where I would be sitting on the grass with my friends and hanging out, and it was such a moment.
+- I've listened to a lot of different styles of music growing up, and they've all influenced me at different times in my life.
+- The theater community is so incredible, kind, and supportive.
+- David Phelps has an uncanny ability to sound full and powerful on every part of his range and sing with so much emotion.
+- I feel like I have to be on my game because I have to handle my solo stuff and Pentatonix stuff, so it has really kept me on my toes in a good way.

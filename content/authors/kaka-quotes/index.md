@@ -1,0 +1,86 @@
++++
+author = "Kaka"
+title = "Kaka Quotes"
+quotes_len = "80"
+description = "the best 80 Kaka Quotes"
++++
+- Every championship that Brazil participates, we have the responsibility to win - every time. So when we don't win, it's considered as a failure.
+- In 2009, I accepted the proposal of Real Madrid, but I was completely destroyed there because I could not give what I had given Milan. I was completely lost.
+- In Italy, the coaches are very attentive to the details. They really study things, and that is a big difference here. They look at your movement, your positioning. They study you and work out how to stop you.
+- In Brazil, we think we can help by using our image, the fact that we are very well known, to help others. I think lots of footballers want to do something, but many don't know how.
+- It sounds like a cliche, but without a strong group, you win nothing in football.
+- I broke my sixth vertebrae.
+- I would say Neymar is my favourite young player. I love the way that he plays.
+- I stayed in Milan for six years. I stayed in Madrid for four years. I played in Brazil for nine years, so I always think about the good projects.
+- At Madrid, pressure is normal.
+- Each goal I score is exciting.
+- You only appreciate what it feels like to win the Champions League after you've seen it snatched away from you.
+- Jose Mourinho was a difficult coach for me, and we had a respectful but complicated relationship. When I thought he would give me a chance, I couldn't prove to him that I was in good shape.
+- In a year without the World Cup, the national leagues and the Champions League have much more weight.
+- His ambition for victory sets Mourinho apart. He wants to win every game, so he prepares all the smallest details; in training, at the game, everything. I loved to work with him.
+- It has been tough when I have been with the national team and we have gone to play in some of the poorer areas in Brazil. You see people come and watch us train or play a match, and then you know some of them are going home with no food on the plate.
+- In football, there are good and bad times, but if you are a great side, you can be confident of winning trophies again.
+- The World Cup is a competition in which everything needs to work to your advantage. Players need to be fit, decisions have to go in your favour, and details such as a red card can cost a team dearly.
+- My time at Real Madrid wasn't a failure. I played 120 matches, I scored 28 goals, and I played an average of 30 games a season. What's more, I won three trophies: La Liga, a Copa del Rey, and a Supercopa de Espana.
+- Football is unpredictable.
+- It's nice to play in America.
+- Every opportunity that presents itself, my main objective is to conquer and be victorious.
+- When things go well, everyone talks well of you and vice versa. Unfortunately, football is like that.
+- I know it's hard to follow the example of another team in the same country, but that's what you have to do sometimes.
+- Playing for Madrid is a great challenge.
+- If it's good for me to go to the national team and play there - not just go there to give experience but to play and be useful - I think it's good.
+- England have always had individually strong players, and I am a huge fan of Stevie Gerrard, who has the heart of a lion and is the icon of the modern footballer with his ability to attack and defend so well.
+- I like the idea of playing with a bit more tactical freedom, either in a deeper role or supporting the strikers more often.
+- I am not a great artist like Maradona was with regards to on-the-field matters.
+- I have good memories of Real Madrid. Professionally, it was a difficult period, but my experience there was very good in all senses, as I grew a lot, learned many things, and lived with great champions.
+- For a player it's an amazing experience to be at Real Madrid. I matured a lot there, principally as a person.
+- Let's say I don't need to chase the ball as much as before. You learn to find the shortcuts.
+- It's important for me to keep improving.
+- To take on Madrid is a very good experience.
+- People talk about the history of Manchester United or Liverpool, but look what Arsenal achieved with the team of Thierry Henry and Patrick Vieira.
+- When I do an interview, when I appear on camera, I want to be the same person as the one you meet personally and say, 'He is really the same person I saw on television.'
+- I grew up with the Bible education, and my values come from there.
+- When I'm struggling, I can still dream about my successes.
+- Every player would love to play a tournament like the World Cup at home.
+- I'm very happy with where I arrived, both personally and professionally. I can say more so personally, because my career will have to end eventually. I do not know how long it will be, but eventually it will end, and the personal will continue.
+- Often, players at clubs I have been at have asked me for prayers or advice. I prefer to show them things rather than to say things; with my actions, not my words.
+- I have been in many teams that have had loads of talent but did not make it through and been with teams that did not have that much talent and ended up being champions.
+- I have my life. I have my values. And compared with much of society, especially football, that is radical.
+- I like Seedorf. He is a good coach.
+- It's not so easy to apply to today's society things that were written thousands of years ago. But that's exactly the job of a minister - to make the teaching of the Bible relevant.
+- My best Champions League moment was when Milan won in 2007 against Liverpool. That was the biggest moment for me in the Champions League.
+- I'm not just about being an ambassador of Christ. I'm here also, talking with friends, being the same person that I always am.
+- A World Cup without Argentina isn't good.
+- I learned to respect the coach and to do everything within my power to show that I should be the one playing. That's exactly what I did during my three years under Mourinho.
+- The best player I have ever played with? That's Ronaldo, il Fenomeno.
+- I am always grateful to my team-mates at Milan for what we achieved.
+- At Real Madrid, everything gets taken to extremes, as much for the good things as the bad things, so you have to adapt to the way that the press and the fans live through different situations.
+- Mourinho helped me grow. He taught me to be patient, to keep fighting, and to respect the coach's decisions. He helped me mature and turned me into a man.
+- I have overcome many difficult moments in my career.
+- In my whole life, Jesus is in first place. That's why I put that inside my cleats, Jesus in first place, because that is how I think.
+- I am always in love with Milan. The relationship with the team, with the club, and with these fans is beautiful. It's weird for a Brazilian to have a relationship like that with an Italian club.
+- Milan is my home, where I chose to go and where my heart really is.
+- I do want to live my life in the right way and live my life close to God.
+- It's incredible to win an individual award in a team sport and also one where everybody wants to be able to say, 'I'm the best.'
+- AC Milan will always be a great team.
+- I have been a big admirer of Coutinho, and he can be a very important player for Liverpool and Brazil.
+- Tite is doing a great job for the Brazilian national team.
+- Even though I am playing against others, and it is important to get there and win, I believe that Jesus is much more important than all of that.
+- Neymar will never fail to have technique and creativity.
+- One always wants more when things work out.
+- Playing motivates players.
+- Every time I hear the fans, it's exciting. It gives me a great feeling because I know it comes from their heart.
+- Coutinho is a humble guy.
+- My feelings in regards to the national team are simple: If the manager thinks I can be of use, I will be ready for the call.
+- I use a few phrases to let people know a little bit about who I am. One of them is I belong to Jesus, which is a phrase I always wear on a shirt during the most important moments of my professional career.
+- I learned that it is faith that decides whether something will happen or not.
+- I would love to have a career like Zinedine Zidane. He stopped playing, took some time, realised he liked coaching, and started working in the youth academy. I could follow a similar path.
+- It's not easy to decide what is best for you in the future.
+- When I talk to my colleagues from the national team, they always talk to me about Real Madrid.
+- Dani Alves is amazing.
+- Even Cristiano Ronaldo, who has won two Ballons d'Or with Real Madrid, receives whistles from the Bernabeu.
+- What I can say is that Neymar is a very good player, amazing.
+- There are a lot of big players and a lot of big teams, but I don't know if I'll get the opportunity to play in the Premier League.
+- One day, I hope I can play in MLS.
+- In my time at Milan, the club played with a 4-3-1-2 formation, and I was the player behind the two strikers. At Real, I play behind three. There is a greater defensive obligation, but I try to work around the area.
+- My family, and my belief in God and Jesus, are the things which determine my life.

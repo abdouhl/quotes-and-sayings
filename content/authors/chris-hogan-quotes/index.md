@@ -1,0 +1,105 @@
++++
+author = "Chris Hogan"
+title = "Chris Hogan Quotes"
+quotes_len = "99"
+description = "the best 99 Chris Hogan Quotes"
++++
+- Professional lacrosse isn't very lucrative.
+- I got a lot of opportunities and I was able to make the best of them.
+- Every single year I was on the block - could be cut, could be released.
+- Any time you see your quarterback hurt, your heart drops for a second.
+- You never take a single day in this league for granted because it can be over in a second.
+- When you see your leader not at 100 percent, you just want to play a little harder because of that.
+- I can control my effort, how hard I work and taking advantage of the opportunities.
+- I think the Patriot Way definitely makes its way into the Hogan household.
+- No matter what, you're going to have hard days out here. There's going to be a drop here or a tough pass that you didn't come down with there.
+- I can't go out there and just eat turkey sandwiches and hamburgers all day because that's not going to make my body perform at the level that it can.
+- The air in Foxborough is just a little different. Like, Special things happen here. Winning happens here.
+- What we can do is control what we can control.
+- The locker room I don't think is a huge place for guys to really, you know, talk politics.
+- Whatever my role is, I'm just going to go out there and do it to the best of my ability.
+- Playing quarterback is hard enough.
+- I made my way in this league playing special teams and then kind of worked my way into playing receiver. It was always just kind of doing whatever I could do and taking advantage of all the opportunities that I got.
+- I know my wife works just as hard as me if not harder to have a career.
+- You can have all the experience in the world and come out and not play well.
+- Once I started out on this journey of wanting to play in the National Football League, I've had a lot of opportunities. And with each opportunity, I've tried to make the most of it.
+- When you have a dream and you believe in yourself and you have people believe in you, you just do whatever it takes to try to achieve that.
+- Charlotte's great.
+- I didn't think I'd be starting a NFL game.
+- As a football player, as an athlete, as a competitor, that dream of playing the Super Bowl... I was never going to lose that.
+- I have grown so much since I started in this league and it's something that I feel that every single year I'm always learning, always growing.
+- It's tough to put that in perspective, playing in back-to-back-to-back Super Bowls.
+- I've done a barre class before. I swear.
+- I love to compete. No matter what we're doing, it doesn't matter. We could be playing video games or ping pong, and I'm going to get fired up, win, lose or draw.
+- I don't know if people consider me a deep threat, but maybe I'll get there one day.
+- Training camp for me is a day-by-day thing. It's a grind. If you lose focus on what you're trying to work on, you won't be there mentally, and it'll be tough physically.
+- It's been a long road. I've been cut, I've been all over the place, but my mentality has never changed.
+- Playing all these different sports, you learn so much from the people you get coached by.
+- I just have to make sure that for 60 minutes, I'm going out there and doing my job, running routes the best that I can and trying to get open.
+- I just tried to make as many plays as possible to try and show them how hard I work and how hard I prepare and that I am willing to do whatever it takes to win football games and to accept whatever role they want me to be in. I think that has helped me throughout my career.
+- When I got the call that the Patriots were interested, it was a very surreal feeling. I've always looked up to watching them play. They've been a team that has a long history of winning. Just to be considered to be a part of this team is a great honor.
+- Every single day was an opportunity for me to be on the field, if I was starting, playing or not playing, every single day I came out here ready to work.
+- I think everyone's goal at the beginning of the year is to get to this time, to get an opportunity to play in the Super Bowl.
+- That's football. It's going to happen. Guys are going to get hurt.
+- If I do my job, take advantage of every opportunity I get out there and be in the right spot, the plays will come. When it does come, I've got to take advantage of it.
+- I think there's a ton of carryover with the two sports, lacrosse and football.
+- Hard work pays off.
+- Monmouth was important to me because that was the first stepping stone. I am very grateful to the Monmouth program for taking a chance on a four-year lacrosse player who had a year of eligibility left. It was an awesome experience to go back there and play football again, especially since it was close to home.
+- The Bills gave me my first opportunity. In my mind, I'll be forever grateful for that organization.
+- When I grew up I was a huge Michael Jordan fan. That's not very unusual for people to like him, but I just liked reading his books, especially where he came from, getting cut from his high school team. I thought he was a good person, a good role model to look up to.
+- Winning football games is why we're in this business.
+- I'm not sure I'm the prototypical Patriot.
+- College lacrosse can be pretty brutal at times, so that definitely helped me with the toughness. It's a fast-paced game, so that helped me kind of translate over to the game speed of playing in the NFL. I think just the one-on-one aspect of trying to beat the guy in front of you definitely helped me as being a receiver.
+- During the season, nutrition is so huge.
+- I would say I am one of those guys who teams are looking for a reason to get rid of most of the time.
+- You can't do everything on the field.
+- Just being a dad, trying to balance both - football and being dad - trying to be the best at both. You know, you've got to work at it like anything else. I've been working.
+- As far as coach Belichick, yeah, he's a huge lacrosse fan. I'm pretty sure I played against his son at Rutgers my sophomore and junior years. There's always that. We have that lacrosse connection.
+- This game is ups and downs. It's ebb and flow. It's never going to be high the entire time. It's never going to be low for the entire season. That's part of being a professional and dealing with the opportunities you get throughout the year.
+- I never took anything for granted.
+- Preparation is key.
+- I think I do a pretty good job of not letting things distract me from what I want to do and what I want to accomplish as a football player.
+- I'm playing in the NFL and getting to compete with these guys every single day, getting to play in the pre-season games. That's a dream come true right there.
+- DoMode' is get out here and do your job and do work.
+- I've never been a stat guy.
+- I'm always competing.
+- Penn State was an awesome school. When I went and visited there, I was like 'Alright, I want to spend four years of college here.'
+- When opportunities come my way, I'm going to try to make the play.
+- I've had a lot of bumps in the road, but I kept my head down and kept working.
+- It's a lot of fun to be able to share special moments with my kids and wife.
+- You want to go out there and do what's best for the team, help your team move the ball down the field, make plays, help them win football games.
+- Every single year is a year for me to take a look at how I've grown and how I can get better and better myself as a football player as a receiver and just as an overall team player.
+- I mean, I don't think a lot of people know this, but I played corner in college.
+- I was a soccer player, but everyone said I was too physical so I moved over to football.
+- I support my wife. I want her to have a career. I want her to be happy, to have success at what she does.
+- Getting cut four separate times really never stopped me.
+- My goal was to be a good player in this league. Got my butt up out of bed and got to the gym.
+- You know, I don't ever - I don't really compare myself to receivers.
+- I didn't really have a plan B. My plan B was work harder and try to make it in the NFL, and that's what I want to do. I put everything I had into making it in this league, and that's why I'm here.
+- I always go back to who I am as a player, and what got me into the league. It wasn't by demanding the ball or anything. It was about doing what's best for the team, doing my job the best I can, showing up on film and making the plays when they come my way during games. That's what I focus on every single week.
+- I know they don't come very often in this business, so every chance I get to step out on the field, wherever it was, I worked as hard as I could.
+- It's all about opportunities in this league, and when you get the opportunities, you have to make the most of them.
+- Some days are harder than others, just like anything.
+- I mean I've been around a lot of places and there's been a lot of guys that - every single team that I've ever been on, I really try to take advantage of the older veterans that are there, try to learn about their process, how they take care of their bodies, how they study, how they watch film.
+- I love coffee.
+- The quarterback-receiver connection is a constant work in progress. You're always working on your communication on the field, off the field.
+- In baseball I was very singularly focused. If I was pitching it was me versus the hitter.
+- I've learned so much whether it was, I played a lot of team sports, so being part of a team, learning how to be a leader on different teams, and how to deal with the ebb and flow of different games.
+- Never gave pro lacrosse a thought.
+- For me, I'm an undrafted guy, so every single year was a battle.
+- When it came down to it, I felt Penn State was an amazing school. I loved the campus.
+- A big part of that quarterback-receiver relationship is communication. You've got to be on the same page because if you're not, it just doesn't work. Then you're kind of guessing.
+- I think the mental aspect of the game is huge.
+- Wayne Chrebet, obviously, I love watching him play.
+- Lacrosse has a special place in my heart after starting my career as a lacrosse player at Penn State.
+- There's going to be games where you're asked to do things that people aren't always going to see.
+- I am excited about the concept of the Premier Lacrosse League. The idea is to bring the best lacrosse players from around the world together and showcase their talent to the fans.
+- I think playing multiple sports is by far the best way to go. You're talking about different teammates, different skill sets, different mentalities.
+- I always thought that I could play football at the college level.
+- I know what I need to do to make myself and make my legs, most importantly, feel good.
+- My family is the most important thing in my life.
+- I don't like to take a lot of time off. It's really not in my DNA.
+- When I was in Buffalo, Fred Jackson was you know, I would say he was a big mentor of mine and when I was in Miami, I probably picked apart Brian Hartline, Davone Bess, those guys.
+- I started when I was in sixth grade, playing Pop Warner. I played running back, quarterback, cornerback... all over the place.
+- I'll do whatever it takes to get on the field and whatever is asked of me or needed of me.
+- As a football player, as an athlete, as a competitor - that dream of being able to play in the Super Bowl, you're never going to let that one go.

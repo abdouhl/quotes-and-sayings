@@ -1,0 +1,36 @@
++++
+author = "Irrfan Khan"
+title = "Irrfan Khan Quotes"
+quotes_len = "30"
+description = "the best 30 Irrfan Khan Quotes"
++++
+- I was going through a crisis once, so I went to therapy because I was so unbearable for myself.
+- What happens with every role, you have to trick yourself, you have to creatively find ways to explore the mental state of your character.
+- I can't think of a more pathetic situation for an actor than to do a film and not connect to it. And I pray to God that I never face that situation.
+- I'm trying to strike a balance between Bollywood and Hollywood.
+- Maybe to become famous is to reassure yourself that whatever you're lacking inside, you've fulfilled that.
+- I don't want to do romantic roles where I have to lip sync to a song. A role that explores romance on a new level would suit me.
+- When you come out of the theatre and you don't even talk about that film or remember it, then it disappoints me.
+- Cinema is changing every week, and multiplex audiences are demanding every week.
+- We don't have a culture of realistic acting in India.
+- It's always an inner wish of every actor to reach out to maximum audiences.
+- I want to entertain people, but with some substance.
+- In India, therapy is not part of the culture; it has not become such a big need.
+- I've realized that my... let me call it 'destiny' or some force that has pushed me to identify looking for your comfort zone as a kind of limitation. And everybody has a tendency to fall into the comfort zone. I did that in the early stage of my career.
+- A film engages you emotionally and intellectually.
+- A nation needs to know how to utilise talent.
+- Our Bollywood stars who talk of being part of 100 crore films, I think I belong to the 1,000 crore club.
+- I am not ready to fit into the mould of commercial cinema.
+- Language does not make one an elite.
+- You cannot reduce the power of story with the tag of money because it's not a share market. So you must know the seriousness of the power of storytelling.
+- It surely gives you a high to be an international actor with quality work.
+- I cannot live anywhere else except India.
+- For me, acting is becoming naked in front of people, you know? And when you know in the back of your mind somebody is testing you, you cannot really bare yourself. That's a feeling I always have when I'm auditioning.
+- Parsi theater was known for melodrama.
+- The sign of a good society is where talent is respected.
+- I am lucky that the Western world chooses me to play roles in their movies an television, whatever language it may be.
+- Sometimes when you're playing a very intense character, a disturbed character, you find other layers. That's much more interesting to me, rather than just playing 'intense.' I find it too boring.
+- Hollywood isn't ready for an Indian leading man.
+- I will only do a Hollywood film when there is something special offered to me.
+- I've played many characters that have consumed me and owned me.
+- I can recite poetry, but I cannot write it.

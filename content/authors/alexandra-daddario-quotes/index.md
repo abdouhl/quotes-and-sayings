@@ -1,0 +1,113 @@
++++
+author = "Alexandra Daddario"
+title = "Alexandra Daddario Quotes"
+quotes_len = "107"
+description = "the best 107 Alexandra Daddario Quotes"
++++
+- To be an actress and act crazy is really fun for me, to be able to be acting like you'd never be able to act in your real life and scream and freak out. It's an interesting test for an actor.
+- For whatever reason, I am just very attracted to mystery stories, solving mysteries. I was a huge fan of 'The Jinx.' That's such a satisfying show because it's all... I don't want to give it away to anybody, but it's really amazing.
+- Television is going through a transformation where you're basically able to do big, long movies in television.
+- I'm a believer in challenging myself and overcoming challenges by doing things I've never done before.
+- It's really amazing to see what you imagined brought to screen.
+- I'm a combination between extreme insecurity and extreme confidence.
+- My mom lives in New York still in the home that I grew up in.
+- Not to get too deep, but I think one of the reasons we embrace superheroes and this world is that these are just normal people that have incredible powers that are relatable in some ways - in that we don't have great super powers, but there's strength within us that we can utilize in our lives. Ultimately, they're just normal people with problems.
+- You do run and scream and cry and work yourself up into hysterics, and then you get back to the hotel at the end of the day, and you feel really off and really strange. And that's because rationally, even though you know everything is OK, you have put yourself through this traumatizing experience, and your body is still going.
+- I always wanted to be a blonde, and it was really cool to do that for a while.
+- Now that I have a dog, I frequently have to take him out and get some exercise, which also gets me exercise.
+- My grandfather was a politician and lived in Washington, D.C., so as a kid, I used to go to D.C. every other weekend.
+- I really like Rag & Bone because they make simple pieces that last.
+- 'True Detective' did change my career.
+- I love 'House of Cards.' I would watch Kevin Spacey read the phone book.
+- 'Gremlins' is one of those eternal movies that stands the test of time and that everyone loves and knows.
+- When I first got here, I thought L.A. sucked. I hated it. I had this pretentious Manhattan thing. But now I've made such a life here, and I'm so happy here. They're just really different places. I can't really compare them because there's great things about both of them.
+- It's odd seeing yourself on screen at all.
+- My mom used to model when she was younger, before she went to law school, and I think she thought it was pretty cool. I think my parents saw that acting ultimately made me happy, even though it was a rough ride for a little bit.
+- I feel like I'm still at a point where I have a lot to learn from watching myself, so I find that it helps. But it's always weird.
+- What's the good of Twitter if you can't tweet cute... Twitter's so silly. I tweet about my rabbit a lot.
+- All the money my mom spent on lessons paid off.
+- I like comedies in general.
+- I'd love to do a period piece.
+- Horror films are very effective to me; they have an impact on me. I think that real life things scare me a lot more.
+- I think, for different types of things, more rehearsal is very important.
+- I got a dog. I take him on hikes, and I go to yoga all the time and drink green juice - very cliche actress.
+- I love yoga.
+- It made me feel cooler in real life to know I could be The Rock's daughter.
+- Following your heart and working really, really hard is the best thing you can do, and just try not to be too hard on yourself.
+- 'It's Always Sunny in Philadelphia' I did an episode on, and that's one of my favorite television shows ever, and there are these shows that I watch so regularly.
+- My favorite go-to is Topshop. They have great stuff.
+- Any time you do a movie, there are going to be war wounds that you end up getting.
+- I've gotten to the point where I've gotten comfortable with my awkwardness.
+- There are a lot of people who give you their opinions on what to do.
+- I love the 'Percy Jackson' movies. That was my big break. I love the people I worked with. It was a really magical experience for me.
+- Boundaries move with time. It's like being the oldest child. Your parents don't know what to expect, but by the time the little sister comes along, it's like, 'Oh, staying out late with a boy - no big deal.'
+- I'm obsessed with this show called 'Workaholics.'
+- Everyone has the opportunity to do a horror film. There's something great about it as an actor. You have to go to places you'd normally never go and be put in situations you would never be put into. You don't get the opportunity in a lot of films to have this kind of acting. It's an interesting challenge.
+- It's wonderful that we're portraying women in this way so that young women can see that women actually are strong and capable of accomplishing all kinds of things.
+- Every mistake that you make, or every thing that you might regret, you don't need to necessarily regret it, because it can be a step forward. You just move forward and let them go because there will be a lot of bad auditions, and there will be a lot of negative responses. But that won't last forever.
+- I get really frightened easily.
+- Growing up, when I was younger, I didn't feel all that tough or smart or strong. As I got older, I was able to discover my own strength.
+- I'm a huge fan of Steve Martin. He's hilarious, but he has this depth to him and this way of dealing with the difficult things in life with a sense of humor that I think has helped me as an actress.
+- I'm a big believer in sort of sense memory, like using something that you've experienced in order to put yourself in the position that the character is in.
+- It's really amazing when you discover how strong you actually are and what you really can accomplish.
+- I've been pretty lucky. Every single thing I've done has meant so much to me and has been like a stepping stone to something different.
+- One thing I got to do that was awesome was hang off the side of this Ferris wheel and do that stunt myself.
+- When you're with another actor who's also been through five hours of prosthetic makeup, and you're eating another person's neck, and fake blood is being spurted out at you for two minutes, it's incredibly fun, and you're in character for that time. You can't really believe that that's your job.
+- I don't call him 'The Rock' to his face.
+- I'm pretty consistently fit because I think it's an important part of my work, but I will ramp it up just because I have been enjoying myself a little bit too much.
+- When I have no appointments, I spend the day in pajamas and go to the dog park in pajamas. I'm very casual.
+- I wasn't all that familiar with the 'Texas Chainsaw' franchise, and I knew who Leatherface was, but I had never seen any of the films, so I didn't know what the meaning behind it was.
+- Finding a stylist is a little like finding a date; you have to find who is right for you.
+- I knew the name; I knew who Leatherface was. But I hadn't seen any of the films, mostly because I'm a scaredy-cat.
+- You take some creative license when you make a movie, and things can be a little bit different.
+- If you had told me ten years ago that I would be able to go and make out with Will Forte one day and then Woody Harrelson the next, it would have blown my mind.
+- I'm a huge fan of Bill Macy, so working with him in any capacity was exciting for me.
+- I never even went to Jekyll & Hyde's restaurant. I loved the Greenwich Village Halloween Parade, though.
+- I feel like now my kids can run around and say, 'My mom was the Rock's daughter.' I don't have kids yet, but my future children - I just feel like it's the coolest thing ever.
+- When you're trying to sustain a high level of intensity and panic, sometimes it actually helps to have something happen that makes you really afraid because even if in real life it wouldn't make you that scared, to take that little bit of fear and be melodramatic about it, I guess, and convince yourself that it's worse, can be effective.
+- I do consider myself to be a smart, tough girl.
+- You remember where you were doing each scene. 'Oh my God, it was so hot that day.' It's kind of cool to see a movie that you haven't seen in a long time and reflect on that stuff.
+- Every single thing you do, you don't really have expectations.
+- I'm not a great student, so I don't know that I would have been a great detective. Part of my brain sort of works that way, like wanting to figure out puzzles and figure out what happened and why people do the things they do and who they are and how it happened.
+- I had done a lot of running in 'Texas Chainsaw' and sword-fighting in 'Percy Jackson,' which taught me to fall properly.
+- Going to the darkest place you can to make yourself really upset and adding that with the physicality and running around, you can work yourself into hysteria that way.
+- I was lucky because when I'd done 'Percy Jackson & the Olympians: The Lightning Thief,' I had to have extensive weapons training.
+- I love to travel, and I think being whisked away somewhere for a vacation is a pretty amazing date. But, I'm really into the basic movie and dinner. It's not where you are but who you're with that really matters.
+- There is nothing better than a really cool mystery: you don't know what's going to happen, so you keep turning those pages or watching that series.
+- For some reason, I find jogging incredibly boring, but yoga is the only thing I've been able to consistently do over the years. I think it's because it also is sort of a mental exercise and calms you and refocuses you. So I find that that's great, and sometimes someone will drag me to a spin class or on a hike.
+- I'm very into fantasy films.
+- When I was first starting out as a kid, I tried to pad my resume with everything I had ever done - ice-skate, carry a tune. I can't dance for my life, but I can learn, so I'll tell people I can dance. I play the piano - I'm a really good pianist, actually.
+- I've really fought to get into rooms, and I'm a big believer in auditioning. It's hard, because I'm insecure, but I have an intense desire to prove myself to people.
+- I Instagram and tweet a lot about my dog. I think he is one of the most interesting things about my life right now. All my motherly instincts go toward this dog. I love the dog.
+- I'm not afraid of falling and getting up the next day with a few bumps and bruises.
+- I didn't expect anything crazy to happen from 'True Detective.'
+- I love stories about people that, whatever situation they're in, you can relate to them in a way.
+- I went to an all-girls school for part of high school, and the idea of boys was amazing to me; like, all I ever wanted to do was kiss boys and be around boys.
+- I watched 'Alien,' and I watched 'The Girl with the Dragon Tattoo,' the Swedish version. I watched the original 'Texas Chainsaw Massacre,' and I watched the Jessica Biel version and watched Jessica's performance.
+- That would make a great Instagram photo - me and David Hasselhoff and Pamela Anderson.
+- Charlize Theron is perfect. She holds herself with so much poise and grace. I don't know if she looks so good because she has the best body or because she has the confidence to feel comfortable in what she's wearing.
+- Having dinner with somebody you've looked up to your whole life is quite a memorable thing. Like, 'Wow. I'm having dinner with someone who is a huge inspiration to me.' That's intense.
+- I never know what's going to happen or what opportunities are going to be given to me. I've found with the opportunities that I've been given have made it possible for me to explore different characters and exciting stories.
+- I love my rabbit, my family rabbit.
+- That's a very scary thing to think about, being trapped in a coffin.
+- My mom is a big scaredy cat, and I inherited that from her.
+- My mom wears a lot of gold.
+- I feel like it's very important to connect with the people who are passionate about what I'm doing.
+- I'm just really excited to be doing what I love, and I think that's the best part about all of this.
+- Nobody is all good or bad.
+- Voiceover work, I really enjoy. I don't get to do too much of it, but I've been doing more lately, and I like it because you get to do a bunch of options, one after the other, and you can go as big as you want or as small as you want, and you don't think about it sometimes.
+- When I was 10, 11, 12, 13, 14, I had so many people I looked up to and was so inspired by all these different people. It's cool to be in that position.
+- I've been acting since I was 11.
+- I'm really easily affected by horror films. I have pretty strong reactions to them.
+- There's a method to the madness in filmmaking, where everything's very specifically laid out, the shots and what they need - but there also can be a freedom to allowing the actors to find genuine moments.
+- When I did 'Percy Jackson,' people told me, 'Oh, you're going to be so famous... you're not going to be able to walk down the street... it's going to be huge,' and it wasn't - although it was big for my career.
+- I think I've learned not to take everything so seriously and just try to focus on the work the most.
+- For my first acting gig, I was a hand model for a Barbie commercial that was only going to air in Asia. And I was constantly trying to get my face in the shot.
+- I think I'm sort of method in a sense, and I enjoy, you know, trying to find that reality in fake emotion.
+- You never know what's really going to hit.
+- It's never a done deal until it's a done deal.
+- It's cool to be a female character who gets to be really strong and tough.
+- I took Meisner for a long time. I use a lot of sense memory and, well, I wouldn't say Method, but I can't really avoid getting into character.
+- I'm honored that people would think of me for any big role that is talked about a lot.
+- I was obsessed with Nancy Drew growing up - I couldn't get enough.
+- When I first moved here, I almost felt like I was obligated to hate L.A. as a New Yorker. I moved way too fast for this city. I walked everywhere, and I was lonely, too. It was a really hard time not knowing anybody, and you don't run into people the way you do in New York. You can go a week without seeing anyone.

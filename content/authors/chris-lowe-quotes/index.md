@@ -1,0 +1,35 @@
++++
+author = "Chris Lowe"
+title = "Chris Lowe Quotes"
+quotes_len = "29"
+description = "the best 29 Chris Lowe Quotes"
++++
+- There's nothing I like more than being on a dance floor with a thousand people feeling love for humanity.
+- When West End Girls came out on import, I was a student at Liverpool University. I'd go to a club in Liverpool and it would come on, and I'd be really embarrassed.
+- I think sometimes an artist can really lose sight of what made them popular in the first place.
+- One Direction. Proper pop band. There has to be a band that people want to scream at. I don't think I've ever behaved like a pop star.
+- The clubs are good fun-having a laugh, really having a good time.
+- I feel like the Internet has really freed everything up to an extent, hasn't it? That radio maybe doesn't have quite the power that it had before.
+- Chart positions aren't the be all and end all.
+- We never let go. Ever. Even with punctuation. It's frightening. I can't see anyone from any record company ever writing an email to Neil and not getting it back, with corrections.
+- I don't think you ever know in yourself whether you have gone mad. You exist in a bubble. There comes a point where you suddenly feel not really a part of the world, you're just passing through.
+- I always have a very strong sense of shaming oneself, and you can do that a lot in the public eye, so it's best avoided at all costs I think.
+- Electroclash is good because it's stayed underground.
+- We'd be nowhere without our looks.
+- There's a great club in London called The Secret Sundays, and it's on a Sunday afternoon and it's outdoors, and it's mainly Italians that go, and they all look great, and they're dancing on the tables, and life's a party, and they're totally into the music, going mental, and that's when dance music is really fantastic, I think.
+- If I could, I'd be a recluse. I do want to be one. I'm trying really hard. But it's a difficult thing to pull off in this job.
+- We'd have made more, but I kept forgetting to write songs down.
+- I don't think you ever know in yourself whether you have gone mad.
+- Love Comes Quickly is our favourite record ever, and it did really badly.
+- Even the Beatles lived their lives as a soap opera.
+- Stupidity combined with arrogance and a huge ego will get you a long way.
+- Shameless self-publicity works, of course: living your life as a soap opera.
+- I used to play works in progress to people, but now I wait 'til it's finished, because you make excuses all the time: 'Well, there's gonna be an orchestra on it.' Rather than make excuses, wait 'til it's finished, and then they can say they don't like it.
+- Using music to promote hate seems to be the bastardisation of music to me.
+- House music is about love, and lots of hip hop is about hate and intolerance, so in that respect, it's not good at all.
+- Dance music is about having a good time, and a lot of dance music is very serious now. When progressive house and progressive tech came along, it was kind of serious, but it's all context as well.
+- There are people that have that confidence, who march into VIP areas. I assume I won't get in. I don't say, 'Do you know who I am?', but sometimes I'm with someone who says it for you. Then, I pretend to be all, 'Oh, please don't shame me!'.
+- Well, I love what you would call boys' music, you know, the prodigy, banging techno, music that girls generally don't like.
+- You can get too bogged down in technology and you can sort of forget what it is you were trying to do. And with the Pet Shop Boys it's primarily about the songs, it's about song writing.
+- Yes, it's a very difficult thing to do, to promote a record, do television shows, and to still want to remain private, it's really quite difficult to explain to people what you're trying to do. I mean I'd actually quite like to be a recluse, but you know, you've got to promote the record as well.
+- I'm beginning to think that you should only be allowed to serve two terms, before madness sets in.

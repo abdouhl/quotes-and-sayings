@@ -1,0 +1,30 @@
++++
+author = "Arne Duncan"
+title = "Arne Duncan Quotes"
+quotes_len = "24"
+description = "the best 24 Arne Duncan Quotes"
++++
+- The cost of college should never discourage anyone from going after a valuable degree.
+- State governments generate less revenue in a recession. As state leaders struggle to make up for lost revenue, legislatures tend to cut funding for higher education. Colleges, in turn, answer these funding cuts with tuition hikes.
+- I worry when athletes are simply used by their universities to produce revenue, to make money for them, nothing to show at the back end. I grew up with a lot of players who had very, very tough lives after the ball started bouncing for them. And that's why I'm going to continue to fight.
+- Teachers support evaluations based on multiple measures: student growth, classroom observation and feedback from peers and parents.
+- Whether it's in an inner-city school or a rural community, I want those students to have a chance to take A.P. biology and A.P. physics and marine biology.
+- About two-thirds of bachelor's degree holders borrow to go to school, and on average they're graduating with more than $26,000 in debt.
+- Teachers say their schools of education did not adequately prepare them for the classroom. They would have welcomed more mentoring and feedback in their early years.
+- To encourage more top-caliber students to choose teaching, teachers should be paid a lot more, with starting salaries more in the range of $60,000 and potential earnings of as much as $150,000.
+- I think every student needs access to technology, and I think technology can be a hugely important vehicle to help level the playing field.
+- States should not balance their budgets on the backs of students.
+- When I ask teachers why they teach, they almost always say that it is because they want to make a difference in the lives of children.
+- Even in a time of fiscal austerity, education is more than just an expense.
+- A postsecondary education is the ticket to economic success in America.
+- We all have a role to play - the President, Congress, parents, students and schools - in making college affordable and keeping the middle class dream alive.
+- Surveys show that many talented and committed young people are reluctant to enter teaching for the long haul because they think the profession is low-paying and not prestigious enough.
+- So instead of watching TV, we read every night together as a family.
+- Most teachers still say they love teaching though they wouldn't mind a little more respect for their challenging work and a little less blame for America's educational shortcomings.
+- Young people know how important it is for dads to be involved in their lives. As I travel the country and talk with students, some of them tell me that their lives would be totally different if their father was around.
+- There was nothing more important I could do than be supportive as a dad.
+- Almost 24 million children - one in three - are likely growing up without their father involved in their lives.
+- Borrowing to pay for college used to be the exception; now it's the rule.
+- We've seen more reform in the last year than we've seen in decades, and we haven't spent a dime yet. It's staggering how the Recovery Act is driving change.
+- Research shows that children do better in school and are less likely to drop out when fathers are involved. Engaged parents can strengthen communities, mentor and tutor students, and demonstrate through their actions how much they value their children's education.
+- Money is not the reason that people enter teaching.

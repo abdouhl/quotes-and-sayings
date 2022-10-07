@@ -1,0 +1,19 @@
++++
+author = "Lori Greiner"
+title = "Lori Greiner Quotes"
+quotes_len = "13"
+description = "the best 13 Lori Greiner Quotes"
++++
+- I prefer to like the people I invest in, but it's not an absolute necessity, as long as they have a good mind and I know they'll do whatever it takes to be successful.
+- I've achieved a certain amount of success and now I'm thinking about the good things I can do.
+- I like helping people.
+- I always recommend, if you can, to patent or protect whatever your idea is. If you can't, you have to make your best judgment. Sometimes people don't get anywhere because they sit on something, so afraid to reveal it. And yet, in the reverse, sometimes if you expose something too widely, you can risk losing it.
+- When I had challenges, it taught me to be more on top of it for the future. Things go wrong all the time when you're running your own business, but it's how you perceive it and deal with it that matters.
+- I think people don't like when you're not confident about what you're pitching, and they don't want to invest in you or get behind you.
+- I think running a business, doing what I've done for the last - since 1996, has taught me so many things because I started from just an idea and then had to figure out how to make it, market it, every single thing from soup to nuts on how to get a product done and out there.
+- I had an idea, I was passionate about it and I had to work hard to turn that into a big success and more products.
+- In business it is most often all about getting your foot in the door and once you do, everything opens up and things start to naturally progress into bigger and more opportunities.
+- I've been making products for so long, I have a gut feel for what is right - what will work and what won't. I can tell instantly if it's a hero or a zero.
+- I have an innate instinct for knowing what's going to work.
+- I had a history for starting something and maybe getting halfway done. Then I'd see the same thing I was doing on the bestseller list! My ideas were right, but I hadn't done them fast enough.
+- People trust I know what I'm doing. I have lots of credibility. I've had years of learning. I know and understand my business.

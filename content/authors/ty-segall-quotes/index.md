@@ -1,0 +1,45 @@
++++
+author = "Ty Segall"
+title = "Ty Segall Quotes"
+quotes_len = "39"
+description = "the best 39 Ty Segall Quotes"
++++
+- A collaboration, you have to collaborate, meet in the middle, yield to the other collaborator, and that's a wonderful thing.
+- Madonna was my favorite when I was a little kid.
+- Growing up in Orange County, it was all O.C. punk, L.A. punk. Black Flag, all the SST stuff.
+- A lot of bands are influenced by other bands, and that informs their songwriting for sure. It definitely informs my songwriting, too. But it's more about not thinking about it, and if it comes out of you, it's better.
+- But I think it's hard for me to only put out one record a year. Because I get too antsy. But it's good I'm learning to do that, because each record counts. And you should make it count.
+- Each album I do, I try to have at least a slight rule, whether it's the band has to get together and record live, or all guitars, all fuzz on, all the time. It's varying and slight, but yes, I like having rules.
+- I love Kool Keith; that guy's the best.
+- A CCR Headcleaner show will blow your mind.
+- I like thrash metal and black metal, stuff like that.
+- The idea of 'Freedom's Goblin,' to me, leads to a wild conversation. I would hope that father and son, driving home from the record store, could have a conversation about what that title means. Because to me, it's the duality of being free: the evil and the good, and how it's a constant paradox.
+- I listened to oldies radio stations as a kid; lots of Kinks and Beatles and '50s hits.
+- Usually, I'm over-analyzing things that have to do with my own actions.
+- I really like proto-metal, so stuff like Pentagram is really great, and that's more in the vein of Sabbath and stuff like that.
+- To me, success has already happened. I get to make records and live doing that. Success is that.
+- I grew up in a super suburban place where the mundane middle-class issues were similar to what Ray Davies was singing about. All the topics he was singing about were middle-class woes and humanitarian woes - human-being woes.
+- The 'Manipulator' record was really fun to do. It was far less heavy and draining, in an emotional way. It was just like making a rock record. It was just really fun.
+- People are embarrassed by disco, but I love it.
+- Any reality-TV show on MTV is gonna be fake and stupid.
+- I know 150 percent how deeply cynical and negative I can be. I can be very dark and harsh.
+- I think 'Freedom's Goblin' is a very political title.
+- I'm jamming 'Black Sabbath Vol. 4' all the time. Zappa's 'Cruising With Ruben & The Jets.' A lot of Gong lately. Some Hawkwind. The Residents' 'Duck Stab' is amazing. Some Fugs. Lots of stuff, man. I'm pretty schizophrenic with records.
+- I love the weird overdub style, like 'The Madcap Laughs' by Syd Barrett, where you can tell it's being overdubbed and it's kind of warbly. It creates a different experience. Or the 'White Album,' where you can tell it's overdubbing. But there's something about a band in a room - it's a feeling you can't replicate. There's a feel to the music.
+- My favorite records are, like, The Pretty Things' 'Parachute' and 'S.F. Sorrow' and The Mothers of Invention's 'We're Only in It for the Money' and The Kinks' 'Village Green Preservation Society' - these records that have a story - even if it's not a literal story - because of how they're sequenced and flow. It's like a novel with sound.
+- When I sit down and try to write lyrics first - I've definitely done that in the past - but most of the time, they come off as a put-on, or less genuine than you would think. I'm the kind of guy that if I overthink a sentiment or I overthink a statement, it's weird.
+- With Spotify and all those streaming services, you don't get paid anything. You have to be, like, Madonna or something to actually make a real royalty from that.
+- I try to ignore the Internet. It's an evil, evil place.
+- No one deserves anything more than anybody else. Because of that fact, you treat everyone the exact same way as best as you can. Same with musical ideas. My ideas aren't better than anybody else's.
+- There's the conforming 9-to-5-lifestyle thing. Then there's, like, settling down, trying to find a balance in a relationship sense, or having a dog and having a house. All these things, like, they're not really gonna make you happy.
+- I'm just a total nerd, in all honesty. I'm a massive, insane record fan - that's how I got into playing music. That's why I wanted to make an album - I'm obsessed with how sides flow.
+- My dad is a lawyer and my mom is an artist. So growing up was exactly what it sounds like - strict household but a lot of creativity. They are so psyched that I get to make music for a living. My parents rule.
+- People spend hours constantly checking and tweeting and Facebooking. And it's cool to check up on your friends and see what's going on in the world, but it's not cool to spend five hours of your day on the computer looking at the Internet.
+- I tend to write songs critiquing myself. The best way for me to deal with stuff is to write a song about it... That's not to say all my songs are like that.
+- A good record transports you to another place.
+- I listen to a lot of stuff. I mean, I'm constantly switching up what I'm listening to.
+- I've always had problems with my brain, so a lot of the songs are about issues I have with paranoia or freak-outs. 'When My Head Explodes' is about being on stage, having people look at you and expecting you to perform, then literally your head explodes.
+- I really wanna make hip-hop music, but I don't know how to use any of the tools. Electronic, computer skills, I don't have those for engineering or making beats. I don't know how to use a sampler well. I don't know how to use any of these things.
+- To me, rock n' roll is rock n' roll. I try to think of it as that. To me, Funkadelic and Metallica exist in the same world.
+- A good song's a good song, and well known songs take on meaning in people's lives.
+- I really like to think of each record as its own thing. So, for sure, but I hate the idea of being stuck in anything. Like I want to do a Hawkwind-style record too, or a noise rock record or a hardcore record. Why not, you know? I would just not want to keep heading too far in one direction, without pulling off and going the other way.

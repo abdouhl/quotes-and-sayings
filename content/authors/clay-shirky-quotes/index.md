@@ -1,0 +1,33 @@
++++
+author = "Clay Shirky"
+title = "Clay Shirky Quotes"
+quotes_len = "27"
+description = "the best 27 Clay Shirky Quotes"
++++
+- How we put our collective talents to work is a social issue, not solely a personal one.
+- There is a giant gulf between doing something and doing nothing. And someone who makes a lolcat and uploads it - even if only to crack their friends up - has already crossed that chasm to doing something. That's the sea change, and you can see it even with the cute cats.
+- Human beings are social creatures - not occasionally or by accident but always. Sociability is one of our lives as both cause and effect.
+- Our social life is literally primal, in the sense that chimpanzees and gorillas, our closest relatives among the primates, are also social.
+- Facebook is not very good at dealing with named groups; they're not very good at saying, 'We've got this book club and I'm a member and you're not.' But membership is one of the precursors to a lot of social action.
+- It is possible to think that the Internet will be a net positive for society while admitting that there are significant downsides - after all, it's not a revolution if nobody loses.
+- The more ideas there are in circulation, the more ideas there are for any individual to disagree with. More media always means more arguing.
+- Growing up with a name that rhymes with turkey - and jerky - was no great fun. But, as an adult, I tell you, being globally unique in the age of Google can be extremely helpful.
+- There is no larger collective-action problem than the environment. The three biggest lies of the environmental movement is that every little bit helps, you can do your part, and together we can do it.
+- I certainly never intended for myself an academic career and, were the academy to suffer, I'd just go do something else. I don't have a commitment to it or to really, frankly, almost any institution that assumes that it has to be stable forever.
+- The tools that a society uses to create and maintain itself are as central to human life as a hive is to bee life. Though the hive is not part of any individual bee, it is part of the colony, both shaped by and shaping the lives of its inhabitants.
+- One of the problems with any kind of talking about the media landscape is that we've just been through an unusually stable period in which, for fifty years, English language media was centered in three cities - London, New York, and Los Angeles - around a very stable group of people working in a relatively stable set of media.
+- Think about spam filters; if email didn't come from someone that someone you know knows, that's an important signal, and one we could embed in the environment; we just don't. I just want the world to be filtered through my social graph.
+- When we change the way we communicate, we change society.
+- The whole, 'Is the Internet a good thing or a bad thing'? We're done with that. It's just a thing. How to maximise its civic value, its public good - that's the really big challenge.
+- More interesting than thinking about what's possible in 10 years is thinking what's possible now but that no one has built.
+- I removed 'cyberspace' from my vernacular. The idea, which I grew up with, of going into a place separate from the real world, is something my students just don't recognise.
+- You used to have to own a radio tower or television tower or printing press. Now all you have to have is access to an Internet cafe or a public library, and you can put your thoughts out in public.
+- The difference between what all the people can do individually and the global consumption of nonrenewable resources is huge. The tension is... what will it take to get people to act in concert? There isn't any additive solution to the problem. It will be both governmental and social because that's the scale of the problem.
+- Whether it's long-form journalism or investigative journalism, it's no fun to just be the guy diagnosing the problem.
+- We are in a world where most American citizens over the age of 12 share things with each other online.
+- I am not somebody who believes everyone is equally talented; talent remains unequally distributed.
+- I would not hesitate to say I was addicted to the Internet in the first two years. It can be addictive, and things not taken in moderation have negative effects. But the alarmism around 'Facebook is changing our brains' strikes me as a kind of historical trick. Because we now know from brain science that everything changes our brains.
+- The web's democratic in one way and distinctly undemocratic in another way. And I think a lot of the confusion about the political ramifications have to do with that one word having so many meanings. So, it's democratic in that it quite literally delivers power to the people; it, it essentially opens up participation in the public's mind.
+- Algorithms don't do a good job of detecting their own flaws.
+- When I say 'publishing is the new literacy,' I don't mean there's no role for curation, for improving material, for editing material, for fact-checking material. I mean literally, the act of putting something out in public used to be reserved in the same way.
+- Carpooling is important for urban density, air pollution and other reasons, but carpooling is not the kind of thing that actually changes the energy equation.

@@ -1,0 +1,43 @@
++++
+author = "Immanuel Kant"
+title = "Immanuel Kant Quotes"
+quotes_len = "37"
+description = "the best 37 Immanuel Kant Quotes"
++++
+- Happiness is not an ideal of reason, but of imagination.
+- To be is to do.
+- A categorical imperative would be one which represented an action as objectively necessary in itself, without reference to any other purpose.
+- All our knowledge begins with the senses, proceeds then to the understanding, and ends with reason. There is nothing higher than reason.
+- I had therefore to remove knowledge, in order to make room for belief.
+- He who is cruel to animals becomes hard also in his dealings with men. We can judge the heart of a man by his treatment of animals.
+- Live your life as though your every act were to become a universal law.
+- Science is organized knowledge. Wisdom is organized life.
+- Out of timber so crooked as that from which man is made nothing entirely straight can be carved.
+- It is beyond a doubt that all our knowledge begins with experience.
+- Two things awe me most, the starry sky above me and the moral law within me.
+- Religion is the recognition of all our duties as divine commands.
+- All the interests of my reason, speculative as well as practical, combine in the three following questions: 1. What can I know? 2. What ought I to do? 3. What may I hope?
+- What can I know? What ought I to do? What can I hope?
+- The only objects of practical reason are therefore those of good and evil. For by the former is meant an object necessarily desired according to a principle of reason; by the latter one necessarily shunned, also according to a principle of reason.
+- If man makes himself a worm he must not complain when he is trodden on.
+- Experience without theory is blind, but theory without experience is mere intellectual play.
+- Act that your principle of action might safely be made a law for the whole world.
+- Always recognize that human individuals are ends, and do not use them as means to your end.
+- In law a man is guilty when he violates the rights of others. In ethics he is guilty if he only thinks of doing so.
+- All thought must, directly or indirectly, by way of certain characters, relate ultimately to intuitions, and therefore, with us, to sensibility, because in no other way can an object be given to us.
+- So act that your principle of action might safely be made a law for the whole world.
+- Even philosophers will praise war as ennobling mankind, forgetting the Greek who said: 'War is bad in that it begets more evil than it kills.'
+- By a lie, a man... annihilates his dignity as a man.
+- Intuition and concepts constitute... the elements of all our knowledge, so that neither concepts without an intuition in some way corresponding to them, nor intuition without concepts, can yield knowledge.
+- Morality is not the doctrine of how we may make ourselves happy, but how we may make ourselves worthy of happiness.
+- But although all our knowledge begins with experience, it does not follow that it arises from experience.
+- Immaturity is the incapacity to use one's intelligence without the guidance of another.
+- It is not necessary that whilst I live I live happily; but it is necessary that so long as I live I should live honourably.
+- Metaphysics is a dark ocean without shores or lighthouse, strewn with many a philosophic wreck.
+- Ingratitude is the essence of vileness.
+- May you live your life as if the maxim of your actions were to become universal law.
+- Thoughts without content are empty, intuitions without concepts are blind.
+- From such crooked wood as that which man is made of, nothing straight can be fashioned.
+- It is not God's will merely that we should be happy, but that we should make ourselves happy.
+- Seek not the favor of the multitude; it is seldom got by honest and lawful means. But seek the testimony of few; and number not voices, but weigh them.
+- Nothing is divine but what is agreeable to reason.

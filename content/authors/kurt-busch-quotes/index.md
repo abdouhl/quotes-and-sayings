@@ -1,0 +1,37 @@
++++
+author = "Kurt Busch"
+title = "Kurt Busch Quotes"
+quotes_len = "31"
+description = "the best 31 Kurt Busch Quotes"
++++
+- It's almost therapeutic driving there and driving back (to North Carolina), with the time you get to think about things as well as create checklists.
+- Over the Thanksgiving holiday I took time to reflect on what is most important to me and realized I need to find a way to put the fun back into racing.
+- Newman and I were friends. We were great teammates, and he needs to check his trophy case on that Daytona 500 trophy I helped him get years ago.
+- I've been fined probably more than any driver, and I've probably paid it out of my own pocket more than any driver.
+- You really don't put a value on your first win, it is priceless no matter where you are.
+- That's what I try to do each and every week is give my best effort and not give up, no matter what comes at us.
+- I'm technologically challenged, so I finally hooked up Bluetooth in my truck so I can talk going down the road.
+- So there is going to be that balance of understanding how to get the best out of the car that day, whether it's 15th or even if I have a shot at a top 10, protecting that car so we can bring it back when we have to.
+- That's what race fans love to see. That's what they bought this ticket for. That's what they're sitting in the grandstands rooting on their favorite driver for is to see him get out there, mix it up clean and bring it home just like we were, third and fourth.
+- It's just that fun atmosphere, working on the car, being with the guys. This is exactly what I needed.
+- I just always dreamed of racing cars, but I didn't think I could do it as a living.
+- Is my strike zone bigger than others? Yeah. It might be bigger than others, but I don't have a problem with it.
+- I know where my priorities lie.
+- I feel like we're a very good top-10 car, but we really have to work hard and find a unique way to get these top fives.
+- This is fun. This is entertainment, right guys?
+- Each driver has their own identity and from one week to another, normally it stays the same.
+- You know, it's just a matter of working through the pitfalls sometimes and working through the challenges that lie ahead.
+- This is like my dad's race team where we had one Legend car. If we wrecked it, we couldn't race the next week unless we had enough parts to put it back together again.
+- When Jimmie Johnson goes out early and finishes 35th, as he did Sunday, he can look at the cameras, lament about it being a tough day, and then say, 'We'll just try to get them next week at Darlington.'
+- There's steps that I've taken already, and each week, talking with the sports psychologist on a routine basis and working with the different programs that we're going through. This is all stuff that you can say you're going to make a difference, but I'm putting it into action.
+- I also appreciate the lasting friendships I've made while working with our great sponsors through the years, including Miller Lite, Shell and Dodge.
+- The Daytona 500 is a big race, and Darlington is just as big of an event, and a lot of people get excited for it.
+- Leaving a great organization and a lucrative contract is not easy, but it allows me to take a deep breath and work on things that can make me a better driver and a better person.
+- James Finch has always had pretty stout cars for the restrictor-plate races and I know we'll be very competitive at Daytona.
+- There are going to be little victories that we claim, even if it's finishing 15th and putting the car back in hauler without a scratch on it.
+- What we do is just race hard on the track every week. That's the way I'd like it to be documented, and if we watch the tape, we'll see that the No. 48 swerved into us first and I know that, before even watching the tape.
+- James Finch is exactly what I'm looking for, as far as getting back into the race car to have fun.
+- I am grateful to Penske Racing for six very productive years. Together we won a lot of races - 16 in all. I'm proud that we won on a variety of tracks.
+- Just a ton of excitement, and the way the guys are together on this, they're looking at me to grow and to learn, and I'm looking at them to grow and to learn.
+- I feel comfortable around every driver out there and each driver is in charge of their own car, but you feel very secure racing the competition out there.
+- This 51 Phoenix Racing team, I love them to death. They've got my back, I've got theirs.

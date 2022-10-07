@@ -1,0 +1,43 @@
++++
+author = "Karen Mills"
+title = "Karen Mills Quotes"
+quotes_len = "37"
+description = "the best 37 Karen Mills Quotes"
++++
+- We are very much engaged across the government, very much engaged in streamlining and simplifying our activities with borrowers and lenders, because that saves time and saves costs and we believe we can do that while maintaining the same or increased levels of oversight and risk management.
+- We have to keep the momentum going in the economy. And we have to make sure that we give small businesses as much cash and liquidity as possible so they have the confidence to hire that next worker.
+- If you want to have prosperity here, we really have to see our small businesses able to grow and compete around the world.
+- We don't want to give a business that is not going to come through the troubled waters a loan that they can't pay back.
+- We've gotten tremendous support. Everybody now understands how critical it is to help small businesses get out of this recession and into recovery.
+- After four years as Administrator of the SBA, I have let President Obama know that I will not be staying for a second term. I will stay on until my successor is confirmed to ensure a smooth and seamless transition.
+- Health care is the No. 1 concern of small businesses and the status quo is untenable.
+- One of the most important tools we have at the Small Business Administration (SBA) to reach high growth entrepreneurs is the Small Business Investment Company (SBIC) program.
+- I think we've learned that the S.B.A. plays a critical role in providing access and opportunity when the market is not providing that access. We help banks get that money out into the hands of important and viable businesses, particularly those owned by minorities, women, immigrants and veterans.
+- In October 2008, when the credit crunch hit, small businesses were really crushed by the lack of capital.
+- I haven't checked this out yet, but one of our guys told me we have a counselor within 45 minutes to an hour of most small businesses in this country. That's really powerful. I call it our bone structure.
+- One of the most important things we hear is the S.B.A. needs to be ubiquitous. We do all these things, but people still don't know.
+- I grew up in a family business... that really has provided the core of my belief in American small business, and in America's ability to grow and operate important businesses that can compete and be successful.
+- Our economy creates and loses jobs every quarter in the millions. But of the net new jobs, the jobs come from small businesses: both small businesses on Main Street and many of the net new jobs come from high growth, high impact businesses that are located all across the country.
+- We are not going to be the agency where large businesses can masquerade as a small business and get a contract. We are closing down on fraud, waste and abuse.
+- Small businesses pay 18 percent more than big businesses for health care, the same health care, just because they're small and they have too small a pool of risk.
+- As I've traveled around the country, it has surprised me how many times I've heard people in small businesses use that word 'saved.' I believe many small businesses would not have had access to credit and would not have survived without the $50 billion that we were able to put into the market.
+- Small businesses are really the engine in the economy.
+- It's not government that creates jobs; it's small business. Our job is to make sure they have the access to capital, the access to contracting opportunities, and the help, advice and mentoring that they need to go out and be successful.
+- My family was in two businesses - they were in the textile business, and they were in the candy business. The conversations around the dinner table were all about the factory floor and how many machines were running and what was happening in the business. I grew up very engaged in manufacturing and as part of a family business.
+- The morale when I came in was not the best. It was because the agency had not been valued.
+- This is not a zero-sum game. We know that if we provide access and education, particularly where there are gaps in the market, we will create more jobs, we will create more growth, and we will create more activity in the U.S. market, which will be good for our economy.
+- We see entrepreneurship and small businesses and supply chains as a critical part of the economic growth and competitiveness agenda.
+- The S.B.A. does not lend directly to businesses, but instead backs loans to encourage banks to invest in small businesses as part of a nearly $90 billion portfolio.
+- Small businesses, you can give them capital, but what they often need as much is mentoring, advice and help with their business plan.
+- Small businesses want things streamlined, and one of the great successes we're having is less paperwork, faster turnaround times.
+- We spend a great deal of our energy making sure that small businesses have help in navigating to the outcomes that they want.
+- Among our responsibilities is to make sure that 23 percent of all government contracts go to small businesses. That's about $150 billion annually, from all the government agencies.
+- Small businesses have told us that having cash in their pocket is one of the primary things that they need.
+- As you probably know, half of the people who work in this country work for small businesses. And it's more than that, because two out of every three net new jobs come from small business. So we mean it when we talk about small business being the engine for the economy.
+- The 2009 stimulus law got the ball rolling, allowing the agency to reduce and eliminate fees and raise loan guarantees to 90 percent of the total. I knew that we had the opportunity to use S.B.A. products to fill that gap in a rapid manner, as we ended up doing in the Recovery Act.
+- We were able in the Recovery Act to get a program where we increased our loan guarantees to 90 percent. Because we had that program, a bank wouldn't have to take that much risk.
+- We really accomplished what we set out to do with the Recovery Act programs, which was to fill the lending gap created by the crisis.
+- I saw the S.B.A. with just enormous potential, and that's what I told the president - this is really a jewel.
+- I recently had the opportunity to participate in Inc.'s first-ever 'Hire Power Awards' event in Washington, D.C. The event was a testament to the power of American entrepreneurship and the role that it plays in driving job creation and innovation in a wide array of industries.
+- President Obama vowed in his State of the Union address to make assisting domestic manufacturers a top priority for his second term.
+- This has always been a small agency with a big mission. But these days, especially, we have to stand up every day, deliver value into the hands of small-business owners and get taxpayers the biggest bang for their buck so that we can help these job creators do what they need to do.

@@ -1,0 +1,18 @@
++++
+author = "Camilla Lackberg"
+title = "Camilla Lackberg Quotes"
+quotes_len = "12"
+description = "the best 12 Camilla Lackberg Quotes"
++++
+- In Sweden, we've moved away from the notion that mothers have some magical, special bond with children.
+- I've always viewed myself as a brand. When I started 10 years ago, that was very controversial. 'Marketing' and 'PR' were dirty words for the literary world, but that has changed. Once the book is finished, I want as many people as possible to read it.
+- Scandinavian crime fiction has become a great success all across the world and rightfully so. Sjowall and Wahloo ushered in a whole generation of Swedish crime writers, many of whom are now available in English.
+- I do listen to Abba. And a lot of '80s and '90s pop music.
+- People in Sweden talk a lot about the weather - how much we hate it. But Finns get more depressed.
+- The pace of Swedish crime fiction is slower - Stieg Larsson's the exception. And I think we use the environment more.
+- I don't feel the need to prove myself by writing the next generational novel.
+- If I can hit No. 1 on the 'New York Times' best-seller list, I'm thinking of having the entire list tattooed on my body somewhere. It would be fabulous.
+- Northern Sweden holds a special kind of magic. It's cold, lonely, and the people are tough and silent, or so the stereotype says. This is Asa Larsson's home turf and I find as much joy in reading her closely observed descriptions of the environment, as in following her intriguing plots.
+- Swedish taxes are high, and we don't get as much as we used to for them. And our schools aren't so good.
+- Crime stories are our version of sitting round a camp fire and telling tales. We enjoy being scared under safe circumstances. That's why there's no tradition of crime writing in countries that have wars.
+- One of the things I'm really good at is procrastinating.

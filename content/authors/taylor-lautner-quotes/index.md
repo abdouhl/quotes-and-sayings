@@ -1,0 +1,86 @@
++++
+author = "Taylor Lautner"
+title = "Taylor Lautner Quotes"
+quotes_len = "80"
+description = "the best 80 Taylor Lautner Quotes"
++++
+- I've completely fallen in love with the U.K., and I'd love to spend a couple of months a year there.
+- The day I finished 'Twilight,' I came home and started bulking up. For 'New Moon,' I'm 30 pounds heavier than I was in 'Twilight.'
+- My dream as an actor growing up was always to challenge myself to different genres, different roles, and it's actually rare that an actor's given that opportunity to do that.
+- You show up in Paris, and on the drive from the airport to the hotel you're like, 'This is so cool! I want to see something! I want to go to the Eiffel Tower!' And then you leave the next morning. You think, Oh, I didn't get to do anything. I tell people: I've been just about everywhere, but I've seen nothing.
+- Honestly, I try and stay away from what's been written about me, because if you let that stuff get to you and it's not true it can drive you crazy. One thing that I have heard recently which is not true, I didn't say it, is that I believe I was quote saying 'I will never take my shirt off for a movie again.' I didn't say that.
+- I think the one film that I could watch over and over and over again - and I have - is 'Man on Fire.'
+- I am that weirdo that chooses the difficult route down the side of the street.
+- I think of 'Twilight' in terms of the fact that the popularity has given us the opportunity to do the things that we love, and now we can pick and choose.
+- I guess winning an Oscar is the ultimate dream. A lot of amazing actors go their whole career without even being nominated. So that would definitely be a goal to reach. It's a difficult one, but I'm aiming for it!
+- I don't want to become known as just a body.
+- What's really important to me is somebody who can totally let loose and pretty much be themselves and have fun.
+- Honestly, for a big city, London is by far my favourite city on earth, and I'm not just saying that!
+- I do love traveling, so I've been able to travel a lot.
+- I'm re-teaming with the producers of 'Twilight,' whom I love and who I have an amazing relationship with.
+- I hope that I would be considered romantic. I don't know... one of my favorite movies is 'The Notebook' so I guess that would be considered romantic. But I think being romantic is more than the flowers and the gifts. It's about connecting with the person and being able to talk and share things with her.
+- If you constantly pound your muscles, they'll never have time to repair.
+- The thing I love is that my home life hasn't changed. I still help out with the garbage. I still help out with the lawn.
+- I always played sports when I was young. I played football and baseball for eight years. I loved football.
+- I live with my family. I moved to L.A. eight years ago, and it's the same room. But I'm looking now. I might get a condo.
+- My parents are pretty good about keeping me humble. They brought me up good.
+- When I went to Australia, I went shark diving. It was crazy. It was called 'extreme' shark diving because even though we were in cages, we literally could touch the sharks swimming by. They were huge and I'm terrified of sharks. Then I went to a wildlife park and held kangaroos. That was nice.
+- It's very rare that things are true about yourself that are on the Internet. It's just sad sometimes. So you definitely try and stay away from it as much as possible.
+- Nobody's ever wanted to start a fight. I stay away from all that stuff.
+- I got the famous Oprah hug!
+- When we were filming 'Twilight,' we didn't expect anything. We were just filming a movie that we wanted the fans to enjoy. And then it kinda just blew into this whole other world.
+- I've always been really active. I grew up playing sports, so I'm always shooting hoops or throwing the football with my friends. I'm super-active in that sense.
+- I'm not sure what 'cheeky' means. I hear it used so much and in so many different ways, I can't identify the real meaning of it.
+- Filming 'Eclipse' - Eclipse was my favorite book so I was really excited to start filming the movie. I just love that it's the height of the love triangle. 'Twilight' develops Edward and Bella's relationship, 'New Moon' develops Jacob and Bella's and in 'Eclipse,' the three of them are physically together.
+- You've got to keep pushing, keep driving, because in this business, you're going to hear 'no' a lot more than you hear 'yes.'
+- I love action films. I'd love to do an action drama. I'm always looking to give my character something action-oriented to do.
+- I actually wasn't much of a book reader at all before the 'Twilight' series. They just draw you in, and people love them. They're terrific books.
+- I'm a big fan of all those singing competition shows.
+- I was exercising so hard that I began to lose weight.
+- I love challenging myself, doing different things, and exploring different areas that I haven't been to or gone to before.
+- There are pros and cons to everything but especially with what I have chosen. There are cons - the privacy level and everything that comes with it - but I feel there are a lot more pros. And I am doing what I love to do, so I am not complaining at all.
+- Yeah, Jacob transforms a lot in 'New Moon.' Not only physically, but mentally and emotionally as well. So it was a matter of getting to the gym and eating the right foods and a lot of it. But also, reading and studying the book and my character over and over and over again so I could have his character down as well.
+- I signed this girl's arm. And the next day, a family member shot me an email, and it was a link to this girl who had my signature tattooed on her arm. I was like, 'Man, that's dedication. I'm sorry you did that.'
+- Nothing comes without hard work. I've been taught that by many people growing up.
+- My favorite movie is 'Iron Man.' I tell people that I think it's just as good as 'Dark Knight,' if not better, and people tell me I'm crazy. I really like 'Iron Man.'
+- I get nervous before everything - dates, filming, award shows. I just don't want to say something stupid. But as soon as I step out on that stage, or as soon as I show up to a date, it all goes away, and I just have a great time with whoever I'm with.
+- If I were trying to impress a girl, I wouldn't get all super dressed because I would look like I was trying too hard. Instead, I would probably wear what I normally would.
+- I bounce my knees, but I do not have restless leg syndrome. I did an interview, I don't even know who it was with, and they said I told them I have restless leg syndrome and it distracts me from my work. I do not have any syndrome.
+- The coolest thing about the series is that we stay very true to the books; it would be silly for us not to, because the books are exactly what the fans want to see. There's an action side to it, which I love, and there are werewolves now. There aren't just vampires. There's a wolf pack.
+- There's some things you just have to live with. Like twelve cars camping outside your house, and when you wake up in the morning, they're going to follow you wherever you go. It helps that I live in Valencia. It eliminates some. But they're still here.
+- Bulking up for the Twilight films was one of the hardest things I've done... I had to give myself a lot of pep talks, as there was just so much gym time.
+- I'm not the biggest motorcycle fan - they're cool and a lot of fun, but they're scary as well!
+- Playing hard to get is not the way to win me over. I'm definitely more for the girl who can smile and laugh all the time and just have a good time!
+- I'd love to do a movie with Denzel Washington, or some action star such as Matt Damon or Mark Wahlberg would be really cool, too.
+- I love to have fun and goof around and be silly, so anybody who can also do that is good for me.
+- If I start thinking, 'Is this movie going to open? Is this movie going to do well?' I'm not focusing on the job. The job is to make a good movie.
+- It's important to work through things in a relationship. You can't just give up because you're frustrated. It's most important to talk things through together. And that, for me, has been the way I've best resolved problems in the past.
+- I've always kind of had an interest in the drums but nothing else. The drums are the only thing I feel I would be good at, because I'm a very physical person. I've always played sports and stuff. Drums would give me something to do.
+- It's hard enough condensing 500 pages into a movie, and it would have been impossible to condense 800.
+- I was in the gym five days a week, two hours a day. At one point, I was going seven days straight. I had put on a lot of weight, and then I started losing it drastically, so I was worried. It turned out I was overworking myself. My trainer told me that I couldn't break a sweat, because I was burning more calories than I was putting on.
+- I try and keep up with the top 10 on iTunes.
+- I'd have to say the biggest transformation would be my schedule. I'm really, really busy, but it's a lot of fun.
+- I like to think of myself as very loyal, and I love everyone I surround myself with, whether they're friends or girlfriends or whatever.
+- At one point I had to shove as much food in my body as possible to pack on calories. My trainer wanted me to do six meals a day and not go two hours without eating. If I would cheat on eating one day, I could tell - I'd drop a few pounds.
+- Doing a lot of drama earlier in my career and now exploring comedy has been a treat for me, and I've had an absolute blast, and I hope to continue.
+- I got to work with legendary director Garry Marshall.
+- There's no ex out there who I'm not friends with today, and I'm extremely thankful for that.
+- A dream acting role would be Matt Damon in the Bourne series. I would love to do something like that!
+- British girls are really funny, so I definitely think we'd get along.
+- I definitely love Australia. I've been to Sydney and Melbourne a couple of times, and I love those places.
+- I have had someone ask me to sign their 'Team Taylor' panties. She wasn't a teenager. She was in her 40s.
+- I've found the world's most versatile word - 'cheeky.' The amount of ways you guys can use the word 'cheeky' is quite impressive.
+- When you make a movie independently, you raise the money beforehand, and then you make the movie kind of by yourself.
+- You've got to keep your eye on the prize and do what you love to do.
+- Honesty and loyalty are key. If two people can be honest with each other about everything, that's probably the biggest key to success.
+- 'Braveheart' is way up there for me.
+- It's always uncomfortable for me when I take off my shirt. No one else is taking their shift off. Why is everyone else in these movies bundled up in layers of clothing and I'm taking my clothes off all the time?
+- In my last scene in 'Breaking Dawn,' Bella has just died and I run outside and crumple to the ground and just lose it. I'm bawling. That was my last scene of 'Twilight' ever and I definitely had some extra motivation.
+- I'm reteaming with the producers of 'Twilight' on an awesome script. It's very serious, dramatic and different for me. I'm excited to see what's next. I love all aspects of film and all genres.
+- I like to have fun, but I don't think of myself as being funny. But I'm a big jokester, so I make fun of myself a lot!
+- I've gotten over that by now. But I remember the first time reading the book, I was like, 'Wait, Jacob's been trying to get Bella this entire time, and he strikes out, so he goes for her child?' I was so confused. It took me a second.
+- One second I'll be listening to country, and then the next I'll be listening to rock and then R&B. It's ridiculous. I'm all over the place with my music.
+- Regular martial arts is traditional, with no music and no flips choreograhed into it. But extreme martial arts is choreographed to music. It's very fast-beat uptempo, and you put a lot of acrobatic maneuvers into the routine.
+- When we're not filming or promoting then, you know, I live two different lives. So when I'm just in Taylor's life, and I'm just, you know, at home spending time with friends, it's great, it's a totally different life than this 'Twilight' world for sure. But it's amazing; our fans are the most passionate fans in the world!
+- I believe in the saying, 'If you aim at nothing, you're going to hit nothing.' So if you don't set goals, then you have nowhere to go.
+- The actual getting into the gym and working out process was easier, but the eating was harder. I had to eat every two hours. At one point, my trainer said, 'Put anything in your mouth. Go to McDonald's, get the biggest shake possible. I just need to get calories in you.' Because my body fat at the time was only, like, 7.5%.

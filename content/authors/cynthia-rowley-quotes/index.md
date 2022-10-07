@@ -1,0 +1,35 @@
++++
+author = "Cynthia Rowley"
+title = "Cynthia Rowley Quotes"
+quotes_len = "29"
+description = "the best 29 Cynthia Rowley Quotes"
++++
+- I've taken a lot of risks through the years, but I always followed my instincts and always explored new opportunities. The biggest reward has been having an idea and being able to make it a reality. My passions always lead the way - travel and adventure, fitness, art, and home.
+- I always like that sort of tomboy aesthetic.
+- It seems like the world's major cities are getting more and more homogenized, so I think it's important to go off-road and find treasures in offbeat destinations.
+- When I was in art school, I worried that being a painter seemed like it could be an elusive dream, and fashion seemed so much more secure.
+- I think for love to work you have to be with someone who you want to talk to before going to bed at night.
+- I really detest brunch. I think it's a waste of a good day. Detest is a little too severe, but I would say I'm not a brunch person.
+- I think that each season we, as an industry, evolve more and more in such a great way, and I'm really excited about it. We're able to put fashion into the hands of the consumer and eyes of the consumer, and I just think that there's no filter anymore; you just put it out there. There's an instant commentary. I think it's so interesting.
+- I try to look at design from a more conceptual standpoint.
+- All I ever wanted to do was make things. My whole life has been a constant evolution on that theme.
+- I think cooking has the same creative process as designing, where you have the ingredients, you have the alchemy part of it, and you have the satisfaction of seeing your creation become a reality.
+- I always think clothing is like a scrapbook: you remember all the good memories and the past times.
+- I love the idea that you would wear vintage stuff with new stuff and wear stuff that's 5 years old.
+- Art has definitely influenced how I think of design, both as individual items and as a body of work.
+- Doing things outside of the traditional fashion gives me the opportunity to bring a fresh eye to unexpected markets.
+- Everything looks cute when it's small.
+- We work with Birchbox, and I think that it's kind of exciting. You're getting a gift every month, and it also entices people to be more experimental and to try more things. For busy people like myself, it's really helpful.
+- There's always an excuse to celebrate someone you love.
+- I've always wanted to do something in the food and beverage world. Part of my MO is to go into unchartered territory. I enjoy a challenge.
+- Overhearing people's conversations about art - that's always entertaining.
+- I think it's important to stay curious and see and experience as much as you can, whether it's art, performance, music, travel, or just hanging out and people-watching.
+- I've been lucky enough to meet a lot of fantastic people, from royalty to rock stars. I've also been known to be a bit of a daredevil, so I've tried to explore extreme travel and adventure - scuba-diving in an arctic glacier and camping in the Himalayas.
+- People always ask what my inspiration is, and it's never something that's easily explained.
+- That's my style - to mix a lot of print and pattern and put it all together.
+- I wake up like I'm shot out of a cannon.
+- I'm very sensitive to smells.
+- My dream was to have a slide bannister so I could slide down and go out the door to work.
+- I love hanging out with kids and my husband - I love traveling with them. We can go on the most epic journeys in like five days.
+- Be thankful for all successes, lose your ego, take risks, fail fast, and if you don't absolutely love what you do, run!
+- I think it's important to incorporate everything into all parts of your life. I don't separate all the things - during the day, I talk to my kids; they come and visit. On weekends, we go crazy and do lots of activities. I'm just not good at relaxing.

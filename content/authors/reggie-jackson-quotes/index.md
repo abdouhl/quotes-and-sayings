@@ -1,0 +1,70 @@
++++
+author = "Reggie Jackson"
+title = "Reggie Jackson Quotes"
+quotes_len = "64"
+description = "the best 64 Reggie Jackson Quotes"
++++
+- October, that's when they pay off for playing ball.
+- The only way I'm going to win a Gold Glove is with a can of spray paint.
+- No. No, no, no, no, Blyleven wasn't even the dominant pitcher of his era - it was Jack Morris.
+- When you've played this game for ten years and gone to bat seven-thousand times and gotten two-thousand hits do you know what that really means? It means you've gone zero for five-thousand.
+- If I played today, I'd stay in trouble. I'd be in the commissioner's office all the time, I guess. I'd be everywhere - including where I wasn't supposed to be.
+- In the building I live in on Park Avenue there are ten people who could buy the Yankees, but none of them could hit the ball out of Yankee Stadium.
+- Misconception Number 1, the public always thought, 'Reggie has a massive ego; he's narcissistic, he's cocky, he needs everyone to look at him all the time,' because that's what the media told them. Wrong. I could handle the attention. I didn't let the attention affect my performance. But I never needed the attention.
+- When you hit a player in the head, you're more apt to get some fisticuffs or, you know, bring both teams out on the field, but it was more accepted that - in the '50s, '60s and '70s. I think nowadays it's a little over-policed because I will always believe that knocking a hitter down, even hitting a hitter at, sometimes, is part of baseball.
+- Being a superstar... can make life very difficult, difficult to grow. So I like to visit with my friends, listen to some fine music, drink some good wine, perhaps take a ride in the country in a fine car, or... just walk along the beach.
+- I never had an understanding of Billy Martin. I did not accept the way he managed me. I did not accept the way he managed Ken Holtzman. I thought there was anti-Semitism there.
+- When people push back on you and don't think you can do it, and you struggle a little bit and wonder if they're right, it drives you to be successful and to be a great player.
+- This is what happens when you get old and have a couple of bucks. You go back and try to be young again.
+- You can play football and be the next Jim Brown or play baseball and be the next Reggie Jackson.
+- There are at least three kinds of advantages that the pitcher and batter contest. There's the physical advantage, the strategic advantage, and also the psychological advantage. I didn't want two out of three. I wanted them all.
+- The pitcher has the ball, and nothing happens until he lets go of it. So as the batter, I felt I had to fight for any bit of control I could get. I expected the umpire, the catcher, and the pitcher to wait on me. I wanted to get ready on my time.
+- I do everything as honestly as I can. I give all I have to give. But I don't let people get in my way.
+- Hitting is better than sex.
+- I'd like to be able to light the fire a little bit.
+- If you can't see the rotation and tell if it's a sink - a fastball, then you have to be able to tell whether that fastball is a two-seamer or a four-seamer. You have to be able to recognize if it's a slider or a curveball. You have to be able to recognize if it's a changeup or a split-finger.
+- I'm tired of hearing people say 'Reggie Jackson needs New York, needs the media, needs the attention.' I've always gotten it whenever I wanted it.
+- Everybody in the league knew I had trouble with the inside pitch. I got away with it only because the great majority of pitchers were afraid of making a mistake in that spot. The threat of power is one of the best weapons you have in the batter's box.
+- There's a certain time that when somebody asks you a question, you answer them. I don't think I said anything with venom. If you can express yourself without anger and make it as palatable as you can, that's what you do.
+- I am the best in baseball.
+- When I went to home plate in a game-tied situation or with a chance to do something and help the ballclub win one, I'd try to make eye contact with the pitcher.
+- The will to win is worthless if you don't get paid for it.
+- You know, this game's not very much fun when you're only hitting .247.
+- Everybody's got a Reggie story.
+- I am not merely a baseball player. I am a black man who has done what he wants, gotten what he wanted, and will continue to get it.
+- When I hit, I felt I was in control of the home-plate area, and it was important that I felt that way. If I let the pitcher control it, it would give him an advantage.
+- Babe Ruth was great. I'm just lucky.
+- I work for ABC television; I have my own syndicated TV series. I've been on the cover of 'Time Magazine' and on the cover of 'Sports Illustrated' five times.
+- I'm a businessman. I bring my bat and glove and attache case to the office and go to work. I don't give a damn if the other workers at the office like me or not.
+- A baseball swing is a very finely tuned instrument. It is repetition, and more repetition, then a little more after that.
+- Lee May's about the same age as me; he's got about the same stats. So how come he's making about one-eighty, two hundred thousand, and I'm the best damn paid player in the game? I'll tell you why: Because I put the meat in the seats!
+- You don't face Nolan Ryan without your rest. He's the only guy I go against that makes me go to bed before midnight.
+- Ali helped raise black people in this country out of mental slavery. The entire experience of being black changed for millions of people because of Ali.
+- The greatest manager has a knack for making ballplayers think they are better than they think they are.
+- The only reason I don't like playing in the World Series is I can't watch myself play.
+- When I stepped into the box, I felt the at-bat belonged to me. Everybody else was there for my convenience. The pitcher was there to throw me a ball to hit. The catcher was there to throw it back to him if he didn't give me what I wanted the first time. And the umpire was lucky that he was close enough to watch.
+- I probably hit 35 balls into the right-field bleachers.
+- Nature is extremely important to me. Which may be just about the only trouble I'll have in New York. I'll miss the trees!
+- Ken Holtzman could pitch a game in ninety minutes. Wouldn't throw a breaking ball. And he had a great breaking ball.
+- I couldn't accept the racial epithets in reference to players like Elliott Maddox or Billy Sample.
+- The only difference between me and those other great Yankees is my skin color.
+- Please God, let me hit one. I'll tell everybody you did it.
+- After Jackie Robinson the most important black in baseball history is Reggie Jackson, I really mean that.
+- I didn't come to New York to be a star, I brought my star with me.
+- When you take a pitch and line it somewhere, it's like you've thought of something and put it there with beautiful clarity.
+- Do you have any idea what Ali meant to black people? He was the leader of a nation, the leader of Black America. As a young black, at times I was ashamed of my color; I was ashamed of my hair. And Ali made me proud.
+- I was reminded that when we lose and I strike out, a billion people in China don't care.
+- I didn't see Kirby Puckett as a Hall of Famer. I didn't see Gary Carter as a Hall of Famer. I didn't see Don Sutton as a Hall of Famer. I didn't see Phil Niekro as a Hall of Famer. As much as I like Jim Rice, I'm not so sure he's a Hall of Famer.
+- I represent both the underdog and the overdog in our society.
+- Billy Martin was a human tragedy, in the real sense of the words.
+- I know how hard it is to shoot the basketball, so I've got great appreciation for it.
+- I don't mind getting beaten, but I hate to lose.
+- I'm human and I've played my butt off for ten years. I'm not a loafer, I'm not a jerk, I'm a baseball player.
+- When I was with the Yankees in 1978, we were playing Baltimore at Yankee Stadium, and the score was 3 - 3 going into the bottom of the ninth inning. I led off against Tippy Martinez - a little left-hander who always gave me trouble - and the count went to three-and-oh.
+- If I played in New York, they'd name a candy bar after me.
+- I've always been able to hear and read what I say before I say it. That's why I'm a good quote. Or a good interview. If I say something that's uncomfortable for someone's ears, it's going to be the truth; I just happen to voice it. But it's the truth. It's not my opinion.
+- Fans don't boo nobodies.
+- The mini-series 'The Bronx is Burning' thoroughly embarrassed me the way the story was told.
+- There is no question that in the '50s and '60s, black players got thrown at more. That's not a negative comment. It may come out that way, but that's the way it was. Hitting another player was part of the game; hitting a player in the head is not.
+- I know I never saw Casey Stengel when I was being scouted. And how could you be in a ballpark and not know if Casey Stengel was there?
+- I have a hard time believing athletes are overpriced. If an owner is losing money, give it up. It's a business. I have trouble figuring out why owners would stay in if they're losing money.

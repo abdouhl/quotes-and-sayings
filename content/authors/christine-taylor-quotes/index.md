@@ -1,0 +1,27 @@
++++
+author = "Christine Taylor"
+title = "Christine Taylor Quotes"
+quotes_len = "21"
+description = "the best 21 Christine Taylor Quotes"
++++
+- 'Hey Dude' was shot in Arizona, and that took me to the West Coast. We did 65 episodes. It was not a show that a ton of people saw, so it was like doing acting classes and getting paid for it. At that point I had the acting bug. So I went to L.A. to give it a try and never left.
+- I just go with my gut.
+- I looked like an alien, and in front of the most beautiful people on TV.
+- It's not like I had big dreams to go to California and become an actor. I loved doing my shows at school and community theater, and I probably would have settled in New York because it was closer. I was going to go to NYU.
+- Someday I'd love to do Shakespeare.
+- I like that I have kids still willing to hold my hand.
+- We have a new puppy and that's enough! Two babies and three dogs is enough.
+- I like things bright.
+- If I had made it in cheerleading, I would have never been an actress.
+- I have no projects on the horizon. I don't feel frustrated. It's a great life lesson for me.
+- I can't stand the club scene.
+- But 'Hey Dude' was shot in Arizona, and that took me to the West Coast. We did 65 episodes. It was not a show that a ton of people saw, so it was like doing acting classes and getting paid for it. At that point I had the acting bug. So I went to L.A. to give it a try and never left.
+- It's all about impressing people.
+- I like circle time and school drop-off. And I like that I have kids still willing to hold my hand.
+- I can't stand the club scene. It's all about impressing people.
+- When Ben and I first got married and we first had kids, I felt I needed to prove we could still do it and I could still work separately from Ben and I could still work with him. I just let go of all of that now. I said to him, 'For me, a little bit goes a long way.'
+- My family's always been really funny. I feel like comedy's hard. I feel like it's so important.
+- All through school, people told me I looked like Marcia Brady.
+- It's always just a great thing to see your kids connecting and you see the different stages.
+- It was so inspiring for me to watch tennis growing up. I thought I was really good playing, until my brother told me I wasn't!
+- We want to encourage the young ones to learn and get some confidence in sports. It's fun and keeps you active and moving.

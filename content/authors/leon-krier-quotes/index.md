@@ -1,0 +1,24 @@
++++
+author = "Leon Krier"
+title = "Leon Krier Quotes"
+quotes_len = "18"
+description = "the best 18 Leon Krier Quotes"
++++
+- The more you densify a city, the more congestion will increase, however technology changes... cities so packed that they will no longer function... vertical sprawl.
+- I don't build because I am an architect. I can make true architecture because I do not build.
+- Surprisingly, the Eisenhower Memorial design contains almost none of the known Gehry-box of tricks. His giant etched chain-link curtain, first applied in 1979 to hide an ungracious parking garage at Santa Monica Place, is resurrected for Eisenhower to screen the equally graceless facade of the Department of Education.
+- If a dictator takes up my ideas, the resulting town will survive the political system that commissioned it and stand as a social good. Besides, modernism rather than classicism has dominated the architecture of totalitarian regimes of both the left and right.
+- Lots of English people say exactly the opposite of what they mean.
+- Against expectations I was charmed by Gehry's Edgemar development, which housed the Santa Monica Museum of Art, and positively awed by the Bilbao Guggenheim. That Gehry is a great artist I have no doubt, but talent and determination are no warrant against confusion, nor are they a guaranty to produce great art.
+- As long as artists arbitrarily assume the right to decide what is or is not art, it is logical that the public will just as arbitrarily feel that they have the right to reject it.
+- You need a prince to make a town in an intellectual sense. Developers want to make money. If they cared about architecture, they'd become architects. I've had so many projects that never came off because they had no sponsor, and not because they were utopian. I just want to build a town that's normal.
+- I grew up in a small town that was absolutely a perfect embodiment of new urbanism.
+- As is the case with all good things in life - love, good manners, language, cooking - personal creativity is required only rarely.
+- Modernist architecture and town planning is inimical to human beings... based on the Darwinian concept that evolution is open ended, that there must always be something new and better.
+- A city can only be reconstructed in the form of urban quarters. A large or a small city can only be reorganized as a large or a small number of urban quarters; as a federation of autonomous quarters. Each quarter must have its own center, periphery and limit. Each quarter must be a city within a city.
+- Horizontal and vertical sprawl... are the dinosaurs of an ending fossil-fuel age of synthetic culture.
+- The Eisenhower Memorial competition and project have stirred a remarkable polemic, the center of which is not President Eisenhower or Washington, D.C. but Mr. Gehry and the values he promulgates.
+- Tiredness sets a natural limit to what a human being is prepared to walk daily, and this limit has taught man all through history the size of rural or urban communities.
+- The problem was Le Corbusier was a genius and an enormous artist, but he tried to resolve problems to which there is no solution. So the idea to demolish the centre of Paris in order to adapt it to the car - he drew it! - is something not even the most bloody dictators conceived.
+- You can't have the finest buildings if they're not in focus. They become like nice cars parked on the street.
+- Why should the Eisenhower memorial be over twice the size of WWII Memorial? Why should it be so vast as to comfortably house two Lincoln Memorials, two Washington Monuments, and two Jefferson Memorials - all six at once?

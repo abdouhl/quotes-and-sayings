@@ -1,0 +1,41 @@
++++
+author = "Rosie O'Donnell"
+title = "Rosie O'Donnell Quotes"
+quotes_len = "35"
+description = "the best 35 Rosie O'Donnell Quotes"
++++
+- I think that the reason for my success is that I am really not aspirational. I am inspirational in that the people at home feel like they can really relate to me.
+- I don't think America knows what a gay parent looks like. I am the gay parent. America has watched me parent my children on TV for six years. They know what kind of parent I am.
+- If you fall in love with someone gay and you're the opposite gender, it's not going to work.
+- I couldn't imagine doing a show where I'd once again have to answer to corporate interests.
+- What I'm hoping to do and what I think I will do is make an entertaining enjoyable show where the whole family can sit down and watch.
+- We are losing the democracy that we're trying to sell in the Mideast and everywhere else right here in our own nation.
+- I think the actions of the president are, in my opinion, the most vile and hateful words ever spoken by a sitting president. I am stunned and I'm horrified.
+- I remember thinking, 'I don't know if I can do radio.' I never even listen to it.
+- My job is mostly to entertain and be funny.
+- I think Oprah who is the height of aspiration and inspiration recognizes something in me that is germane.
+- I think life is easier if you're straight.
+- You can walk through life believing in the goodness of the world, or walk through life afraid of anyone who thinks different than you and trying to convert them to your way of thinking.
+- I'm not asking that people accept homosexuality. I'm not asking that they believe like I do that it's inborn. I'm not asking that. All I'm saying is don't let these children suffer without a family because of your bias.
+- I was an abused kid.
+- There are some heterosexuals that have heterosexual behavior that is appalling sexually, that is deviant and bad and not really moral and Christ-like and biblical. But those people are never questioned as to whether or not they're allowed to be a parent.
+- I don't like to go to premieres or openings. I don't like to have to put on makeup.
+- Don't fear the terrorists. They're mothers and fathers.
+- I want the same standard applied to homosexuals as is applied to heterosexuals.
+- Anybody that you put on TV five hours a week is at some point is going to say something stupid.
+- I don't think it negates your skills as a parent if you're homosexual.
+- I don't think you choose whether or not you're gay.
+- The gray has gone away. I am living in bright Technicolor.
+- I'm sure I will cause tremendous seismic shifts in the culture again.
+- We will never bring peace at the hands of war. As a species we have to rise above it.
+- I was 29 and I really fell in love, I think, for the first time. I was vulnerable in a way I didn't think I could be.
+- I don't want only a career.
+- I think that once you open the door and allow people in on a certain aspect, it's very hard to then control how far that ripple effect is. So I think that the person who is known or famous has the ability to decide what they do or don't want to share.
+- I wish that there were more stringent laws to make guns sold anywhere that they're legal harder to get.
+- I think what children need is love, security, stability, consistency, and kindness.
+- Part of the reason why I've never said that I was gay until now was because I didn't want that adjective assigned to my name for all of eternity. You know, gay Rosie O'Donnell.
+- It's the main reason why I continue to push myself and my career to do more and more as the amount that you're able to raise for charity and to give to charity by my celebrity.
+- It takes a lot to become a foster parent.
+- I am one of the haunted.
+- I find this proposed amendment very, very, very, very shocking. And immoral. And, you know, if civil disobedience is the way to go about change, then I think a lot of people will be going to San Francisco.
+- I know I'm a really good mother. I know it. I'm a really good mother.

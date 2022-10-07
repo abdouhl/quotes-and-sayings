@@ -1,0 +1,13 @@
++++
+author = "Colm Feore"
+title = "Colm Feore Quotes"
+quotes_len = "7"
+description = "the best 7 Colm Feore Quotes"
++++
+- I'm pragmatic. If this is going to make sense, get me a job, and in the end let me put my kids through school. I'll play killers. But my kids always ask me, 'Do you die in this one, too, Daddy?'
+- I take some pains to learn the material beforehand. I have a bunch of tricks I use to try and hit the ground running. I write everything out. I take the text and I very methodically go through, and that tends to put it into my head a little bit more solidly than if I just glanced at it and hoped for the best.
+- I do dead Canadians. If he's dead and he's Canadian and he's famous, I'll be playing him at some point.
+- Charm is an intangible. Chutzpah, charm, charisma, that kind of thing, you can't buy it. You either have it or you don't.
+- On '24,' it says on the front page of your script: 'This script is for the production staff and cast. Please don't show it to anybody else.'
+- I've played all kinds of historical characters, but they are stuck in movies that aren't their movies.
+- I've worked on all sorts of things, like the sci-fi stuff for Vin Diesel, where the script is numbered and is in unphotocopy-able colours and your name is stamped into every page. And it doesn't really help because it creates a false sense of specialness about the thing.

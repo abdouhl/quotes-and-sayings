@@ -1,0 +1,131 @@
++++
+author = "Robin Wright"
+title = "Robin Wright Quotes"
+quotes_len = "125"
+description = "the best 125 Robin Wright Quotes"
++++
+- Running gets everything done, doesn't it? Covers it all.
+- I really wanted to be a mom. I didn't want my kids to be raised by a nanny, which would have been the case if I were working two movies in a year, you know? And I would have been hospitalized with fatigue.
+- My son graduated high school and went to Haiti to work for his dad's organization and then extended his stay. It's incredible what he's doing.
+- I met an agent through my modeling agency who encouraged me to go out and audition for sitcoms, and I was absolutely petrified because I had no desire to do it.
+- I eat at In-N-Out Burger every chance I get.
+- I remember calling directors numerous times and saying, 'Oh, you should cast so-and-so instead of me. They're much better for the role.'
+- The older you get, of course, the knowingness of the truth - the ownership of knowing - is louder.
+- It's just poetry, beauty and love. How hard can that be to act?
+- I can't stop moving. I'm like this weird insect. I can't sit still in real life.
+- I learned about men from my son.
+- I have Spanx on. Always! I have to wear them all the time!
+- Hollywood is difficult to navigate if you have integrity, so I opted not to work if there wasn't enough to do in a role, which doesn't have to do with the role's size.
+- If there's nothing for me to do as an actress, then that's frustrating. I'd rather go work at a menial labour job, where I can actually get my hands dirty.
+- You have to do the work in your marriage, but it has to be laid on a strong foundation of love.
+- I've always been a T-shirt, Levi's, leather jacket, and combat boots kind of girl.
+- As an actor, I had noticed very vividly that very few directors know how to direct actors because they haven't done it.
+- Maybe I'm a control freak.
+- I enjoy classic Led Zeppelin.
+- The best part of shooting 'House of Cards' in Baltimore is eating lots of soft-shell crab.
+- I've been so anti-tattoos my whole life.
+- I dislike arrogant men and diva behavior in either gender.
+- Even the busboys at the restaurants have a script to give you. Everybody is in the business.
+- I'm really trying to be in the now - that's so spiritual and stuff. It's just so much more pleasant and sane.
+- A great life is to be able to ebb and flow.
+- I've always wanted to be able to let myself go over the edge.
+- I don't know enough about politics. I am out of the loop.
+- You couldn't pay me enough money to go back to being 20. So many tears; what a nightmare it was. It's much better being older.
+- Sean's movies are provocative and challenging without being slick.
+- I never went to college. I was pregnant at 23.
+- I don't want to always be the tortured, soulful wife.
+- I loved Europe so much.
+- What I'm looking for in people now is kindness.
+- I like movies that make you think.
+- If you're the head of a business, there's a protocol that people have to follow.
+- People buy box sets, and they sit for a whole weekend with a computer on their lap in bed, and they watch two seasons back-to-back of a show. They are invested in the person within that arc or the dynamics of those people - the relationships - and it doesn't matter to them if they're watching it on an iPhone or a cinema screen.
+- I was technically a Valley Girl, even though I absolutely dreaded being called that. I really hated the idea that I was a Valley Girl.
+- I have such a little face.
+- Dark chocolate-covered blueberries are my favorite sweet.
+- If 'American Beauty' came out today, it wouldn't make nearly as much money.
+- I'd rather attempt something I'm not sure I can do.
+- I'm not a practice religion freak. I didn't grow up in a religious family, but I have a faith.
+- You never accomplish everything you want to accomplish.
+- I'm ready to do a Woody Allen comedy.
+- It's just never been in my nature to go out there and go on a red carpet to say, 'Oh, publicize me!'
+- I'm tired of biting my tongue.
+- That character called 'Robin Wright' in the movie called 'The Congress' has nothing to do with me... I've never felt that way about life choices, career, etc.
+- I know what I don't want.
+- I'm not up there with Kate Winslet and Julia Roberts. I don't sell tickets. I've known that for a long time.
+- I'm worried that the audience is being conditioned. That's my real fear. Because if they don't want to see wrinkles on the screen, if they actually fear looking at them, then it's only going to get worse. Those of us who don't want to shoot up and cut and sew, we're just not going be cast.
+- It took me a long time to grow up.
+- I never used to want rehearsals, because I was like, 'Oh, no. I'm more spontaneous. I'm a natural. I'm a one-take person.' But that was because I didn't have any training. I was going off instinct.
+- I'm not exactly the type of actress who does half a dozen films a year.
+- Is that romantic fantasy real? Um, after kids, no. Take the kids away, I don't know. Depends.
+- I honestly don't want to act anymore.
+- I would have made a lousy stripper. I'm just not very comfortable exposing myself.
+- I'd rather do 'She's So Lovely' that John Cassavetes wrote versus doing 'Batman.'
+- I want to be perfect. I don't want to fail. And you always fail.
+- Oh my God, Zumba is the greatest invention ever for women. I like to exercise, though I do nothing consistently because I get bored and impatient. With Zumba, you're dancing, you're moving your hips. So much fun.
+- I think we manifest the very thing we put out. If you're putting out negativity, then you're going to retrieve that same sentiment. If you emanate joy, it comes back to you.
+- I'm not in the business of talking about what 'isn't.'
+- For actors in Hollywood, it's very straightforward. We're well-paid animals in a zoo.
+- I used to ask Sean questions about acting. He's a brilliant actor, but I could never digest his information. I work primarily on an intuitive level.
+- Sean's a better person when he's directing. He becomes a queen when he's an actor. And he's so unhappy when he's acting.
+- If you get enough sleep, cut back on cigarettes and red meat, you look better the next day.
+- I always wanted to get out of L.A., but time passes, and you find excuses to stay.
+- After every movie, I always kick myself for the same things-didn't do enough, not enough variation, not enough interesting choices, too bland.
+- I didn't want to raise my kids in this weird, sycophantic society. If you have celebrity parents, it's not a good recipe for the kids, or anyone at any age.
+- My mother liked to buy houses, fix them up, and turn them over. We'd live somewhere for a few months and then move to another house, sometimes just two blocks away.
+- You're never going to be able to delve into the character traits of a Michelle Obama or Hillary Clinton.
+- The word 'demand' is a tricky word when used by our gender. When used by men, it's part of their vernacular.
+- Hollywood is a suction for your confidence or your faith or your togetherness. Just walking on the street you can feel it.
+- The seasoned woman is going to offer a more seasoned character.
+- Most of my memories of Texas are of mosquitoes, watermelons, crickets, and my brother teasing me.
+- D.C. is more corrupt than Hollywood. It really is.
+- I could not understand why Meryl Streep, for example, is allowed to work while pregnant and I'm not.
+- I secretly want to skydive, even though it's my greatest fear!
+- I'm the homemaker, and that's fine with me because I really like that.
+- Divorce in and of itself, and with children, is devastating.
+- I didn't want to commit to a TV show.
+- Sean's a great, great writer.
+- I'm trying to do the paleo diet. No carbs.
+- We really enjoy entertaining our children with characters. We'll act out all of The Wizard of Oz together.
+- I have a house here in California and come back every month and a half to see my kids. And they come to New York.
+- If you're happy, if you're feeling good, then nothing else matters.
+- It makes me believe in fate. In most cases, the readings where I've been really bad have usually been the ones where I got the part.
+- I hate everything I do. I hate my voice. I sound like a guy.
+- I turned down a lot of things that were so-called commercial. You're coming out of one film, and then they want you to be in the same one.
+- I always loved to dance and move. I probably should have been a mime or something like that.
+- I grew up very fast as a young girl, but I grew slowly into my womanhood.
+- I love my life.
+- I think the inception of my interest in arts was when I was around 9 or 10 and I started dancing. I was really convinced that I was going to go to New York and be onstage in 'A Chorus Line.'
+- I always look for variety. I always want to run the gamut.
+- Now that my kids are out of the house, I'm finally able to get to the classics I never read: Emily Bronte, Dylan Thomas, Joseph Heller's 'Catch-22.' It's endless. They're all in this gigantic pile next to my bed.
+- Everyone has the answers.
+- Electronics companies are purchasing the minerals that come out of the Eastern Congo, and they are illicit; they're dirty.
+- I just love getting dirty.
+- My mother gave me a sense of independence, a sense of total confidence that we could do whatever it was we set out to do. That's how we were raised.
+- I'm a hedonist when it comes to culinary delights.
+- Unless you're a star in this town, you're really nothing.
+- I tell you, being on a soap is the hardest work, and it gets so old. Get on your mark, get in the light, don't turn too far upstage - that's all it is.
+- Learning what you don't want is how you know what you do want.
+- I like the whole package to be good, It's a rarity that that happens, so I end up not working a lot.
+- Entertainment and escapism - those are the bigger money-making films today.
+- Sometimes I think they should set up an asylum for people like that... a whole slew of paparazzi defending their positions.
+- I wish I were stronger in areas. Not so consumed or distracted.
+- From the time I was wee big, my mother was one of the first members of Mary Kay Cosmetics. Women going door-to-door and letting housewives have their own business - that was really a breakthrough. It was huge.
+- My favorite designers are Levi Strauss and Fruit of the Loom.
+- When I had money in the past, I would always travel rather than spend it on big apartments or cars. And I still feel exactly the same way.
+- I think I've always been waiting for things to happen.
+- I can't imagine going back to long hair. Cutting it was the greatest thing I ever did.
+- I just pray I can keep working. I just pray I grow old gracefully.
+- It's what still excites me most about acting: letting your imagination go places it's never been before. There's nothing better than that.
+- I run, lift weights and do yoga to stay in shape.
+- Love is possible as life is possible.
+- Would I marry again? No. But never say never. Why marry? It's a beautiful fortress, but I don't need it.
+- With 'House of Cards,' you really get the heart and the meat of drama - and it's a thriller!
+- I've been told I've done a lot of flop movies. And I think, 'Wow, I've never considered them flops!' I've loved every character I played.
+- I can't imagine having long hair anymore; it's weird.
+- I wouldn't be a good model for any designer's idea of what fashion is.
+- Just lying in my big bed with Frette sheets. Oh my god, there's nothing better.
+- I am not successful, in terms of Hollywood.
+- Famous is celebrityism, and I don't want that... I know that I'm not that. Everybody knows who you are. I can't imagine living that life, but I don't think I consider myself famous.
+- All marriages have their phases.
+- No nude scenes. No sex-symbol parts. I want people to recognize me for my work, not just for being pretty.
+- I have always been a good mimic.

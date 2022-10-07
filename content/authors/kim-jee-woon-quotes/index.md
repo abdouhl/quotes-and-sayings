@@ -1,0 +1,36 @@
++++
+author = "Kim Jee-Woon"
+title = "Kim Jee-Woon Quotes"
+quotes_len = "30"
+description = "the best 30 Kim Jee-Woon Quotes"
++++
+- Of course, 'The Last Stand' has a villain who is traveling to the border to fulfill his own desires, but it's more about the main character. The Sheriff putting a stop to this villain and defending his town. 'The Last Stand' is more about protecting something. About protecting a value.
+- What can possibly be the common factor in a Kim Jee-woon film? I think what really ties a lot of my projects together is that there is always a character that believes his life is not exactly the way he wishes it to be.
+- Whatever it is that I thirst for in my current project tends to turn up in my following project.
+- Actors are the flowers of the film, of the set, and of the director. The term 'Flowers of the Screen' holds a deep meaning.
+- The Western is as American as a film can get - there's the discovery of a frontier, the element of a showdown, revenge, and determining the best gunman. There's a certain masculinity to the Western that really appealed to me, and I've always wanted to do a Western in Hollywood.
+- What can possibly be the common factor in a Kim Jee-woon film? I think what really ties a lot of my projects together is that there is always a character that believes his life is not exactly the way he wishes it to be. My regard for that character turns out to be a very sympathetic one.
+- I've been thinking of doing a sci-fi thriller or a sci-fi noir, if that's possible.
+- In Korea, the director is on top, and the power flows down vertically. On the set, I love to come up with ideas on the spot. But in Hollywood, if I were to come up with a certain idea on set, the idea had to be taken to all these different people who had to agree.
+- I've made the film 'The Good, the Bad, the Weird,' which was an Eastern Western film. Obviously, the Western film is American and American only; there's really no Western genre over in Asia.
+- One quality that a director needs to acquire in Hollywood is to understand the system and figure out how to work within the system to express one's own ideas.
+- I'm someone who has a singular goal in making films: I want to tell a story. There are certain stories that I want to tell.
+- Lionsgate and Lorenzo di Bonaventura saw my Korean Western-style film, 'The Good, the Bad, the Weird,' and probably felt that I would be right for 'The Last Stand,' which could be classified as a modern Western.
+- Overseas directors who want to work in Hollywood, the language barrier is not a problem. With the right talent, any director can be successful.
+- Hollywood's never really been the ultimate goal for me.
+- We all desire things that we believe we cannot have, and so my films reflect that again and again. The mystery must be solved, the goal attained.
+- Obviously, I've made several films in Korea, so I'm very well accustomed and acclimated to Korean filmmaking.
+- I never make films thinking 'This is my film. This right here is undoubtedly Kim Jee-Woon style.' I am not even sure what 'Kim Jee-Woon style' is. When I make films, I never allow myself to make hard-set decisions ahead of time.
+- A lot of people are very interested that a Korean director has made a western. But when I look at the reactions of the audience, I realise the points at which people laugh are the same for a Korean audience and an international audience.
+- In Korea, the director has the final word. If the director makes a decision, that decision is final. In Hollywood, every decision needs to go through the producer, the studio, and sometimes even the main actor. There is a certain procedure that needs to be followed.
+- I think my tendency when working is to try and find what's lacking in my current project and then tackle that in whatever I do next.
+- 'The Good, the Bad, the Weird' is about individuals fulfilling their desires and just going the distance to fulfill that desire.
+- America is a country that, even with all its flaws, has been able to flourish because there is a certain ideology about fighting for what you believe in. What you choose to believe in - no matter how small or big it is - is what you believe in, and that ideology has made America.
+- I'm someone who has a singular goal in making films: I want to tell a story. There are certain stories that I want to tell. Hollywood's never really been the ultimate goal for me.
+- My background is in acting, so I enjoy being able to show what I'm looking for. With acting, it's very immediate when you show someone what you're looking for, and the feedback is instantaneous as well.
+- I want to work with a wide range of genres because it gives each film a different cinematic energy.
+- After my film 'The Tale of Two Sisters,' I received a lot of offers from Hollywood to direct, but because 'A Tale of Two Sisters' was a horror film, I received a lot of horror films. But I wasn't interested in working in the same genre, and the scripts I received for films in different genres were for projects that were near completion.
+- I'm not an outgoing person. Compared to an average person, I am quite skeptical and pessimistic. This is different from being nervous.
+- I want to do science fiction with dark stories.
+- I work from opposites to opposites, in a way. It's finding one thing and then doing the other from film to film. So maybe after 'I Saw the Devil,' I might do something like 'I Saw the Angel' or perhaps something warm and happy.
+- Korean films have always been distributed to international audiences as arthouse films.

@@ -1,0 +1,16 @@
++++
+author = "Kim Deal"
+title = "Kim Deal Quotes"
+quotes_len = "10"
+description = "the best 10 Kim Deal Quotes"
++++
+- We were over in Europe all the time their posters were up. That's why I liked them. So now all of a sudden they're going to get a band hat on, and say people aren't acting the right way?
+- It was really weird to have a hit. Of course, we had a certain level of fame in the Pixies, but nothing I had ever done had been mall-kid friendly.
+- To my mind, there is a reason that music is there and it's about being human.
+- I like the club. It looks nice with all the tables out. They were freaking out, the Gilly's people.
+- Bob summed it up best when he was on his knees at the end of the night saying, 'Don't trust in Guided By Voices.' You were there; was the show awful or something? I know it was sloppy, but they're not really that tight anyway, but was it embarrassing, was it sad?
+- It's like they had a backlash the first 11 years. I think the reason why it always seems like there's a backlash is because when bands are unknown, they only get written about by fans.
+- You know it has to do with Kelley and drugs, and me... and there's like, what is it? I didn't read it. That's my thing. That's what I do, I don't read things if I don't think they're going to be good. I don't even look at the pictures.
+- Maybe I'm an elitist, but I don't feel like I am.
+- I thought I'd do everything on four-track, and then I'll record every instrument myself in a studio, and then I'll have a solo album released by spring.
+- When the band begins to get a name for themselves, and the writers get assigned to bands, they'll hit somebody who just doesn't like that kind of music, or they love hip hop but hate guitar rock.

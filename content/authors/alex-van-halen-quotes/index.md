@@ -1,0 +1,28 @@
++++
+author = "Alex Van Halen"
+title = "Alex Van Halen Quotes"
+quotes_len = "22"
+description = "the best 22 Alex Van Halen Quotes"
++++
+- Everybody has a high point and a lot goes into that: timing, situation, general consciousness.
+- Meaning that if you live in the moment, so to speak, we play today, and tonight we're done.
+- We're very needy people, you know.
+- Whatever our personal differences are, there are no bigger fans of this band than the people who are in this band.
+- When the tour is done, that's the end of the U.S. tour. We'll regroup and see what we're going to do.
+- The Beatles will never get back together and David Lee Roth will never again sing with Van Halen.
+- We're having a blast. Just four friends getting together.
+- You come to the planet with nothing and you leave with nothing, so you'd better do some good while you are here.
+- There's nothing worse than having everybody thinking alike, talking alike and having the same direction in mind. It gets stale that way.
+- At our age, you don't want to stop.
+- You don't leave behind box office scores or how many dollars changed hands.
+- Some things are impossible.
+- Yeah, we have our differences, but we put those aside, and now we're making music. It's great.
+- Van Halen is a work in progress.
+- It's unfortunate nine years were in between - you can't take that time back; you can't undo it.
+- On a personal level, we all get along fine.
+- Music is a dialogue.
+- It's part of our nature. As much as I love (brother and guitarist Eddie), if you put us in a room with no one else for 15 minutes, we'd be at each other's throats.
+- Nobody sets out to make a bad record.
+- When you leave the planet, you leave music behind.
+- Sammy and I got together and it was like we hadn't missed a beat.
+- There is a volatile mix, and that's because we're all intense. And there's no denying that.

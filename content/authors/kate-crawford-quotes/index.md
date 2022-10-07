@@ -1,0 +1,48 @@
++++
+author = "Kate Crawford"
+title = "Kate Crawford Quotes"
+quotes_len = "42"
+description = "the best 42 Kate Crawford Quotes"
++++
+- Only by developing a deeper understanding of AI systems as they act in the world can we ensure that this new infrastructure never turns toxic.
+- Data and data sets are not objective; they are creations of human design. We give numbers their voice, draw inferences from them, and define their meaning through our interpretations.
+- We should always be suspicious when machine-learning systems are described as free from bias if it's been trained on human-generated data. Our biases are built into that training data.
+- We urgently need more due process with the algorithmic systems influencing our lives. If you are given a score that jeopardizes your ability to get a job, housing, or education, you should have the right to see that data, know how it was generated, and be able to correct errors and contest the decision.
+- Vivametrica isn't the only company vying for control of the fitness data space. There is considerable power in becoming the default standard-setter for health metrics. Any company that becomes the go-to data analysis group for brands like Fitbit and Jawbone stands to make a lot of money.
+- It is a failure of imagination and methodology to claim that it is necessary to experiment on millions of people without their consent in order to produce good data science.
+- People think 'big data' avoids the problem of discrimination because you are dealing with big data sets, but, in fact, big data is being used for more and more precise forms of discrimination - a form of data redlining.
+- Error-prone or biased artificial-intelligence systems have the potential to taint our social ecosystem in ways that are initially hard to detect, harmful in the long term, and expensive - or even impossible - to reverse.
+- Surveillant anxiety is always a conjoined twin: The anxiety of those surveilled is deeply connected to the anxiety of the surveillers. But the anxiety of the surveillers is generally hard to see; it's hidden in classified documents and delivered in highly coded languages in front of Senate committees.
+- Numbers can't speak for themselves, and data sets - no matter their scale - are still objects of human design.
+- There's been the emergence of a philosophy that big data is all you need. We would suggest that, actually, numbers don't speak for themselves.
+- Rather than assuming Terms of Service are equivalent to informed consent, platforms should offer opt-in settings where users can choose to join experimental panels. If they don't opt in, they aren't forced to participate.
+- There is no quick technical fix for a social problem.
+- Biases and blind spots exist in big data as much as they do in individual perceptions and experiences. Yet there is a problematic belief that bigger data is always better data and that correlation is as good as causation.
+- Sexism, racism, and other forms of discrimination are being built into the machine-learning algorithms that underlie the technology behind many 'intelligent' systems that shape how we are categorized and advertised to.
+- We should have equivalent due-process protections for algorithmic decisions as for human decisions.
+- If you have rooms that are very homogeneous, that have all had the same life experiences and educational backgrounds, and they're all relatively wealthy, their perspective on the world is going to mirror what they already know. That can be dangerous when we're making systems that will affect so many diverse populations.
+- Many of us now expect our online activities to be recorded and analyzed, but we assume the physical spaces we inhabit are different. The data broker industry doesn't see it that way. To them, even the act of walking down the street is a legitimate data set to be captured, catalogued, and exploited.
+- The promoters of big data would like us to believe that behind the lines of code and vast databases lie objective and universal insights into patterns of human behavior, be it consumer spending, criminal or terrorist acts, healthy habits, or employee productivity. But many big-data evangelists avoid taking a hard look at the weaknesses.
+- Like all technologies before it, artificial intelligence will reflect the values of its creators. So inclusivity matters - from who designs it to who sits on the company boards and which ethical perspectives are included.
+- Histories of discrimination can live on in digital platforms, and if they go unquestioned, they become part of the logic of everyday algorithmic systems.
+- Algorithms learn by being fed certain images, often chosen by engineers, and the system builds a model of the world based on those images. If a system is trained on photos of people who are overwhelmingly white, it will have a harder time recognizing nonwhite faces.
+- Self-tracking using a wearable device can be fascinating.
+- The fear isn't that big data discriminates. We already know that it does. It's that you don't know if you've been discriminated against.
+- Data is something we create, but it's also something we imagine.
+- If you're not thinking about the way systemic bias can be propagated through the criminal justice system or predictive policing, then it's very likely that, if you're designing a system based on historical data, you're going to be perpetuating those biases.
+- We need to be vigilant about how we design and train these machine-learning systems, or we will see ingrained forms of bias built into the artificial intelligence of the future.
+- As we move into an era in which personal devices are seen as proxies for public needs, we run the risk that already-existing inequities will be further entrenched. Thus, with every big data set, we need to ask which people are excluded. Which places are less visible? What happens if you live in the shadow of big data sets?
+- When dealing with data, scientists have often struggled to account for the risks and harms using it might inflict. One primary concern has been privacy - the disclosure of sensitive data about individuals, either directly to the public or indirectly from anonymised data sets through computational processes of re-identification.
+- Facebook is not the world.
+- Data will always bear the marks of its history. That is human history held in those data sets.
+- Hidden biases in both the collection and analysis stages present considerable risks and are as important to the big-data equation as the numbers themselves.
+- As AI becomes the new infrastructure, flowing invisibly through our daily lives like the water in our faucets, we must understand its short- and long-term effects and know that it is safe for all to use.
+- Big data sets are never complete.
+- The amount of money and industrial energy that has been put into accelerating AI code has meant that there hasn't been as much energy put into thinking about social, economic, ethical frameworks for these systems. We think there's a very urgent need for this to happen faster.
+- If we start to use social media data sets to take the pulse of a nation or understand a crisis - or actually use it to deploy resources - we are getting a skewed picture of what is happening.
+- While massive datasets may feel very abstract, they are intricately linked to physical place and human culture. And places, like people, have their own individual character and grain.
+- With big data comes big responsibilities.
+- While many big-data providers do their best to de-identify individuals from human-subject data sets, the risk of re-identification is very real.
+- Big Data is neither color-blind nor gender-blind. We can see how it is used in marketing to segment people.
+- Books about technology start-ups have a pattern. First, there's the grand vision of the founders, then the heroic journey of producing new worlds from all-night coding and caffeine abuse, and finally, the grand finale: immense wealth and secular sainthood. Let's call it the Jobs Narrative.
+- We need a sweeping debate about ethics, boundaries, and regulation for location data technologies.

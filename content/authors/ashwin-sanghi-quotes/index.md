@@ -1,0 +1,112 @@
++++
+author = "Ashwin Sanghi"
+title = "Ashwin Sanghi Quotes"
+quotes_len = "106"
+description = "the best 106 Ashwin Sanghi Quotes"
++++
+- I am a part of the old school where I feel that purity of the language should be retained. But English is a constantly evolving language where new words are being added to the dictionary, so I don't see any harm in experimenting with the language. Only poor editing standards need to be improved.
+- There is a method to the madness of James Patterson's success. Co-writing with him is a terrific learning experience, particularly in the art of crafting a perfect thriller. The collaboration also gives me an opportunity to access a wider global audience.
+- If there is one city apart from Mumbai where I would love to settle down, it has to be Chennai.
+- Take the first A out of Abraham and put it at the end. You get Brahama. There's the ancient connection right there.
+- I was passionate about reading from an early age, and I would always be carrying a different book each week.
+- I believe that patterns tend to repeat themselves and there are connections between the past and the present. There is the old proverb that reads, 'You can't know where you're going if you don't know where you've been'. For me, history is like that. When you take history and combine it with myth, then you get mystery.
+- It may sound very strange, but I love the freedom that writing a novel gives me. It is an unhindered experience. If I come after a bad day, I can decide that my protagonist will die on page 100 of my novel in a 350-page story.
+- The cleanest book on a dusty bookshelf is usually a dirty one.
+- After preliminary research, I zero in on an idea, and then I spend at least four months exploring the topic and in plot-building. I jot down every single detail of the plot as bullet points per chapter, and only when the skeleton is complete do I start writing.
+- It's foolish to call Chanakya an Indian Machiavelli. Rather, Machiavelli was possibly an Italian Chanakya.
+- At thirty-five, having spent over twenty years running varied businesses for my family, I decided to sit down and write my first novel. I had never written anything longer than a couple of pages till then and was foolishly attempting to write a hundred-thousand words.
+- It is no secret that I have read 'The Da Vinci Code' several times. I genuinely believe that 'The Da Vinci Code' and 'Angels And Demons' are, by far, Brown's best works.
+- What is divine? It is simply that which man has not been able to understand. Once you do, it loses its divinity.
+- What is divine? Simply that which man has not yet been able to understand. Once understood, it ceases to be divine.
+- Master storytellers like Jeffrey Archer and Arthur Hailey use simple language. But they manage to grab the attention of the readers right from page one. I'll consider myself a good storyteller the day people believe it's OK to be late for work or postpone deadlines just to finish reading my book.
+- Physicists explain creation by telling us that the universe began with the Big Bang, an intense energy singularity that continued expanding. But who created the singularity?
+- I don't want to be remembered as a writer. I would rather be remembered as a storyteller.
+- If I use the word 'khichdi' in my novel, I don't have to get into the trouble of explaining that it is a dish of rice and lentils. My Indian readers know it.
+- I am a businessman at the end of the day. I have grown up with Excel sheets. I start out writing my novel with spreadsheets and the milestones in each chapter highlighted.
+- Writing was my route to creative expression, and I needed to write about the things that interested me.
+- Writing is a intensely personal activity. I can pen down my best thoughts when I'm alone. But when one is elevated into the stature of an author, you have to think about your books in terms of their business angle.
+- In Kolkata is a temple where the deity worshipped is Amitabh Bachchan. The daily aarti is performed to the chanting of the Amitabh Chaleesa. And people still ask, 'Could our mythological heroes be based on actual people who once lived?'
+- Mythology is a set of primitive lies that people rarely believe. This is rather different from history, which is a set of lies that people actually believe.
+- Oral storytelling goes back so long ago, and those stories that were told orally were always layered and changed with time.
+- While I can't walk on water, I can certainly wobble on whisky.
+- We don't need to dumb down our stuff. And it's important to know how far we can push readers.
+- I believe that every writer evolves with every successive novel. I view myself as work-in-progress.
+- Admiration from my readers inspire me, and the only 'formula' I believe in towards making a good writer is: 'to thine own self be true!'
+- Writing helps me create a different world that I can escape to.
+- What I would not like is to be ignored. I write from the heart. I don't write for me. I write for my readers.
+- The first paragraph of my book must get me my reader. The last paragraph of a chapter must compel my reader to turn the page. The last paragraph of my book must ensure that my reader looks out for my next book.
+- I work in a business environment forty hours a week, and writing is what I do to unwind. It allows me to transport myself to a happy place where I can indulge my hopes, beliefs, aspirations and fantasies. It also allows me to live and breathe a topic for eighteen months while I'm researching and writing.
+- I feel luck plays a vey crucial role in determining the success of the book. Marketing a book is also very important. You need to try all tricks in the trade.
+- What I have found is that, in a family business structure, sometimes what is needed is a sense of discipline rather than creativity. You have to take everyone's ideas and make it work. When you are dealing with money, there is a limitation on how creative you can be.
+- Though it is very easy to do valuations, eyeballs and brand prominence surveys, you should never allow any of them to influence the balance sheet.
+- 'Rozabal' was theological while 'Chanakya' is political. Unlike 'Rozabal,' which was about research, the aim of 'Chanakya' is plot, plot, plot, which carries the character. The common DNA, of course, is history.
+- Writing is possibly an art, but crime writing is definitely a craft.
+- The first thriller ever? It was probably one from 1697. It was called 'Little Red Riding Hood.'
+- Mythology does not interest me. Nor does history. But the possible overlap between history and mythology excites me immensely.
+- I was learning book-keeping at the age of 12, but it never stopped me from pursuing literature. Over the years, I grew to love the written word.
+- A western audience might not appreciate 'Chanakya's Chant' because of its dependence on history and ancient statecraft. My book is a modern-day thriller that draws on a bedrock of history. My primary object is to entertain, not educate.
+- When I wrote 'The Rozabal Line,' I had no preconceived notions of what a commercial bestseller should be. I have always viewed 'The Rozabal Line' as my first love and probably my best work. The fact, however, is that it is my least read work.
+- My greatest qualification for writing fiction was my ability to lie with a straight face as a child.
+- That freedom of writing you don't get in other formats, I'd rather leave it to someone else to deal with the headache of drafting my book into a screenplay.
+- I don't care if my books don't sell abroad; we have a large enough market in our country. I write for Indian readers.
+- The reality of the writer's world is that you set yourself up for disappointment with every success that you deliver because with every success you raise your readers' expectations.
+- Mythology works... because Indians have been bred on myths.
+- I was told that Ganesha sat between Lakshmi and Saraswati. My quest to attain the blessings of both goddesses explains my physique.
+- Our country has the oldest tradition of storytelling, and this was much before writing stories even became a norm.
+- When working on a period, it is the finer details that evoke imagery that helps in cinematic adaptations.
+- The Egyptians saw the sun and called him Ra, the Sun God. He rode across the sky in his chariot until it was time to sleep. Copernicus and Galileo proved otherwise, and poor Ra lost his divinity.
+- Till the time I found a creative outlet, I was trying to be extra creative at business, which would always put me in a situation of conflict with other stakeholders. The moment I started writing, my creative impulses were finally channelised.
+- I must admit that i am fascinated by the glories of ancient India. But when will the purveyors of Indian culture realise that not everything about our past was glorious?
+- Initial work is on period research where the historical markers are absolutely non-negotiable. Once that is established, a writer can take creative liberties in terms of chronology to suit the story.
+- I was always taught that book keeping was more relevant than book reading. The only thing worth reading was meant to be a balance sheet.
+- An author entices the readers with their words, and it is painful for them to even lose a sentence. But films and books are two different mediums and should be dealt differently. What works in a book might not work for a film. When I saw 'Anna Karenina' on screen, I didn't like it at all, whereas 'The Godfather' was legendary.
+- The relationship between critic and writer is similar to the one between the pigeon and the statue.
+- Did God create man, or did man create God? Either way, the decision needs to be reviewed.
+- I like to joke that I probably hold the world record for rejection letters. Yes, the truth is that I was fed up of being rejected repeatedly, and self-publication was an act of defiance at traditional publishing. But life works in strange ways.
+- I want to be remembered as a storyteller more than someone who had something meaningful to say.
+- My self-publishing adventure led to my work being picked up by a traditional publisher and eventually hitting the bestseller lists. That led to two more bestselling novels.
+- I want my writing to reach people. I don't write for a market. I write from my heart, something that appeals to me. The marketing, segmenting etc., can be done by your publisher, not you.
+- My attention span is very limited, and I watch just one or two movies a year.
+- Conspiracies fascinate me. When I visited the Rozabal shrine in Srinagar before writing my first book, I remember thinking that the person enshrined there was no ordinary mortal. History is rife with mysteries, and that visit ignited a fire to unveil some of them.
+- My life is ruled by four W's: my writing, my work, my wife, and my whisky. Not necessarily in that order.
+- While growing up, I always had to depend on foreign authors for page-turners. I think of myself as a commercial writer, and my job is simple to entertain you.
+- Writing a mystery is like drawing a picture and then cutting it into little pieces that you offer to your readers one piece at a time, thus allowing them the chance to put the jigsaw puzzle together by the end of the book.
+- There has to be a protagonist who has to overcome challenges, and there will be a race to finish.
+- Mythology is like a game of Chinese Whispers. What goes in at one end of the human circle is rarely what emerges at the other end.
+- Combine two words, Myth and History. What do you get? Mystery.
+- In India, we never distinguished between history and myth. Our Puranas as well as Itihasas contain fantastical tales. They are lies that convey deeper truths.
+- In the Sanghi family, there is no one who has undertaken intellectual pursuits.
+- Mythopoeia has taken off in the Indian diaspora because there has been a change in readership from a mature audience to a younger one. This lot has a desperate yearning to reconnect. They want to consume mythology but in a well-packaged and easily digestible way.
+- It is easy to club people together, but there are bound to be influences of authors you've read. I grew up reading fast paced authors such as Sidney Sheldon and Jeffrey Archer, but to say I'm one of them isn't true; my style is intrinsically my own.
+- I have always been a bit of an introvert. In fact, my dad used to force me to meet people so that my interpersonal skills improve. As an individual, I was happiest when left alone.
+- I remember how a man once got in touch with me to tell me that he was so engrossed in my book that he had to take a day off from work just so that he could finish reading it. Such kind of responses from my readers is extremely endearing, and it keeps me going.
+- The publishing scene in India is evolving rapidly, and the key challenge is to keep reinventing oneself so that one does not become formulaic. Sometimes it is safer to deal with the consequences of failure than the fruits of success. Remaining on one's toes is critical, and often one finds that success makes one complacent.
+- I would imagine that anyone picking up a book written by me would expect a fast-paced story that requires minimal effort to turn the pages. The reader would also be looking for some out-of-the-ordinary revelations along the way. At the end of the day, I'm a writer who simply loves revealing stuff that is out-of-the-ordinary.
+- Humankind would improve if we concentrated less on being human and more on being kind.
+- The average human attention span was 12 seconds in 2000 and 8 seconds in 2013. A drop of 33%. The scary part is that the attention span of a goldfish was 9 seconds, almost 13% more than us humans. That's why it's getting tougher by the day to get people to turn the page. Maybe we writers ought to try writing for goldfish!
+- J. K. Rowling's first 'Harry Potter' manuscript was rejected 12 times. Stephen King's 'Carrie' was rejected 30 times. 'Gone With The Wind' was rejected 38 times. I was immensely proud to have beaten them all.
+- A book and a movie are different animals. You need a cinematic perspective to be involved in the motion pictures. And this is something I lack.
+- The reality of the writer's world is that you set yourself up for future disappointment with every success that you deliver because you end up raising your audience's expectations.
+- I love fiction that sounds like fact. As a matter of fact, I also like fact that sounds like fiction.
+- Unlike a typical professional, I can't quit my job to become a full-time author; I don't have that luxury. For me, writing is therapy; if I choose to write full-time, it might start feeling like work.
+- Omniscient, omnipotent, omnivorous and omnipresent all begin with Om.
+- A myth is a lie that conceals or reveals a truth. But if it reveals even a strand of history or truth, that's what gets my adrenaline going.
+- We can't deny that films have a bigger reach. After the popularity of the 'Slumdog Millionaire,' a lot of people started reading Vikas Swarup's 'Q & A'. From a business sense, films are a good tool to increase the number of readers.
+- Everyone talks about moderation. How about some moderation in moderation?
+- Once upon a time, I was a workaholic clocking more than 80 hours per week. That changed after I began to write. I now work only around 35 hours per week. I do not work on weekends because these are the days that I use for research as well as for my writing.
+- There is one person who can help solve 'writer's block'. His name is Mr. Johnnie Walker.
+- I've always been fascinated by books. When I was young, my grandfather used to hand out a book - which would be anything from a biography to a classic - to me every week and ask me to write a piece on what I thought about it. On the other hand, my mother used to love reading thrillers and bestsellers.
+- The decision to use a pen name was nothing more than a desire to compartmentalise my life. However, I had not thought about an appropriate pseudonym, and since there's an abundance of anagrams in the novel, the idea struck me: why not use an anagram of my name? Hence, Shawn Haigins.
+- I don't start with the characters. I start with the series of events that will provide the conflict and how it can be resolved. Characters are incidental.
+- Of all the writers I have read, Vladimir Nabokov has made the biggest impression on me because he, despite living through the 1917 February Revolution, forced exile amidst the anti-Semitism in Nazi Germany, the two World Wars and quite a lot of controversy, was an author who never gave up.
+- I want to make sure that my writing grips the reader from the word 'go.'
+- I believe that the day one stops being spiritual, one ends up being religious. I live by the adage that the only certainty in life is death. We should, therefore, learn to live for the day and be content.
+- My wife is troubled by the things I forget. I am troubled by the things she recollects.
+- Would the fish have ever been caught if it had kept its mouth shut?
+- After writing each novel, I would spend days poring over suggestions from my editor.
+- Write when drunk. Edit when sober. Marketing is the hangover.
+- It is not history, theology or mythology that interest me. It is the fact that history, theology or mythology could have alternative interpretations or explanations. I try to connect the dots between the past and the present.
+- Writing is incidental to my primary objective, which is spinning a good yarn. I view myself as a storyteller more than a writer. The story - and hence the extensive research that goes into each one of my books - is much more important than the words that I use to narrate it.
+- There are three things I look for in a story - it has to be a thriller; I cannot see myself writing literary fiction or a saga! There has to be a historical connection; otherwise, the adrenalin will not flow. And I will try to bridge the gap between 'Rozabal' and 'Chanakya'.
+- I was a businessman for 16 years of my life, so when I started writing, I wanted to keep my literary identity separate.
+- Thrills are much more about anticipation than action. An unfired bullet is more dangerous than one that has already met its target.

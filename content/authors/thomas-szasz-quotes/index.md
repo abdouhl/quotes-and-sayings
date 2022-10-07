@@ -1,0 +1,37 @@
++++
+author = "Thomas Szasz"
+title = "Thomas Szasz Quotes"
+quotes_len = "31"
+description = "the best 31 Thomas Szasz Quotes"
++++
+- Boredom is the feeling that everything is a waste of time; serenity, that nothing is.
+- In the past, men created witches: now they create mental patients.
+- The proverb warns that 'You should not bite the hand that feeds you.' But maybe you should, if it prevents you from feeding yourself.
+- Psychiatric expert testimony: mendacity masquerading as medicine.
+- Adulthood is the ever-shrinking period between childhood and old age. It is the apparent aim of modern industrial societies to reduce this period to a minimum.
+- Doubt is to certainty as neurosis is to psychosis. The neurotic is in doubt and has fears about persons and things; the psychotic has convictions and makes claims about them. In short, the neurotic has problems, the psychotic has solutions.
+- Formerly, when religion was strong and science weak, men mistook magic for medicine; now, when science is strong and religion weak, men mistake medicine for magic.
+- Individual psychotherapy - that is, engaging a distressed fellow human in a disciplined conversation and human relationship - requires that the therapist have the proper temperament and philosophy of life for such work. By that I mean that the therapist must be patient, modest, and a perceptive listener, rather than a talker and advice-giver.
+- Narcissist: psychoanalytic term for the person who loves himself more than his analyst; considered to be the manifestation of a dire mental disease whose successful treatment depends on the patient learning to love the analyst more and himself less.
+- The system isn't stupid, but the people in it are.
+- If you talk to God, you are praying; If God talks to you, you have schizophrenia.
+- Two wrongs don't make a right, but they make a good excuse.
+- Clear thinking requires courage rather than intelligence.
+- 'Psychotherapy' is a private, confidential conversation that has nothing to do with illness, medicine, or healing.
+- If the dead talk to you, you are a spiritualist; if God talks to you, you are a schizophrenic.
+- It is easier to do one's duty to others than to one's self. If you do your duty to others, you are considered reliable. If you do your duty to yourself, you are considered selfish.
+- There is no such thing as mental illness, hence also no such thing as psychotherapy.
+- The stupid neither forgive nor forget; the naive forgive and forget; the wise forgive but do not forget.
+- Punishment is now unfashionable... because it creates moral distinctions among men, which, to the democratic mind, are odious. We prefer a meaningless collective guilt to a meaningful individual responsibility.
+- A child becomes an adult when he realizes that he has a right not only to be right but also to be wrong.
+- No further evidence is needed to show that 'mental illness' is not the name of a biological condition whose nature awaits to be elucidated, but is the name of a concept whose purpose is to obscure the obvious.
+- When a person can no longer laugh at himself, it is time for others to laugh at him.
+- He who does not accept and respect those who want to reject life does not truly accept and respect life itself.
+- A teacher should have maximal authority, and minimal power.
+- Happiness is an imaginary condition, formerly attributed by the living to the dead, now usually attributed by adults to children, and by children to adults.
+- There is no psychology; there is only biography and autobiography.
+- People often say that this or that person has not yet found himself. But the self is not something one finds, it is something one creates.
+- Mental illness, of course, is not literally a 'thing' - or physical object - and hence it can 'exist' only in the same sort of way in which other theoretical concepts exist.
+- In the animal kingdom, the rule is, eat or be eaten; in the human kingdom, define or be defined.
+- Permissiveness is the principle of treating children as if they were adults; and the tactic of making sure they never reach that stage.
+- Every act of conscious learning requires the willingness to suffer an injury to one's self-esteem. That is why young children, before they are aware of their own self-importance, learn so easily.

@@ -1,0 +1,118 @@
++++
+author = "Tony Campolo"
+title = "Tony Campolo Quotes"
+quotes_len = "112"
+description = "the best 112 Tony Campolo Quotes"
++++
+- I don't know of many evangelicals who want to deny gay couples their legal rights. However, most of us don't want to call it marriage, because we think that word has religious connotations, and we're not ready to see it used in ways that offend us.
+- Christianity isn't the only group that has fundamentalists.
+- Insofar as the church fails to do the will of God, I am called upon to help it discover and to do the will of God; and I am called upon to help the government to do the same.
+- Through the ages, God has used the church to keep alive and pass down the story of what Christ has done for us.
+- I contend that, in spite of all that might be said about Watergate, Richard Nixon was good for the poor people of America.
+- I think the time has come for the United States to do even-handed justice.
+- Protestants so often confuse being Republican with being Christian.
+- In our post-Freudian world, it is no longer a goal to become people of character who live out a God-ordained ideal of selfhood.
+- I've got some repenting to do.
+- Let us preach Christ, let us be faithful to proclaiming the Gospel, but let's leave judgment in the hands of God.
+- That's what they do in Europe. You go down to the city hall and you become legally connected. You have a civil union there. Then, if you're religious, you go down to the church, and the church blesses the union. That gets the problem solved.
+- Lies and distortions can be spread, via the Internet, in an inexpensive way, and the effects are astounding.
+- A career public speaker is not what I'm called to be. I'm called to be a critic.
+- A Christian school should be a place where young men and young women go through a period of spiritual formation and development so that they come out incredibly more proficient at living out their calling than they would have been had they not gone to school.
+- In the past, the Republican Party has depended on unified support at election time from Evangelical Christians. But times are changing!
+- While I can see how the government has, at times, wasted taxpayers' money, and I can admit that too often its programs are ineffective, I also can see the good that government does.
+- My task as a citizen is to get the government to do more good and less inefficient and wasteful work.
+- It's a new day for the Democrats when it comes to matters of faith, and the younger Evangelicals are aware of this and many of them are moving into the Democratic camp.
+- I, for one, am quite willing to join the 'forgive, forget and move on' crowd, but it does make me wonder if Evangelicals are going to sound believable when they say that they tend to vote Republican because of their religious commitments to the family.
+- While a case can be made for intelligent design, I can't figure out why some Christians are so thrilled about that possibility. First of all, it doesn't prove there's a God. If anything, intelligent design lends support to some form of pantheism that defines God as immanent within nature.
+- If a guy is intimidated by a woman in leadership, he has real problems with his own concepts of masculinity. That's a harsh statement, but I believe it to be true.
+- Haitians do not need development programs imposed on them by expatriates. Instead, they need help in developing as self-assured persons.
+- I contend that it's impossible to read the Sermon on the Mount and not come out against capital punishment.
+- Like most Christians, I believe the Genesis account of creation is a description of six different stages of creation, each of which may have taken eons of time.
+- And we've got to ask ourselves some very serious questions as to whether or not certain religious leaders, in terms of raising money - I hate to bring this up - are pushing hot buttons.
+- I read the Bible, I speak through issues, I see what I think is hypocrisy in the church and things that are wrong, and I speak to these things. But I could be wrong.
+- I contend the state ought to do its thing and provide legal rights for all couples who want to be joined together for life. The church should bless unions that it sees fit to bless, and they should be called marriages.
+- So after the Lewinsky scandal, everything changed, and we moved from using the Bible to address the moral issues of our time, which were social, to moral issues of our time that were very personal. I have continued that relationship up until the present.
+- Freud taught us that it wasn't God that imposed judgment on us and made us feel guilty when we stepped out of line. Instead, it was the superego - that idealized concept of what a good person is supposed to be and do - given to us by our parents, that condemned us for what had been hitherto regarded as ungodly behavior.
+- In America, evangelical churches have often been bastions of conservatism, providing support for the status quo.
+- Sigmund Freud was the apostle of disbelief. He was the one who made psychoanalysis a part of our culture, and in so doing he kicked out a flying buttress that had been essential for holding up our cathedral of faith.
+- It has been said that people never do evil with more enthusiasm than when they do it in the name of God.
+- The Gospel is about grace and we all know that grace is about us receiving from God blessings that we don't deserve.
+- The first reason for the preponderant influence of those Evangelicals who define themselves as advocates of Religious Right theological and political ideologies is that they have both the financial means and technological know-how to make widespread use of modern electronic forms of communication.
+- If America is too arrogant, too prideful to repent, it's not the kind of country that God wants it to be.
+- Evangelicals need to take a good look at what their issues are. Are they really being faithful to Jesus? Are they being faithful to the Bible?
+- When there is conflict between what God requires and the demands of the government, each of us has an important decision to make concerning taxes.
+- If marriage really is a sacred institution, then why is the government controlling it, especially in a nation that affirms separation of church and state?
+- What is especially important is addressing the question of how religion can be enforced through political means and what can be done to create a political environment that, on the one hand, acknowledges the role of religion in society, while on the other hand does not impose one religion on the populace at the expense of all others.
+- When you listen to Christian radio stations - and there are thousands of them now in the United States - and when you listen to Christian television networks - and there are thousands of Christian television shows across the country - they are all politically right.
+- Relegating women to second-class citizenship was abolished when Jesus died on the cross.
+- What if Barack Obama established a Presidential Advisory Committee that would meet once every couple of months, bringing together the former presidents for a conference in order to seek their collective wisdom? There is a wealth of experience in former presidents that generally goes untapped.
+- What we need to affirm is that Jesus is neither a Democrat nor a Republican. Whenever we marry Jesus to a political party, we are committing the sin of idolatry. We are making Jesus into the image of our political party.
+- Often, we ignore the fact that our spiritual condition and psychological state of mind are highly affected by what is happening to us physically. Sometimes depression is simply the result of exhaustion.
+- Young Evangelicals, especially, are breaking ranks with older Evangelicals (over 40) and are more and more leaning towards voting Democratic.
+- The traditional spokespersons for the Evangelicals, such as Chuck Colson and James Dobson, have become alarmed about this drift away from the 'Family Values' issues that they believe should be the overwhelming concerns of Evangelicals. They have expressed their displeasure in letters of protest circulated through the religious media.
+- Perhaps we would do well to listen to the likes of Rabbi Harold Kushner, who contends that God is not really as powerful as we have claimed.
+- I propose that the government should get out of the business of marrying people and, instead, only give legal status to civil unions.
+- If four years of university can increase your effectiveness of what you can do for others in the name of Christ, it is the best investment that you can make. But if the education is simply to get a job to make a lot of money, you have to raise the question of why you're doing it.
+- When you talk about evangelicals, don't forget that a significant proportion of the evangelical community is African American. And most African Americans - well over 90 percent, thoroughly evangelical, thoroughly biblical - will probably vote Democratic.
+- I think it goes back to the fact that the evangelical community often does not have a biblical vision of God.
+- Most of my fundamentalist brothers and sisters - and I am an evangelical, so I can say most of my fundamentalist brothers and sisters - are quite willing to pack women off and send them as missionaries to dangerous places where they might get killed.
+- The real problem that I think those of us who are evangelicals and Democrats have to face up to is that the political right controls the religious media.
+- Marriage should be viewed as an institution ordained by God and should be out of the control of the state.
+- Women have the same privileges and opportunities as men, given the New Testament. Relegating women to second-class citizenship was abolished when Jesus died on the cross.
+- So I really would like to see both parties respond to the poor with greater commitment. But I've got to tell you, the Democrats, I feel, are doing a better job in that respect than Republicans are.
+- From the beginning, there have been some religious leaders who greeted the funding of faith-based social services by government with ambivalence.
+- As we consider the causes of depression, those of us in the church must face the ways we might be responsible for creating it.
+- I'm not denying that depression can be spiritually induced. Guilt from having wronged and hurt others can bring it on. A sense of having failed to live out the will of God can give rise to depression. Certainly the fear of death and what might follow can sap the joy out of life.
+- The Jesus of the Scripture transcends all nations and calls all nations into judgment.
+- Red Letter Christians believe in the doctrines of the Apostle's Creed, are convinced that the Scriptures have been inspired by the Holy Spirit, and make having a personal transforming relationship with the resurrected Christ the touchtone of their faith.
+- Certain things happened in the early church. Women who had never had any freedom suddenly have the ability to stand up and speak and be treated as equals within the life of the church.
+- After-school tutoring programs, care for the elderly, shelters for the homeless, disaster relief work, and a variety of other services would all benefit from government funding.
+- There are reasons why Religious Right Evangelicals will continue to dominate religious discourse, not only in their own sector of the Christian community, but also in what transpires in mainline denominations.
+- In religious circles, depression is often deemed to be a spiritual condition that can be cured with prayer.
+- When you were born, you cried and everybody else was happy. The only question that matters is this - when you die, will you be happy when everybody else is crying?
+- But I think it's up to a local congregation to determine whether or not a marriage should be blessed of God. And it shouldn't be up to the government.
+- Sadly, we do a much better job of making people feel guilty than we do of delivering them from the guilt we create. We need to confess this and change our ways.
+- An evangelical is somebody who, first of all, has a very high view of Scripture, believes it's an infallible message from God.
+- Those issues are biblical issues: to care for the sick, to feed the hungry, to stand up for the oppressed. I contend that if the evangelical community became more biblical, everything would change.
+- I think the real place where most evangelicals have trouble with the Democratic Party is on the issue of abortion.
+- Prior to ROE V. WADE, abortions were common even though they were illegal. I don't think making them illegal again is going to solve the problem.
+- In baptism, new Christians become part of a body of fellow believers who are called to spiritually encourage one another and hold one another responsible for consistent Christian living.
+- Of the 22 industrialized nations of the world, we're dead last in per capita giving to poor people.
+- There is a gift of the Holy Spirit that is given to both men and women in the New Testament. This is what makes the New Testament a New Testament rather than the Old Testament, in which women did not have such privileges.
+- A strong case can be made for religious leaders to speak out on political issues.
+- There is no doubt that religion had already waned under the onslaught of the Enlightenment, but it was Freud who provided the radically new understanding of human nature that made any religious explanation of the whats and whys of our personhood seem naive.
+- It is hard to say what the future holds, but this is probable - it won't be just like the past.
+- My theology is such that the God who loves Israel and will not forsake Israel - which is why I want to see Israel have a secure nation with secure borders - also loves the Palestinians.
+- When leading evangelicals say terrible things about Islam, evil things about Islam, terrible things about Muhammad, they ought to be ashamed of themselves.
+- I am looking for suggestions on what we can do about extremists within our own society. They cannot be ignored.
+- Flipping the dial through available radio stations there will blare out to any listener an array of broadcasts, 24/7, propagating Religious Right politics, along with what they deem to be 'old-time gospel preaching.' This is especially true of what comes over the airwaves in Bible Belt southern states.
+- Jesus is the only Savior, but not everybody who is saved by Him is aware that He is the one who is doing the saving.
+- Clinton's successor in the White House, George W. Bush, was committed to expanding government spending for faith-based initiatives.
+- We ought to get out of the judging business. We should leave it up to God to determine who belongs in one arena or another when it comes to eternity. What we are obligated to do is to tell people about Jesus, and that's what I do.
+- Nowhere in the Hebrew Scriptures does it say that God is omnipotent.
+- Often, we ignore the fact that our spiritual condition and psychological state of mind are highly affected by what is happening to us physically.
+- Whenever there is a catastrophe, some religious people inevitably ask, 'Why didn't God do something? Where was God when all those people died?'
+- Religion, for better or for worse, has been politicized in blatant ways that have seldom been equaled in American elections.
+- To prevent discussion of any other explanations of human origins is hardly what I would expect from open-minded educators.
+- Who's to say that there is any more support for Freud's psychoanalytic concept of the superego than there is for that old time religion that asserted that there is a God who ordains what is right and wrong, and that His righteousness endures for all generations?
+- Getting the government to put money into social programs run by religious institutions is a practice that started during the Clinton years, when Bill Clinton advocated the AmeriCorps program.
+- In short, I'm not sure that the abortion problem can be solved by legislation. I think it can only be solved through moral persuasion.
+- I think there are other issues that the Democrats could use to rally evangelicals. There are a lot of us, for instance, who believe that the Bible calls us to be environmentally responsible.
+- I'm a minister, and I serve as a minister in addition to being a university professor.
+- Evangelical Christians, who once were a ridiculed irrelevant sectarian movement, have, over just three decades, become a powerful voting bloc that can no longer be ignored.
+- Because of the increase in life longevity, America can now assume that at any given time three, and perhaps four, former presidents will still be alive, even when the current president is occupying the White House.
+- President Bush once said that marriage is a sacred institution and should be reserved for the union of one man and one woman. If this is the case - and most Americans would agree with him on this - then I have to ask: Why is the government at all involved in marrying people?
+- The reason why I buy into the Democratic Party more than the Republican Party is because there are over 2,000 verses of Scripture that deal with responding to the needs of the poor.
+- I don't think that John Kerry is the Messiah or the Democratic Party is the answer, but I don't like the evangelical community blessing the Republican Party as some kind of God-ordained instrument for solving the world's problems.
+- The two hot issues are the gay issue and the abortion issue. These are the two defining issues in the evangelical community these days. I'm sure that these hot buttons will be pushed, time and time again.
+- But I contend that if we're providing total medical coverage for every man, woman, and child in Iraq, shouldn't we at least be doing the same thing for every man, woman, and child in the United States?
+- I applaud the growing commitment of Evangelicals to the needs of the poor and oppressed in urban America.
+- I am not suggesting that all those missionary organizations working in Haiti should pack up and go home, but I am urging them to understand that Haiti does not need clever Americans with newly contrived schemes for saving their country.
+- I am relatively sure, from conversations that I had with former president Bill Clinton, that George Bush seldom called upon him for advice.
+- I teach at Eastern University, which is highly committed to doing work among the poor and the oppressed peoples of the world. We have a special commitment to the city.
+- Women have the same privileges and opportunities as men, given the New Testament.
+- I don't doubt that God can bring good out of tragedies, but the Bible is clear that God is not the author of evil!
+- I contend that Bush would be a lot more moderate if there weren't some fundamentalists breathing down his neck every time he wants to establish the state of Israel, every time he wants to do justice for the Palestinian people.
+- Most Evangelicals have the church to thank for the Sunday-school classes that taught us what the Bible says and paved the way for our eventual decisions to commit our lives to Christ.
+- Although I believe that scripture is divinely inspired and infallible, I have a hard time going along with the belief that the whole creation process occurred in six twenty-four hour days.
+- Most Evangelicals claim to be politically non-partisan, and say they only identify with the Republican Party because the Republicans are committed to 'family values.'

@@ -1,0 +1,62 @@
++++
+author = "Chinmayi"
+title = "Chinmayi Quotes"
+quotes_len = "56"
+description = "the best 56 Chinmayi Quotes"
++++
+- A lot of linguists in the market, especially interpreters of foreign languages, do not have a great command over the English language, especially if they are translating into English.
+- To me 'Varayo' is a special song, not just because it has given me seven awards so far, but the experience of singing with Unnikrishnan ji.
+- I got recognised for my work in 'Guru' as 'Tere Bina' became extremely popular, but very few people know that I have sung major lyrical portions of the song 'Maiyya' as well.
+- No singer who sings for Rahman sir would ever say they were nervous to sing for him, especially during the session.
+- There's a marked difference between a sexual predator, coercion tactics, and a man hitting on someone with the intention dating/wanting to get to know a girl he likes, however awkward, unpolished it may be.
+- As a teen, I enjoyed Sufi music and ghazals the most. But as my career began, I drifted off to playback and other streams over the years.
+- Of course making money and being able to live life the way one desires is important.
+- I was brought up by my mother, and she is my guru in classical singing. I have trained primarily under her.
+- Firstly, I'd say that A. R. Rahman sir is one of the biggest influences in my life. He's given me some great numbers, and I've looked at him for inputs many a time with regards to my career.
+- I agree that when you sing for Bollywood, the reach is bigger. But I don't want to concentrate on any industry in particular.
+- Of all my dubbing projects, the toughest one has been 'Eega!'
+- I'd rather not be called 'brave.'
+- I do more singing than dubbing.
+- Women know when a man touches them inappropriately. Hugging one man doesn't mean it is an invitation. Wearing nail polish isn't an invitation.
+- I am a trained singer in Hindustani and classical music.
+- Rahman sir keeps pushing himself. He keeps trying new things, whether it is his craft, music or sound... he is always learning. He looks for opportunities to learn, even from children.
+- The MGR Sivaji awards are organised by the PRO stalwarts in the industry whom I actually respect.
+- Rahman sir has a sweet sense of humour. He chuckles a lot and is very friendly.
+- A man might actually brush off vulgar tweets that come to him. Women are likely to be affected by it.
+- As for song recordings - well, that's something that just happens. I've been working with music directors like Harris Jeyaraj sir, A. R. Rahman sir, and the experience is great.
+- I don't really look at dubbing from a singer's shoes.
+- Few years ago when I visited a palliative care centre in Chennai for the first time, it completely moved me. It's an emotionally draining experience. I saw and met patients who were abandoned by their families, and there is complete sense of hopelessness. Ever since, I have been a supporter for the need for funding and awareness of palliative care.
+- When I was offered to sing 'Tere Bina' in 'Guru' by A. R. Rahman sir, it was a surreal experience. The song clicked, and many composers took notice of me and my work then.
+- There is mental as well as physical fatigue. You have to cry, scream, keep on repeating the same dialogue till you get it right.
+- I'd rather not have to come face to face with predators. I'd rather not be harassed. But no. Those weren't my choices to make, were they?
+- There is a myth that Rahman sir only works at night. He works through the day and night, so it depends what time slot you end up working with him. Besides nights, I have sung for him in the morning and at noon, too. I think he's the first composer to work at night, and that's why it's spoken about so much.
+- A dubbing artiste does a lot of repair work for an artiste who doesn't naturally speak the language they are acting in.
+- I feel blessed that I got an opportunity to work with the likes of A. R. Rahman, Vishal-Shekhar among others.
+- A song like 'Kilimanjaro,' which is such a fun, entertaining track... Singing the song was an amazing experience.
+- It was one of the best experiences in my life to work with Director Prem.
+- At the end of the day, I am singing the composer's creation, and I follow the instructions given to me. What I feel may be a right take may not work for the composer or his vision on how he thinks the song should sound.
+- I love challenges.
+- The next time you watch a villain or an actor whom you know to be a non-native speaker of the language, watch the lip-sync. You'll know the amount of work that dubbing artistes have been putting in to elevate the performance of the actors.
+- To be honest, until I started dubbing, I didn't realize the amount of work of a dubbing artiste puts in. Especially the artistes that dub for villains. They really stretch their vocal cords to a different dimension.
+- The truth is, I have an excellent team, a staff that handles Blue Elephant, my translation company, perfectly. It is like a well-oiled machine.
+- It is difficult to have the guts to speak up about any kind of sexual assault.
+- I love baking.
+- It is quite normal these days to record a song in the absence of the composer.
+- Apart from using it to spread the word about my translation company Blue Elephant and to talk to fans, I find social media an extremely powerful forum for charity.
+- I've been passionate about singing for as long as I can recall.
+- Lekha Washington is a very successful, award-winning product designer, and her company has made some fantastic products in the past few years. Comments from some men calling her 'failure' makes me laugh, really.
+- I have won many awards for my singing, and I have sung in 8 languages.
+- I have been dubbing since 2006.
+- I am grateful to Rahman sir. There is no way I can repay the graces he has extended to me by making me sing his compositions.
+- By the time I was 14, I had seen only three Tamil films - 'Anjali,' 'Bombay,' and 'Puthiya Mugam.' And I loved the music in the films. When I found out Rahman sir was the man behind the music, I made up my mind that I wanted to sing for him.
+- Every time I meet Rahman sir, it's a fan moment for me. I don't take the fact that I am working with him lightly. I get excited every time I see and work with him. But I don't embarrass him.
+- I started a company in 2005 for language services called Blue Elephant. We handle translation and interpretation services in over 120 languages.
+- I come from a very strenuous, strict, disciplined classical music background. My grandfather, noted Carnatic classical exponent Dr. Sripada Pinakapani, was a Padma Bhushan recipient.
+- Indians take great pleasure in celebrating a genius, and then go into mindless criticism once the celebrity starts doing well.
+- Bollywood has a pretty chilled out approach. For instance, we don't wear shoes inside the studio. There is a strict behavioural protocol to be followed in the regional studios, while here in Bollywood, it is more informal.
+- Also, there is a way I like to lead my life, which would adhere to certain norms. Anything that goes beyond that is not my purview.
+- I will safely say that I prefer singing a song in a stretch if I am allowed to. A lot of times, I do choose to and do sing the asthayi and antara in one take, respectively. And I give a few takes until I feel it is perfect.
+- I have sung all the songs in '96,' and I have dubbed for the film as well.
+- Music inspires me, and I'm grateful that I've been able to make a career out of something that I'm so connected to.
+- I like the continuity of singing my lines together instead of going line by line.
+- I definitely hope women know that abuse/harassment/blackmail on social media is also a crime, and the police definitely help.

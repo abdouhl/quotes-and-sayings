@@ -1,0 +1,41 @@
++++
+author = "Corey Stoll"
+title = "Corey Stoll Quotes"
+quotes_len = "35"
+description = "the best 35 Corey Stoll Quotes"
++++
+- My wife was pregnant while we were promoting 'Ant-Man,' and that was very exciting, to see, like, action figures of myself, as we're getting the nursery ready.
+- It's a challenge to turn a book series into a television series; you need to keep people on their toes, but you also want to be true to the source material.
+- I grew up really into comic books, and I actually thought I was going to be a comic-book artist. That was my ambition before I realized I couldn't keep characters looking the same from panel to panel.
+- My parents never had to tell me about the birds and the bees, you know? It was very out in the open.
+- There's a ton of stories that can come out of L.A. I actually think that even though I enjoy being in New York more, I think that L.A. is a really fascinating place.
+- People say the 'Lost Generation' in a romantic sense, but I think it was tragic. They were really lost.
+- Growing up, I used to babysit, but, thinking back on what I was like at 15, this was probably a terrible idea.
+- I think, sometimes, actors having a holistic view of what they're in can be overrated. Especially when you're playing somebody as narcissistic and self-involved as Ernest Hemingway, it doesn't really matter what else is in the script.
+- In some ways, it's easier to be the lead. Week after week, scene after scene, the rhythms of filming force you to peel away a certain amount of artifice. When you're on set that much, there's a license to let the character emerge from the work itself.
+- I started with superhero stuff - 'X-Men' and 'Spider-Man' and 'Batman' and 'Hellboy' - but I wasn't familiar with 'The Strain' until I started the show.
+- What was so brilliant about 'Girls' was that they allowed their characters to be ludicrous and selfish and faulted but didn't shy away from a deeper psychological foundation for that neuroses.
+- In terms of my free time, I really don't have much. The time I do have, I enjoy being domestic and spending time with my girlfriend, hiking and playing tennis.
+- Yes, I'm a New Yorker, born and bred. While I'm not quite the L.A. snob that Woody Allen is, I do find myself happier in New York.
+- It's funny; I'm in some ways hopelessly masculine, but I don't fish, I don't hunt, I'm not that into sports. I can't fix a car. I think it's my point of view and the way I see the world.
+- I was not into B-movies. A lot of it is sloppy.
+- I can walk down the street and nobody knows who I am.
+- Good writing is everything.
+- My parents met when they were 16 and bonded over the antiwar movement.
+- The very act of saying anything more nuanced than 'us good, them bad' is under attack, and I'm proud to stand with artists who do.
+- I never really knew what to do with my hair to begin with. When I was fat, I had incredibly long, unkempt hair. And there was kind of a poetic justice to losing something I was hiding behind.
+- I think part of being masculine is not needing to prove it and not needing to answer for it.
+- I made a choice in my career to not get hair plugs and not hide the fact that I was balding, and I've managed to play all sorts of characters who have shaved heads.
+- What's really fun as the villain is working to get the audience to hate you.
+- In this new world where art is willfully misinterpreted to score points and to distract, simply doing the work of an artist has become a political act.
+- I'm an actor, in particular, that likes to have a mask or something that can help me distance myself from the character. Like the moustache or an accent.
+- If I could grill for breakfast, I would.
+- You can make bad writing 'OK,' but... you really need to start with a good script and with characters that are three-dimensional and with great dialogue. It's a difficult lesson to learn because good writing is hard to come by, but it's definitely worth chasing.
+- After college, I was an intern at the New York Theater Workshop. In the mornings, I would build sets and hang lights, and in the afternoon, I would be the reader for auditions.
+- When you're in a theater, it's about reaching the back rows. When you have a camera in your face, it's just about knowing the size of the room.
+- The thing is that, often if you have time to research a role, sometimes it's hard to know exactly where to start.
+- Working outdoors in the Delacorte Theater is always challenging.
+- A play is not a tweet. It can't be compressed and embedded, and it definitely can't be delivered apologetically.
+- It's not necessarily the most compelling thing for a liberal like myself to be making an impassioned plea for the divine rights of kings and for observing the hierarchy of order, of class and authority.
+- I don't feel secure at all. I don't know what actor would feel they've made it. I feel like I'm just starting.
+- The good guy is only as strong as the bad guy.

@@ -1,0 +1,35 @@
++++
+author = "Kelly Evans"
+title = "Kelly Evans Quotes"
+quotes_len = "29"
+description = "the best 29 Kelly Evans Quotes"
++++
+- The blue-chip Dow Jones Industrial Average has closed higher in 17 of the 21 sessions since Donald Trump was elected president, with about a dozen record closes so far as it continues marching higher.
+- Britain's FTSE 100 stock index has not just recovered from its post-vote low close below 6,000. It has surged to close at nearly 6,600. That's its highest closing value yet of 2016, and within reach of its all-time highs.
+- Twitter was actually the holdout in what has turned out to be my total purge of social media.
+- Russia's leader, Vladimir Putin, has managed to retain high approval ratings despite his slumping economy by seizing Crimea from Ukraine and participating in the Syrian war that is destabilizing the Mideast and, increasingly, Europe and the West.
+- The billionaire founder of investment firm Elliott Management was one of several investors who warned financial ministers in 2007 that a crack in the housing market could cause huge problems for the banking industry.
+- Fans of the hit HGTV show 'Fixer Upper' are well aware that its stars, Chip and Joanna Gaines, live on a farm in Waco, Texas. Nearly every episode features some kind of montage of their four kids romping outside with various kinds of farm animals, from pigs to horses to goats.
+- I felt lost in endless spools of social media. All the while, emails by the thousands were piling up, phone calls were getting lost in the mix, and messages from the most important people in my life were getting drowned out in the din. I was more responsive to comments on Instagram than to my own closest friends and family.
+- The collapse of the housing bubble sent the world spiraling into recession. The collapse of the energy and commodity bubble threatens to be just as damaging.
+- If 'Brexit' really is a political crisis, it should be treated as a political crisis - and not, despite all the market upheaval, a financial or economic one.
+- Too often, the public can fall into the trap of investing when stock prices are rising, not dropping.
+- In his new autobiography, 'Capital Gaines,' Chip talks about the farm work - and he says he does, in fact, do it himself.
+- Listen to market strategists, and a word that comes up a lot these days is 'volatility.'
+- Price is what you pay, but value, as Warren Buffett has observed, is what you get.
+- China has been on a historic commodities binge as it doubled the size of its economy in recent years to become one of the world's largest. Even so, those fundamentals begat - as they have so often throughout human history - a feeding frenzy.
+- There is surprisingly low penetration still of synthetic rubber gloves in the medical field. People are allergic to natural rubber, but the industry has been slow to switch to synthetic gloves.
+- Entire populations of market strategists, fund managers, and economists are employed to try and intuit for clients which securities to bet on for the best possible return each year - or quarter.
+- The Bank of England's Carney is worried the shock of Britain's vote to leave the E.U. could cause households and businesses to temporarily halt spending, which could stop the economy and even spur a recession.
+- CEOs are also chief capital allocators. This is a point Warren Buffett has repeatedly made: that the role management plays in allocating capital across businesses and boosting returns on that capital is a critical yet poorly recognized one.
+- The 'snakebot', which is a type of mechanized, biologically inspired robot, itself has roots in Japanese laboratories of the 1970s. What the team at Pittsburgh-based Carnegie Mellon is doing today under professor Howie Choset is making the 'snakebots' stronger, smaller, and more maneuverable than ever.
+- If Warren Buffett could change his mind about investing in airlines, Mohnish Pabrai could change his mind about investing in autos. Pabrai, who has modeled his investment career and fee structure after Buffett's original partnership, counts General Motors, Fiat Chrysler, and Ferrari in his highly concentrated portfolio.
+- Not enough children being vaccinated against measles, mumps, and rubella because their parents, for whatever reason, have decided that it is voluntary.
+- I had been one of the earliest social media adopters, driven by a mix of curiosity and enthusiasm for the way in which it levels borders and connects people who couldn't really have connected otherwise.
+- Typically in a panic, corporate bonds sell off as investors fear weaker growth, tighter financial conditions, or need liquidity.
+- There are two ways to approach the market. You can guess which direction prices will go in next, or you can figure out what businesses and their securities are really worth.
+- A 'reptilian revolution' has the potential to reshape manufacturing. The 'snakebots' being developed at Carnegie Mellon University aren't just useful for surgical or search-and-rescue purposes. They could also usher in a new, more customized era of mass production.
+- A cheaper British currency could be a crisis if its swift move provoked a broader financial crisis, which it has not, or if it triggered massive inflation. For now, cheaper sterling will hurt some British households and enterprises while being a boon for others.
+- Strong credit markets give companies borrowing options to boost their stock prices while making bearish investors scramble to close out trades before losing any more money, both of which then push the stock market even higher and continue the self-reinforcing bullish cycle.
+- Betting that markets will be 'volatile' is like betting the weather will be partly cloudy. It's a smart-sounding strategy that doesn't mean much.
+- I shut down social media because I needed to shut out online distractions and engage with the people, issues, and work right in front of me.

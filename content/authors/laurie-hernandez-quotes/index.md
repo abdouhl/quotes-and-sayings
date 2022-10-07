@@ -1,0 +1,105 @@
++++
+author = "Laurie Hernandez"
+title = "Laurie Hernandez Quotes"
+quotes_len = "99"
+description = "the best 99 Laurie Hernandez Quotes"
++++
+- People would be surprised to know I had a flip phone until 2015.
+- I like history because you can't really progress without knowing what comes before you, so I think it's super fascinating.
+- Something that would probably surprise my fans is that I wear contact lenses, and nobody really knows that because I guess I've never really had to tell anybody about that.
+- Meeting kids who feel inspired by my story, it means so much to me.
+- Two people who really inspire me are my parents, Wanda and Anthony, just because they really made sure to keep up Hispanic culture in my family.
+- My first week at 'DWTS' was amazing! I definitely fangirled when I walked into the ballroom because I looked at all the judges and where they were sitting, and I was like, 'Wow, that's the official judges' table!'
+- When you have family with you, it gives you extra energy.
+- It's kind of like I won a gold medal with my family.
+- Usually, before I salute the judge, I'm able to just grab the event, and I pray on it, and that really grounds me. For some reason, once I do that, I am able to think clearly, and I'm able to calm down right before I compete.
+- As far as cartoons go, I watched a lot of 'Ed, Edd, n Eddy' when I was a kid.
+- The big cheat meal will be a cookies and cream milkshake.
+- Even though I'm a gymnast, I've always loved dancing.
+- I feel that, every day, God molds me into someone that He wants me to be. So if that means just, like, talking to teammates and helping them out, or, like, every so often I'll post a Bible verse on Twitter or Instagram.
+- My mom decided that she wanted to put the mirror ball trophy on the coffee table in the center of our living room. When people walk in, it's kind of like, 'Uh.' It's a little weird. Maybe we should put it in the corner or something.
+- My earliest memory was watching gymnastics on live TV and wanting to do what the 'big girls' did.
+- Dancing is different than gymnastics, but it's a good different, and it's something that I've always wanted to try.
+- I started a gymnastics class at five years old, but it became serious at seven.
+- As an athlete, the most important thing is the protein that you eat and the things that you put into your body. Without that, it's very hard to function throughout the day.
+- Growing up, there wasn't an exact Hispanic role model that I had. I didn't realize how big a difference I was making, going to the Olympics and being Hispanic, until I would be in an autograph session, and parents would come up to me and say, 'You know, our family is so proud of you, you're really doing Hispanics proud.'
+- My mother was in the Army Reserve for six years. She taught me the importance of following rules, finishing what I start, never giving up, leadership skills, teamwork, staying positive, motivated and how to pack the military way when I'm traveling!
+- I've been to Tokyo-slash-Japan - we actually went to Yokohama in 2015 and 2013 for international competitions. I think that it would be really nice to go back and do a little Olympic thing there.
+- Since kindergarten, I was the shortest kid in class. They always put me toward the front in school pictures, because you couldn't see me if I was in the back. It was kind of funny.
+- We're all different, so even though someone is getting a skill before you, it doesn't mean that you're not good enough; it just means you have to wait a little bit, and the skill will come when it comes.
+- When I'm not training, I'm typically doing anything self-care, so, like, bath bombs and face masks, or, like, having a movie night with my family, if that's possible.
+- I hope I can help inspire people to go for their dreams.
+- I think I still like science and art better, but geometry is a big improvement over algebra.
+- I definitely take it as a really big responsibility on my shoulders to make sure I'm motivating my generation and the people around me and, hopefully, inspire people to try something new.
+- I do like writing. When I was a little kid, I used to love writing funny, silly stories - and my mom would always encourage it. I don't know why I ever stopped!
+- I am second-generation American, and my grandparents are from Puerto Rico.
+- When I was a little kid, I looked up to other people, so I hope that I can inspire little kids.
+- Dancing is so much fun.
+- My athlete idol is Usain Bolt. He's inhumanly fast!
+- When I was 5, I was always joking around like, 'Oh man, I wanna go to the Olympics.'
+- I think it's amazing that I can go out there and be myself, and the fact that I'm carrying Puerto Rico on my back a little bit is such an honor.
+- I love performing for the crowd. Maybe that's what it is. I'm a crowd pleaser.
+- The first meal that I learned to make was scrambled eggs.
+- Of course I'm very sassy.
+- I love my height because when I'm doing gymnastics, it really benefits the sport - and also, I think being short is kind of cute.
+- The Olympics, as a little kid, it was such a big goal that I created for myself, and I was able to push through and make that happen.
+- My parents have tried not to intrude. They kind of stayed apart from my gymnastics but are very supportive, and that's very helpful as a gymnast to not have your parents say, 'Did you do this today?' and just be very on top of you.
+- Growing up and seeing Shawn Johnson, for her to call me on the phone, I think my inner child was freaking out!
+- I'm confident. I'm a crowd pleaser.
+- I think a big part of what has helped me move forward with the sport is my family. We're all so close together, and the support system has been amazing.
+- Through my life, I do want to inspire others.
+- If you want to train hard enough to go to the Olympics, then you're going to go out, and you're going to do it. It doesn't matter what skin color or who you are.
+- If I could go anywhere, I'd love to visit Greece someday because it looks so beautiful, and I'd also love to go to Mexico.
+- My family has always been very close. Ever since I was a kid, everybody was always together, including my grandma. In the mornings, my mom would work, and my grandma would help me get ready and would walk me to school. We were all so close to her.
+- People call me the human emoji because I think people recognize that if I'm ever thinking something or feeling a certain emotion, it goes straight to my face. So if I'm happy, you'll know I'm happy, and if I'm mad, you'll know I'm mad just by looking at me.
+- I got a piece of a dead person's ligament in my body.
+- I don't see it as pressure at all. I see it as such an honor to just in some sort of way represent Puerto Rico and Hispanics and all the girls out there.
+- People have always asked me why my favorite event was floor, and my answer was always, 'Because I love to dance!'
+- I never look at scores or anything.
+- When I was a little kid, I don't remember looking up and seeing so many Hispanic athletes out there.
+- The thing that makes me feel the most confident is definitely my smile. I like that my smile and my facial expressions really show what I'm feeling, and my smile is the best way to show that I'm happy.
+- I think people are people. If you want something, go get it. I don't think it matters what race you are.
+- Basically, I was a little bit nervous before competing beam at the Olympics, and I had this nervous thing to just talk to myself, like 'You can do it, you can do it.' And right before I hopped up there, I said, 'I got this.'
+- I tell everyone that I'm 5 feet-1 inch tall, but I think I'm technically 5 feet. My mom says she's 4 feet 11 inches, and I'm barely taller than her.
+- I knew when I started gymnastics, I wanted to have a lot of fun and eventually go to the Olympics. On the moments where I felt really down, I just remembered, 'You're almost there. Just keep going. Keep working hard.'
+- My greatest inspiration is my coach, Maggie Haney.
+- If you think too far ahead, then it'll just stress you out.
+- When I perform and the crowd is cheering, there's a ringing noise in my head. I'm just zoned in, and even though I know there are people watching me, all I hear is this ringing inside of me.
+- You're supposed to go to prom during high school. I don't go to high school. I homeschool.
+- A goal of making it to the Olympic Games has motivated me to work very hard in my sport.
+- It's weird to hear anyone call me a role model.
+- Everyone keeps asking me when I have time to rest. I'll tell you when: I get all my sleep on planes. If the flight is five hours, my nap is five hours! I'll sleep through the whole flight.
+- When you're a little kid, and you're, like, thinking about the Olympics, and you just have this big expectation, it just lived up exactly to that.
+- I'm glad to be partnered with Orgullosa because I feel that now that I'm able to win a gold medal at the Olympics, win a silver medal, I feel little girls will be able to look up to me, and Hispanics will kind of rise a little more.
+- Secretly, I'm a 5-year-old.
+- Don't let people tell you that you can't do something.
+- Being able to wear contacts, you don't have to worry about your glasses falling off or how you look during your beam routine. As soon as they're in, literally two minutes later, you forget that they're on.
+- I am extremely close to my grandma. Growing up, she would always do my hair; she was always the one who would make me chocolate milk or rice when I came home.
+- Sometimes you just don't know what to say.
+- I hope the Final Five has shown that everyone is capable of success if they work hard.
+- People have seen me at my best, but I don't think most of them know everything that it took to get me to where I am today.
+- I don't think that being Hispanic, being black, being white - I don't think that limits you to anything. I think everyone should just go for what they want.
+- I listen to a lot of music. One of my favorite songs is 'Final Song' by M. It's something that I listen to before a lot of competitions.
+- Every year, my mom makes sure I have my checkups and everything, which is probably a really good idea. She's great with all that health stuff.
+- I love listening to music in general before I compete. It's something that calms me down, and meditating and breathing before I get up there to calm all my nerves.
+- When I came home after 'DWTS,' I had a couple of days, and I had actually given the Mirrorball to my mom. She loves to decorate the house, so I said, 'Here - make it pretty. Do what you want with it!
+- When you're a little girl, and you're watching the Olympics, and you see this very diverse group of gymnasts out there, and - I think this team, the Final 5, will inspire so many little girls to go out there and do what they love.
+- On Sundays, I just love to go to church and then relax the whole day!
+- I want to be a role model. I want to be able to know that I inspired girls to work hard and go for their dreams and to never give up.
+- No matter what race or color you are, you can aspire to do something great.
+- I would love to be an actress!
+- Having the opportunity to go to the U.S. Olympics was great because I was the first Latina in over 30 years to compete in gymnastics at the Olympics.
+- Homeschooling is great because it's extremely lenient, and so if there's a day I come home from practice and mentally, I'm just exhausted, I can actually just save the test for the next day if I really have to.
+- My whole life revolved around gymnastics because I loved it so much. I home-schooled because of it; I changed my eating habits.
+- Coming into 'Dancing With the Stars,' I thought it would be a lot easier.
+- Now that I'm doing all these big competitions, I've learned to control my nerves and control my mindset, and I think that's where the maturity comes in.
+- I want to make sure I always show off my smile and have a positive attitude the whole time, whether it's during a performance, practice, or doing an interview.
+- Being able to do something that I love and be at such a high level of gymnastics is just amazing.
+- The Olympics was really, really stressful because I had never done anything like it. At the same time, I was understanding something like that could never really happen again. I embraced it and took in everything.
+- Honestly, I don't really know the rules of tango!
+- My emotions kind of shine through my face, so whatever I'm thinking is what I'm portraying as well.
+- The best part is when parents come up to me with their kids, and they say, 'My daughter started gymnastics because of you.'
+- I was an energetic child, always walking on my hands, flipping off of the back of the couch, or jumping up and down on my bed.
+- I feel I could be a role model to other Hispanic gymnasts interested in the sport, but I also want them to understand the importance of being focused, determined, and not giving up, despite all the struggles.
+- It's really hard to be all serious in the tango and not break into laughter.
+- Life has been a really big whirlwind, but it's been a lot of fun. I travel so much, and I'm constantly doing things that I love, but it's just me.

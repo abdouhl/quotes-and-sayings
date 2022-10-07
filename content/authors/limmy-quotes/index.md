@@ -1,0 +1,106 @@
++++
+author = "Limmy"
+title = "Limmy Quotes"
+quotes_len = "100"
+description = "the best 100 Limmy Quotes"
++++
+- I'd never dance at school discos, I couldn't believe people could show themselves like that.
+- There have been occasions when some people have taken me very seriously.
+- Once you get it in your head you're finished with something, to go back, it hurts.
+- My maw died when I was 20. You tune into the radio or the telly and life goes on. Things keep on happening. The world doesnae stop.
+- I don't really get angry any more.
+- Actually, I just want to entertain people. Put that in my obituary, a final picture, all dark in the background.
+- Me, you could stick me in solitary confinement for 100 years and I'd be fine.
+- I love saying terrible things. Things that I think are terrible and I've gotten in to trouble in the past - just hearing it come out of my mouth or seeing it typed and seeing it out there - something terrible that in real life isn't funny.
+- I mean, maybe I'm alternative in that my stuff's not mainstream, doesn't want to be mainstream, could never be mainstream.
+- People are so quick to get offended.
+- A guy playing pool in a pub once said to me that they should put me on the telly. It went in one ear and out the other. But then I started thinking about it. I wondered how it all worked, did you have to be best mates with someone at the BBC who you went to uni with in Oxford?
+- If I call myself an actor, it sounds like I'm trying to pass myself off as someone who went to drama school.
+- If the Internet went down or there was no telly I would be 'oh no, oh no.'
+- I've been told to 'man up' after talking about depression on Twitter. Man up means 'be strong because that's what a man is.' And they don't just mean physical strength, they mean emotional strength. What, because men get into fights or go to wars to fight? It should be 'woman up.'
+- I never made my website to try and get anywhere, it was just a laugh.
+- I've never cooked a great meal.
+- Going to a pub when you're not drinking is pretty boring.
+- I felt I was a bit switched off for years, not really caring about things. I don't know if that's depression or whatever, but I was thinking 'I might. Aye I will. No, I willnae' as far as getting a second series goes.
+- I've just got a really sick sense of humour that's separate from reality.
+- The very first time I did stand-up, that was terrifying.
+- I really like violence in writing and films.
+- There's nothing quite like sitting watching the telly on a Saturday night. It has such a nice, homely feel.
+- I've never been an embarrassed, 'never talk about their feelings' sort of person.
+- I don't drink anymore, I don't go up the town and I'm not interested in events and parties.
+- I've said things on Twitter that I've said deliberately because I think they're out of order, I think that's the sense of humour that I've got. I like saying things that I think are terrible, because it gives me a buzz.
+- I think on my passport form I described myself as 'entertainer,' filling it in, in a Post Office or something. I felt like I should be doing jazz hands when I wrote that, but I don't do anything else really.
+- It's in me to get steaming and to think too much, worry too much about the future, the past.
+- It's almost like schizophrenia the way I get ideas about things that are not really happening and just end up focusing on them.
+- I love 'The Twilight Zone,' the original black and white ones with Rod Serling's wee bit at the beginning.
+- I'm quite a hermit.
+- Aye aye, I'm not one of these people that hate Christmas. Some people think it's all fake, but I like that kind of thing. It's like Las Vegas. I know this isnae really the Eiffel Tower and that isnae really the Statue of Liberty, but it's just a bit of fun.
+- I don't feel comfortable calling myself a writer or a director or an actor.
+- Some people don't seem to be able to distinguish between humour and what you really feel. They forget that there's a difference between what's real and what's a fantasy or joke.
+- I've got a sick sense of humour, a dark sense of humour. I do care about things and care about people but there's another side to me.
+- It's fine if folk don't like my sense of humour. But if somebody misunderstands, then that hurts a bit.
+- I think everybody in the world should agree to no care about anything. But we'll all have to do it at the same time.
+- I think trolling is a sort of art form, a bit of a craft.
+- My name is Brian and I am a troll. An internet troll.
+- Daft Wee Stories' is, as the title says, daft wee stories. I just sort of rattled them out, tried to make them quite funny, with punchlines - they're kind of like sketches.
+- I think no matter where you're from, you're going to be laughing about stuff going on around you.
+- I find heartbreaking stuff really funny.
+- I'm genuine! I've not got some dark, shadowy corporation behind me pulling the strings.
+- I would rather there's somebody who is just a wee bit down in the dumps believing that they've got depression and going to the doctor and getting it checked out, than not, I'd rather that everybody was given the benefit of the doubt.
+- I'm a pretty solitary type of person.
+- I'm not a mad genius or anything, but I'm just constantly driven to make things up, but I wonder who I'm doing all this for?
+- Trolling can be a great way to engage with the world, a way to regain self-esteem and happiness, or, dare I say it, a way of life.
+- With my upbringing and where I grew up, people slagged people. If you slagged them, they'd slag you back... I know it pales in comparison to genuine issues that people have got, but I've had people slagging my stuff off on my blog and my website for years.
+- Going to the doctors - for me that was quite brave, taking that first step. That was a bit scary, saying that I wanted to go on anti-depressants.
+- My son likes Doctor Seuss books, but they're right tongue twisters. You get to certain bits and you stumble your words and it makes you feel like an idiot.
+- I don't mind people liking or not liking me. If you make something and then in the back of your mind you think it could have been a bit better, that can hurt a bit.
+- You hear people talking about a Scottish sense of humour, or a Glaswegian sense of humour, all sorts of countries and cities think that they've got this thing that they're funny. I read about the Liverpudlian sense of humour and I was like, 'Aye? What's that then?' You get that and you especially hear about a dark Glaswegian sense of humour.
+- The only thing I worry about over-sharing is boring people.
+- I always wanted to get on the telly. Then see when I did, and there was talk about doing more online, Comedy Labs or iPlayer, I was: 'Naw, naw, naw, I want to be On The Telly that sits in the living room and folk watch it together.
+- Doctors are just people and they can make mistakes.
+- I do like crossing moral boundaries.
+- For me, in my mind personally and privately, there are no limits to comedy.
+- I was reading stories by Raymond Carver and some of his stuff sort of ended abruptly here and there, where in other short stories that I've read have a bit of an ending, a climax, a twist or something like that.
+- I was asked before to go out on '8 out of 10 Cats,' and I've been asked to go on 'Question Time,' I said to no to that. I don't see myself coming across well on that sort of thing.
+- One thing I like to do is visit technical forums and ask for help regarding an entirely fictitious problem I'm having with my software. When I receive help, I say, 'Nope. Didn't work.' If they guide me to a button to click, I say, 'Nope. Can't see it.' Sometimes I just reply with nothing but 'Nope,' and it drives them up the wall.
+- Sometimes there were certain things in 'Limmy's Show' where I'd be having to come up with six episodes and as a result there was stuff in there that wasn't my favourite and I'd think, 'ach I'll shove that in this episode.'
+- You can get too involved with all the wee things in life, but the most important thing is you're alive and well.
+- People say what they think online because it's not to your face. That's a good thing. You don't really want people just being nice to you with their opinions.
+- My issue with all sort of social justice stuff and leftie stuff, and I would put myself on a social justice leftie side, is some of the terminology is jargon.
+- With the Internet I just love how anything goes, especially in the light of this whole Sachsgate.
+- If you run about trying to make people like you all the time you'd never get anything done.
+- People who give off about fat-shaming and body-shaming are often the same people who talk about Trump's hair or how fat he is, or how old he is. The size of his hands and his fingers - that's the big one: let's all have a big laugh at his hands.
+- I think I was maybe a ned. I don't know. I had a trakkie, a cap and got into trouble when I was younger and I don't remember other neds round about me, so I suppose I must have been one. But a thinking ned, an intelligent ned.
+- I'm always checking other people's opinions.
+- I think I called myself an entertainer on my son's birth certificate. That sounds a bit Sammy Davis Jr. or Brian Conley, the sort of guy you just drop into a room and let them 'entertain.'
+- I'm alright with being disliked rather than trying to be perfect, because you get to relax then.
+- I like wee arguments, I've never been into jokes. I'm more into strange things and madness and things escalating and things not really making sense.
+- I sometimes wonder if I'm a psychopath.
+- The day I say I'm famous is the day I sound like a fanny.
+- Why do I want to annoy people? Because annoying people is funny.
+- I don't need a lot: I've got a telly, a computer - what else can you get me?
+- When I was wee, in the middle of the summer, the big field behind the shops would be filled with dry grass and I'd get a box of matches. You chuck one match on that and the whole thing goes up in flames. Twitter's a bit like that. You can just say one thing and it explodes from there.
+- I would like to one day write a nice big novel and enjoy writing it and people enjoy reading it but I cannae be bothered or I don't have any ideas that would fill up a big book like that.
+- I write in quite a simple way because that's just the way I write. The vocab I use is quite wee. That's just the way I talk.
+- I tell people on Facebook what my Playstation user name is. It's quite a social thing. I put the headset on and I'm just yappin' away. It's kind of like a sad way of socialising. It's like meeting up with people but when you get bored with them you can just switch them off and walk away.
+- I think I was an alcoholic. There are all these grey areas about what makes you an alcoholic - you can't cope without it, you stop caring about jobs and relationships, or you just binge.
+- I don't really read a lot. I got a few Booker Prize books and some others and thought I'd try this but quite quickly I just stick them down. I do like some Stephen King books but with some of them I just put them down as well. But I'm like that with telly stuff as well and films or music.
+- I've always had something a wee bit up with me, but I think it's some kind of learning difficulty. It's always been something.
+- I actually don't have a lot of faith in comedy.
+- The word 'cult' is almost a nice way of saying a lot of people hate you, or have never heard of you. It means someone can come up to me in the street who's really into my stuff, who's seen everything I've done, but the guy standing beside them has no idea who I am. Even in Glasgow. I think that's cult.
+- I was reading some Raymond Carver. I really liked how he did that 'slice of life' thing. Because I'm not much of a reader I end up finding out about these things a long time after other people.
+- I get a lot of ideas sitting in the living room staring at the walls or lying in bed thinking about things.
+- When streaming came out years ago I loved it. I loved having an audience, I loved chatting away and looking at a live chat and now on Twitch you can actually get a career at it.
+- I don't want Scotland to be more important than England. There's just a cancer of low self-esteem in Scotland and a general feeling that if we were to break away it would be game over and we would be bankrupt. If that is the case then that's exactly what we should do. Why are we, a country that would be bankrupt, leaching off another one?
+- Some people don't like showing any deviation from normality, but I like talking about things like that, so talking about my mental health wasn't a big deal.
+- Being in somebody else's thing and saying their words and not having any right to change it - I don't know how I'd deal with that. I'd like to think I could do it, but I just know I've got a dead particular taste.
+- I've said before I think the best thing about social media is that it brings people together and the worst thing about social media is that it brings people together. You're assuming that the people following you know what type of person you are and what type of humour you have.
+- There used to be such a thing as a sick joke, or laughing at misfortune, because comedy and laughter are a way of coping. And there is a kind of cruelty to it, but you can separate finding something horrible funny, and what you really think of it.
+- People say 'Limmy's Show' is kind of hit or miss, but I'd rather that than having something generally likable.
+- I think most people like a bit of freedom and hearing things that they might not agree with, rather than just having everybody shutting their mouths.
+- I've always been a very open person, all my life, even at school.
+- I'm just someone who likes making lots of things up and trying to be funny. That's about it.
+- There are so many different ways of making people laugh and sometimes you sit down to watch something that everyone says is hilarious and within a couple of minutes you realise its comedy that isn't for you.
+- In my own mind, I can joke about anything.
+- No, I don't think I'll ever get any stalkers, as I'm the stalker type myself.
+- I like some of my stuff not to be particularly funny. It's supposed to be amusing, entertaining or thought-provoking, like a curiosity. If you put it on in front of 500 people in the Odeon they wouldn't laugh. They shouldn't laugh.

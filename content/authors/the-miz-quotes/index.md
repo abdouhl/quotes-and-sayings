@@ -1,0 +1,106 @@
++++
+author = "The Miz"
+title = "The Miz Quotes"
+quotes_len = "100"
+description = "the best 100 The Miz Quotes"
++++
+- We weave our real lives into our WWE lives. We just look at what's happening in our lives, and what can we do? What's the most annoying - as a bad guy, as a villain, what's the thing we can do to make people hate us?
+- I know how to make noise; I really do. I'm really good at it.
+- Every time I'm a good guy in a movie, which is the 'Marine,' people are like, 'Wow, you can play endearing. You can play kind and nice and sweet but yet hardcore.' And I'm like, 'Yeah. Just because The Miz is a jerk and an egotistical maniac doesn't mean that there isn't a softer side to Mike Mizanin.'
+- Even though I've accomplished so much in WWE as well as having a franchise in 'The Marine,' it's still not enough for me. I always want more.
+- I will let my daughter do whatever her heart wants. I will support her and guide her and give her all the knowledge that I have because I want her to succeed in whatever she loves.
+- I'm going to do WWE until it stops being fun.
+- People have talked down to me, and that fuels my fire.
+- My success, I think it is due to the Mizanan family. Everyone in my family is a hard worker.
+- I think everyone that's from Cleveland knows exactly where they were when the Cleveland Cavaliers won the NBA Finals. I was filming a movie, 'The Marine 5: Battleground,' up in Vancouver, so I couldn't be at the game, but I watched it in my hotel room with my wife - who could care less, by the way, about basketball because she's from Montreal.
+- The reason I wanted to be a WWE Superstar was because of The Rock. I used to watch him in The Attitude Era. There was no one more electrifying and no one more must-see than The Rock.
+- That WWE Championship should be in the main event of every pay-per-view, and it upsets me when I see that it's not.
+- The talk of the town has been Finn Balor. Finn Balor has been killing it down there in NXT, and the fans love him. He looks like one of those guys who could be ready to be up here in WWE, but who knows what's going to happen?
+- I was just a young kid from Parma, Ohio, and I went to college at Miami University of Ohio.
+- There was an interview that I actually listened to with John Cena where he says that he is an elite-level athlete - he is elite, and he needs to make people elite whenever he goes up against them - but I was like, gosh, as much as I hate to give him credit where credit is due, it is exactly right.
+- You have to know what your talent is, and you have to exploit it. And then, while you're exploiting that talent, you find ways and tools to elevate other sides of you that are weaker.
+- My goal is to make the WWE championship as relevant and prestigious as it should be.
+- There's no one more talented than me.
+- Like I always say, the man makes the title; the title doesn't make the man.
+- My mind is always in Hollywood.
+- I walk, talk, and act like a star, and guess what? I am a star.
+- We had a show called NXT, and Daniel Bryan was my rookie, and I was his pro. And the object was for the pros teach the rookies what it's like to be a WWE Superstar. As soon as that hit the Internet, the Internet thought it was absurd: 'How dare WWE put Daniel Bryan as Miz's rookie? Daniel Bryan should be the pro.'
+- My wife and I make an awesome tag team.
+- When I talk, people listen.
+- I remember seeing an action figure of The Rock and going, 'You know what? I'm going to become a WWE Superstar.'
+- As a kid, growing up, my heroes all had the Intercontinental Championship. Ultimate Warrior, Bret Hart, Shawn Michaels, Mr. Perfect, Ric Rude, all of them. And they were the people I looked up to and wanted to be like.
+- A lot of the times, reality shows don't like people to break the fourth wall. With a docu-series or a documentary, everyone breaks the fourth wall because you're talking to the camera quite a bit.
+- As far as being a WWE Superstar, that was my dream.
+- I am on an elite level of talent.
+- The thing about being on a reality show is you'll never get respect. You're living your life on television. You're not doing anything special.
+- I think that is where my success lies - for whatever I lack in talent, I make up for in hard work.
+- I am sick of people sitting there saying, 'Daniel Bryan vs. The Miz.' He doesn't deserve to be in the ring with me. He's not at the level that I am.
+- When you're in WWE and you're in front of 16,000 screaming fans booing you or cheering you, you only have one take.
+- I am a winner, and I always look to win.
+- I love baseball so much, ever since I was a child playing during the summers.
+- If you come from WWE, you have a thick skin because you're hated on all day, every day.
+- I'm just a Parma kid who lived in the Sandpiper and went to Normandy. If I can do it, you can do whatever you set as your goal.
+- The 'Real World' made me realize that I could do anything I want to more with my life.
+- WWE is my first love.
+- I'm so excited to be a father.
+- MTV is where it all started for me.
+- I was on 'Monday Night Raw' - and nobody realizes this - every time you go from 'Raw' to 'SmackDown' or 'SmackDown' to 'Raw,' it shakes up your career; it shakes up your life.
+- Believe it or not, a lot of people watch social media. I have 1.5 million people on Instagram, 2.5 million people on Twitter: that is how many people are watching whatever I do.
+- Sometimes the worst things that you can say really teach you a lot about what you can learn.
+- Doing 'Marine 3' and 'Marine 4,' and kind of knowing what's in store, I knew that when you do a 'Marine' movie that it's hard days, it's long days and all that. You're tired, your body's tired, your mind's tired, but you have to do the acting, you have to do the stunts, you have to do everything.
+- The Miz came in as a way to say exactly what I was feeling and not have any repercussions for it because it was a character I was playing.
+- The fact is I'm always going to have naysayers. You're always going to have haters. It really doesn't bother me because I just rise above it.
+- I kind of had that Parma, Ohio, mentality that after high school, you go to college. Then after college, you get a job; then you get a family. And after that, you just stick around Parma.
+- When you are an elite talent, you cannot allow anyone that comes into your 'eliteness' and take you down. You have to make them rise to your level.
+- I think when you come from a reality show, nobody really respects you from the movie industry or from the WWE industry.
+- It's truly wonderful to have a kid. It's the best gift you could possibly get.
+- I can't believe people would ever wear shorts.
+- I've had so many cool moments on 'Monday Night Raw.'
+- Whenever something's really hard, you always question yourself, and I had many times when I questioned myself, but I always rose above it.
+- I don't like following in people's footsteps; I like making my own trail.
+- I've never had any resentment about being a reality TV star.
+- I'm the type of person that doesn't quit. I just keep going and give my best effort because I don't want to look back on my life when I'm, like, 80 or 90 and say, 'Man, I wish I would have done this, I wish I would have done that.' I basically go out and do it.
+- My favorite wrestler growing up was The Ultimate Warrior.
+- I wanted to be the dad that was able to feed my daughter, hold my daughter, really be there for my daughter.
+- I am awesome. I'm the most must-see WWE superstar: I'm proven inside the ring and outside the ring. I'm the best on the mic; I get the ratings.
+- Sometimes you have go into a movie and develop a certain type of chemistry with your co-stars. Sometimes it can click from 'Hello,' and other times, it takes a few weeks to develop that.
+- I need to be highlighted. I need to be the main attraction of entertainment.
+- Whenever you're on a reality show, you're the scum of the earth. You have no talent, you're a nothing, and you deserve nothing.
+- I don't think anything can prepare you for parenthood.
+- My stats don't even need to be said, but I'll say them anyway. I'm a 14-time champion. I'm a two-time Slammy award winner. I've done movies. I host my own show. How much more do you want in an athlete, in a star, than The Miz?
+- You can't do WWE forever; like, your body will just not hold up.
+- I want the Intercontinental title to be seen as more than just a 'mid-card belt.' The Intercontinental Champion used to be seen as a threat to the WWE Champion. My goal is to return the Intercontinental Championship to that level of importance.
+- I follow basketball, so I kind of know who LaVar Ball is; you know, I know his son Lonzo.
+- You look at John Cena - whether you love him or you hate him, he always gets a reaction. Roman Reigns has that same aura, that same ability.
+- Just because I'm confident and will tell you that I'm awesome and that I'm great, I'm all of the sudden the bad guy? Why am I always the bad guy?
+- When I was on 'The Real World,' I moved back to Cleveland, and I had a choice: My dad was like, 'You should stay in Cleveland and be the big name out here.' I was like, 'But no, Dad, I wanna be a WWE superstar.'
+- When I was a kid growing up, I ate my vitamins, worked out because Hulk Hogan told me to.
+- I will be the biggest WWE Superstar the WWE has ever seen. I will be the biggest movie star movies have ever seen. I will be the biggest TV star that TV has ever seen. I will be the biggest person in the world.
+- I literally have a private jet on call at all times.
+- Not many people get to say, 'I'm a WWE champion.' It's pretty incredible just to hear those words coming out of my mouth.
+- Daniel Bryan is very good at being endearing.
+- If you can dream it, you can do it.
+- I started off on the 'The Real World,' and no one thought I would amount to anything.
+- I know how to make myself very, very cocky and annoying. That's my character. I enjoy doing it. People hate it. But I don't mind it when people hate it.
+- I remember the first time I stepped into a WWE ring, and I got critiqued, and I was told I'd be gone in three months. Here I sit ten years later, and I'm the Intercontinental champion.
+- Nobody has a scientific formula to being the most over superstar in all of WWE.
+- My story was that I was egotistical, arrogant, and an absolute jerk to everyone who brags about everything - and I will - but I've been very fortunate to take everything and learn from it.
+- The Miz is a character I created. He's basically a wrestling star.
+- It's a learning process, and now I know that even when you don't have a title, or you're not in a main event caliber program, you have to remain 'main event level' and always not allow anything to hinder that.
+- I've been hit with kendo sticks and chairs; I've been thrown through tables, broke my ankle, broke my nose, and have had concussions in WWE, but nothing has hurt me more than when I stubbed my toe in 'The Marine 3: Homefront.'
+- I have all the accolades, all the experience, all the knowledge you could possibly want from a WWE number one draft pick.
+- When I was in Cleveland, Ohio, if you asked me what I'd be doing in 10 years, I'd probably say, 'I'll own my own Mr. Hero, living in Cleveland, married with three kids.' Now I can say I've literally traveled the world with WWE.
+- WWE prepares you for everything in entertainment. It's the truth. You need a host? Get a WWE Superstar. You need someone for an action movie, a comedy movie, a drama movie, you get a WWE Superstar. Because these guys are the most well-versed, well-trained, and hardest working guys out there.
+- The 'Real World Challenges' were amazing. However, Hollywood, back when I was on reality shows, did not like reality shows.
+- People always sit there and talk about 'Talking Smack.' They always bring up the incident of 'Talking Smack.' What did I do on there that was so terrible?
+- I've always enjoyed bad guys throughout all movies.
+- Do I think I'll ever get the respect I deserve? No.
+- I'm the bad guy in WWE, which I find hilarious.
+- I didn't want to be the 40-year-old still on MTV doing 'Real World.' I loved the show. I loved the people on it, but I had a different set of goals.
+- When I first got to WWE, people thought I was going to be fired within three months. No one liked me; no one wanted me there, whether it was the fans or the people backstage. I had to fight and fight and fight to earn my spot.
+- Daniel Bryan looks like he doesn't want the attention, but he does. He acts like he doesn't want the notoriety, but he does.
+- Me, I never consider myself a bad guy. I consider myself a good guy. Now, the audience thinks differently. They love to boo me.
+- A coward is not someone who goes right to your face and tells you exactly how it is. A coward is someone who walks away.
+- I surprised the hell out of myself when I got MVP for the 2018 All Star Legends Celebrity game. I had no idea I was going to get that.
+- I don't want to be the dad that's not there. I don't want the kid to ever think that I wasn't there.
+- I remember sitting on my couch on a Saturday watching reruns of 'The Real World.' And it said, 'Do you want to be on 'The Real World?' Go to MTV.com, and you can try out there.' And I said, 'I want to be on 'The Real World.'' And I sent in my tape.

@@ -1,0 +1,40 @@
++++
+author = "Arlo Guthrie"
+title = "Arlo Guthrie Quotes"
+quotes_len = "34"
+description = "the best 34 Arlo Guthrie Quotes"
++++
+- Building walls isn't going to work in the long run. Some people are happy with the wall in Israel, but somebody will get a weapon someday and knock it over or something. Walls aren't the answer between countries, though.
+- Everywhere I go, I see all kinds of people at my shows - conservatives, liberals, new-agers, teen-agers, old pensioners. And for those people to have something in common is real interesting to me.
+- But think of the last guy. For one minute, think of the last guy. Nobody's got it worse than that guy. Nobody in the whole world.
+- At the same time the folk boom was happening, the civil rights movement was happening, the anti-war movement was happening, the ban the bomb movement was happening, the environmental movement was happening. There was suddenly a generation ready to change the course of history.
+- Folk music is music that everyday people can play, and it inspired a lot of people to make their own music. That trailed into making your own pop music, and that's why garage bands started springing up everywhere.
+- I don't do anything on stage that allows me to become a trained seal, where you're just doing the same thing over and over.
+- I don't want a pickle, just want to ride on my motorsickle.
+- I've written quite a variety of songs, everything from kids songs to political satire, and my dad covered a fairly large range, also.
+- There's only one God. Call him whatever you want.
+- I think of my parents as a single unit, and it's interesting because they shared so much, and they were totally opposite. My mother, a Martha Graham dancer, had a classical background; my father had a back-porch background.
+- People were talking about songs of the common man in order to make the common man. With Woody Guthrie and Lead Belly, they were so common it was just uncommon.
+- My dad's songs were really written to make certain people feel as though they had some kind of value. Because they were told from where they work and from the countries they had immigrated from that they did not.
+- We live in an increasingly sophisticated world that makes it difficult to make simple comments on stuff. There are too many people on both sides of the border who are taking advantage of circumstances and the situation.
+- My only description for me is that there's no throwaway people. That's the creed that I live by. It doesn't matter if I'm singing or not. That's the kind of person that my father and mother wanted me to be. The end obligation is to make people feel good about who they are.
+- Yes, I was born in Coney Island. The Holy Land.
+- Basically, I think you need two things to get by in this world: a sense of humor and the ability to laugh when your ego is destroyed.
+- I left the entertainment industry part of my life behind in 1983, when we decided not to work with major record companies anymore.
+- The death of what's dead is the birth of what's living.
+- I thought I would be governor of Massachusetts. I stood on a pile of my old albums and said, 'I'm the only one with a record to stand on.'
+- You can't have a light without a dark to stick it in.
+- Greed and globalization aren't just America's fault.
+- I'd rather have friends who care than friends who agree with me.
+- My mother had introduced me to a lot of my father's friends because she believed that I would get to know the guy my dad was better through his friends than just in the hospital visits.
+- We would turn everything into songs in those days.
+- If you do anything for 40 years, you can do it comfortably. And it will always be good. But unless you're willing to risk it being bad, it can never be great.
+- You get people talking about being worried about their art, and dances... their culture being wiped out or taken over, and yet these same people are taking advantage of their people to use them as cheap labour.
+- I'm not just a singer-songwriter doing songs in the key of me.
+- Probably my two biggest musical influences were the Everly Brothers and the Beatles, in chronological order. Both of them have had a very simple-sounding musical style that's actually quite complex as far as popular songs are concerned.
+- Music is a nice friend to have around, whether it is just for yourself or for other people. If you can enjoy it, being professional is almost secondary.
+- There are people all over the world who are willing to exploit others. You can't just point the finger at America.
+- With the advent of radio and recording, music became an industry rather than just a tradition.
+- Thank God that the people that run this world are not smart enough to keep running it forever. You know, everybody gets a handle on it for a little while.
+- Everyone has a responsibility to not only tolerate another person's point of view, but also to accept it eagerly as a challenge to your own understanding. And express those challenges in terms of serving other people.
+- Along with a sense of humor, my songs have to be sincere, and they have to be sung from a position of inner conviction.

@@ -1,0 +1,14 @@
++++
+author = "Cynthia Breazeal"
+title = "Cynthia Breazeal Quotes"
+quotes_len = "8"
+description = "the best 8 Cynthia Breazeal Quotes"
++++
+- Through our evolution, we're so specialized for social interaction. So, if you can really design robots that can interact with people, in this very natural, interpersonal way, I think that would be great. You wouldn't have to have people read manuals, in order to operate them.
+- I do think, in time, people will have, sort of, relationships with certain kinds of robots - not every robot, but certain kinds of robots - where they might feel that it is a sort of friendship, but it's going to be of a robot-human kind.
+- In a lot of Western science fiction, you need some form of conflict, whether it's aliens or robots. I think in Western culture, being more suspicious of science, and hubris, you'll see a lot of fear of creating something that goes out of control.
+- Kids love robots. They're this fanciful, cool thing.
+- I was raised on technology. I grew up in Livermore, California, a town of physicists and cowboys. My parents worked at the government laboratories there. So technology was very normal for me.
+- If you look at the field of robotics today, you can say robots have been in the deepest oceans, they've been to Mars, you know? They've been all these places, but they're just now starting to come into your living room. Your living room is the final frontier for robots.
+- My most memorable science fiction experience was 'Star Wars' and seeing R2D2 and C3PO. I fell in love with those robots.
+- We have a lot of suspicion of robots in the West. But if you look cross-culturally, that isn't true. In Japan, in their science fiction, robots are seen as good. They have Astro Boy, this character they've fallen in love with and he's fundamentally good, always there to help people.

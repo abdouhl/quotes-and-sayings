@@ -1,0 +1,40 @@
++++
+author = "Thomas Piketty"
+title = "Thomas Piketty Quotes"
+quotes_len = "34"
+description = "the best 34 Thomas Piketty Quotes"
++++
+- I am afraid that if you don't find peaceful domestic solutions to our inequality and social problems, then it's always tempting to find other people responsible for our problems.
+- I don't pretend that I can predict the future value of the growth rate or rate of return.
+- What I'm pushing for is an economic discipline that will be closer to other social sciences; in particular, we should be more pragmatic about the methods that we are using instead of pretending that we have our own scientific apparatus with very sophisticated mathematic models that distinguish us from sociologists and historians.
+- Market forces and capitalism by themselves aren't sufficient to ensure the common good and to limit the concentration of wealth at levels that are compatible with democratic ideals.
+- I think inequality is fine, as long as it is in the common interest. The problem is when it gets so extreme, when it becomes excessive.
+- Yeah, I am in favor of migration. But I am also in favor of education. But at the same time, I am in favor of progressive taxation. I think we need all of this. I think we don't have to choose one.
+- Economists have put themselves in a position where what they are doing is supposed to be impossible to understand for outsiders, so they don't even talk - sometimes not even with their girlfriend or boyfriend or friends - about what they are doing.
+- 'Das Kapital,' I think, is very difficult to read, and for me, it was not very influential.
+- The United States could transform its property tax system into a progressive tax on net worth without asking permission to the rest of the world.
+- I was born too late to have any temptation with communism, or at least Soviet-type communism. Travelling in Eastern Europe and the ex-Soviet Union, you clearly don't want to defend a system that would have empty shops and a totalitarian regime and internal passports.
+- The main force pushing toward reduction in inequality has always been the diffusion of knowledge and the diffusion of education.
+- I think if you look back through time, the history of income, wealth and taxation is full of surprise. So I am not terribly impressed by those who know in advance what will or will not happen.
+- We want capitalism and market forces to be the slave of democracy rather than the opposite.
+- Private property and the market system are good not only to promote innovation and to promote growth; private property and the market system are good for our personal freedom.
+- Once constituted, capital reproduces itself faster than output increases. The past devours the future.
+- When you are an entrepreneur, you have founded your own firm, it is so easy to find that you exist - you are the main shareholder of your company; it is very easy to look at the stock market position of your company to know how rich you are.
+- What I argue for is a progressive tax, a global tax, based on the taxation of private property.
+- Having a decent share of the national wealth for the middle class is not bad for growth. It is actually useful both for equity and efficiency reasons.
+- You need some inequality to grow... but extreme inequality is not only useless but can be harmful to growth because it reduces mobility and can lead to political capture of our democratic institutions.
+- I certainly agree that capital is not a one-dimensional object, and that the return on capital takes very different forms for different assets or different people.
+- One way to have broader access to wealth is to reduce the tax on the large group and increase the tax on the very top so concentration of wealth doesn't get to extreme levels.
+- When inequality gets too extreme, then it becomes useless for growth, and it can even become bad because it tends to lead to high perpetuation of inequality over time and low mobility.
+- Capitalism and market forces are very powerful in producing wealth and innovation. But we need to ensure that these forces act in the common interest.
+- I believe in the power of ideas, I believe in the power of books, but you have to give them time.
+- We know too little about global wealth dynamics, so we need international transmission of bank information.
+- I'm not as pessimistic as what a number of people seem to believe.
+- Economists tend to think they are much, much smarter than historians, than everybody. And this is a bit too much because at the end of the day, we don't know very much in economics.
+- There is a fundamentalist belief by capitalists that capital will save the world, and it just isn't so.
+- The U.S. is the country that invented progressive taxation of income and of inherited wealth in the 1910s and '20s.
+- I loved American universities. In many ways, they are better organized - certainly than French universities.
+- I am not political. It is not my job. But I would be happy if politicians could read my work and draw some conclusions from it.
+- Economists should be modest and be aware that they are part of the broader social science community. We need to be pragmatic about the methods we use. When we need to do history, we should do history. When we need to study political science, we should study political science.
+- My premise is not to tax to destroy the wealth of the wealthy; it's to increase the wealth of the bottom and the middle class.
+- I don't live in the Cold War. Some people maybe still live in the Cold War, but this is their problem, not mine.

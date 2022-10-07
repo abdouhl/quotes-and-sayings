@@ -1,0 +1,106 @@
++++
+author = "Andrew Zimmern"
+title = "Andrew Zimmern Quotes"
+quotes_len = "100"
+description = "the best 100 Andrew Zimmern Quotes"
++++
+- The people who are afraid of talking to press are people who have something to hide.
+- Thanks to my parents, who had me traveling around the world mouth-first, I knew from a young age I wanted a career in food.
+- My phone is my favorite travel gadget because it has my translator.
+- When I was 13, I came back from summer camp - summer of '74 - and my mother had had an accident during surgery and was in an oxygen tent in a coma. It was so traumatic. My parents had been divorced for six or seven years at that point, and it was sort of the seminal event of my life.
+- In 2012, I launched Andrew Zimmern's Canteen. Inspired by visits to street stalls and markets around the world, Andrew Zimmern's Canteen reflects the intersection of food and travel.
+- I love bugs. And as the first person to popularize their eating in America, I take special pride in seeing their appreciation soar.
+- Too many children and adults go hungry every day.
+- I've spent time in the coastal Carolinas and have seen what small business development has done to maintain the wetlands and reestablish the fisheries and secure jobs for the people that make their living off the water.
+- Too many Americans are getting sick on our over-commercialized food system.
+- I have a tremendous platform and responsibility to talk to people about these issues about sustainability and about health and wellness when it comes to food.
+- As a teenager, I spent my days at the beach and nights cooking in Long Island restaurants.
+- Let me say this: Camel is delicious, but when handled improperly, it's rank.
+- You can tell the history of people on a plate.
+- Everything happens in the kitchen. Life happens in the kitchen.
+- I get asked to speak to a lot of different groups, one of the best parts of my job hosting a show on the Travel Channel, 'Bizarre Foods with Andrew Zimmern.' I take viewers to the far corners of the globe and introduce them to other cultures by exploring the foods they eat - at times, pretty strange stuff.
+- I love the Minnesota State Fair, and I go with my family every August for nearly all 12 days.
+- I can't tell you how many times I get into a taxicab in New York or Los Angeles, and I'm talking to somebody who is a recent immigrant who was a doctor or lawyer or engineer or professor in the country they just came from. They're starting over again in life, and I think the majority of people out there can relate to that.
+- If there's one thing I've learned after a lifetime of dining on delicacies like blood pudding, sea squirts, and camel kidneys, even folks who wouldn't come within 100 yards of a Cambodian tarantula want to hear what it's like to chomp on one!
+- The corner of the 'food media' that I think is troublesome to me is the shows on TV that don't really have a point or don't have a lesson to be learned. If you don't have a point, or if there's not some part of it that is meaningful and can change someone's life, in my old age, I'm just not into it.
+- Don't ripen picked tomatoes in the sun. Put underripe tomatoes and stone fruits in a paper bag in cool, dark place, and magic happens. And never, ever store them in the fridge: they turn mushy and flavorless.
+- Copper is a superb cooking metal, conducting heat so evenly it has unparalleled control, especially at low temperatures.
+- In tribal Botswana, I received some woven necklaces and a handmade bow with three poison arrows. It's framed and hanging on the wall in my living room and is, without a doubt, one of my favorite possessions.
+- I rest my proteins in their liquid when I am done with the heat braise.
+- In everything I do, I want people to get the message of acceptance, to learn not to practice contempt without investigation. I have an obligation to do it.
+- Surrounded by a sweltering state known for its staunch conservatism, Austin is an oasis. It's home to the University of Texas, which continuously fosters a well-educated youth culture who have been funneling their collective creative energy into building a vibrant music, film, and technology scene for decades.
+- The summer after college, I got a job as a chef at Conscience Point Inn in Southampton. I spent the summer on the water and cemented my expertise with seafood. I've always gravitated toward places that do seafood.
+- I lost an apartment. l became homeless for 11 months and squatted in a building on Sullivan Street in lower Manhattan.
+- Some of the oddest foods I've encountered are 'American' foods represented internationally.
+- My mom was as brilliant a cook as my dad is.
+- I serve on a lot of charitable boards - the areas of mental health parity, services for those that are underserved, and certainly children's rights are things that I believe in very, very strongly.
+- I don't like being at food festivals and have someone from some weird cable access show that's all about lifestyle get in my face with a microphone and wants to know which party I'm going to later... That just is pointless kind of stuff to me.
+- Sardinia has to have some of the best seafood on the planet. I'm a sea urchin freak, and Sardinia's are some of the best I've had.
+- People forget that in early 1970s, there were 3 sushi bars in New York City. Three. Three. Think about that. Now, there is sushi in... I've eaten it - there is sushi at gas stations in Middle America.
+- I log 250 days a year on the road. I need pants that are versatile, easy to clean, and dry in my hotel room if necessary.
+- The restaurant industry in New York in the '80s was a good place to hide out if you had issues.
+- Be aware of what you cook tomatoes with. The high acid content of the tomato slows down the cooking process of some other foods. Dried beans cooked with tomatoes added to the pot can take up to 20 percent more cooking time than beans without tomatoes added.
+- Don't pile your tomatoes in a container that doesn't breathe. I like my baskets or grass mesh plates, and I layer them single deep, stem end down to prevent bruises and premature rotting.
+- My parents divorced when I was six but stayed close.
+- I was born and raised in New York. My family has been in New York City since the Civil War. I have a ton of N.Y.C. in my DNA, from both sides of my family. I had a wonderful childhood in the city.
+- I am grateful to have my life back and for the friends and family who never gave up on me, for a God who was there when I was ready to find him. I am grateful for so much, that every day, one day at a time, is Thanksgiving.
+- Yelp is - I mean, Yelp's not even good for looking up the restaurant's phone number because, you know, on the site, they just want you to read their reviews and look at their ads. They don't even actually want to give you the information about the restaurant or the menu.
+- I'm into exploring the fringes of a culture.
+- Sometimes I have to shake my head at how much work it can take to track down a handful of food. Perfect example: I spent a whole day in the Amazon rainforest, in Ecuador, scouring the trunks of dead palm trees for grubs.
+- I grew up in a time when we didn't have the Internet, and we didn't have smartphones and things like that.
+- I will tell you flat out that I continually find Yelp and products like it to be increasingly worthless to me as a consumer.
+- Everyone knows about hot dogs and the Big Apple. But for me, New York City street food is all about the Biryani Cart.
+- I'm no saint, and I don't want to come across like one, but there is not a day that goes by that I'm not doing something for someone else with a very large chunk of my time.
+- I love the Mexican chapulines. These little crickets are beautifully roasted with salt and lime.
+- I think a lot of chefs are afraid of media outlets, and especially web outlets, because they're afraid there's some 'Borat' situation going on.
+- I consider a perfect hot dog on the street to be as valid a food experience as dinner at Blue Hill at Stone Barns.
+- I think we have cultural bias and practice some ethnocentrism when it comes to ethnic food in America.
+- Wok cooking is intimidating, but it's the most versatile and handy tool in your kitchen.
+- I'd dreamed of being in the food business from the moment my globetrotting parents introduced me to the foods of the world during childhood trips to Europe and Asia.
+- I'm a 'bright, shiny objects' guy. I'm always looking for what's next.
+- I'm obsessed with Chinese food and culture. It's food that I adore above all others.
+- I think that Manila is underrated in terms of food in the Philippines.
+- After attending The Dalton School and then Vassar College, I began cooking in New York City restaurants helmed by Anne Rosenzweig, Joachim Splichal and Thomas Keller.
+- I find that most home cooks don't get vinegars. They're misunderstood, mostly due to the factory-made red wine vinegar that everyone commonly cooks with... that, and the giant gallon of white distilled vinegar that we all use, mostly to clean and disinfect things!
+- Even as a kid, I ventured out to ethnic restaurants all the time.
+- I'd be very happy serving on a local school board. I just know that I have a responsibility to give back.
+- I am very much a person who likes to change with the times. Education is what it is all about.
+- There's fresh fish, and then there's fresh fish. Samoa is ranked as one of the best places for game fishing in all the world, and runs thick in the waters off the island chain. In fact, it's used as an edible currency in local markets. The day I fished there, we caught loads of yellowfin.
+- In a world that is defined by what separates us, sharing a meal with someone from a different country, showing what we have in common with the people, it's very powerful and important.
+- We will, as Americans, inhale another culture on a fork before we try their music or their art or even, God forbid, hang out with the actual people.
+- My life gets better every year.
+- The greatest food city in the world is New York City, just in terms of depth and breadth, variety, size, infrastructure.
+- Having been in the restaurant business, our job in the restaurant business is to be responsible for our customers' happiness. It's the nature of the hospitality business. You need to take care of people. You take care of customers above all others. Customers are your lifeblood.
+- The Internet has democratized content, and the gatekeepers are no longer in control. That democracy is wonderful for entrepreneurs.
+- As I famously said before, I don't like to waste meals. I'm no one's food snob.
+- I like to talk to media.
+- Like many other chef-entrepreneurs, I am convinced that fast food does not mean bad food.
+- The jambalaya of the American South owes a lot to the cuisines of the islands and western Africa, and it's my favorite of this type of one-pot cookery.
+- I'd rather be a good guest in someone's home than tell them I don't like their food or make fun of them.
+- Any decision that I make, anything that I do, every single consideration of my day goes through the prism of what my former experience has been.
+- Never use an aluminum pot, pan, or utensil when cooking tomatoes - or any other soft metal items for that matter. The acidity in the tomato doesn't do well with them; they create a chemical reaction that can turn cooked tomatoes bitter and fade the color, and the food will absorb some of the aluminum!
+- Everyone seems to ask me the same 10 questions, and high on the list is, 'What pans should I be cooking with and why?'
+- If you're not out testing what's complementary to your brand, you're not making the most of your income potential.
+- Here's the lines I draw: I never say something I don't believe - ever, ever, ever; and I won't endorse a product I don't like and use. When the cameras are off, we are who we are when they're on.
+- A well-seasoned and properly cleaned wok will always have micro-pores in the metal that hold some oil or food particulate, etc. - that's a good thing.
+- I'm an advocate for alternative proteins, and I believe we can eat many.
+- For wok cooking, use oils with a high smoke point and low polyunsaturated-fat content: grapeseed oil, peanut oil, etc. Sesame oil and olive oil will burn and taste bitter. Oils with high polyunsaturated-fat contents like soybean oil will also make your food texturally unpleasant.
+- I love eating in San Francisco, Chiang Dao, China, Tokyo, Hanoi.
+- I can tell everything about a restaurant through their mussels. You have to work so hard to keep them perfect.
+- I famously tasted shark fin soup many, many years ago before we understood exactly what was going on with the harvesting of sharks. I've consequently come out against it. I make personal choices in my life and stand behind them.
+- I use vinegars to deglaze saute pans for sublime sauces.
+- In the frequently-asked-question category, the question I get asked almost as much as 'What's the worst thing you've ever eaten?' is 'What's the best pair of pants to travel in, work in, trek in, and use on the road for the most activities possible?'
+- I love cooking Japanese food at home. It's so easy to make an easy fry, a saute, or a quick braise and serve it over a bowl of rice with pickles and a side salad.
+- Way back in the day, I used to cook for Thomas Keller at Rakel in New York City. Keller is a down to earth, kind, supportive person. I wish people could see that.
+- The biggest thing that I learned is when you're building something - especially a project that requires partners - you have to make sure that there is a lot of overlapping desire and a lot of overlapping alignment with the people that you're doing work with.
+- When I go into a steakhouse and order a steak, I'll order the cut of my choice, and I'll order it black and blue. And I'll ask them to bring it with my first course, and I'll just let it sit there.
+- As a young boy growing up in New York City, we would spend our summers on the South Fork of Long Island. My dad would take me down to the beach at low tide. We would walk a mile down to the jetties, and he would lower me by my ankles into the crevices between the massive boulders to grab at huge ropes of mussels.
+- A five-pound boneless rolled-and-tied breast of veal, like any other piece of meat fit for braising, can come in many shapes and sizes. So recipe times aren't uniformly applicable. A long and thin tied roast will cook more quickly than its stouter, football-shaped cousin.
+- Good vinegars come in all shapes, sizes, strengths, and viscosities and are probably my most often used seasoning agent in the kitchen after the other major acids we use in solid form: sugar and salt.
+- Remember for stir-frying not to use a wok bigger than 16 inches. Once it has food in it, you won't be able to work very efficiently.
+- I think Yelp is neither good nor bad for the food industry. I find it useless.
+- For most people, carp isn't just garbage fish - it's an invasive species.
+- It might seem strange to feast on Guinea pig, but Ecuadorians love to eat cuy. Personally, I think it's a phenomenal alternative to pork or chicken. High in protein, low in fat, cheap and easy to raise. Oh, and cuy tastes great, much like roast pig. You might call it a pet, but I prefer to call it dinner.
+- Eating well is a class issue.
+- The big mistake people make is eating their grilled beef hot. I prefer room temperature or cool. When the meat rests and starts to get cool, all of that fat goes back into the muscles and becomes much more tender.
+- I've never been a mainstream kind of guy.

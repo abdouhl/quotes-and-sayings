@@ -1,0 +1,55 @@
++++
+author = "Lachanze"
+title = "Lachanze Quotes"
+quotes_len = "49"
+description = "the best 49 Lachanze Quotes"
++++
+- I was a very ambitious, young actor, grateful and getting out there, working hard. I was single-minded in pursuit of my career. I am also the oldest of seven and had this extreme responsibility for everyone around me. I was a caregiver and not taking care of myself as much as I should have.
+- I'm from a part of Florida that is very close to Georgia in the panhandle area. I have a very colorful Southern family.
+- The best thing about theatre is that every time we get onstage, the show is new.
+- I have a very interesting story to tell, and people always want to hear about it. They know I'm a 9/11 widow, and I always get comments on that and being an actor and raising my daughters by myself.
+- Coming up through the theater in America, while I have had success, I have had success in certain types of roles.
+- I was born in St. Augustine, Florida. I lived there till I was about 13, and then my family moved to Connecticut. I finished school there, and then I went to college in Philadelphia and came to New York in '87. I wasn't finished with school - I left school to go on the road.
+- In my own one-woman show, 'Feeling Good,' I talk about my childhood and write a letter to my younger self in the show. The most important thing I would tell her is to trust my instincts. Just trust them. They're little whispers from God, I think. You've heard it a million times, but it's true: Listen to that inner voice.
+- I can't stand adversity and stress and drama and tension. I can't function in that environment. If I have anything to say about it, we're going to get rid of it so that everyone can just relax and have a good time.
+- The majority of the roles I've played are women who have been either impoverished or subjugated in some way. So while I've been fortunate enough to have success because these roles exist, they are stereotypical roles.
+- That's capital L, small a - no space! - capital C, small h, a, n, z, e.
+- 'Feeling Good' is a peek into my life through song.
+- What I always liked best about myself was my resilience, especially in this business with all the 'no's,' the doors closed in my face.
+- As an actress who has performed in theater for over 17 years, my experience performing in 'The Color Purple' has been a truly life-changing journey.
+- I always had a strong faith, and I always relied on God for a lot.
+- I'm a theatre doll, and I've always - since I'm out of school - have always been on stage.
+- I have a very strong connection with God, very strong sense of my faith.
+- I am an African-American woman of dark skin tone, and there are very specific roles that are usually given to African-American women of a darker hue. Let's start with 'Once on This Island': peasant girl. Let's go to 'The Color Purple': young girl, beaten. Let's go to 'Ragtime': Her baby's taken.
+- I am working on music and telling my personal story and sharing my talent on stage.
+- I totally believe in opportunities. I don't believe in accidents. I just don't.
+- I basically came from nothing and turned my life into something.
+- In my house, we couldn't listen to 'Love to Love You Baby.' It was way too salacious back in the day. I remember my mom would turn the station off when that song came on the radio. But, of course, I played my album to death in my bedroom, with the door closed.
+- Who doesn't love Donna Summer's music? It was part of my childhood, always heard around the house.
+- The theater community will always remain a big part of my life, and I hope to re-join the cast of 'The Color Purple' at some point down the road.
+- As singers, we're always taught to sing forward and place everything in the front of our resonating chambers. Donna Summer always sang in that space and had it naturally. Her muscle memory, the way she was built - she was a natural singer.
+- When I make people laugh and I get to laugh, it does my spirit good.
+- I believe that everything is divinely inspired. Bad things happen - they do - but I also think that when these bad things happen, there's an equal and opposite force that is happening, and there is good.
+- I really studied her singing, trying to see what it was about her that made her such a natural, incredible singer. Because sometimes as a singer, you really have to work to reach a certain note. And for Donna Summer, it seemed effortless.
+- I went to see 'Kinky Boots' to see my friend Billy Porter in his groundbreaking performance. But while backstage, I was hoping for a chance to meet this young, dynamic performer Annaleigh Ashford. Her comic timing was brilliant. And she is obviously a triple threat.
+- As an actor, you go in your own personal life and pull from your personal life, so that's what I do.
+- I want to share the things I've done, the things I've survived, the things I've struggled through.
+- I have loved fiercely in my life - a few times.
+- I'm a Patti LuPone fan. She's incredible! I love Patti LuPone. I know people talk about her being difficult to work with sometimes. Whatever.
+- Naturally you want to be the best mom you can, but then also you want to be the best performer you can.
+- 'The Little Mermaid' is my favorite of the Disney animated features. And, I could not wait to see it on Broadway.
+- Time just goes on, and... it doesn't stop for anything.
+- I'm an actress: I'm used to being independent, doing for myself.
+- I'm not religious, but I'm spiritual.
+- We all have to believe in something in order to exist successfully in this world and to enjoy our time here, which is short. I know that.
+- Without faith, life is futile.
+- Theater is structured. You're plugged into a system. It's relentless. You're expected to do certain things every day. You have your tasks.
+- You know when you see a play and there is a character whom you know so well that you hate them and love them at the same time? That is Michael Potts' portrayal of Turnbo in August Wilson's 'Jitney.'
+- I'm not a Method actress. I work in the present, the day-to-day.
+- You rarely see a musical being told about the life of a black woman.
+- I believe in divine intervention.
+- I try to take time to find joy out of life, and I don't take a day for granted like I used to.
+- Dianne Reeves, a famous jazz singer, would be my biggest influence.
+- It's still hard for me to think about Sept. 11 sometimes. I'm still angry. It's hard to watch my daughters, Celia and Zaya, grow up and know they'll never see their father. They'll always be 9/11 girls, and I wish I could shield them from that. Everyone has an immediate pity for them. It is a sad thing, but the girls are also so happy.
+- I think a lot of audience members don't realize the part that they play in live theatre. The audience actually has a mood. Sometimes they're tired and bored, and we have to wake them up and engage them.
+- One of the greatest things about the theatre is how it can completely change the way you see the world around you. 'Dear Evan Hansen' did this for me.

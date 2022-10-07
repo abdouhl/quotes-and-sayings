@@ -1,0 +1,105 @@
++++
+author = "Karthi"
+title = "Karthi Quotes"
+quotes_len = "99"
+description = "the best 99 Karthi Quotes"
++++
+- When 'Yuganiki Okkadu,' the Telugu dubbed version of 'Aayirathil Oruvan,' released, I didn't like dubbing for my character. Someone much older had done it, and it didn't have the flavour.
+- In my career, I have learnt how to handle failures in a matured manner.
+- I used to watch a lot of Malayalam films in the past.
+- I would say I was not working in the real sense in 'Paiyaa.' After doing very heavy scenes in my first two films, in 'Paiya,' I was romancing a girl, talking all sorts of funny things, and doing all light things just as if I were not acting!
+- For me, Surya's 'Varanam Ayiram' is a big inspiration.
+- When my first film 'Paruthiveeran' released, I had no time to get excited. It was a worrying time for me. I was anxious to know how it would be accepted.
+- I had to look powerful in 'Paruthi Veeran.'
+- I loved Suriya's performance in 'Vaaranam Aayiram'; his expressions in the movie, especially the train sequences, were really fresh.
+- For me, repetition is death.
+- If you have to grow, you should face failures.
+- So many want me to do another 'Paruthiveeran'; others are fans of my 'Siruthai' avatar. Extreme expectations, but I have to strike a balance.
+- I think people need to understand the amount of emotions I can pull off. I want films I'm offered to have these dimensions.
+- Everything is new about 'Siruthai.' This is the first time I'm playing a dual role - a thief and a police officer!
+- A film like 'Dangal' is universal; though it narrates a story that happened in Punjab/Haryana, we like its inspirational story and its idea of celebrating the girl child.
+- I have drawn a clear line between my personal and professional life.
+- I will try to be a good husband.
+- I am a big foodie. So, dieting really puts me off!
+- 'Paruthiveeran' was a difficult film to work on. It was my first film but a very strong character.
+- I loved movies and watched a lot of them. But my father insisted that I get a good education before I joined the film industry.
+- I like doing comedy.
+- Nobody can write stories like Malayalam writers.
+- It's always been great shooting in Kerala.
+- I don't have a set target on the number of films I should do in a year.
+- I have been receiving calls from all quarters since the release of 'Madras.' I need to thank audiences for believing in me and making this film successful.
+- I had to go for physical training for 'Aayirathil Oruvan.' I had to do stunts which required huge leaps.
+- I always knew I wanted to be in films, but I did not know exactly what I wanted to do.
+- It's very important to play a police role convincingly. It ups you in your career. Even 'Siruthai,' in which I played a cop in one of the roles, was a gamechanger.
+- An actor has to do everything, all genres of films.
+- The audience in Kerala have been giving a good response to my films, including 'Paiyaa' and 'Siruthai.'
+- 'Mouna Ragam' is my all-time favourite, and it will always be.
+- Who would want to do a bad film? It's just that not all films work in my favour, and I'm fine with it.
+- I don't like six-packs. If you get six-packs in a short time, it will cause health problems.
+- Though I have done films like 'Siruthai' with larger-than-life characters, I have more of a guy-next-door image.
+- For me, working on the sets with Mani Ratnam is so familiar. It is the place where I grew up, so I am not nervous here.
+- I dub only four hours a day for a Tamil film because my voice doesn't stay strong for long hours.
+- There's so much to learn as an actor.
+- Many of the characters I play are talkative - 'Oopiri' for instance - so the dubbing process gets longer.
+- My parents have ensured that we never develop starry airs.
+- Actors usually feel skeptical about double hero films because one character might overshadow the other, but the late scriptwriter K. Subash has penned 'Karuppu Raja Vella Raja' in such a way that Vishal and I have equal scope in the film.
+- There's nothing experimental about 'Kaashmora,' as it's a blend of fantasy and entertainment. The only experiment we did was with my makeover in the film.
+- My fans are the most important people in my career, and I've always wanted to do something in return for them.
+- Many people tell me that my pairing with Tamannaah worked big time towards the success of 'Paiyaa.' In 'Siruthai,' our on-screen chemistry will crackle as we share a terrific rapport.
+- I started off as an assistant director in Mani Ratnam's 'Ayudha Ezhuthu' and 'Yuva.'
+- My dad was very busy with his films, and I got the opportunity to mingle with him only when I was in 10th standard. More than anna Suriya, my sister and I used to discuss many things with him. But he never, ever advised me, instead will only share his life experiences.
+- I am very selective when it comes to scripts.
+- When you relate to a person and are being friendly, it's easy to do a scene without looking uncomfortable.
+- My fans are indulging in social welfare activities from time to time and have also been helping economically backward students.
+- When 'Siruthai' became a hit, there was suddenly a lot at stake. A lot of people were telling me what to do and what not to. But at some point, you realise that's not the way to go. Good or bad, you need to be making your own choices.
+- I always try and do good films.
+- Each time when my films get released, people always compare it with my debut film 'Parutthiveeran' and comment that nothing comes near that flick.
+- I really want to do a Telugu movie.
+- I'm very selective about my scripts and about how I am projected on the screen.
+- I'm really blessed to be liked by the audiences.
+- I've always wanted to do a double role.
+- After I did my graduation in mechanical engineering, I got a scholarship to go to the U.S. to do my master's. So I did that. I also worked there for a while. After my master's, I did a course in Film Appreciation.
+- My fans loved 'Rathnavel Pandian,' as they love mass, but 'Theeran' gave me complete satisfaction.
+- I always remember what my dad told me when I decided to turn into an actor. He was emphatic that whatever I do, I should get accepted by the audiences who watch my films.
+- I've played heavy characters in my first two films.
+- My role in 'Kashmora' required me to take horse riding lessons.
+- Our country is an agriculture-based country. And slowly, we are forgetting our roots.
+- I've known Radhikaa akka for a long time, and have seen her perform like a pro in front of the camera. But, to work with her and mouth dialogues in her presence had me in jitters.
+- I want to travel all over India.
+- Even for 'Paruthi Veeran,' I'd work out for six hours every day and lost 10 kg.
+- It is a treat to do scenes where you silently enact.
+- Suriya is more handsome than me.
+- I took home the pattapatti underwear that I wore in 'Paruthiveeran' for nostalgia's sake.
+- Regardless of what film you make, you want people to watch your film, and you ultimately need commercial success.
+- I am not adding more films to my kitty just for the sake of money; I choose my script and do it.
+- Fortunately or unfortunately, 'Baahubali' has become a benchmark for all historical-costume dramas.
+- I'd like to have coffee with Farhan Akhtar. He's an all-rounder in the film industry, and I have heard many good things about how he goes about planning all his productions.
+- In reality, I am not in competition with any other actor except myself.
+- Bejoy Nambiar had offered me 'Shaitaan' some years ago. But I wasn't confident about my Hindi.
+- We should teach our children about the reality of failure. Instead of buying them iPhones and iPads, we should teach them values and reality.
+- I have to do films for myself, films that make me learn. I also have to be an entertainer.
+- Writing is not my forte, but I am good at visualising.
+- Sayyeesha is a great dancer.
+- 'Dev' is a love story but isn't about romance. It is also about loving friends as well as family and loving every moment of life.
+- I love the process of filmmaking. I understood that you have to be a writer in order to be a director.
+- Since one of my roles is that of a con man, I actually mingled with a few pickpockets in north Chennai to get a hang of their body language and mindset.
+- The theme of 'Bombay' will make you fall in love with it again and again.
+- In Tamil Nadu, watching a film on a festival is a part of our culture. People prefer going to a theatre rather than bursting crackers at home.
+- Unless they excite me, I don't sign a movie.
+- Bollywood? Me? No way.
+- I met lot of fighter pilots and heard their breathtaking experiences. They risk their lives for our well being. Not many understand the risks involved.
+- Working on my Pongal release, 'Siruthai,' was a superb experience. I really enjoyed it, as it was a pucca commercial film.
+- I am not a sportsperson. I used to spend all my time in front of a computer.
+- I've always been a fun-loving guy, and my films will always have some humour.
+- I see many youngsters giving up their IT jobs and going to farming or taking up organic farming so that kids in future will stay a bit more healthier. That's one cause I really want to take up.
+- I've not done the Jackie Chan kind of stunts.
+- My mother used to pat me instead of slapping me whenever I made a mistake.
+- I just want to be fit because I want to look nice without a shirt.
+- I was dying to start shooting for 'Paiyya.' I had worn no good clothes for months, and I was dying to wear good clothes. And, for 'Paiyya,' they gave me eight clothes to change in a day!
+- I must admit, strong films are more interesting to me, as, by the end of the day's shooting, you feel good.
+- I would say 'Siruthai' is a masala film with all the masalas in the right proportion.
+- I would love to do a Malayalam film if the right script and character comes along.
+- Yes, life has certainly changed post my engagement.
+- Only Superman needs a six-pack, that's why I don't do that kind of films.
+- Your entire world revolves around your kid, especially when you are a dad to a girl child. Your responsibilities become more.
+- When I was in the U.S., I was caught by the cops for speeding and charged a fine of 200 dollars. I didn't have so much money then - I was still a student - but I certainly didn't want to spend a night behind bars. I called a few of my friends frantically and they bailed me out of the situation.

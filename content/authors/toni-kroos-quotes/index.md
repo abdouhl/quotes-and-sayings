@@ -1,0 +1,95 @@
++++
+author = "Toni Kroos"
+title = "Toni Kroos Quotes"
+quotes_len = "89"
+description = "the best 89 Toni Kroos Quotes"
++++
+- For those of us playing in a foreign league, it's always nice to spend a few days with family and friends who we don't get to see every day.
+- I can't see myself playing as a 36-year-old.
+- I am of the opinion that the burden of playing games is much too high, especially for international players that also play domestically with their clubs.
+- I don't sign contracts on a whim.
+- I have played at the Bernabeu twice with Bayern Munich, and it was a magnificent experience.
+- Cristiano Ronaldo is a really important player.
+- I like to create chances, to shoot when I play farther forward, but I also like playing deeper, as you have more time on the ball.
+- Since I took the decision at the age of 16 to join Bayern, I have been proud every single day to have been part of this amazing club.
+- It is impossible to play 60 games all season and be in good form all the time.
+- When you have been working so hard to reach a specific goal and then you realise that ambition, it's not always easy to raise yourself for another objective.
+- It's no secret the Premier League is an interesting league.
+- The best example is the NBA, with high intensity and long breaks. During the season, the NBA teams play every three days. That's a lot, and they also travel far. But from the end of May until October, they have their break.
+- Bayern exists only to win, but to win in style, too. Winning 2-1 is not enough. We have to win 5-0.
+- A friendly relationship with the coach is important for each player.
+- Carlo Ancelotti wanted me in Madrid and had bet on me.
+- I wouldn't undervalue my year under Pep Guardiola because I think I made a big step forward in that year.
+- When you come to a hotel where everything is brand new, it's logical that not everything works.
+- I enjoy being at Real. The club atmosphere is - even if some do not want to believe it - very tight-knit.
+- I enjoy playing football, and that's about it. I'm no-one special.
+- If you have the quality, you can only improve as a young player through match practice. That seems obvious, and it's proven to be true in my case.
+- I want to win trophies in the summer and not accolades in the winter.
+- Real Madrid are the biggest club in the world. They are a cut above Bayern.
+- The Bundesliga is a strong league and a good place to go. One can only recommend the Bundesliga.
+- It's not good to have so many key players injured, but there is no point complaining about it.
+- Emotions always play a part, especially on Champions League nights at the Bernabeu.
+- Individual achievements are not important for me, to be honest.
+- I do not envisage going to Barcelona.
+- The most important thing for me is that I get regular first team action.
+- I've always liked big challenges in football and playing against the best.
+- Coaches are always important for players.
+- Clearly, if you go abroad to a top club, it means one more step in your development.
+- In a team like Real Madrid, arguments always arise when things are not going well.
+- I am very proud to be at Madrid. It's something very special, and also to step out into the Bernabeu wearing the Madrid shirt for the first time was a fantastic feeling. The fans gave me a wonderful reception.
+- In my opinion, it's only logical that you have to be on the pitch and playing as often as possible to develop further. That's just an absolute basic requirement.
+- I don't like to talk about players who haven't played; I prefer to talk about the ones who have.
+- We're Real Madrid - and being successful is part of our DNA.
+- Ancelotti would be an interesting option for Bundesliga clubs. Of course, there would only be one or two clubs in Germany that would be an option for a world-class coach like him.
+- You always work toward a big goal. Once you achieved it, it's not that easy. You need a few days. Like winning the Champions League - season over, goal achieved. The pressure drops.
+- Sure, it's nice to get appreciation from the outside. But generally, I don't think personal accolades are appropriate in football.
+- I can score goals and be dangerous with my passes.
+- I'm happy at Real Madrid and can imagine ending my career here - if all goes well.
+- Madrid are a great club and were the challenge I sought after my long and successful Bayern career.
+- In England and Germany, perhaps, there is more of a focus on the physical side of the game, in breaking down the opposition's play, especially against the lower placed sides.
+- It's important to get a good start at a top club like Real. When things are going badly, you can overcome it quickly at a top club.
+- I'm used to the feeling of playing in a team with high individual quality.
+- At Real Madrid, you have to win everything.
+- I celebrated great successes alongside exceptional players like Philipp Lahm, Thomas Mueller, Manuel Neuer, Bastian Schweinsteiger, Miroslav Klose, Luca Toni, and Franck Ribery.
+- There are certain transfers you simply don't do. This has a lot to do with respect: respect for tradition and the fans.
+- With Bayern Munich, we had a lot of problems against Dortmund, always.
+- You need to beat the best, and it's a great challenge, and I like that.
+- Everyone has their special strength. And my strength is to have the ball and start good things with it.
+- Training with Guardiola is good. He's always talking to each player, trying to give them a vision of the style of football he wants to play.
+- There will always be different opinions. Some might argue you should retire after a big success and others that the best time is after a big defeat.
+- Guardiola and I have the same idea of football.
+- There's little place for sympathy in football.
+- I would not swap the World Cup title for any accolade. But I could imagine that quite a few would swap every accolade for a World Cup title.
+- I always think about my future. That's part of my job.
+- It is always tough, always difficult playing against Klopp's teams.
+- It's possible that I will leave the Bundesliga at some point.
+- When you touch the ball 400 times per game, it's normal that you can lose the ball a couple of times.
+- You can't win any games in the Spanish league by giving only seventy or eighty per cent. You always have to step on the gas.
+- New stimuli can come from the same coach if he questions himself.
+- When you have lived through something as magical as the 2014 World Cup final, you want to relive that experience as many times as possible.
+- Pep Guardiola saw me as a central player in his system, which my style of play fit into perfectly.
+- In the end, it's like that: The more I possess the ball, the more dominant we play, and the more often we win.
+- From the level, both leagues are equal. You'll win no game easily. It's always a lot of work. This is true in La Liga as well as in the Bundesliga. You must always give all you have.
+- Madrid are the greatest club in the world and a cut above Bayern.
+- I think, at 32, you are past your prime as a footballer.
+- I like playing deeper, but I'm not Casemiro.
+- Dominating the midfield is the most important thing in modern football. To succeed, you have to be good at everything.
+- Ancelotti speaks a lot with his players, creates a very close-knit atmosphere, and the Real Madrid dressing room was very sad when he left.
+- It can be dangerous to be too content, especially at a club like Bayern, where there is so much competition for places.
+- Before leaving, I was seen as a good player, perhaps as a very good player, but as one of the many players that Bayern had. But if you play as a Real footballer, you get even more attention. Maybe that part from the fans I do not like so much.
+- Those who know me best know that my opinions don't change with the wind.
+- A lot of clubs want to win the Champions League.
+- I do not forecast playing until 38 or 39.
+- I can't comment on every article in the newspapers.
+- Ancelotti is internationally oriented and speaks English. Why would he not be successful with a club like Bayern? He would be a good fit for a Bundesliga side.
+- I enjoyed six marvellous years at Bayern winning many titles, but the fact is I don't plan on playing in Germany ever again.
+- The Spanish and German leagues are of a very high standard. Along with the Premier League, they are probably the best.
+- Zidane transmits a very clear idea to the players. He doesn't need to give a 20 minute motivational talk, he doesn't need it. With his presence alone, he achieves what he wants - his personality is synonymous with success.
+- My biggest aim of all is to win trophies with Real Madrid.
+- During the season, the teams play every third day. That's a huge workload with some long journeys. I think, in football, we need more time to rest and recover.
+- Of course it's special when you play against a team you represented for six or seven years.
+- The Spanish league has better individual players than the German league. However, in Germany, there are more teams that are uncomfortable to play against because they are more aggressive than teams in Spain.
+- I'm not scared of Bayern Munich.
+- My decision was to go abroad, especially after winning the World Cup, and to go to Madrid was perfect. I was 100 per cent convinced of it.
+- Whether I play five or 10 metres forward or back does not change my way of playing, to be on the ball a lot.
+- The Champions League title is incredibly important for me, as important as the Bundesliga title.

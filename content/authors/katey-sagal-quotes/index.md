@@ -1,0 +1,74 @@
++++
+author = "Katey Sagal"
+title = "Katey Sagal Quotes"
+quotes_len = "68"
+description = "the best 68 Katey Sagal Quotes"
++++
+- I loved Peg Bundy. I am so happy that I got to do that. It was really fun.
+- We all have that desire to be kind of wild and bad.
+- Um, I have an enormous faith in God. I have an enormous support system that also has that same belief.
+- I'm not a Facebook/Twitter gal, but my husband is.
+- I think I'm a soulful singer.
+- I've certainly experienced physical pain in my life.
+- I love TV.
+- I made a living being a background singer for years.
+- It's great to be mean, it is, it's fun.
+- When you tour with a band, you're just out there, and it's just you guys. That's your little universe. If you do a play, it's the same deal. That becomes your world, for the cast and crew.
+- I think the biggest change has been realizing I now have three children.
+- Each time I seem to go through one of life's huge things, I want to play music.
+- I don't like violence.
+- I really like sort of disappearing.
+- Music is extremely intuitive, which acting too in a different way.
+- It's so weird that I play this woman who pretty much deals with violence on a daily basis, and I'm such a wimp in who I am.
+- I always had a struggle, which I still do, when you're playing a character and it's not necessarily your morals or your values. You're playing a character, but the way the media will sometimes ask you if these are your opinions, you know - they make you responsible for that, and I take issue with it because I don't believe in censorship.
+- There isn't a lot written about the motorcycle culture.
+- I was very rebellious.
+- I work with all these amazing voice actors that do a kajillion voices.
+- I've never played a character that would sing.
+- My parents were very artistic, but busy.
+- But I started it when I was going through a transitional time in my life. At the end of it, it really sort of symbolized it. I had made room to change, and room to grow. I recorded it in a little room.
+- I love to perform live.
+- I love interpreting other people's music.
+- I'm a big 'American Idol' watcher, and sometimes I like to watch 'America's Got Talent.' Those are big, corny admissions, but sometimes it's so fun to see those kids really sing their hearts out.
+- I've done comedy most of my career, which I love, but I wanted to expand.
+- When you grow up around it, I just watched my father work really hard. He wasn't around as much as I would have liked. And when I grew up, I understood why.
+- So they've actually - it's not that her character is a singer, but she had ambition to do that at an earlier time in her life. So I've actually sung two or three times now on the show.
+- I like when everything's naturally moving along - I find that pretty exciting.
+- So you know, my plan was that I was going to make records, and be a rock star. And that's really what I wanted to do. And I sang from the time I was very young.
+- It's sort of the mixed blessing of being on television for so long in one thing; sometimes that backfires, in that you're not able to continue on.
+- And I think that's why I was going to be a musician. I was very rebellious. And I didn't want to be an actor. My father used to say to me you should be an actor if you want to be in the arts.
+- I have a little kitchen office at home, where I do all my kids' stuff.
+- I had to accept the fact that sometimes things happen that are out of our hands.
+- I wanted to be a rock star when I grew up, or at least a singer/songwriter.
+- I do tend to play characters that have a lot of costume and hair change. I sort of like the change of physicality thing.
+- And I like to interpret music. So I think it's all interpretive.
+- I do a lot of writing about my family.
+- You know, episodic TV directing is a very long and arduous job. You have very short schedules, short short shooting days, and you have to get lot of pages done.
+- I don't know, Y'know, I always wanted to be one of those cheerleader girls and I never was that, and I was never sort of cute and perky, and I always thought it was fun to be cute and perky, and those, I don't know what those girls are doing now.
+- I love to play gigs.
+- I'm a better mother if I'm also doing my work. Some women find a lot more satisfaction from doing the hardest job, which is being a mom. But I like my day job, so I juggle a lot.
+- I'm very comfortable as a singer. In fact, I think it's more - I identified my self-esteem, my self more in those ways when I was growing up. I really - it was kind of my calling card as a kid.
+- Generally, I find a lot to be grateful for.
+- I grew up listening to a lot of soul music, and a lot of folk music.
+- 'Married with Children' was racy. It was sexist. It was a lot of things, but mostly it was funny.
+- I have teenagers, so I listen to a lot of music. They turn me on to great music.
+- My thing about having another child was, time's-a-wasting!
+- You know, it's hard sometimes to just detach yourself from what you're doing.
+- And this one I wanted to do some covers. So I just really sang some of my favorite songs.
+- And then I think now we are - you know his - like I've always said. His spirit is so large that we feel his presence around the show, and we always will. He will always have a voice.
+- I didn't actually begin professionally acting until I was 30.
+- I don't take story input from fans.
+- I've never worked on a lawyer show for a long time, but I imagine the actors all start acting like lawyers.
+- There's so many great songs already written, it's kind of really wonderful you don't have to write your own.
+- You realize mortality is everywhere.
+- Being a mother has been my greatest teacher and also the most self-sacrificing thing I've ever done.
+- For me it's also - the music is equally as important. I mean I think as somebody who writes music, there just has to sort of be the marriage between both.
+- You know, we travelled a lot when I was a kid because my father was wherever the work was.
+- I think we respond well when we do something well.
+- I would literally have to go meet people so they could see I didn't have big red hair and wear high heels constantly. It was just really ingrained in people.
+- I'm a pretty emotional person.
+- I was kind of lost for several years.
+- To be shapely when you're in the seventh grade is not exactly what everyone's looking for, or they weren't then, as someone was telling me the other day. now, that's like a really great thing to do, to be, but then it wasn't.
+- I've never loved anybody the way I love my children.
+- I have this whole new audience now.
+- It was really fun. It was fun for a lot of reasons. It was fun because nobody thought that we would be successful. It was on a network that wasn't even there at the time.

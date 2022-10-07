@@ -1,0 +1,106 @@
++++
+author = "Lou Williams"
+title = "Lou Williams Quotes"
+quotes_len = "100"
+description = "the best 100 Lou Williams Quotes"
++++
+- The structure of college basketball never made sense to me. The coach is the star and you get up at 5:30 A.M. to run before class. That was never appealing to me.
+- I didn't realize I was that short!
+- I've always had jewelry over the years, but when it comes to clothes, I'm just a white or black Polo tee guy with some jeans and a pair of Jordans, and I'm cool. As long as I'm comfortable, I'm cool.
+- Coming off the bench was an adjustment for me.
+- I thought I was pretty average height. And then it just clicked to me - 'Yo, you're undersized.' I guess when I got older and my body started hurting, I'm like, 'I'm not as big as I thought I was.' So I always played with the mentality that I was bigger than I actually was.
+- I don't like idle time.
+- As I get older I'm seeing the game clearer.
+- Greatness is contagious.
+- A.I. didn't ask me to do a bunch of stuff for him. He just wanted me around. Usually we were at the Friday's in Philly, which he should have bought, because he was there so much.
+- I always thought I was a good shooter.
+- A lot of the stories I got on A.I., I can't say publicly. Overall, I just really appreciated how he went about going into games. He got a lot of flak for the 'practice' comment, but every game, he gave it his all.
+- Kobe Bryant is a walking stat himself. He doesn't have to explain what he brings to the table.
+- I don't make a decision till I see fit. That's why I'm so effective. My mind isn't predetermined.
+- I want a real opportunity to win a championship.
+- I grew up in Memphis, Tennessee. Big time blues and music city. It's always been in my bloodline.
+- I'm kind of arrogant and cocky when I play... It's kind of weird. It's like I have split personalities.
+- Every 10 years the game changes.
+- I just challenge the big guys and attack them, and use my quickness to my advantage.
+- I'm not going to be the guy that says, 'I'm the new point guard, look at me, look at me, put me on billboards and sell my jersey.' I'm not going to be him. I'm going to do my job.
+- I've had very supportive teammates.
+- I've always been a guy to try to create contact; create scoring opportunities based off the free throw line and being aggressive in that way.
+- I wanted to prove that I could be a starter. And then once I realized I was gonna be a sixth man and it wasn't gonna change, I just relished the role. I just said, 'I'm going to make it really hard on whoever it is that has to guard me these next 10-11 minutes that I'm in here.' And after a while you just create an identity.
+- I didn't even care where I was drafted.
+- I can't shoot straight-up. I've always played crooked. One of my coaches says I play backwards. I do everything backwards. I don't have coordination. It's weird to watch me play.
+- I've always been friends with guys who are 6, 7 years older than me.
+- I would love to start if a coach considered me as a starter.
+- A guy tried to rob me but decided not to because of whatever I do in the community. He's a Lou Williams fan, so he didn't rob me.
+- When people treat you well, you just want to transfer it back over.
+- Once you're there, you'll love playing for the Raptors and love playing for the country, but by the fourth or fifth month into the season, you're just like damn man, I wanna go home.
+- A lot of guys ask me, 'Why did you go straight from high school to the NBA?' So I ask them, 'If you had the opportunity to take your dream job at 17- or 18-years-old, would you do it?'
+- What AI was able to do at his size, with the teams that he had was remarkable, you can't take that from him.
+- It's not an easy thing to be in this league 10 years. Especially with me being a second-round pick, the 46th pick, and an undersized guard, to carve a lane for myself and have a career, for my family to realize that and appreciate that, it meant a lot to me.
+- I'm not a flopper. I hate when people say I'm a flopper. I don't flop. You never see me flying all over the floor. None of that. I barely fall down in games.
+- I don't sleep much. I think it's hereditary. My mom doesn't sleep. My dad never slept. My naps are definitely when I get the most sleep. I'm a big napper - that's when I get most of my sleep.
+- I've always had a maturity level different than guys my age.
+- I watched myself get drafted by myself. I walked out of my own draft party because I was a little frustrated.
+- I'm a creature of habit. I don't really like change.
+- Teams know what I bring to the table.
+- Repetitions - I think that's one of the best ways during the season to maintain something or get better at it, is just to do it over and over.
+- I was raised in a musical house. Marvin Gaye. Boyz II Men. Jodeci. My mom always played that Toni Braxton song, 'Un-Break My Heart.' When I hear that song, it still puts me right back in the car with her.
+- I played varsity in high school as a 9th grader. I came off the bench during the first game of the season and had 25 points. Well, I became a starter after that and in the second game I scored 53 points.
+- I like to lead by example. I like to lead by my actions.
+- I don't really focus on the guy that's defending me.
+- In the summertime you'll find me back home in Atlanta, in the gym playing against whoever walks in that day.
+- You have all the ambition of winning a championship and competing in your hometown. For me, it didn't work out that way.
+- You know what, Kawhi talks the most in our group chat. The dude is a leader.
+- Never give up. That's my Clippers story, never give up.
+- I'm conscious of my turnovers.
+- Any time you make a basketball team you have the opportunity to be successful.
+- I love hooping. I love competing.
+- I've never been a follower, but I've been an admirer.
+- I've always said to my teammates that 'two points is two points, whether it's yours or mine.'
+- This is the NBA, anybody can beat anybody.
+- I think as competitors, that's why we get into this, to gain respect from the guys who have played the game, and you walk away and they say, 'He was a tough cover - that dude was nice.'
+- If you look at the history of the NBA, guys that came out of high school are the guys that held the NBA together. You look a Kobe Bryant, you look at a LeBron, these are household names.
+- Obviously, Ray Allen is a huge threat, Eddie House coming off the bench is a huge threat, as far as three-pointers go.
+- It's one of those things I have been able to do - play well with my teammates and getting others involved.
+- I'm an Atlanta guy. I think Philly knows that. But I've adopted Philly as my second home, and they've embraced me.
+- Whenever I'm out on the basketball court, I lace up and just hoop. Whether it's in summertime, at practice, in the games, playoffs, every time I step out on the basketball court, I approach it the same way.
+- It doesn't really matter to me whether you start or not. I play a lot of fourth quarters. I think that's what's most important to me. I think that's what I've always cared about, just having an opportunity to finish games when it's really winning time.
+- You can go to war at 18, so you should be able to make a living at 18, especially if college isn't what you see for yourself.
+- I watch a lot of Bill Maher.
+- If a guy is not serious about being a student-athlete then why force him into the college system. He's not serious about getting education.
+- I was raised in the NBA. I've seen some guys stay and I've seen a lot go. I've watched James Harden be a rival of mine for Sixth Man of the Year to an MVP candidate.
+- I realize the responsibility of being a starting point guard.
+- I always said if I had a son, I was going to give him a unique name.
+- I always have these debates with my friends, I was like 'can you imagine dropping LeBron in '75?' and I was like 'bro he'd win 15 championships in a row.'
+- When you're losing that tends to kind of build the character of everybody together.
+- You don't want a team going around the league just thinking they can beat you by 30, 40 points every time that you play them.
+- I wouldn't call myself a real point guard.
+- I've always gotten doubled. Coming off the bench, people try to eliminate bench scorers, so that's been my experience for years now. You just find ways to beat it.
+- I think my assist numbers dropped off in Toronto with the way we were built. We played a lot of isolation basketball. I know we were in the bottom half in the NBA as far as assists go.
+- I'm a country boy.
+- Sometimes I just think we get caught up in the entertainment aspect of this business and people kind of forget that this is the way we feed our families and this is our livelihoods.
+- I've always been a guy that's just prided myself on making plays.
+- Every time I'd ever stepped on a basketball court, AAU, middle school, high school, I always thought about the NBA.
+- I try to be the best old head I can be.
+- Playoff basketball isn't about who scores, stats or putting numbers up on the board. It's just about winning at the end of the day. When you play a game in a series, it becomes chess. It becomes who can outsmart the other team.
+- I want to be successful. I want to be able to win.
+- Even though I've been tagged as a scorer and a guy who shoots a lot, I'm a guy that makes the best plays that I possibly can.
+- There's crime everywhere.
+- When you play in Toronto you feel like you're playing overseas. We can't wait to go on the road sometimes just to be in America.
+- I think in Toronto my job was to score just based on the system that we had. We played a lot of iso basketball - a lot of one-on-one basketball.
+- I enjoyed my time in Houston but it was short-lived and it really didn't make a huge impression on my life.
+- I'd never seen my father stand up. As far as I can remember, my father was always in a wheelchair. I always remembered that. And I remember my first basketball game, ever, he rolls into the gym, he stays by the door and he watches me play. And that was the only game he ever saw me play because he passed away shortly after that.
+- Music was a big part of my family with gatherings, picnics, barbecues.
+- In the NBA they've taken away so much of the hand-checking and the physicality of how guys are able to guard you. So if you touch me, I'm gonna throw the ball toward the rim and get shots.
+- If you think that I got to come off the bench, then I am going to put you in a position to try to prove you wrong. Then after a while, it was kind of fun, and over the years it was my makeup.
+- I'm not easily influenced by a lot of people.
+- I had the opportunity to play alongside Allen Iverson and Kevin Ollie at the same time. I kind of had the best of both worlds. I had one guy that was super talented and another guy that came with his lunch pail every day and that was a worker. I want to kind of be a mix of both.
+- I'm just a baller. This is something I love to do and was probably born to do.
+- Honestly, I was a troublemaker. The environment I grew up in, my mom and my sister, they decided they were going to sign me up in every single thing to keep me busy. I played football, basketball, baseball. Anything, whatever was in season, I was signed up for it. Basketball was one of the things that just stuck.
+- Some guys like to eat two or three different times a day before the game. I eat once, and that's it.
+- Any time I can play basketball I enjoy being out on the court.
+- When it comes down to playoff basketball, it's attention to detail.
+- If you hit me, I'm gonna try to shoot the ball and get two free throws.
+- When I got traded to the Raptors Kyle Lowry told me, 'We expect you to average 15 points a game off the bench.' And I said, 'Perfect, so you need me here.' And that made me feel wanted. So once he put that expectation on me, it just made everything fall into place.
+- The Rockets paid a healthy price for Chris Paul.
+- I've always been kind of a fourth-quarter guy.
+- Once you start going out putting expectation levels on yourself, you lose the concept of trying to win the game.

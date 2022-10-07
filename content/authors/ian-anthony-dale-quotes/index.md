@@ -1,0 +1,20 @@
++++
+author = "Ian Anthony Dale"
+title = "Ian Anthony Dale Quotes"
+quotes_len = "14"
+description = "the best 14 Ian Anthony Dale Quotes"
++++
+- Whether we're stuffing our faces with Kogi tacos or playing a pickup game of football outside the stages, there's never a shortage of fun behind the scenes on 'Murder In The First.'
+- 'Murder in the First' takes 12 episodes to explore the crime and the issues surrounding it, all in the hopes of answering the question, 'How did we get to this point?'
+- I am quite handy; not to sound bragadocious, but I've been working with wood and building things my entire life. I used to be a skateboarder and built ramps with my father. Then, the first two years I lived in Los Angeles, I worked as a carpenter building sets.
+- We all go to the theater and cinema to be inspired and moved on an emotional level, sometimes to laughter, sometimes to tears. Once I discovered that acting could have such an effect, I was sold. It has been one of the most rewarding discoveries I have ever made.
+- Moving to Los Angeles and working in places like Hawaii, you get to experience a true melting pot. It's really nice to be around people who are multiethnic.
+- Hollywood can be a really tough environment for anyone trying to make a living. Unfortunately for actors of color, namely Asian Americans, opportunities have been and remain substantially limited. One place this is not the case is on 'Hawaii Five-0,' where we have three Asian American series regulars and a landscape rich with diversity.
+- Shadowing is really a great way to learn how the entire TV-making mechanism works. I had the distinct pleasure of shadowing the gifted and talented Allison Anders, who taught me a great deal about the importance of collaboration and trusting the talent around you.
+- So many good fortunes have come my way, and I'm trying to pay it forward by helping to raise money to complete 'Bulbul: Song Of The Nightingale,' a documentary that brings attention to the social and human injustices suffered by the Banchara tribe in India.
+- One of my favorite experiences in my career, certainly one of the most interesting characters I've ever played, was Simon Lee on 'The Event.' That was a show I was quite proud of and a character I really enjoyed playing. It was one of the most three-dimensional characters that was ever written for me and that I'd ever gotten to play.
+- There was a time when I was offered two episodes of 'Alias,' that show with Jennifer Garner which J.J. Abrams did back before he became the mega producer and super successful director. I instead decided I wanted to play this family guy on a short-lived UPN 'Second Time Around.' It starred Boris Kodjoe and Nicole Ari Parker.
+- I was one of the only people of color at my grade school and also my high school. It's weird recollecting on my childhood, I think, because my brothers are all white. We all share the same father but different mothers. I guess I kind of associated white, but I was occasionally reminded in a really negative way that I wasn't.
+- I've been playing both sides of the law my entire career. It's not really surprising for me to be doing opposing sides simultaneously. I would argue that even though my character on 'Hawaii Five-0' originated on the wrong side of the law, I'd say he's worked his way over to the good side.
+- As an Asian-American actor, I believe it is important to never settle for the status quo. I feel a responsibility to do everything in my power to create positive perceptions of Asian Americans through my work.
+- A lot of the time, a moral compass is all that separates a hero from being a villain; otherwise, the two are very much the same. Both are generally the richest and most complex characters, and they get to have all the fun. I guess it's those types of roles that I ultimately gravitate towards.

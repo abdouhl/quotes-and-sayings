@@ -1,0 +1,29 @@
++++
+author = "Angela Bassett"
+title = "Angela Bassett Quotes"
+quotes_len = "23"
+description = "the best 23 Angela Bassett Quotes"
++++
+- I want my children to experience as much creativity as possible. That's what sets your mind on fire.
+- My mom was always pretty supportive. She saw me do plays and she'd always act out the parts I did. My aunt, who played a big part in my life, was a little bit more reserved, because if they don't see you on TV every week they think you must be starving.
+- Drink a bunch of water and get facials regularly. I take care of my skin.
+- I'm thinking about directing, but I know it's a lot of work and I appreciate what directors do and I would like to be good at it. The opportunity has presented itself four to five times, and I usually said no because of the script.
+- I really believe that what I do as an actress is my God-given talent. This is my calling, not my career.
+- I'd tell my 20-year-old self, 'Don't be afraid to do it all. Whatever you're interested in, just go for it. Don't wait around for a better time.'
+- I like the nice guys. I like when they show the stories, the human element behind it all.
+- I love doing action. Since I'm not 21, there's some, 'Let me get to the gym so I can do it.' But I love to defy expectations.
+- It's important to surround yourself with good people, interesting people, young people, young ideas. Go places, learn new stuff. Look at the world with wonder - don't be tired about it.
+- I can give you the King's English and then I can take it to the street, but do both or do one and don't do one knowing only the street. That's going to hold you back because what comes out is going to impress people, and it will impress them negatively.
+- When I was in school, my mother stressed education. I am so glad she did. I graduated from Yale College and Yale University with my master's and I didn't do it by missing school.
+- I guess I'm breaking out a little of what's comfortable and easy.
+- We all have a gift; we all have a passion - it's just about finding it and going into it. Being an asset to your family and community.
+- The three things I said when I came out of school were I want to work consistently, I want to do good work and I want to be paid fairly, and that's happened. But I didn't become an actress for the money. I do it for other reasons.
+- The first time I acted was in high school in Florida, and when I heard that applause I felt so alive and felt that electricity go up my spine.
+- Sometimes you want to skate along or just get by or fly under the radar, but sometimes you have to stand up and let your voice be heard and give it your best and give it your all. As a mother of young children, that's something I've tried to emphasize and highlight for them.
+- I thought I wanted to be a pediatrician because, as a second job, my mother would clean up a pediatrician's office. So I was like, 'Oh, OK, baby doctor.' Until I got to college, and all the courses of science with the blood, guts and cadavers? I was like, 'Mm, no.'
+- I am content that the work that I've done is wonderful.
+- I want to be evil! I did play Lady Macbeth on stage to Alec Baldwin's Macbeth back in New York in 1998. But I've played a lot of characters who are so righteous and understanding. I don't want to be a goody-goody two-shoes all the time.
+- I would have to say honestly I was very pleased to be in a film whether it was good or bad with De Niro, Norton and Brando even if I don't have any scenes with them, I thought it was pretty good company to keep.
+- Film is forever.
+- God made a way out of no way.
+- This is a career about images. It's celluloid; they last for ever. I'm a black woman from America. My people were slaves in America, and even though we're free on paper and in law, I'm not going to allow you to enslave me on film, in celluloid, for all to see.

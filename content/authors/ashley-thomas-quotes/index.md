@@ -1,0 +1,32 @@
++++
+author = "Ashley Thomas"
+title = "Ashley Thomas Quotes"
+quotes_len = "26"
+description = "the best 26 Ashley Thomas Quotes"
++++
+- I want to take on more diverse roles, and I keep building, and I hope to one day write or direct something. But I just want to keep developing as a person, and that will hopefully take my acting to the next level.
+- I'm never scared, so I don't watch horror movies. Back in the day, I was. I was scared of 'It' - you know, the one with the clown. That's the thing I found scariest in my life, but since then, not really - I don't watch them.
+- I had a chance to do acting again, and, I don't know, this has always been my plan of what I wanted to do.
+- I don't think I'd want to concentrate on just acting because I love music, and things are going really well, so I think I will always continue to make music.
+- I was acting before I did music, so it is an easier transition for me in my own mindset.
+- Whatever the download thing has done to the game, you as an artist can get yourself out there to the masses, off your own back.
+- I'm in a happier place because my dreams are coming true. I'm acting in feature films, and I'm travelling the world. Before, I was just broke.
+- I think the music I make is true to my life. A lot of people can relate to it. It is real. I'm just saying it how it is - I don't sugar-coat it. If you are an ambitious person, you want to strive for more. I want to do it all.
+- Acting was always my passion, even before music, so I knew I was always heading down that path.
+- I started out doing the acting, and there was always an interest in music, and then the music just took off.
+- Working with Kano is cool, too: obviously, he's from the same scene, but we've never worked together on a track before, and where, like, better to do it than on a Gorillaz project?
+- Sexual orientation, color, background - that's what I want people to take away: Anyone can be anything.
+- I haven't let anybody take me off my path or deter me in any way. It's about seeing an opportunity and taking it.
+- I watched 'The Wire' religiously.
+- It's just the acting side of things. It's not like music, where you can go out there and be independent. It's a bit more difficult to get out there on your own and be an actor. It takes time.
+- I just said, 'I need to do something because staying up and watching YouTube and late night TV is not cool,' so I just decided to write a script.
+- I've grown up listening to Gorillaz, so for me to, like, be asked to be on the album is an honour.
+- 'Cockneys vs. Zombies' does exactly what it says on the tin.
+- I'm not a rude boy; I'm my own thing.
+- Starting my own label was more out of necessity. I'm not going to sit around and wait for labels to come screaming.
+- A lot of things in films are cheated with the use of camera tricks, so while it may feel unnatural to do, when you look at the result, you realise that it is right.
+- I have been offered roles in other things, so it's just about making sure I make my decisions wisely because I don't really want to be typecast.
+- I really like comedy because it is really fun to be in - even though you are playing it straight.
+- My dad's a worker, an electrician, a bog standard job. Nothing glamorous like a footballer, but yet he still provided me with what I needed.
+- 'Shank' is set in 2015, and it's set in a post-apocalyptic world where the main commodity is food. It's about how five young gentlemen travel around that harsh terrain and survive.
+- I loved studying the Medieval world; that's why I love 'Game of Thrones.'

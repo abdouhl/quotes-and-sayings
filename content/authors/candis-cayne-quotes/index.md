@@ -1,0 +1,23 @@
++++
+author = "Candis Cayne"
+title = "Candis Cayne Quotes"
+quotes_len = "17"
+description = "the best 17 Candis Cayne Quotes"
++++
+- I don't really talk about surgery, because I feel like no one should be judged on their journey.
+- I love New York! You walk around, nobody notices you, you don't notice anybody, you're in your own little world.
+- It's such a private thing. It's a huge decision. It's not like you wake up one day and say, 'Oh, I'm going to change my sex - won't that be fun?'
+- Like every girl, we don't talk about our surgeries.
+- I know a lot of people who transitioned and dropped out of society for two years. They don't talk to anybody. They become hermits. They try to do everything alone.
+- In the first couple of years when you're transitioning you don't really fit into any gender, because you're changing over. You have to start getting electrolysis before you even start your therapy. But I think all the weird looks help to give you conviction in who you really are.
+- Growing up, me and my brother, we were kind of exact opposites. We were completely yin and yang. He was more rough and tumble, and I just wanted to play with my girlfriends.
+- There have been actresses who transitioned and nobody knew. But for me, with everybody knowing my history, it will be harder. I'm sure there are some great scripts calling for an ultra-glamorous woman. And I'm prepared to be ultra-glamorous.
+- You can't form a character without being completely comfortable with who you are as a person.
+- I came out to my parents as gay, and then I realized, you know, four or five years later, that I wasn't really happy, no relationships were working, and there was something missing in my life, and you know, I was doing drag, performing and stuff, and I realized through that arc that I was much happier doing that.
+- I consider myself true, which, I know, some people look at as radical, but I enjoy the normalcies of life. I'm not out there trying to transform things, but somehow, by being easy to talk to, and easy to look at, and on a mainstream TV show, I think that I'm helping the public's opinions about transgendered people to change, slowly.
+- I have a smile 24/7.
+- My parents, Gary and Patricia, let me be in my world. They never told me what I couldn't do. It helped me adapt in a positive way.
+- I knew I could never be an actor as a man. It just doesn't work, you know? And so when I was doing drag, I realized I could do that kind of stuff, and then when I was transitioning, I kind of gave up on the whole thing because I didn't think that this time would ever come, you know?
+- When I admitted I needed to grow old as a woman, it was a relief.
+- When I told my parents that I was starting my transition, my Dad said, 'Well that makes so much more sense 'cause I never saw you any other way and now it totally works.'
+- My first conscious thought of 'I should be like that and not like this' was probably at about six, and I was playing with... I have a twin brother, and we were playing with our twin cousins, who are a boy and a girl.

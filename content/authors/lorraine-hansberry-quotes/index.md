@@ -1,0 +1,31 @@
++++
+author = "Lorraine Hansberry"
+title = "Lorraine Hansberry Quotes"
+quotes_len = "25"
+description = "the best 25 Lorraine Hansberry Quotes"
++++
+- If, by some miracle, women should not ever utter a single protest against their condition, there would still exist among men those who could not endure in peace until her liberation had been achieved.
+- I wish to live because life has within it that which is good, that which is beautiful, and that which is love. Therefore, since I have known all of these things, I have found them to be reason enough - and I wish to live. Moreover, because this is so, I wish others to live for generations and generations and generations and generations.
+- I am a writer. I suppose I think that the highest gift that man has is art, and I am audacious enough to think of myself as an artist - that there is both joy and beauty and illumination and communion between people to be achieved through the dissection of personality.
+- Men continue to misinterpret the second-rate status of women as implying a privileged status for themselves; heterosexuals think the same way about homosexuals; gentiles about Jews; whites about blacks; haves about have-nots.
+- There is always something left to love. And if you ain't learned that, you ain't learned nothing.
+- Children see things very well sometimes - and idealists even better.
+- Seems like God don't see fit to give the black man nothing but dreams - but He did give us children to make them dreams seem worthwhile.
+- I have long since passed that period when I felt personal discomfort at the sight of an ill-dressed or illiterate Negro. Social awareness has taught me where to lay the blame.
+- Once I'm on the phone, I just can't say no. I sometimes find myself doing things for three or four organizations in one day.
+- The why of why we are here is an intrigue for adolescents; the how is what must command the living.
+- The problem in the world is the oppression of man by man; it this which threatens existence.
+- The thing that makes you exceptional, if you are at all, is inevitably that which must also make you lonely.
+- You don't have to go to the kings and queens of the earth - I think the Greeks and Elizabethans did this because it was a logical concept - but every human being is in enormous conflict about something, even if it's how to get to work in the morning and all of that.
+- The whole realm of morality and ethics is something that has escaped the attention of women, by and large. And it needs the attention of intellectual women most desperately.
+- Never be afraid to sit a while and think.
+- Daddy felt that this country was hopeless in its treatment of Negroes. So he became a refugee from America. He bought a house in Polanco, a suburb of Mexico City, and we were planning to move there when he died. I was fourteen at the time.
+- I think it is about time that equipped women began to take on some of the ethical questions which a male-dominated culture has produced and dissect and analyze them quite to pieces in a serious fashion. It is time that 'half the human race' had something to say about the nature of its existence.
+- I feel that women - without wishing to foster any strict separatist notions, homo or hetero - indeed have a need for their own publications and organizations. Our problems, our experiences as women are profoundly unique as compared to the other half of the human race.
+- As of today, if I am asked abroad if I am a free citizen of the United States of America, I must only say what is true: No.
+- Mine is, after all, the generation that had come to maturity drinking in the forebodings of the Silones, Koestlers, and Richard Wrights. It had left us ill-prepared for decisions that had to be made in our own time about Algeria, Birmingham, or the Bay of Pigs.
+- A woman who is willing to be herself and pursue her own potential runs not so much the risk of loneliness, as the challenge of exposure to more interesting men - and people in general.
+- I care. I care about it all. It takes too much energy not to care.
+- I don't want to have anyone else to do my housework. I've always done it myself. I believe you should do it yourself. I feel very strongly about that.
+- Take away the violence and who will hear the men of peace?
+- I live in the Village, and the way it's been, people sort of drop in on me and my husband. My husband is Robert Nemiroff, and he, too, is a writer.

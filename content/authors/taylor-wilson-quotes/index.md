@@ -1,0 +1,22 @@
++++
+author = "Taylor Wilson"
+title = "Taylor Wilson Quotes"
+quotes_len = "16"
+description = "the best 16 Taylor Wilson Quotes"
++++
+- I was about 10 when I got into nuclear science. That was when that spark hit me. It took a few years of research, but when I was 14, I produced my first nuclear-fusion reaction.
+- If you look at the scientists who really make a difference, they think boldly. They're not afraid to question what they see.
+- I don't mean to offend anybody, but I think that we get a lot of scientists now who are bent into a system, and we lose some of their boldness by that. Obviously, you have to learn the ropes, but I think it's important to do that without hammering out the radicalness that makes innovation happen.
+- I started out with a dream to make a star in a jar in my garage, and I ended up meeting the President of the United States!
+- Everybody after Fukushima had to reassess the safety of nuclear. When I set out to design a reactor, I knew it had to be passive and intrinsically safe.
+- I think there's something really poetic about using nuclear power to propel us to the stars, because the stars are giant fusion reactors. They're giant nuclear cauldrons in the sky.
+- My holy grail is fusion energy. Nuclear fusion has little to no radioactive waste. It's clean. It's very abundant. The fuels are everywhere. There are problems with fusion.
+- There's nothing that's impossible to me. You can ask my parents.
+- When I hold something that's radioactive, it's kind of an indescribable feeling. It's kind of like when I'm with my girlfriend.
+- These days, the scientific community accepts me. But getting to that point was tremendously hard, and I think it required a big perception shift. When people have dedicated their lives to something - and spent eight years in college - they just expect that a kid wouldn't be up to doing it.
+- I've been focused on detecting nuclear terrorism at ports, in cargo containers, and I developed and built detectors that are extremely cheap and also very sensitive. My other big development is a system to produce medical isotopes that are injected into patients and used to diagnose and treat cancer.
+- When I was 10 years old, that nuclear spark hit me. Whatever it may be, I really don't know what it was about nuclear science, but whatever it was that triggered that interest, it stuck. I went after that one with a passion.
+- I really have become convinced that nuclear fusion is our energy future. It's so powerful. I mean, it is the power of the stars. If we could bring that down to the laboratory and to the power plant on Earth, that would be an incredible thing.
+- As a kid, I was obsessed with space. Well, I was obsessed with nuclear science too, to a point, but before that, I was obsessed with space, and I was really excited about, you know, being an astronaut and designing rockets, which was something that was always exciting to me.
+- I developed a counterterrorism device that's revolutionizing the way we detect nuclear materials.
+- I have too many ideas for a lifetime.

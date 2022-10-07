@@ -1,0 +1,35 @@
++++
+author = "Ibrahim Babangida"
+title = "Ibrahim Babangida Quotes"
+quotes_len = "29"
+description = "the best 29 Ibrahim Babangida Quotes"
++++
+- The challenge as we saw in the Nigerian project was to restructure the economy decisively in the direction of a modern free market as an appropriate environment for cultivation of freedom and democracy and the natural emergence of a new social order.
+- The reason is that till date, in spite of advances in information technology and strategies of information, the written word in the form of books still remains one of humanity's most enduring legacies.
+- The average Nigerian person has come to reconcile himself with the fact that his or her social progress remain essentially in his or her hands in collaboration with other fellow Nigerians and not merely relying on what government alone could provide for him or her.
+- There are no doubts that, the situation in the country today, indicates that there is much more work to do in the process of reforming the political economy and improving the quality of life of our people and communities.
+- We have established a new basis in our country in which economic liberalization would continue to flourish alongside democratic forces and deregulated power structure.
+- At the same, we need to remain sensitive to the reality that we are still an African society in which the majority of the people and communities live under severe deprivations and afflictions that are no fault of theirs.
+- The work of Nigeria is not complete for as long as there is any one Nigerian who goes to bed on empty stomach.
+- But no nation can base its survival and development on luck and prayers alone while its leadership fritters away every available opportunity for success and concrete achievement.
+- Even now, we make no apologies for the choice we made. The sacrifices we made were selfless. The options we offered were patriotic while the paths we chose were well thought out.
+- There is also work to do in the evolution of a stable family life and values, and in ensuring that the Nigerian family is built on core values that will form the bedrock of the future society. We must showcase the ideals of family life and be models of family values.
+- I am not sure that you, the younger generations, will like to go to war that we went through. So, we learn as the mistakes are being committed.
+- Democracy opens new vistas and opportunities. We should use the opportunities it offers to correct past mistakes not to blunder anew.
+- A society that does not correctly interpret and appreciate its past cannot understand its present fortunes and adversities and can be caught unawares in a fast changing world.
+- It is of course the nature of historical contraction that the shortest distance to a historical destination is never a straight line.
+- Most importantly, nothing has happened to change my conviction that freedom and the love of liberty remain the essential defining attributes of our national character as a people.
+- The return of democracy in our land has indeed thrown the problems of development into bolder relief.
+- The history of our country is not the history of any other country in the world which is either practicing advanced democracy or struggling to lay the foundation for democracy.
+- Each one of us, and, indeed, all those who aspire to national leadership must bring their own visions, views and styles to the business of reforming Nigeria, and the search for solutions.
+- Our approach to economic development must be modern, focused and in tune with the global trend.
+- For as long as our people are held hostage by controllable socio-economic forces, we cannot afford to be indifferent to the ravages of poverty in all its dimensions and ramifications.
+- Our choice of a reform framework dictated that we looked at the fundamental assumptions that had driven Nigeria's economy, society and policy hitherto and to seek ways of either abandoning or transcending those assumptions and their supporting institutions.
+- Left to me, the whole purpose of government is for the security of the citizens, like the security of lives and property.
+- I believe that historians and analysts of historical events need the authority of facts supplied by living witnesses to the events, which they make their subject.
+- With each new book, the march of our national history takes a step forward. When one is present at a book launch, one is bearing witness to the birth of a new body of ideas, to the coming into being of another testimony of history.
+- If you ask me to summarise our mission, I would put it this way: We were a military regime that sought to lay the foundations for freedom and liberty in a complex society.
+- Debate and divergence of views can only enrich our history and culture.
+- It is only through books that we partake of the great harvest that is human civilization across the ages.
+- Informed by our sad experience of history, we require nothing short of a foundation for lasting democracy.
+- To meet the expectations of the majority of our people, and to open up new vistas of economic opportunity so that the aspirations of Nigerians can stand a fair chance of being fulfilled in a lifetime, there must be a truly committed leadership in a democratic Nigeria.

@@ -1,0 +1,16 @@
++++
+author = "Lucy Stone"
+title = "Lucy Stone Quotes"
+quotes_len = "10"
+description = "the best 10 Lucy Stone Quotes"
++++
+- Leave women to find their sphere.
+- I expect to plead not for the slave only, but for suffering humanity everywhere. Especially do I mean to labor for the elevation of my sex.
+- But I do believe that a woman's truest place is in a home, with a husband and with children, and with large freedom, pecuniary freedom, personal freedom, and the right to vote.
+- I know not what you believe of God, but I believe He gave yearnings and longings to be filled, and that He did not mean all our time should be devoted to feeding and clothing the body.
+- Henceforth the leaves of the tree of knowledge were for women, and for the healing of the nations.
+- A wife should no more take her husband's name than he should hers. My name is my identity and must not be lost.
+- The idea of equal rights was in the air.
+- To make the public sentiment, on the side of all that is just and true and noble, is the highest use of life.
+- I think, with never-ending gratitude, that the young women of today do not and can never know at what price their right to free speech and to speak at all in public has been earned.
+- Now all we need is to continue to speak the truth fearlessly, and we shall add to our number those who will turn the scale to the side of equal and full justice in all things.

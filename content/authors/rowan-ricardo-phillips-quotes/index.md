@@ -1,0 +1,18 @@
++++
+author = "Rowan Ricardo Phillips"
+title = "Rowan Ricardo Phillips Quotes"
+quotes_len = "12"
+description = "the best 12 Rowan Ricardo Phillips Quotes"
++++
+- You will be hard pressed to read another book that understands you as well as 'Leaves of Grass' does. It was made for you in the way that the constellations were made for you. It understands and makes space for your doubts, your love, the guilt and passions of your life and waits for you.
+- In 1979, Magic Johnson and Larry Bird entered the league. I remember that. Soon after this, the story began to be repeated ad nauseam: the NBA, a tottering mess in the seventies, was saved in the eighties by these two.
+- Portland doesn't read like a basketball town, unless you remember what the NBA was like before it exploded into the mainstream in the Eighties: back when cities like Seattle, Baltimore, and Philadelphia moved the needle.
+- In 2013, the 76ers hired Sam Hinkie as general manager and president of basketball operations.
+- When we celebrate American independence, we are celebrating the best sense of an idea, a process in process.
+- When Nina Simone first sings the title of 'Feeling Good,' her voice has been alone for thirty-nine seconds. The solitary singer: there's always something fiat lux about it. Resolute, the individual moves through the void. You know the accompaniment is coming, but the voice, all by itself, makes you care about it: form turns into feeling.
+- A strange potion runs through the basketball blood of Portland. It's stayed hot from the days of games at the Memorial Coliseum, where the Blazers played from their inception in 1970 until 1995.
+- The NBA playoffs have the highest ceiling in all of sports.
+- The midpoint of the NBA season comes a little after the turn of the calendar year. As we settle into the new promises we've made to ourselves, basketball teams are busy evaluating how the promises they made to themselves over the summer are going.
+- If you played basketball growing up, you learn the importance of follow-through when you shoot: forming the gooseneck, waving good-bye to the ball, reaching into the far off hoop like it's a cookie jar - think Michael Jordan's last shot as a Bull.
+- Make no mistake - LeBron James was carrying the Cavs, but Dellavedova was the cinematic element: hustle personified.
+- When someone says, 'I trusted you,' the phrase is loaded with all the actions that came from that trust: the person comes almost to embody trust, just as anyone who's always hustling can only be called a hustler.

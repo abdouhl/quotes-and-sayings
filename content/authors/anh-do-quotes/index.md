@@ -1,0 +1,58 @@
++++
+author = "Anh Do"
+title = "Anh Do Quotes"
+quotes_len = "52"
+description = "the best 52 Anh Do Quotes"
++++
+- My father fought alongside Aussie and U.S. soldiers in the Vietnam War.
+- When I paint at home with friends, I have a chat and it's just a good time.
+- When I found out I'd won Book of the Year, the first person I called was my mum, who was so happy she cried on the phone. I did a bit too to be honest.
+- I'm interested in everything about people. Not just, 'what do you do for a living?' but I want to know about their fears and sadnesses and listen to their regrets, both sides of it, the happy and the sad.
+- Painting is a lonely, mostly solitary act.
+- I cranked out a book. I didn't expect it to do much, but it's sold 80,000 copies.
+- When I was a kid in year one and year two, I had troubles with reading and writing, and my mum took me to St. Vinnies and we bought this big box of second-hand books, and she worked with me to turn that weakness around, you know.
+- A bloke like Kyle Sandilands, he's never boring.
+- When I was in primary school I was in a special needs group, which is the polite way of saying the dopey kids.
+- My mum knows people in the village who died or were affected by Agent Orange who had kids who are disabled. I could have been an orphan. So many things could have gone wrong but here I am... I realise how lucky I am to be here.
+- I'm not a megaphone sort of guy. I just let my art talk for itself.
+- I reckon I'm actually one of the least funny in my family.
+- My father, he left the family when I was 13, so mum looked after us.
+- My family sits around and tells all these amazing stories of pirates and the wa. Then one day I'm having a beer after shooting an episode of 'Thank God You're Here,' and started telling Dave Hughes some stories, and he said, 'You've gotta turn this into a book.'
+- Painting was always something I thought I'd do once I retired. But then, about five or six years ago, a good mate passed away suddenly at the age of 50 and it made me realise that if I put off doing stuff until I retire, I might not ever get there.
+- Stand-up comedy is a really lonely profession: you 'perform for 2000 people, then you go to a hotel room by yourself and stare at a wall.
+- One of my uncles was actually a sapper who cleared land mines for Anzacs, Australian soldiers, and we had to flee Vietnam. There were 40 of us on a 9-meter fishing boat. We were at sea for five days, a very perilous journey. We were attacked by pirates twice.
+- I'm an asthmatic so if you want to ask someone about asthma, ask a doctor. I'm asthmatic but I'm not an expert on it.
+- My favourite emails are along the lines of, 'My 14-year-old doesn't read much, but I gave him your book and he finished it in two days.' This has been the most rewarding experience.
+- I just used to make up stories for the kids at bedtime and my wife goes, 'you should start putting that stuff down.' It's such a joy to do.
+- Someone once told me... 'Anh believe in your dreams!' I always have and always will, and I think that if you follow your dreams in life, you really can live an amazing life.
+- A lot of being a comedian is about observing people.
+- At Easter the family got together and we were giving one of my uncles a hard time about watching scary films because on the boat leaving Vietnam, when we were attacked by pirates, he wet his pants.
+- I love the company of my family and I like being on stage performing because I'm interested in people.
+- Now that I have four kids, I realise you love your kids forever, no matter what.
+- Yeah, my mum's awesome. I love my mum so much.
+- My mum raised three kids on her own on sweatshop wages of about six bucks an hour so there was a lot of late rent and landlords knocking on the door.
+- This mum comes up, she's got a five-year-old kid and she says, 'Can he have your autograph, you are his favourite person in the whole world.' I thought, 'How cool is that? I've got five-year-old fans,' and as I'm signing this autograph, the mum goes, 'Yeah, yeah, you're by far the best Wiggle.'
+- I've always been a serious person.
+- My family had to leave Vietnam because my uncles fought alongside the Aussies.
+- I used to have to borrow textbooks from my mate in another class. When he was away I'd have no textbooks and the teacher would say, 'Anh, you have to go to detention.' I didn't want to tell her my mum didn't have the money.
+- A good painting is a lot like a good joke: you need to know when to stop, too many 'punchlines and you will have gone too far.
+- Many people told me not to call the book '... Refugee' because Aussies won't buy it. I told them I have faith in Aussies, and it makes me a proud Aussie to see that the title hasn't hurt the book.
+- I've been to Villawood Detention Centre in Sydney and it's all barbed wire, it's like a big jail.
+- I am naturally a very curious person.
+- I was a Vietnamese kid with a mullet hair cut. I had all Westie mates, and, geez, a Vietnamese guy with a mullet doesn't work; no wonder I couldn't get a girlfriend for so many years.
+- I'm quite a private person.
+- I was one of the quietest guys in school.
+- That's what sort of fascinates me - what's funny as well as what's sad.
+- I love being on stage and connecting with 2000 people, but you don't really see me that often at the Logies and all that red carpet stuff. I'd rather just have dinner with my wife and kids.
+- You go to Florence and all the paintings you've seen in books are there. To see them in real life, it just blows your mind.
+- I'm not a fan of small talk but if you want to get into the big questions of life - your deepest regret, your greatest joy - then we're going to have a great chat.
+- One of the greatest joys of being an artist is that you start to see beauty where you didn't before, and once you start to see the world like that it stays with you.
+- I love entertaining and I love storytelling.
+- I thought my father had forgotten about me. But I realised that he missed me as much as I missed him.
+- You know, my mum's never seen me do stand-up. Ever. She's just too lazy to come.
+- I find myself chatting with my paintings, not deep and meaningful stuff, but things like 'hey there buddy' and 'oh, look what I did to your nose!'
+- I have never feared failure.
+- I've learnt that the muse is like an angry girlfriend. If she comes knocking you better be home because if you're not, she doesn't leave a note saying pick up after 3 P. M. from the post office. The gift she had is gone forever.
+- If I inherited a billion dollars and didn't have to work ever again, what would I do to fill my day? I'd paint, I'd write jokes and stories, and I'd hang out and chat to very interesting people.
+- On the world stage, Australians are very good short filmmakers.
+- I started mixing my real life stories into my stand-up, and on stage it's much more powerful.

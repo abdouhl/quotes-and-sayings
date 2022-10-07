@@ -1,0 +1,18 @@
++++
+author = "Anton Seidl"
+title = "Anton Seidl Quotes"
+quotes_len = "12"
+description = "the best 12 Anton Seidl Quotes"
++++
+- It is simple nonsense to speak of the fixed tempo of any particular vocal phrase. Each voice has its peculiarities.
+- I have often heard the statement made by foreign singers, as a demonstrated fact, that the German artists are artists in feeling indeed, and serious in their devotion, but that their singing is crude.
+- The composers could no longer direct all performances in person, and so the responsibility of interpreting their works in the spirit in which they had been conceived was placed upon conductors.
+- Composers are not all good conductors.
+- Conducting! A subject, truly, concerning which much might be written, yet scarcely anything of real importance is to be found in books.
+- America does not need gorgeous halls and concert rooms for its musical development, but music schools with competent teachers, and many, very many, free scholarships for talented young disciples who are unable to pay the expense of study.
+- I learned, too, how it was possible with the help of the picture and action to transform an apparently insignificant violin passage into an incident, and to lift a simple horn call into a thing of stupendous significance by means of scenic emphasis.
+- Musical practice is too young an art in America to warrant a search for men with a conductor's gift.
+- The ability to conduct is a gift of God with which few have been endowed in full measure.
+- It always makes me sad when I think of how I saw Wagner wasting his vitality, not only by singing their parts to some of his artists, but acting out the smallest details, and of how few they were who were responsive to his wishes.
+- The conductor's gift does not always go hand in hand with that of composition; indeed, the union is found much more seldom than is popularly believed.
+- Of course, experience strengthens one later.

@@ -1,0 +1,106 @@
++++
+author = "Cub Swanson"
+title = "Cub Swanson Quotes"
+quotes_len = "100"
+description = "the best 100 Cub Swanson Quotes"
++++
+- I've always believed that fighters owe the fans a show. I'm a fighter and my job is to beat the man in front of me, but, I want to do it in a way that is memorable to people.
+- In my whole career, I've never fought for a belt, so that's something that I would like to do, or at least have the opportunity to do.
+- Golf didn't seem like it was for everybody. I didn't grow up with a whole lot of money, and my perception was that golf was for a snootier crowd.
+- For a little while I kind of shunned away from the media and just concentrated on my skill sets and performing and I got that down.
+- I think my speed and awkwardness is hard to deal with for any fighter.
+- The younger generation of fighters, they want to try to make a name for themselves. They want to be something that they're not.
+- I realize that I put my body through a lot, but I've always thought at the same time if I was a plumber or any kind of worker in that industry, which a lot of people that I grew up with are, I would imagine that their bodies feel the same, their backs are wrecked.
+- When I knock people out, they're not getting up.
+- When I was super young, and everybody who has been in fan of mine from the WEC days, I was just tough as nails, fearless and that's what made me tick. I'm not those things anymore. I'm fearless, but I plan ahead. I'm strategic. I'm smarter, and I'm just a different person than I was.
+- I'm just not going to let anybody build their name off of me.
+- My goal in this sport is to be the best version of myself that I can be.
+- If I never fought for the belt, it wouldn't bother me. That whole song and dance gets tiring, and it's a lot of playing favorites. I've just had it dangled in front of me so many times, I'm just like, whatever, man.
+- I've got so much respect for the Gracie family and all they did for the sport.
+- I've trained side-by-side with all these boxers and they make more money than me.
+- Golf doesn't look like it's going to be that hard, but then you start to do it and you realize, 'Wow, this isn't that simple.' Me being an athlete and knowing my body, it was frustrating at first and I was having a hard time with it. But I had a coach and I was able to pick up on the little things that were required.
+- I want to test myself.
+- I'm not one of the guys who talks a lot, I don't enjoy that, I've always believed in just going out there and putting on the best show possible.
+- There are young guys coming up, trying to make their name off me, and I'm a stubborn dude. I don't want to let that happen. That's very motivating.
+- I think that one thing that I've prided myself on is that tough situations make for tougher people and that was one of my goals as well getting into this sport, I wanted to be a tougher human. I wanted to be a tougher man and basically when I had kids I'd be able to be like a superhero to them, and I feel like I'm accomplishing that.
+- All these tough times that I've had in my career, I've just been able to prove that I can persevere and to me that means everything.
+- Being the more experienced fighter absolutely gives you added confidence.
+- Any time I've been knocked down, I've come back even better. I think everyone knows that about me.
+- All the guys I looked up to as a kid now look up to me.
+- I always thought I would make it as a professional athlete but I thought it would be playing soccer.
+- This sport definitely saved my life. I was messing up and headed in the wrong direction. I was never a bad kid or anything like that. I just, you know, like many people, just kind of wanted to rebel and to do something different.
+- I'm a fan of many fighters but as soon as they start looking at me, the fighter in me comes out and I'm like, 'You better watch your damn mouth.'
+- Tough times not only make you stronger, but you grow from those experiences. The same is true with fighting. You have to lean into it.
+- When someone throws a power shot and you want to counter, you have to lean into it as you block it so that you can come right out with what you are throwing. If you roll away or lean back, it's going to knock you off balance, and you won't be able to counter the punch. Being able to do that comes from experience, and life is the same exact way.
+- I'm not going to shy away from a brawl.
+- In my mind, I'm always one win away from a title.
+- The ability to lean into adversity is something I've always had.
+- I like steering kids toward golf. If they really have it in their blood to fight, then fine, but it's a hell of a job. Golf is a safer bet.
+- I feel like when the public, when the fans are ready to see me fight for the title, whoever they want to see me fight, then that's what I need to do cause that's my job.
+- The thing is, I've had many tough fights in my career, all for different reasons. So I think all those together is what makes me the fighter I am now. The biggest fight I've ever had is against myself - whether to give up or not.
+- I thought about dropping down to 135, started dieting down, but I didn't feel very good and started to get weak. I decided to give weightlifting and strength training another shot. The first few times I tried lifting weights I didn't like the way I felt, and we finally developed a way of working out where I wouldn't lose my speed.
+- If I fight that fight that makes everybody go, 'Wow, he's unstoppable,' - that's all I can do.
+- Footwork isn't something you hear people talk about too much but it's something as fighters we have to be able to utilize.
+- I think fighters for a long time, were afraid to pull out of fights for many reasons. Like sitting on the shelf for a long time due to not having as many fight cards back then. Feeling like a wuss, disappointing the boss and fans, or just needing the money.
+- We all know what it's like to have the ups and downs in this sport.
+- I'm not blowing money. I'm not that guy.
+- I can fight a lot of different ways. I'm pretty crafty.
+- I was born and raised in Palm Springs.
+- When I think less and just go out there and perform, I do my best work.
+- I'm able to perform to my best on a given night, and that's all I can ask of myself.
+- I think I do pose the biggest threat to Aldo. I feel like my boxing is better than his. He's a kick boxer, with devastating kicks. Neither one of us cares to take it to the ground. I feel with my unpredictability and my boxing, I pose a big threat to him.
+- When you're trying to add something to your game, you always lose something else, and that something else is something so important.
+- It is very important I live up to my own expectations as far as popularity and knowing that I left my mark on the sport.
+- I have so many plans inside and outside the Octagon.
+- When you're on a win streak, your confidence is high, and it means everything in your camp has been working and it means you're on the right track.
+- I let my fighting do the talking, I don't have to put on great show and dance to make it bigger than it is.
+- That's what I want. I want the big fights, not only to get the title shot but to secure my future and whatever I pursue after fighting.
+- As a fighter, your hands are always hurting.
+- I don't do a whole lot of interviews usually. I just like training hard, fighting, and getting back to my normal life.
+- I'm not afraid of anybody.
+- I feel like my work speaks for itself.
+- I think money isn't everything.
+- I would never say yes to a fight that would take me out of the title picture if I'm in it. If I did it, I'd want to be compensated. That's the important thing. If you ask me to do something like that, I need to be compensated correctly.
+- I'm fast and I move well so I know how to come in at weird angles and keep my feet under me. I'm looking for that power shot and I might not be able to fire off anything after it if my feet aren't under me. Footwork is a huge part of my game.
+- When you treat your career early on really crappy, you can't expect to be in a good position. That's just the way pro fighting is.
+- I think the criticism Coach Greg Jackson gets is ridiculous and it makes me angry.
+- I'm not going to beg anyone else and say 'please please Dana give me the title shot.' Because its like, I'm showing up, I'm fighting in great fashion. I believe the fans like my style. That should be all.
+- For me, it's always been about being the absolutely best you could possibly be.
+- You almost need somebody to say, look, another day, in boxing that happens all the time. The coaches will say I'll give you one more round, if it looks the same I'm not going to allow you to keep going out and taking damage.
+- I like to stand and bang.
+- I don't want a broken jaw again.
+- I want people to know that anyone, from anywhere, can make it as far as they want, as long if they are willing to do what it takes.
+- I decided to pursue MMA after training Brazilian jiu-jitsu for about a year and seeing my first fight. I told myself, that looks scary but I think I could do that.
+- Going five rounds is never fun.
+- Whatever big fights I can get, I'm up for the challenge.
+- I definitely think that a lot of these fighters should be taken care of long-term. But I feel like we're in that kind of situation where it's, like, the early NFL players. We're the ones that kind of set the standard, and then the next generation are probably going to get all the benefits from us growing the sport.
+- I feel like I'm the fastest puncher in the featherweight division.
+- If you want to be the best, sometimes you get the raw end of the deal. It's life.
+- I'm not the kind of guy who plays it safe. I fight for the crowd. That's what makes me happy.
+- After I lost to Chad Mendes, that was a point in my life when everything had changed, I really didn't know why I was fighting anymore, for a brief amount of time.
+- I know I'm not trying to fight past 40 so I'd like to get in as many as I can and keep the train moving.
+- I'm just not into the whole begging for a title fight, managers try to get a whole campaign going... If you want to give me the title shot, then just give it to me, I'll show up and I'll perform, but for me, my fighting speaks for itself.
+- For a long time, I've been an overthinker. The problem with that is when you're in perfect shape for a fight and you've got everything worked out and you've got all the moves you think you're going to need and everything's fine but in your own mind you're going to make up things and you just add pressure.
+- You have to evolve in this sport.
+- I've always trained hard and I've never slacked.
+- My stubbornness of wanting this fighting career has saved me.
+- I believe the UFC knows I'm capable of fighting the top guys and that I'm willing to take them all on.
+- Just give me the big fights and pay me to show up and let me do my thing, and I'll go home and hang out with my family and do my thing.
+- People have been doubting me throughout my entire career, and I love to prove them wrong.
+- I walk around about 175-180 pounds, and get up to about 185.
+- I'm not the biggest media guy, I just like to fight.
+- I understand I'm an entertainer and a fighter as well.
+- My goal from Day One has always been to be proud of myself when I retire, whenever that may be and whatever I may have accomplished to that point.
+- I love fighting for the UFC, it's been awesome for me.
+- Golf is about power and balance, and it's the same in fighting. If you have confidence in your physicality, you're going to be mentally strong.
+- My passion is with the UFC.
+- You should be who you are and not be somebody you're not.
+- I feel terrible for what I put my mom through, thinking I was a man and all the stupid decisions I used to make.
+- I think many fighters could go pro in another sport. When it really boils down to it, it's because we are the best athletes in the world.
+- I'm going to get paid the most if I fight for a title or hold a title. That's when all of the big opportunities come.
+- You look at my fight with Holloway, I don't even tell my corner I broke my hand and I broke my jaw and I fought three rounds. That's just what I do, in my mind I'm thinking I can still win this, I can still win this. That's your thing is to never give up.
+- When my family urged me to retire, it made me re-evaluate everything for the first time.
+- Digging down and finding out where your head is at when a fight is about to come, I used to get to a dark place and that's not really a place I want to go anymore. I got kids, I enjoy my life and I'm having a good time. I don't feel like I need to go there anymore.
+- Every fight I'm excited to get out there and do better. I put a lot of pressure on myself to go out there and be better.
+- I'm not a big fan of the WWE coming over into our sport and everyone making a show of themselves. It's not that, it doesn't bother me, its good for some guys, but that's just me, its not my personality, I told myself a long time ago I'm not gonna sell myself out, I'm not gonna sell my soul to be something I'm not.
+- I don't beg.

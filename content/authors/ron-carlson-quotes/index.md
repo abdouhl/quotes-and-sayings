@@ -1,0 +1,24 @@
++++
+author = "Ron Carlson"
+title = "Ron Carlson Quotes"
+quotes_len = "18"
+description = "the best 18 Ron Carlson Quotes"
++++
+- I'm a Midwesterner.
+- Life is an aggregate of experience, which continually surprises us.
+- I don't write for theme, but if you work closely on some guy fixing a sandwich or a window or a table or trying to visit an old teacher or walking down the street on which he was a boy, a theme, a human hope, will emerge.
+- I was a good college kid, all-American and baseball-playing, living in the dorms with a million barbarians. I did not expect to be claimed by Fitzgerald hook, line, and sinker. 'This Side of Paradise' - that sweet, sophomoric pastiche of notes, scenes, poetry, and plays - I felt like he'd written the book just for me.
+- My first novel was called 'Betrayed by F. Scott Fitzgerald,' about the difficulties of graduating from college, the longing and mourning you feel when all your promise seems to float away.
+- My parents were farmers' kids from South Dakota. My dad was an engineer. I wanted to be responsible and major in something pragmatic.
+- The literary story is a story that deals with the complicated human heart with an honest tolerance for the ambiguity in which we live. No good guys, no bad guys, just guys: that is, people bearing up in the crucible of their days and certainly not always - if ever - capable of articulating their condition.
+- I was writing a third novel when my kids arrived. And I looked at that book about whether these two people would get together, and I thought, 'I don't care! I've got kids!'
+- If we're really writing, we are exploring the unnamed emotional facets of the human heart. Not all emotions, not all states of mind have been named. Nor are all the names we have been given always accurate.
+- Place colors everything; It is the thing by which I find my way in my fiction.
+- I have these habits. I'm not a crazy artist. Or am I?
+- No one among us suffers the radical appreciation for coffee that I do. It calls to me, but I have learned not to listen.
+- Writing a book is very personal. It's a very personal relationship. A book will start with something as simple as two men talking about work. That gets the fire going. Sustaining that fire is the hard work. It takes attention and empathy to hone the characters.
+- Our pasts so many times determine the value of what is happening today. Everybody is midway in their story.
+- I love whimsy. My mother was a word person, a real quipster. She was famous in the 1950s for being a contester in Utah: 25 words or less. My bicycle, our hi-fi... in 1959, she won $15,000 from Remington-Rand for writing about a shaver. She was a farm girl from South Dakota.
+- I don't live in books, but, boy, have books amplified my life.
+- I believe in teaching as a real job. I don't think it's a substitute for anything else. It's been shown to me that teachers can help, and the writing today is just as good as it was when I started out. Technology hasn't changed that.
+- I'm not at all sure dialogue is meant to advance the story; I know that sometimes it is the story.

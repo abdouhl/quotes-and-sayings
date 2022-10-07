@@ -1,0 +1,83 @@
++++
+author = "C. S. Lewis"
+title = "C. S. Lewis Quotes"
+quotes_len = "77"
+description = "the best 77 C. S. Lewis Quotes"
++++
+- Christianity, if false, is of no importance, and if true, of infinite importance. The only thing it cannot be is moderately important.
+- Miracles do not, in fact, break the laws of nature.
+- Affection is responsible for nine-tenths of whatever solid and durable happiness there is in our lives.
+- If we cut up beasts simply because they cannot prevent us and because we are backing our own side in the struggle for existence, it is only logical to cut up imbeciles, criminals, enemies, or capitalists for the same reasons.
+- The future is something which everyone reaches at the rate of 60 minutes an hour, whatever he does, whoever he is.
+- We are what we believe we are.
+- Nothing that you have not given away will ever be really yours.
+- Failures, repeated failures, are finger posts on the road to achievement. One fails forward toward success.
+- Everyone has noticed how hard it is to turn our thoughts to God when everything is going well with us... While what we call 'our own life' remains agreeable, we will not surrender it to Him. What, then, can God do in our interests but make 'our own life' less agreeable to us, and take away the plausible sources of false happiness?
+- There is no uncreated being except God. God has no opposite.
+- Aim at heaven and you will get earth thrown in. Aim at earth and you get neither.
+- God cannot give us a happiness and peace apart from Himself, because it is not there. There is no such thing.
+- Courage is not simply one of the virtues, but the form of every virtue at the testing point.
+- Joy is the serious business of Heaven.
+- Literature adds to reality, it does not simply describe it. It enriches the necessary competencies that daily life requires and provides; and in this respect, it irrigates the deserts that our lives have already become.
+- There are two kinds of people: those who say to God, 'Thy will be done,' and those to whom God says, 'All right, then, have it your way.'
+- If you read history you will find that the Christians who did most for the present world were precisely those who thought most of the next. It is since Christians have largely ceased to think of the other world that they have become so ineffective in this.
+- I believe in Christianity as I believe that the sun has risen: not only because I see it, but because by it I see everything else.
+- Part of every misery is, so to speak, the misery's shadow or reflection: the fact that you don't merely suffer but have to keep on thinking about the fact that you suffer. I not only live each endless day in grief, but live each day thinking about living each day in grief.
+- Nothing is more dangerous to one's own faith than the work of an apologist. No doctrine of that faith seems to me so spectral, so unreal as one that I have just successfully defended in a public debate.
+- A man can no more diminish God's glory by refusing to worship Him than a lunatic can put out the sun by scribbling the word, 'darkness' on the walls of his cell.
+- I gave in, and admitted that God was God.
+- Thirty was so strange for me. I've really had to come to terms with the fact that I am now a walking and talking adult.
+- Solemnity is proper in church, but things that are proper in church are not necessarily proper outside, and vice versa. For example, I can say a prayer while washing my teeth, but that does not mean I should wash my teeth in church.
+- An explanation of cause is not a justification by reason.
+- The long, dull, monotonous years of middle-aged prosperity or middle-aged adversity are excellent campaigning weather for the devil.
+- Let's pray that the human race never escapes from Earth to spread its iniquity elsewhere.
+- Has this world been so kind to you that you should leave with regret? There are better things ahead than any we leave behind.
+- Long before history began we men have got together apart from the women and done things. We had time.
+- A man who is eating or lying with his wife or preparing to go to sleep in humility, thankfulness and temperance, is, by Christian standards, in an infinitely higher state than one who is listening to Bach or reading Plato in a state of pride.
+- If you look for truth, you may find comfort in the end; if you look for comfort you will not get either comfort or truth only soft soap and wishful thinking to begin, and in the end, despair.
+- We are not living in a world where all roads are radii of a circle and where all, if followed long enough, will therefore draw gradually nearer and finally meet at the centre: rather in a world where every road, after a few miles, forks into two, and each of those into two again, and at each fork, you must make a decision.
+- We all want progress, but if you're on the wrong road, progress means doing an about-turn and walking back to the right road; in that case, the man who turns back soonest is the most progressive.
+- When Christ died, He died for you individually just as much as if you'd been the only man in the world.
+- Anthropomorphic animals, when taken out of narrative into actual visibility, always turn into buffoonery or nightmare.
+- You can't get a cup of tea big enough or a book long enough to suit me.
+- The real problem is not why some pious, humble, believing people suffer, but why some do not.
+- This is one of the miracles of love: It gives a power of seeing through its own enchantments and yet not being disenchanted.
+- Writing is like a 'lust,' or like 'scratching when you itch.' Writing comes as a result of a very strong impulse, and when it does come, I, for one, must get it out.
+- I sometimes wonder whether all pleasures are not substitutes for joy.
+- Telling us to obey instinct is like telling us to obey 'people.' People say different things: so do instincts. Our instincts are at war... Each instinct, if you listen to it, will claim to be gratified at the expense of the rest.
+- A dogmatic belief in objective value is necessary to the very idea of a rule which is not tyranny or an obedience which is not slavery.
+- Don't use words too big for the subject. Don't say 'infinitely' when you mean 'very'; otherwise you'll have no word left when you want to talk about something really infinite.
+- History isn't just the story of bad people doing bad things. It's quite as much a story of people trying to do good things. But somehow, something goes wrong.
+- How incessant and great are the ills with which a prolonged old age is replete.
+- Satan, the leader or dictator of devils, is the opposite, not of God, but of Michael.
+- 'Good English' is whatever educated people talk; so that what is good in one place or time would not be so in another.
+- Some people feel guilty about their anxieties and regard them as a defect of faith but they are afflictions, not sins. Like all afflictions, they are, if we can so take them, our share in the passion of Christ.
+- Some people write heavily, some write lightly. I prefer the light approach because I believe there is a great deal of false reverence about. There is too much solemnity and intensity in dealing with sacred matters; too much speaking in holy tones.
+- What we call Man's power over Nature turns out to be a power exercised by some men over other men with Nature as its instrument.
+- I think that all things, in their way, reflect heavenly truth, the imagination not least.
+- The safest road to hell is the gradual one - the gentle slope, soft underfoot, without sudden turnings, without milestones, without signposts.
+- Can a mortal ask questions which God finds unanswerable? Quite easily, I should think. All nonsense questions are unanswerable.
+- Always try to use the language so as to make quite clear what you mean and make sure your sentence couldn't mean anything else.
+- No one ever told me that grief felt so like fear.
+- It may be hard for an egg to turn into a bird: it would be a jolly sight harder for it to learn to fly while remaining an egg. We are like eggs at present. And you cannot go on indefinitely being just an ordinary, decent egg. We must be hatched or go bad.
+- If I find in myself a desire which no experience in this world can satisfy, the most probable explanation is that I was made for another world.
+- If the whole universe has no meaning, we should never have found out that it has no meaning: just as, if there were no light in the universe and therefore no creatures with eyes, we should never know it was dark. Dark would be without meaning.
+- There is, hidden or flaunted, a sword between the sexes till an entire marriage reconciles them.
+- It's so much easier to pray for a bore than to go and see one.
+- Of all tyrannies a tyranny sincerely exercised for the good of its victims may be the most oppressive.
+- The task of the modern educator is not to cut down jungles, but to irrigate deserts.
+- What I call my 'self' now is hardly a person at all. It's mainly a meeting place for various natural forces, desires, and fears, etcetera, some of which come from my ancestors, and some from my education, some perhaps from devils. The self you were really intended to be is something that lives not from nature but from God.
+- With the possible exception of the equator, everything begins somewhere.
+- Look for yourself, and you will find in the long run only hatred, loneliness, despair, rage, ruin, and decay. But look for Christ, and you will find Him, and with Him everything else thrown in.
+- Always prefer the plain direct word to the long, vague one. Don't implement promises, but keep them.
+- 'The Lion' all began with a picture of a faun carrying an umbrella and parcels in a snowy wood. This picture had been in my mind since I was about sixteen. Then one day, when I was about forty, I said to myself, 'Let's try to make a story about it.'
+- I'm tall, fat, rather bald, red-faced, double-chinned, black-haired, have a deep voice, and wear glasses for reading.
+- Humans are amphibians - half spirit and half animal. As spirits they belong to the eternal world, but as animals they inhabit time.
+- Reason is the natural order of truth; but imagination is the organ of meaning.
+- Even in literature and art, no man who bothers about originality will ever be original: whereas if you simply try to tell the truth (without caring twopence how often it has been told before) you will, nine times out of ten, become original without ever having noticed it.
+- We must show our Christian colors if we are to be true to Jesus Christ.
+- Friendship is unnecessary, like philosophy, like art... It has no survival value; rather it is one of those things that give value to survival.
+- Real joy seems to me almost as unlike security or prosperity as it is unlike agony.
+- Miracles are a retelling in small letters of the very same story which is written across the whole world in letters too large for some of us to see.
+- Eros will have naked bodies; Friendship naked personalities.
+- A young man who wishes to remain a sound atheist cannot be too careful of his reading.

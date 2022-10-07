@@ -1,0 +1,16 @@
++++
+author = "Amy Coney Barrett"
+title = "Amy Coney Barrett Quotes"
+quotes_len = "10"
+description = "the best 10 Amy Coney Barrett Quotes"
++++
+- A judge may never subvert the law or twist it in any way to match the judge's convictions.
+- Your legal career is but a means to an end, and... that end is building the kingdom of God.
+- It's never appropriate for a judge to impose that judge's personal convictions - whether they derive from faith or anywhere else - on the law.
+- I would never impose my own personal convictions upon the law.
+- I tend to agree with those who say that a justice's duty is to the Constitution and that it is thus more legitimate for her to enforce her best understanding of the Constitution rather than a precedent she thinks is clearly in conflict with it.
+- In a system of precedent, the new majority bears the weight of explaining why the constitutional vision of their predecessors was flawed and of making the case as to why theirs better captures the meaning of our fundamental law.
+- I would not want to leave the impression that I would give some precedents more weight than others because of some sort of academic disagreement.
+- Judges cannot - nor should they try to - align our legal system with the Church's moral teaching whenever the two diverge. They should, however, conform their own behavior to the Church's standard.
+- I totally reject and have rejected throughout my entire career the proposition that the end justifies the means or that a judge should decide cases based on a desire to reach a certain outcome.
+- Were I confirmed as a judge, I would decide cases according to the rule of law beginning to end.

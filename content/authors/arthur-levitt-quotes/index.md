@@ -1,0 +1,23 @@
++++
+author = "Arthur Levitt"
+title = "Arthur Levitt Quotes"
+quotes_len = "17"
+description = "the best 17 Arthur Levitt Quotes"
++++
+- Firms need to ensure that their ability to provide effective customer service keeps pace with their growth. If you're marketing your firm to new customers, you better be able to provide them service when they do business with you.
+- I think that the failures of Enron and WorldCom and other companies are partially failures of investors to recognize companies that are selling for a thousand times nothing, but chances are they may be worth only that.
+- Over the past two decades, we have clearly seen an erosion of ethical values.
+- Once again, stock markets have been threatened with extinction for almost 75 years, and I have found that stock markets are harder to kill than roaches.
+- Promoting the interaction of orders remains one of the most difficult, but crucially important, challenges we face concerning our national market system.
+- Our markets have not achieved their great successes as a result of government fiat, but rather through efforts of competing interests working to meet the demands of investors and to fulfill the promises posed by advancing technology.
+- What must occur is a greater recognition by investors of their individual responsibility.
+- One way for investors to protect themselves from a rapid change in the price of a stock is to use a limit order rather than a market order.
+- Another misconception is that an order is canceled when you hit 'cancel' on your computer. But, the fact is it's canceled only when the market gets the cancellation.
+- Our role is to maintain and monitor a framework in which fair competition can flourish.
+- Although the Internet makes it seem as if you have a direct connection to the securities market, you don't. Lines may clog; systems may break; orders may back-up.
+- It is incumbent on us to facilitate the development of a market structure that best assures that these changes benefit the U.S. securities markets as a whole.
+- Today, the forces of competition, technology, and globalization have converged to spur innovation and to transform the way business is done in the securities industry.
+- Investors should start with a view of skepticism. They should become intellectual investors rather than emotional investors. They should be careful, and they should be skeptical.
+- Our purpose, as we face these challenges, remains clear - fair and orderly markets that allow for efficient capital formation, while protecting the interests of investors.
+- The tension between centrality, on the one hand, and competition, on the other, is probably the oldest of all market structure issues.
+- I think we have got to start thinking about banding together in terms of interested groups.

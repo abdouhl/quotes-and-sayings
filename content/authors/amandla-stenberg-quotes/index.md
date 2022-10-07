@@ -1,0 +1,38 @@
++++
+author = "Amandla Stenberg"
+title = "Amandla Stenberg Quotes"
+quotes_len = "32"
+description = "the best 32 Amandla Stenberg Quotes"
++++
+- I'm a huge fan of Toni Morrison. I just think she's so incredible. And also Nayyirah Waheed, who's a poet.
+- My mom reminds me that all things are possible.
+- Within months after reading the novel 'The Hunger Games,' I went from telling my mom that I could see myself as this character to actually getting the role. My mother reminds me that if I could manifest such an important role just because I wanted it so much, all of my dreams are possible.
+- People are getting tired of the same material; they want to see black girls as leads in movies. And I happen to be lucky enough to understand that - and be able to grab that opportunity and run with it.
+- As I started to explore my gender identity, I didn't know how I could claim the title of 'feminist' without subscribing to the gender binary. I thought I had to be a proud woman to be a feminist. Then I came to the realization that I can be proud of women without necessarily identifying as one.
+- I think that, as a black girl, you grow up internalizing all these messages that say you shouldn't accept your hair or your skin tone or your natural features or that you shouldn't have a voice or that you aren't smart.
+- Everyone experiences different parts of themselves at different times, these different parts of themselves that come out in different settings.
+- One of the most challenging things for me to do was to walk away from 'Black Panther.'
+- Growing up, I was always super into fantasy and 'The Lord of the Rings' and 'Game of Thrones' and all of that, but I could never find black characters whom I really liked.
+- I don't think of myself as statically a girl.
+- I come from a very musical family. My dad taught me to play guitar. I play violin and drums as well. Violin, I started in elementary school. Drums actually came when I was in a program called 'Rock Star,' which was really awesome. We were doing a song by the Ramones, so I thought, 'Why not play the drums?'
+- There's so much power in allegory, to form ideas and learn lessons that you can actually take and apply to real life. I think that's why I originally really loved fantasy and reading.
+- I think 'The Hunger Games' has a really powerful message about survival, and sacrificing for the ones you love. It's almost like a warning for us to not lose touch of our humanity. We live in a world in which we watch other's misfortunes for entertainment.
+- I hope people online understand that the celebrity culture we've created is not really real. So when they're speaking to and about me, I'm a person, so I'm going to make mistakes. It's inevitable because I'm human.
+- I love all kinds of art. I mean, I love sketching and acting and music.
+- I really love my hair. I really embrace it, and I'm so glad that I made the decision to wear it natural.
+- I often find myself in situations where I am the token black person. It can feel like this enormous weight.
+- I think something that's really important to me is trying to do what I can from my position of power that comes with having a social media platform to dismantle certain systems that I think are really gross and harmful.
+- As a fan of the books, I feel fortunate to be part of 'The Hunger Games' family. It was an amazing experience; I am proud of the film and my performance. I want to thank all of my fans and the entire 'Hunger Games' community for their support and loyalty.
+- I'm really passionate about representation in film. I feel like the world is dominated by such a small group of human beings. There are so many different kinds of people that aren't represented, that don't have characters who look like them.
+- I don't think gender even exists.
+- It's so important to create roles and characters and projects that feature black people in a way that's not specifically targeted towards the niche market, which is, like, a black movie is created, and it's produced and pitched so that only black people will watch it.
+- You don't have to force your career to happen all at once.
+- I'm just someone who cannot fake it. I can only do something with my full heart invested or just not do it at all.
+- I'm lucky because the most dangerous thing that could happen to me is that someone will say something mean on a computer screen miles away, and so I feel like if that's all that I'm facing, then why would I not use my platform to talk about things?
+- I knew when I was about 14 that I wanted to be a director and that I wanted to go to NYU for film school.
+- My sexuality's very fluid, and my gender is very fluid.
+- I know when I used to chemically straighten mine, I did it because I wasn't comfortable with my natural hair. I thought it was too poofy, too kinky. So for me, personally, when I started wearing it natural, it felt like I was blossoming because I was letting go of all the dead hair and all the parts of me that had rejected my natural state.
+- 'A Tree Grows in Brooklyn' by Betty Smith is one of my favorites. Even though it doesn't have any monsters or crazy fantasy in it, it's such a raw story, and I can really relate to the characters. I think it's a beautiful story.
+- I've read the 'Mortal Instruments' series; I was obsessed with those.
+- I'm someone who is inspired by people who've spoken out about different racial and gender issues.
+- Me talking about political issues on a social platform was kind of an accident. It's something that's a part of my everyday - it's super central to who I am as a person.

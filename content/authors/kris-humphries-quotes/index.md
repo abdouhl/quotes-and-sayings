@@ -1,0 +1,14 @@
++++
+author = "Kris Humphries"
+title = "Kris Humphries Quotes"
+quotes_len = "8"
+description = "the best 8 Kris Humphries Quotes"
++++
+- I'm someone who always comes on the court no matter what's going on in my life. It's all about basketball and my teammates and my team. I don't let any distractions in, and I bring my best every night, regardless of what's going on or what people are talking about.
+- It's not superstition, but I do everything exactly the same on game days. I'm a creature of habit. I eat the same breakfast, and then I drive the same way to practice. Then I come back and eat the same exact same lunch before every game.
+- I eat about 4,500 calories every day, but I eat only nutritious, organic foods, and I don't eat added sugars.
+- I don't talk to media or anyone before games. I just put my headphones on, turn up some hip-hop, and get in the zone.
+- I don't always match up with guys like Dwight Howard or Andrew Bynum, but when I do, those guys are a challenge. Dwight, for example, is quick, explosive, and strong all in one.
+- I also eat fruit instead of drinking juices. That's something I've read up on. I think that if you drink a lot of fruit juice you take in way too much sugar. You'd be better off eating a bunch of strawberries or apples.
+- My whole mindset in training is to be explosive and fast, and I try not to get too big and bulky.
+- I think the way I eat is the foundation of my performance.

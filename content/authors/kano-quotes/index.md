@@ -1,0 +1,106 @@
++++
+author = "Kano"
+title = "Kano Quotes"
+quotes_len = "100"
+description = "the best 100 Kano Quotes"
++++
+- I recorded my first song at 15. But I started rhyming a few years before that. At first it was trading lyrics at school. We'd get in a circle in the playground with a beat-boxer and spit rhymes. Then it would turn into a big gathering after school.
+- You know, I was going to be a footballer at one stage, but... nah.
+- I don't think groundbreaking shows such as 'Top Boy' are made every day.
+- I do feel that it's very important to see positive imagery.
+- I just have no interest in the industry of acting, I don't want anything to do with it. But I respect the craft.
+- I'm a thinker as much as I'm a talker.
+- I'm always working out how people perceive me, and that's a hard thing to navigate sometimes.
+- You may think it's weird working with a cartoon band but there are a lot of characters in grime, especially since the early days.
+- Ultimately, I want people to be inspired.
+- I think, generally, it is always good to be aware of what is going on.
+- I'm laid-back. Sometimes, I think being laid-back will be my downfall; I'm a little too good at sitting on the sofa and doing nothing. But what can I say? It's who I am, how I am, how I've always been.
+- I know how important imagery is.
+- It's fine to keep releasing tune after tune if you can keep up with that pace but I can't. I'm not the guy that will have the hot tune every month. That's not me!
+- I don't want to be a preachy person.
+- Sometimes I feel like distance helps observation.
+- Biggie has definitely stood the test of time. He's the reason Jay-Z and loads of other rappers are who they are. His flow and wordplay is brilliant - the stories he would tell are just nuts.
+- I love the building and the history. I understand not many people like me have played there. But the aim is not to conform to that building. It's to bring the Albert Hall into my world.
+- I like table-tennis and I'm good at it.
+- I'm definitely not a nerd... but maybe I'm a bit of a nerd when it comes to music and lyrics and things like that. Other than that, I'm definitley not a nerd. I wish I was, though.
+- I've got a friend who went to jail in 2004 just before my first album came out. I'm on TV, and they're inside, looking at me like I'm 50 Cent. They think I'm killing it, earning mad dough every day. I'm sending him trainers and that, but it's not enough, because he thinks I should be doing more.
+- As an MC, I come from a background where the onstage experience is freestyle-based: you never know who's going to join you on stage, or what you're gonna do, or how long you can stay on. You kind of lose that, once you get on to recording albums and going on tour. Doing Africa Express has brought me back to that excitement - for the unexpected.
+- American racism seems to be a lot more in the open. The U.K. is different but it obviously still exists.
+- I feel it's important to create moments, especially in a time where things are so throwaway.
+- I need to make the album that deserves attention. Everyone's busy. I need to really be saying something.
+- There's an energy in people coming together and singing.
+- I have to go into the studio to make my second album knowing I'm making an album. When I first started making songs I didn't have an album in mind, that's why a lot of them I like - I'm talking about how I haven't got a deal, how I'm living, you can never really top the first time, but we'll see how it goes.
+- The key to acting well is to allow yourself to be vulnerable.
+- I hate PCs, and I hate using the mouse.
+- Nah I'm not religious.
+- My favourite lessons in college were when we would have a professional teach us, or when we went out of the classroom for the day. You take in so much more when someone who's been there and done it is telling you.
+- My first bars were about wrestling! That was basically all I knew back then.
+- I don't see myself as a political artist, but certain issues mean a lot to me.
+- Jermaine Defoe was from my area. Rio Ferdinand used to come into my barbershop.
+- We grew up and I feel like we're achieving a level of success through music that's allowing us to see the world. I want that for people where I come from. I want them to achieve that same thing through their passions. It's important that when we reach these places, that we still are who we are, and we never forget where we come from.
+- There's so much talent around here, east London in particular is full of talent. Whether that be boxing or football or music.
+- I'm just used to having so much control in music and in acting you have to give that up a bit. Sure, our voices are heard on set, but at the end of the day you can lose an argument. Whereas in music, if I feel the second verse needs to be changed I can change it. I find it really hard as an artist to give up some of that control.
+- I don't get nervous.
+- I would continue to try to make songs how I did at the start. Wherever that be, like in your bedroom or coming up with ideas on the bus, as you grow that's gonna change. Sometimes it can get forced.
+- I can clearly hear a lot of grime influence on Timbaland's stuff, on some of Drake's flows.
+- Grime don't mean nothing, we never called it grime. It's just a word someone associated with us. I wouldn't say all my music's grimy.
+- If my way of connecting with the younger generation was to do what they do, they would see through it straight away. I have to keep it real to be who I am, and I think they see that.
+- It's really important to me to still spend time in the ends - I'm there all the time. I do my videos there, I still talk about it. It's important for me to be an inspiration to the youth of the area and not just leave now I've blown up.
+- I'm just trying to humanise situations and represent voices that aren't being represented.
+- The first time I ever played Glastonbury I would have never have thought that a grime artist would have ever headlined it.
+- I would love young girls to look up and see my string section or my brass section or the steel band and be like, 'Wow! I never thought I could do that, that's wicked! I want to be up there doing that.'
+- We're always going for it and trying to raise the bar and achieve more and more and just be as creative as we can.
+- Lyrics came quite easy early on in my career. But I always wanted to push it further and stand out a bit more. We were coming from the garage era when lyrics were simplified, purposefully, to work in the club environment. They were about hyping up a crowd or bigging up a DJ. Moving into grime, our lyrics became more in-depth.
+- Most raves used to end by getting CS gassed. It wouldn't be like: 'Last orders! We've gotta go!' It'd be: 'Sigh, it's been CS gassed, we've gotta leave.'
+- When we started out we didn't expect anything would come from it, definitely not money. We'd pay to go on pirate radio: twenty quid a month just to go on and spit for an hour.
+- Initially we were spitting lyrics over garage beats, in that eight-bar gap where there wasn't a vocal. But we were rebellious towards garage because they were rebellious towards us; a lot of their gatekeepers said grime was too violent.
+- I'm a big fan of D Double E who always used MCing styles that other people weren't.
+- I started writing lyrics to clash with other people in the playground. Now I've developed my own voice and my own style. There's no one out there that does the same thing as me.
+- I like Jay-Z for his lyrics, his flow; he's always forward thinking.
+- I'm not into releasing throwaway music for the sake of it.
+- I believe in education, but I think the balance has to be right between theory and practical experience. I think from secondary school onwards it should be more about preparing you for life and work in the real world.
+- Music changes every year, but some people are great at riding waves and then they're doing something different next year.
+- The first song I did was when I was 15 it was called 'Party Mode.'
+- Hip-hop is the art of story-telling.
+- David Cameron? He's not my guy.
+- I usually hate the whole process of pitching and making videos. I've had so many made and I only like about two of them.
+- Starting out, when I was on pirate radio, or even around 2005 when I was supporting Mike Skinner at Brixton Academy, I never really saw myself being able to play my own show there.
+- There were eras of English music where people tried to rap in American accents and we lost our way.
+- Drake can do that well, he can have the hottest tune every summer for the next 20 years, and that's how he does his things. But naaaaah, I might go away for three years, you know what I mean?
+- Probably as young as 10 I would take songs and just change the lyrics.
+- New Banger' is a statement, but it is more about giving the DJs something for the clubs. I think it should have a lot of club longevity as a tune.
+- Garage has been the big influence in my life. It was the first music that I started MCing to and I really used to look up to Heartless Crew.
+- In most of my music it's firsthand experience, and some of the same rules apply in TV. The difference in music is the control, whereas doing this, it's someone else's words that you can play in your own way.
+- People used to say if you really want to crack it you have really got to go to America. But with the Internet and the scene how it is... Americans are coming here more and more. They are looking at what we are doing. I think it's important that we all remain here, that we stay here and keep this scene thriving.
+- I think Mighty Moe really got me into a whole different style of MCing. There were a lot of people with simple lyrics and simple word play- he really pushed out the boat.
+- Visible success is important. It's important to be able to look on the TV and see yourself, turn on the radio and hear yourself. To see people from where you're from actually becoming successful.
+- Me and Skepta, we're kind of from the same world but have totally different-sounding albums. That's why I get funny sometimes when people say I'm a grime artist. Not in a negative way, but I don't feel it's a true representation of the music I'm making.
+- I don't agree with any form of butler, so definitely not a robot one. It's lazy, so a bad idea.
+- At some of my earliest shows, we used to roll up 20 deep - if my mates can't come in, I can't come in. My record label couldn't understand it: plus-19 on the guestlist?! But that was how it was. Over the years - as it is with everyone, but amplified from being in the public - it's got smaller and smaller.
+- Both are about telling stories and bringing truth to those stories. In most of my music it's firsthand experience, and some of the same rules apply in TV. The difference in music is the control, whereas doing this, it's someone else's words that you can play in your own way.
+- Everybody has flaws, and every country has flaws. But you can still love something even though you know it's been so wrong before, and sometimes is now, and probably will be again.
+- I probably pay more attention to politics than what I used to.
+- The Wire' was from a police perspective - in terms of the streets and that, it was probably like, thirty per cent. 'Top Boy' is really from the perspective of the quote-unquote criminal. It's getting into the mind of these people and why they do what they do. It's bigger than just 'Woke up and wanted to be bad one day.'
+- My mum and dad weren't together when I was born. When I was a teenager, dad brought this girl round: here's your sister. She was only two years old, and I never saw her again from that day.
+- When you come out, and if you're saying something worth taking note of, then people will give you their ears. If you're not, it's whatever.
+- I would love to be involved in a table-tennis game.
+- If I looked back on 2019, in ten years' time, and I'd only made club tune after club tune, what's the purpose?
+- People think I can't go shopping - that's their perception of how famous I am.
+- There are too many kids who don't think they can make it to the top. They give up before they have even started, but in my eyes everyone can succeed and it's really important that young people believe in themselves.
+- I feel a lot of hip-hop videos are all about portraying a lifestyle that the artist doesn't even live.
+- I would be extremely surprised if David Cameron watched 'Top Boy.' But maybe he should. Maybe he should.
+- I think great art poses questions and doesn't necessarily give answers and solutions - that's not what I'm trying to do.
+- Grime, in particular, is not really about pirate radio and local raves on top of pubs anymore. There are things I miss about those times but as an up-and-coming MC, back then, I would have loved to have had SoundCloud and YouTube and all these platforms to promote my music.
+- See, I'm not a very open person, face-to-face. I'm no good at sharing my feelings with others, good or bad. I kind of close up. Music is the only time I can open up and actually say things.
+- That is part of the problem, that lack of belief in yourself because you don't see success around you. I guess that breeds defeatism, so yes there does need to be resources out there and support that will nurture talent that I believe is there, and passion that I know is there.
+- I think music is great at posing a question. It doesn't always have to give the answer, but it can open the dialogue.
+- I would go to college and people would know me from the rave they went to at the weekend. So I would get a bit of respect. But I would always go to class and do my work. My mother made sure of that.
+- I can't say that I am not driven by success or have a fear of being successful. But for me, the ultimate thing is just about being good at what I do. Because if I made an album that I didn't really like and it was super successful then I wouldn't happy within. That's the kind of person I am.
+- Personally, I enjoyed school as much as the next kid. I was into art and every sport going from football to table tennis, so I kept busy. I never bunked a day off and left with 9 GCSEs, if I remember correctly.
+- As a boy, I was known for reciting whole songs after one listen. I've always had a good memory for lyrics. It's weird because I don't have a good memory for other things. I remember lyrics easier than the shopping list.
+- Reggae was always playing at home in East Ham when I was growing up. Loud music would be coming from the bedroom, and downstairs all you'd hear was the bass. My uncles had sound systems and we used to go to Jamaica a lot as a family.
+- You fight for your character in the script. It's part of our job to evolve them, show all sides of them.
+- If you're going to do something, it should be fresh and it shouldn't have been done before.
+- He will go down as a legend along with Elvis and the Beatles and Michael Jackson. Bob Marley is right up there. He was a leader for reggae music - he really made it appeal to a world audience.
+- For me, writing and creating music can be quite a solitary thing.
+- We don't need Kanye to spit on grime instrumentals to show grime is great.

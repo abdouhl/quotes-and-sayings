@@ -1,0 +1,44 @@
++++
+author = "Isa Briones"
+title = "Isa Briones Quotes"
+quotes_len = "38"
+description = "the best 38 Isa Briones Quotes"
++++
+- In our comic cons and interviews, they're always asking him questions, of course, because people love Jean-Luc Picard. They love Sir Patrick Stewart. But he always likes to stop everyone and go, Wait, but these new characters, I can't wait for you to meet these new people.' He very much always tries to make space for us.
+- In musical theatre you're also supposed to be able to dance and everything, so I've always tried to take dance lessons, but I've realized that martial arts comes to me so much more easily than dancing ever has.
+- It was so cool, living out my action star dreams.
+- I think if you look at anyone who is working for an organization that they may not completely agree with, it is a job and they're doing what they can to do good.
+- I remember performing one-man reenactments of Miss Saigon' for my grandmother on her fireplace or dancing to Gwen Stefani in our hotel in the Philippines.
+- The thing that I mostly get from my parents is 'trust your stuff.' That's what my dad always says. Trust your stuff. I tend to get very insecure and doubt myself, but then I think of that and I say to myself, 'OK, you can do this. You know your material, you know what you have to do, you just have to trust it and have fun.'
+- Shows I would love to do one day are definitely In the Heights' and Spring Awakening,' with Nina and Wendla, respectively, as my top dream roles.
+- It's cheesy but my parents have been my coaches my whole life.
+- Dahj kind of sets everything in motion starting Picard on a new mission.
+- I know that I can't get a big head when things start to go well because you never know what's around the corner. It's the life of an actor.
+- Star Trek and sci-fi in general has always been a mirror to our society, obviously, and I think it is reminiscent of a lot of ideas.
+- Mixed people - people of color - we've always been here. But we are really entering a time in which we are proud of our heritage. Proud to say, I'm not one or the other. I'm both.' And that's beautiful.
+- I definitely feel, as a theatre actor, that when you're rehearsing in your street clothes in a rehearsal room, it can be a little hard to find the character.
+- I mean, I came from musical theater.
+- They made it very clear that I shouldn't try to be Data because there is only one Data, you can't ever recreate the magic that Brent Spiner made.
+- Going into Hamilton' already was mind-blowing enough because I hadn't really done much before that.
+- I think performing has pretty much always been a part of me.
+- It's amazing to play a character that gets to do everything - to have the action moment, have the really emotional moment, have the really fun, sweet, falling in love moment.
+- Although we're acting, and our minds know that we're acting, our bodies don't quite know that we're acting. So even when you're watching someone acting like they're dying, your body has like a true real response to it.
+- I say this all the time, but truly he is the greatest captain and not just Picard, but Patrick himself.
+- It was exciting for us to see just how close the Next Generation' cast is. Because for all of us newcomers, we were just watching that dynamic play out and we're like, Oh, that's going to be us.'
+- People kept reminding me. They were like, What was I doing on my 21st birthday? I was in Vegas getting drunk. You're actually walking the red carpet. You're hanging out with Patrick Stewart. Not everybody does that.'
+- When Dahj and Picard first meet, it's this really special moment of two lost souls colliding in a way in this crazy circumstance that is born out of tragedy.
+- When I was growing up, there were people of color onscreen, but I never saw interracial couples.
+- The spirit of hope and optimism is always there, and that's what I think characterizes Star Trek' in such a big way.
+- I used to do martial arts when I was a kid but I stopped when I was pretty young.
+- Yes, I was born in London because my dad was closing out the West End version of Miss Saigon' there.
+- And I always talk about how when you're mixed race, you often get told you're this, you're not that' or you're not enough that, you're not Asian enough, you're not white enough.'
+- I'm very young and I'm trying to figure out who I am and that's exactly what Soji is going through which is why I feel really connected to her and so protective. It feels like me and starting this new, exciting journey of being in Picard.'
+- I used to do karate, but then as acting and school got a little more hectic, I stopped.
+- I came from theater, which is its own beast.
+- It's amazing having in-home training. My mom and dad were my acting, singing and life coaches.
+- We've definitely talked about making a musical episode. We definitely need to make that happen. Let's get Lin-Manuel Miranda on the phone. He's a Star Trek' fan, so I feel we can make this happen.
+- One of the big things for me that's been exciting is seeing the Asian-American community coming out, because I'm Filipino and Swedish and Irish.
+- I remember walking in and seeing Patrick. I knew he was going to be in the room, but somehow, it was still shocking. I was like, you look like Patrick Stewart, because it is you!
+- I didn't really watch a lot of Star Trek' as a child. I'm kicking myself now that I haven't, but once I got the show, I started watching and became a huge fan.
+- I was in rehearsal and reading the script and I was like, 'Wait, wait, wait, wait. I think I'm related to Data,' which was crazy but that was really cool. Going back to watch' Next Generation' and getting to see Brent doing his thing and just how incredible he was and it was obvious to see why he was such a beloved character.
+- Getting to play yourself in someone else's shoes is a wonderful way of looking at your own life.

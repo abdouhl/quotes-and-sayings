@@ -1,0 +1,29 @@
++++
+author = "Ashok Saraf"
+title = "Ashok Saraf Quotes"
+quotes_len = "23"
+description = "the best 23 Ashok Saraf Quotes"
++++
+- I remember that Pu La had come for one of my premieres and I was patiently waiting to hear his verdict of my acting, but when he came out of the theatre during interval, all he asked me was about my father and his well being, such was their friendship.
+- Nepotism will never give you success, but talent can.
+- 'Hum Paanch' never lost its magic unlike some of the current shows, which go off air because they lose fizz. Even after running for almost 10 years, the show went off air only because the makers decided to end it.
+- My comic timing is completely based on Pu La's literature, his style of writing and the wittiness between the lines.
+- Financial independence could be one of the factors, but most 65 plus artistes in our industry wish to continue working for the passion they have for their craft.
+- An actor is an actor irrespective of age.
+- Actually Pu La was my father's friend and their friendship was very typical , as friends should be, fame did not come in between.
+- I have all of Pu La's books and have reread each and every one of his works, multiple times.
+- Age is just a mental note. If I keep reminding myself that I am old, then I will automatically start behaving and looking like a 70-year-old.
+- Playing a cop has always been lucky for me.
+- Every time I read a book, I find something new.
+- I don't think I am a big artiste but the new ones do get intimidated by my presence.
+- It's impossible to make 'Hum Paanch' again. Some people tried but it was a failure.
+- Shashank Udapurkar came to me with the 'Pravas' script and it's a unique story.
+- Today's generation likes stand-up comedies in which the performers give their take on a number of subjects. Some of them are a taboo, but youngsters enjoy them. However, when we act in a drama, what is uppermost on our mind is the people's perceptions and opinions.
+- The script of 'Hum Paanch' was extremely powerful, written by Imtiaz Patel. He has written the characters so well, people got hooked with each of them.
+- I don't believe in locking myself in a vanity van. I prefer to stay back on the set and observe.
+- It was lack of good scripts and lack of time for daily serials, for which I consciously stayed away from TV.
+- I played a constable in 'Singham,' in 2011. Though the role was small, it was appreciated.
+- Firstly, I am not a comedian. I have a sense of doing comedy but I am a character artist. If the character in the film is a comedy than I can portray it. But, I am not a comedian.
+- I have never experienced any nepotism or groupism in my career.
+- I always choose the character which has something to say.
+- The iconic 'Pandu Hawaldar' gave me all the recognition and made me a star.

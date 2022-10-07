@@ -1,0 +1,37 @@
++++
+author = "Kristin Chenoweth"
+title = "Kristin Chenoweth Quotes"
+quotes_len = "31"
+description = "the best 31 Kristin Chenoweth Quotes"
++++
+- I want people to understand that there is a group of Christians out there who want to be more open and understanding and tolerant and loving of all kinds of people, even the people that don't believe in God at all.
+- Not everyone is going to like what you do or what you have to offer; however, if you can't see yourself doing anything else, and you have the drive and ambition, get the training and go for it.
+- I want to be a Christian like Christ - loving and accepting of other people.
+- I was a spiritual kid.
+- A nice pair of Jimmy Choos never hurt anyone.
+- And I do - make no mistake, I am a Christian and I believe in God, and I don't believe he makes mistakes. So I don't believe that being gay is not a sin, and in fact it's how you're made.
+- I am a Christian and I don't want there to be any confusion about what I believe or who I am.
+- If you can learn to love yourself and all the flaws, you can love other people so much better. And that makes you so happy.
+- Oatmeal tastes so good on its own, you don't even need to add sugar.
+- As much as you can eat healthy, it's also important to remember to drink healthy too. Tea is very healing.
+- We are what we eat, so I eat as many veggies as I can!
+- I think it's important to remember that Christianity was based in love and tolerance and forgiveness and acceptance.
+- I read my Bible and I pray and all of that. I really do. But at the same time, I don't think being gay is a sin. Period.
+- I auditioned for a solo in church and got it. I was about seven and I sang a song called, 'Jesus, I Heard You Had a Big House' and I remember people standing up at the end and me thinking, 'Oh, I think I'm going to like this.' That's how it all began. Sounds funny to say you got your start in church, but I did.
+- I used to want to be tall, and then I thought, 'If I were tall, then people would say I was pretty and not cute.' And then I realized that there are worse things than being called cute.
+- I just want to say, that if Jesus were alive, what would he be doing? Well, he would probably be accepting and loving people how they're made. And I always say this and it's really the truth. If being 4'11 was a sin, what would I do? Well, I could wear heels and I could add a wig.
+- You've got to find ways to breathe while you're dancing so that when it comes time for you to stop and sing again, you have it.
+- There's a difference between making fun of something and having fun with something.
+- Broadway is such a diverse community. Everybody knows how I believe, and everyone believes, and it's not a big deal. But in Hollywood, if you talk about politics - especially if you're a Republican - or spirituality, it's just not something people want to hear about.
+- I was on the cheerleading squad and drama and the choir, but I was friends with everybody. I was not a partier. I was too Type A and crazy about my grades, but I was still there at everything.
+- I'm trying to learn, as I'm in my 40s, to embrace what I've been able to achieve and be proud of it. And I know there's roles that I will want to play before I die, but I'm still just taking one day at a time.
+- I've finally graduated from 'I don't give a hoot.'
+- I'm finally dating. It's fun.
+- You've got to find ways to breathe while you're dancing so that when it comes time for you to stop and sing again, you have it. To prepare, I do a lot of aerobic activity. Many times at the gym, people will look at me because I'll be on the treadmill humming.
+- A lot of kids are bullied because of their sexuality, and that breaks my heart, because they're going to have to - high school's hard enough to overcome. Middle school is hard enough to overcome when we get out of it. They say life is what you spend your time getting over because of high school, you know what I mean?
+- I'm constantly learning, and that is the greatest gift of life in my opinion - to always be learning and growing.
+- Well, you know, people don't know me as a country artist and I am new to the genre. But that's how I grew up singing.
+- I'm a wild lady. Not.
+- I don't understand what the big deal is with gay marriage. Get over it, people.
+- It's in God's hands.
+- Apples, grapes... any kind of fruit gives me the energy I need to get through my busy day.

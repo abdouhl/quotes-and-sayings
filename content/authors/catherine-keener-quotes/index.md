@@ -1,0 +1,23 @@
++++
+author = "Catherine Keener"
+title = "Catherine Keener Quotes"
+quotes_len = "17"
+description = "the best 17 Catherine Keener Quotes"
++++
+- These days there are a lot of people who just want to be famous. I think that comes from a naive place, because those people generally don't know what it's like.
+- The more people involved in making a movie, the worse it is, generally.
+- The movies I usually do are maybe three or four weeks because they don't have a lot of money.
+- If you work in casting, it's sort of not cool to want to act. A lot of people think that casting directors are frustrated actors, but it wasn't true with any of the casting people I knew.
+- If you give a character room to breathe, they come alive.
+- Most times when people pitch you as being perfect for a part... they don't look at you as an actor who can transform. A lot of people are so literal.
+- Insecurity is just something that's there all the time. I've never been crippled by it.
+- I think people are always looking for a good comedy.
+- I've worked with a lot of great directors.
+- I... had guys on the set who didn't like me... they weren't interested in the cold character.
+- I'm not a public figure at all. I don't really go out a lot to places where there are people like those who sit at the bottom of your driveway.
+- I just never fantasized about Mr. Rogers, but I like his whole vibe.
+- I know many great actors who have small heads.
+- Sometimes it just doesn't translate to people. You just move on, and you feel bad because people worked so hard on it and everyone loved it... Everybody was treated so well and was going for something and trying to do the best work possible.
+- The movies I'm in not a lot of people see, but it's alright.
+- I don't think I'm very ambitious at all. But I seem to play people who have that quality.
+- I'm unqualified for anything else. I'm barely qualified for this.

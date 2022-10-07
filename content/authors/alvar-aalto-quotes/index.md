@@ -1,0 +1,28 @@
++++
+author = "Alvar Aalto"
+title = "Alvar Aalto Quotes"
+quotes_len = "22"
+description = "the best 22 Alvar Aalto Quotes"
++++
+- Every one of my buildings begins with an Italian journey.
+- Just as it takes time for a speck of fish spawn to develop into a fully grown fish, so, too, we need time for everything that develops and crystallizes in the world of ideas. Architecture demands more of this time than other creative work.
+- Nothing is as dangerous in architecture as dealing with separated problems. If we split life into separated problems we split the possibilities to make good building art.
+- Architecture is not merely national but clearly has local ties in that it is rooted in the earth.
+- Human life is a combination of tragedy and comedy. The shapes and designs that surround us are the music accompanying this tragedy and this comedy.
+- God created paper for the purpose of drawing architecture on it. Everything else is, at least for me, an abuse of paper.
+- The best standardisation committee in the world is nature herself, but in nature standardisation occurs mainly in connection with the smallest possible units: cells. The result is millions of flexible combinations in which one never encounters the stereotyped.
+- Our time is so specialised that we have people who know more and more or less and less.
+- We have almost a city has probably two or three hundred committees. Every committee is dealing with just one problem and has nothing to do with the other problems.
+- We should work for simple, good, undecorated things, but things which are in harmony with the human being and organically suited to the little man in the street.
+- We should concentrate our work not only to a separated housing problem but housing involved in our daily work and all the other functions of the city.
+- Architecture belongs to culture, not to civilization.
+- I tell you, it is easier to build a grand opera or a city center than to build a personal house.
+- The very essence of architecture consists of a variety and development reminiscent of natural organic life. This is the only true style in architecture.
+- The most difficult problems are naturally not involved in the search for forms for contemporary life. It is a question of working our way to forms behind which real human values lie.
+- The tubular steel chair is surely rational from technical and constructive points of view. It is light, suitable for mass production, and so on. But steel and chromium surfaces are not satisfactory from the human point of view.
+- Building art is a synthesis of life in materialised form. We should try to bring in under the same hat not a splintered way of thinking, but all in harmony together.
+- The ultimate goal of the architect...is to create a paradise. Every house, every product of architecture... should be a fruit of our endeavour to build an earthly paradise for people.
+- Once I tried to make a standardization of staircases. Probably that is one of the oldest of the standardizations. Of course, we design new staircase steps every day in connection with all our houses, but a standardized step depends on the height of the buildings and on all kinds of things.
+- I do not write, I build.
+- Form must have a content, and that content must be linked with nature.
+- Even the smallest daily chore can be humanized with the harmony of culture.

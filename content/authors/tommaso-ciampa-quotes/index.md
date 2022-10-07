@@ -1,0 +1,99 @@
++++
+author = "Tommaso Ciampa"
+title = "Tommaso Ciampa Quotes"
+quotes_len = "93"
+description = "the best 93 Tommaso Ciampa Quotes"
++++
+- We take our little one to a Little Gym-type place.
+- In my own mind, I don't want to be the weak link of the team.
+- I single-handedly turned NXT into the 'A Show.'
+- Johnny Gargano, to me, he's the best professional wrestler in the world today. No doubt about it. Inside the ring, bell-to-bell, there's just nobody better. So having him as a teammate for years as part of DIY helped me tremendously.
+- I'm in Ring of Honor about four years. I was cast as The Sicilian Psychopath there and right from the start one thing that felt weird where I got signed after a tryout because Jim Cornette saw me and 'Delirious' Hunter Johnston and they really liked my promo. The match was fine, but they really liked my promo.
+- I was about to walk into TakeOver: New York, WrestleMania weekend, and that was my WrestleMania moment. It wasn't just about winning a title. It was about being the face of this brand, walking out from that curtain - that meant the world to me.
+- I'm big on active recovery and supplementation with fish oils and anti-inflammatories and whatever it is.
+- NXT and CWC have truly changed my career, my life and my family's life.
+- Yeah, I don't know how many people are aware of it, but Scarlett and I have a bit of a past as far as wrestling goes. We were both in Ring of Honor at the same time, and our paths crossed when she was managing Matt Taven.
+- For me, Tommy Dreamer is ECW. There are other guys who did stuff there and other guys who made their careers there and made a name there, but Tommy Dreamer is ECW.
+- In May of 2017 they told me that no one has ever had 3 major surgeries in a 12 week span and returned at a competitive level. I returned to the most successful run of my career.
+- Actually going to WrestleMania, then going home and sleeping in our own bed is a pretty wild concept.
+- 2020 has been a year that none of us are ever gonna forget.
+- If one thing is very clear - in order to get my life back, there can be no Johnny Gargano in NXT.
+- I was in town working for Ring of Honor; my wife was in town. At that point in my life, I thought, 'When else am I ever going to come to WrestleMania?' I sat way up high in the stands, but seeing a couple of friends on that big stage, you start to think maybe this is possible.
+- I was training at Killer Kowalski's old place, and at that time it was the Chaotic Training Center but now it is the New England Training Academy, but we were kind of the feeding ground. Anytime WWE was in the northeast area that is who they would call. They would call them for extra talent.
+- I am the best sports entertainer in the world. I always hear, 'Sports entertainer? You're a sell-out!' Call me a sell-out if you want. I'm buying in. This is my brand. NXT is mine.
+- I just look at like, if I'm doing 200 plus dates a year on the road with Raw or SmackDown, or I'm doing a manageable load of 30 to 50 matches with NXT - I can do four years of that in the time that I do one year on Raw or SmackDown.
+- It's not about getting WrestleMania moments for me, it's about making TakeOver moments bigger and bigger and bigger.
+- I had neck surgery and I'm not freaking stupid. I get that my window is smaller than it was and my bump card is ticking.
+- Any place is really tough to wrestle until you get over. Once you get over, it doesn't matter if you're on television or an armory, it all becomes pretty easy.
+- I'd never want a fan who is completely invested to feel like I dismissed his thoughts or how they feel.
+- I did a thing for Progress for a tournament and I started using 'Psycho Killer' by Talking Heads as my entrance music. That became my thing and Psycho Killer was my pseudo personality and in one year it just took off.
+- I have a really good at-home support system with my wife and the baby and even the dogs in that they all just keep me occupied, they keep me busy, they keep me moving, to keep my mind from drifting.
+- It's been the best-case scenario neck surgery that I think I could have drawn up as far as the procedure being done, Dr. Cordover in Birmingham, Alabama. Man, he is amazing at what he does. The rehab process has been no setbacks.
+- Whether it be a televised match or even a live event match, in this day and age, the Internet is so accessible and everybody sees everything.
+- I know that everybody understands how excited the fanbase is for 'In Your House.' It's one of those weird ones right? It just stuck with all of us. Yeah, I think everyone's gonna be happy with what's been produced.
+- When we found out we were having a child, I was like I want the child to be healthy, but when asked do you want a boy or a girl, I wanted a girl.
+- The reaction from the fans has, quite possibly, been the most rewarding part of the journey thus far. I feel as though the fans have grown with me over the past 12 years through both triumph and disappointment.
+- I don't know if people say ratings don't matter... they sure as Hell matter. Like, you want to win.
+- I try as much as possible to take a moment every so often, pause, and enjoy the journey.
+- I'm the guy who holds the most coveted title in all of sports entertainment, that's because I deserve it! Nobody deserves it more than me.
+- For me, my layer came so organically, 'oh, he went and got neck surgery,' and you see a bit of real life with the baby, my wife and home life. It opened up this whole new insight into me for the viewer.
+- I have the best physique in all of WWE; this is not by accident.
+- That NXT title, in character and out of character, it means the world to me.
+- We have a way, in WWE, of making things work.
+- Sometimes injuries can be the best thing that happen to a guy because it allows you to freshen up and allows the crowd to miss you.
+- I feel like I do my best work when I am put into scenarios where there's some in-depth story to be told.
+- I don't think there's a performer in this world who makes better use of their surroundings than I do.
+- I wanted so badly to walk into WrestleMania weekend as the NXT champion and headline TakeOver.
+- I feel like, 20 years from now, if I can look back at a 15-year NXT career, it just means more to me. It means a lot to me to have that be something that, yeah, that was my stamp.
+- I always tell people, when I was a kid, there was four pay-per-views a year, and everything had three-month builds, and it was just the best thing ever. That's my wrestling. It was like, if there was a way for it to go back to that, oh my God, I would be so happy. And that's what NXT has provided.
+- Luckily, I'm not afraid of heights.
+- I still get nervous before going out, especially with a company like WWE and NXT, but it's different. I know how to wrestle, but it's the nerves of performing and wanting your last match to be as good as the one before.
+- WWE presents me with unlimited opportunities and possibilities. No dream seems unachievable.
+- I hope I have a child with flair on my hands. That's all you can hope, right?
+- I love 'Macho Man' Randy Savage, Shawn Michaels and Eddie Guerrero.
+- I grew up on these long, drawn-out stories with four pay-per-views a year where things paid off. Everything was done for a reason. Then all of a sudden, I find myself in NXT and I get to play that out. I'm playing out my childhood.
+- My Instagram took on a life of its own and became very different from my Twitter. I never used Instagram to post. I'm into fitness, I used it to follow a few people in the fitness world to see exercise ideas and or nutrition ideas. All of a sudden I felt like I was a part of that community.
+- There wasn't a pinpoint time that it clicked, but I know for sure the end of Ring of Honor I started to realize that I became good at this. But I felt that at Ring of Honor I was type-casted and I couldn't get out of that and I was asking a lot from them if I can switch my character and have certain opponents.
+- I had finally come to the point where I was catching the momentum but then I had torn my ACL, which is kind of the story of my life where I keep getting injured from an ACL.
+- The big picture goal is legacy. It's knowing that when I'm done, what I've done has changed the industry in some way and made an impact in some way.
+- Thomas Penmanship is my Dude Love. When I become very successful in WWE as Tommaso Ciampa, one day I'm going to pull out Tommy Penmanship and suddenly develop a split personality.
+- Ring of Honor fanbase is so real and so true. It's like an NXT fanbase; it's the same fanbase. You can't just feed them crap.
+- Going from the top 'heel' in the industry, taking some time away to heal my neck and allow the people to miss me and understand what it was they had with me and just how special I am, allowed me to come back.
+- It took me a while to open up to the idea that you don't have to be a wrestler to have ideas. Jim Ross isn't a wrestler and you will learn a lot from Jim Ross.
+- Shoot, me, if I was going to go to war and you told me I could have Keith Lee, I'll sign up on that one. And you told me I could have the freaking UFC madman Matt Riddle - he's like the new Goldberg - I'll sign up on that one too. I love the guys.
+- I don't know that I like the idea of having NXT television superstars in the crowd. I don't want to have people from Raw and SmackDown in the crowd while I'm wrestling.
+- I ended up voluntarily leaving Ring of Honor when my contract was up because I was making so much more money on the independent scene.
+- I don't give a damn, I am a NXT Superstar.
+- I wouldn't do autographs - I had a stamp with my signature with, of course, perfect penmanship.
+- It was really implemented in me from day one that everything I do out there cannot be misconstrued as fake. That's not to say I won't do things for a chuckle, but my own personal style is to be intense and snug. I want it as real as humanely possible.
+- As a kid, playing sports, I was never the best athlete on my teams, but I was always the guy people looked at as the workhorse.
+- When I was in Ring of Honor, Adam Cole was the champion. When I won the title in NXT, in the back of my head, I told myself, 'I have to do for this title what Adam Cole did for the Ring of Honor title.'
+- I was my high school football team's captain, not because I was the guy who scored the most touchdowns, but the guy who was in the midst of every play.
+- I am writing my own legacy, and I am carrying NXT along for the ride.
+- I would never write anything off the table. But my goal is to build my legacy in NXT and, with my legacy, build what NXT is.
+- I told them that I would sign for five years, I would sign for 10 years, I will make my career here in Ring of Honor if you guys show me that you are looking to invest in me the way that I will invest in you. And the conversation, which I thought was going well, just randomly took a real hard turn.
+- When 'In Your House' became a thing when I was a kid, it was just the coolest ever and people are winning houses... So when NXT is bringing out the old-school graphics, the only thing I'm wondering is if somehow we could have that old 'In Your House' set. That's all just the fan in me.
+- In wrestling, obviously, you can get better, but you have to have a bit of an it factor.
+- I don't think it's any secret anymore that I have a family away from the business.
+- I am a god of professional wrestling. You should worship every step I take and every word that comes out of my mouth.
+- I don't know if people think I'm going to Raw or SmackDown, but here's a spoiler, I'm not. I'm going to NXT.
+- I feel great because I don't wrestle anymore.
+- The amount I got to experience in my home life really did outweigh what I was missing in wrestling.
+- There's more anticipation, there's more forgiveness once you prove yourself to the fans.
+- I bleed black and gold. NXT is home.
+- I have a very realistic style to my wrestling.
+- So for a guy like Karrion Kross to set his sights right at the top of the card and want to get right into a big program and make a name for himself and make an impact, I fully get it, it makes sense that the two of us got paired together because I think that, for the fans, it's one of those match-ups that they just wanted to see.
+- I am the champion of champions. I'm the main event. I'm untouchable. I, Tommaso Ciampa, am the greatest sports-entertainer of all time.
+- I love good versus evil. It always works. Even when you look at superhero movies, the action is really cool and all that, but what sucks you in is good trying to overcome evil.
+- Early in my career, playing a character was vital. I had to be Thomas Penmanship because I couldn't be Tommaso because he is a shy kid, so I had to create an alter-ego.
+- I love that when I got to NXT, it was a couple TakeOvers and now it's more.
+- I'll train three, four, five hours a day if I can.
+- I enjoyed those last eight to 12 independent bookings, just took them and appreciated them for what they were.
+- Maybe I'm young, but I still have an old school feel to me.
+- I was 'The Guy' for NXT, the hottest brand in the entire world. I came through knee surgery and two shoulder surgeries to get to that point.
+- If you are teaching your child to be content with a participation award, then you already failed at life.
+- Sometimes, there are spots that need to be filled and you just have to be at the right spot at the right time or the wrong spot and the wrong time.
+- The old saying goes, 'Hit me with a cast once, shame on me, hit me with a cast twice, you're a dead man.'
+- There's that part of you as a performer that when you're told you're gonna be a fan favorite, you think 'Oh man, I better smile more and be kinder, let the people in more' I kinda had to fight all those instincts and just be like 'No, no no, you're gonna walk at the same pace, do everything with the same cadence, do everything the same.'
+- The wrestling that I grew up on was this; it was NXT. Definitely not the athleticism factor or the in-ring factor - that's evolved tremendously. But the storytelling part of it, that's what grew up on.
+- I've never been comfortable on the top rope or launched myself into dives.

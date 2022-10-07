@@ -1,0 +1,33 @@
++++
+author = "Alexandre Pato"
+title = "Alexandre Pato Quotes"
+quotes_len = "27"
+description = "the best 27 Alexandre Pato Quotes"
++++
+- I remember my first time in the Champions League. I was 18, and it was Arsenal against Milan at The Emirates. The night before, I remember I put my music on my iPod. I was lying in bed, and I listened to the Champions League music. That was my Champions League debut, my first time. It was beautiful.
+- My special thing is my speed. I'm fast.
+- I don't think the physical part of English football would be a problem. When you get the ball, you need to be ready. The defenders here are very tough. I like that.
+- I went to Brazil to learn more about my body and my physique: what to do before training, during training, after training, even after the match.
+- I follow English football a lot and Ancelotti.
+- I could play, scored a goal; I showed that I can play in Europe, in England. Because many say that England is very difficult.
+- When I arrived in Milan, I found myself surrounded by many fantastic footballers.
+- I arrived in Milan when I was 18. But my time in Italian football helped me to mature.
+- I'm a professional, and I have to always do my job.
+- Talent is a feeling that you want to play.
+- I really want to play in Chelsea.
+- Before I came to Italy to play for Milan in 2007, I saw in the papers that my name was mentioned in connection with some English clubs.
+- Playing in Milan for me meant being able to play alongside players who were idols to me as a kid. Playing alongside David Beckham - his long passes are perfect for me.
+- I have a very good relationship with my peers both on and off the pitch.
+- I like the emotion in the English league. You look at the TV, and you see the stadium and the fans.
+- I have friends who play for Chelsea, Liverpool, and Manchester United.
+- Chelsea received me very well.
+- In football, nothing is certain, so it's no problem to return to Corinthians.
+- I want to write a new story in Europe, to make a new history. I want to come to win the championship and play again in the Champions League.
+- I loved Milan. I was there for six years and made my stories there.
+- Thanks to my fans for support on Instagram, Twitter and Facebook.
+- I just try to do as well as possible.
+- I am working and improving every day, and I am happy with my work.
+- When I was getting injured so much, I spoke to my family and my manager and said, 'I need my body to recover.' The first thing I thought was that I needed to stay upright. When I went back to Brazil to play, after a few months, my body was perfect.
+- I love English football.
+- To play for Chelsea is a blessing.
+- I played very well in AC Milan, but I had two years of injury problems. I needed to change team and the city for my mentality.

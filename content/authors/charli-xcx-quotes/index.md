@@ -1,0 +1,161 @@
++++
+author = "Charli Xcx"
+title = "Charli Xcx Quotes"
+quotes_len = "155"
+description = "the best 155 Charli Xcx Quotes"
++++
+- To be honest, my usual makeup is the same as in my music video looks.
+- I've always played it my way. I failed media training, for example.
+- I think that U.K. audiences, in general, are very closed off. Very judgmental.
+- Pop music is getting so emo. It's great. Emotional girl for life. I see myself in the centre of that.
+- Obviously, my label would want me to be on the radio all the time, but that's not my personal goal.
+- My philosophy is to treat people how you want to be treated.
+- The first show I did with Coldplay was really scary.
+- I always Google myself. It's horrible.
+- I'm very selfish in that I make music for myself, not for other people; I kind of only think about other people afterwards when it's out.
+- I feel like the U.K. is a better breeding ground for pop, partially because the radio play is more broad and open to new ideas and sounds.
+- I started writing my own things when I was about 8.
+- One time, I gave Chris Martin a My Little Pony for good luck. He said, 'Oh, you should keep it,' but I was like, 'You guys probably need it a lot more than I do.' I said that to Coldplay!
+- I'm not good at being a picture-perfect pop star, happy all the time. If I'm having a bad day, I can't pretend. I'm always a bit unhappy, but that's just me. I like dwelling in my sadness.
+- There's something about girls together, uniting, that I just thought was cool.
+- I think it's awesome when a woman is in control of everything she's doing, especially in an industry like this where people think that doesn't happen often, but it really does - well, from my knowledge and how I manage my own project.
+- Anyone that thinks 'pop' is a dirty word is living in the '90s.
+- My family is average. I didn't have a crazy life as a kid.
+- I used to worry about being cool. Now I realize that I genuinely don't care.
+- I think the best people are the ones who are just as nice and fun. This is really cheesy, but you only have one life - why spend most of it pretending to be cool?
+- I want to have a publishing company and a record label, and I want to manage five artists... eventually.
+- I love the Nineties because more than any other period of time, there was such an eclectic mix of styles going on. More so than in the Sixties and Seventies, when there was an overriding look and sound.
+- There are some signs that can indicate she might be interested. Woman might do subconscious things like play with their hair or orient their body towards your direction.
+- I think the best artists are the ones who constantly change - Madonna, Bowie.
+- I love In-N-Out!
+- I always see colors when I listen to music. It's difficult to explain, but when I hear the music, I think about gold, blood rushing... I like to keep it really warm and glittery.
+- I think big brows are pretty cool.
+- Females should stand by each other, especially in an industry which seems to try so hard to pin us up against each other and make us fight. It's not about that for me. I refuse to be sucked into a twisted world of insecurity and lose who I am.
+- I spent a lot of my teenage years experimenting with who I was as a person and not really getting it right. And then, I think, I realized that I just had to chill out in life.
+- I never dress for the occasion correctly because I hate fashion rules. They're so boring.
+- Being nice is awesome. You have more fun; you meet more people.
+- I've always wanted to write pop music. I never wanted to be cool or make a hipster record.
+- I know when I've written a good song when I can imagine the video. If I can't imagine the video straight away, I'm not gonna put it on my album.
+- I think debate is good. Everyone has an opinion, and it's definitely healthy to voice those.
+- I'm not a dumb idiot just because of what I wear.
+- I love that '...Baby One More Time' video, to be honest; it's amazing.
+- I really just want to change the way women think about themselves. A lot of young girls are quite lost.
+- It's kind of weird talking about yourself all the time.
+- Some people think of feminine as just being pretty and quiet and sweet, but I also think being feminine is being angry and also being sexy and aggressive and passionate.
+- '90s fashion is awesome. Best of both worlds - you had power pop, like the Spice Girls and Shampoo. But then you had Nirvana and Hole. And you also had '90s dance music like N-Trance, who kind of blended both.
+- Whether I'm writing for myself or someone else, I'll always write a song that I would feel comfortable singing.
+- I feel like I can be six different people in one day sometimes. Which is fun but also really strange in my own brain.
+- I made video art for quite a long time, and I made this video covering myself in burgers and dancing to Major Lazer and doing covers of Britney Spears songs... I can't remember how I got there, but my teacher said he'd have to fail me because it had mild nudity.
+- I've always said that if I couldn't be myself, first I'd want to be Eminem and then a Disney kid.
+- To be honest, for me, my main workout is when I'm on stage. Even though I make pop music, I don't think I perform in the classic 'pop star' sort of way. I'm very active on stage; I always end up dripping in sweat afterwards. It's always like a full-on, wild performance, so that's pretty much like my exercise, I would say.
+- When I was younger, I was a rave kid trapped inside a singer/songwriter's body. But I kind of figured my way out because I started making these really terrible beats on this Yamaha keyboard that my parents got me for my 10th birthday.
+- I've never conformed to what my record label has said and, yes, that has meant that it's been a long journey for me.
+- I'm actually really bad at the Internet. I'm never scouring it to find new artists or new anything.
+- I feel like when people meet me, I'm very much not what they expected I would be. I'm not a diva, and I'm not mean to people or have weird rules.
+- I was in the playground, like, 'Let's imitate the Spice Girls and form a girl group!' I would go home and sing into my hairbrush and act like Britney Spears. I was no Mozart.
+- I want to share the experiences I've had.
+- The fashion of the '90s is a massive inspiration to me. My favorite video of all time is 'Say You'll Be There' by the Spice Girls. That's the best styling ever. If I could dress like that every day, I would.
+- I don't think that I'm a pop star. On paper, I'm bad at being a pop star with the conventional idea people have.
+- My hair is naturally super curly. But I really don't do so much to it. I just sleep on it and see what happens.
+- I'd love to work with Cher Lloyd; that would be my dream person to work with.
+- My voice is different, but I don't think I'm the only one with a different take on pop music.
+- I'm going to build an empire. I'm always writing for someone else. I want to be someone who has her fingerprints all over the pop charts.
+- I am very spontaneous when I write; it kind of just comes out. I never think about what I'm going to write about first... it just sort of comes out like word vomit.
+- I think what women think is sexy is what is sexy. Girls eating pizza are massively sexy.
+- My favorite video of all time is 'Say You'll Be There' by the Spice Girls. That's the best styling ever. If I could dress like that every day, I would.
+- In the '90s, there was always this continuous pitting of women against each other in the media, trying to make them battle it out.
+- My one thing is respect. I don't care about anything else. You should respect everyone around you - the people who work for you, peers. Be classy.
+- I do appreciate the '80s as an era, the general sounds and aesthetics of the era. The Cure, that whole kind of image is really kind of amazing, I think. The power ballads and how everything sparkles and words are really dramatic. Huge drums, things like that. I do really find it inspiring.
+- Most of my favorite artists are strong females.
+- I'm lucky I have really cool parents.
+- I've actually done a cover of 'Train in Vain' by The Clash with Viv Albertine - which was originally written about her.
+- I get on with people. I don't hang out with people who aren't nice. It's like, be real or go home.
+- There are days where I can go into a room full of people, talk to every single person, and feel completely at ease, and feel like making every single person laugh, and feel like everyone's having a great time. There are other times where I go into a room of people, and I literally want to run and hide.
+- I'm very scruffy and messy in the way that I am and always have been.
+- Just be funny. Funny always goes over well, so try to think of something funny to break the ice rather than being weird or using pickup lines.
+- Sometimes I feel like I was born in the wrong year - I think it would have been cool to be alive in the '60s.
+- On my first album, I felt like, if it was going to be turned into a movie, it would have been directed by Sofia Coppola. She creates this kind of pastel-colored palette that's very whimsical but also very stagnant. And that's really how I heard the record.
+- I don't feel embarrassed by any of the music that I like. I think it's all genuinely clever, good music.
+- I make pop music, but I do it on my own terms. I'll never play the game, so to speak, just for success. I'll always follow my heart and make the music I want to make.
+- From the moment I stepped into this industry, I've always had to fight for my ideas and for my voice to be heard.
+- 'True Romance' was definitely, in part, still me finding my voice as a writer. I was nervous, and I was a lot more shy. The album sounds bruised.
+- I was never the cool kid in school, and loads of people told me that I was weird, that I dressed uncool and did uncool things, that I was too nice, too happy.
+- I wish I could rap! I wish I could rap like Azealia Banks or Lil Wayne or someone like that... Twista. He's super fast.
+- When I got signed, I had just turned 16. I felt like I had to continuously have these confrontations with older men who were doubting my ideas because I was a woman, because I was 16.
+- People would always ask me how I came up with my music and what it felt like to make music, and I would always see colours, and then I found out that that was synaesthesia. It helps me understand songs and what I like.
+- I really want to work with Chris Martin. I think he's a genius.
+- My dad always used to encourage me to dress weird.
+- When I was younger, I was addicted to the idea of becoming a rapper.
+- I don't want to sell my soul or anything, but to go on a huge tour would be next level.
+- The second someone tries to put me in a box, I will do everything to rebel against that.
+- I want my music, whether it's sung by other people or sung by myself, to affect the way the Top 40 radio sounds. I want to heavily influence it with things that have come directly from my brain.
+- I never set out to be a cult cool artist. I always made music that I thought was pop.
+- Just because I might be bored doesn't mean I have to look boring. I'd rather look fabulous, like I'm having a great time.
+- I still maintain the fact that when I write songs, I don't know what I'm doing. I don't think about it pragmatically. I say what's in my brain, and sometimes it's great, and sometimes it's terrible.
+- When I was younger, I was quite scared of a red lip. But I started listening to '60s French ye-ye pop when I was making 'Sucker.' I was looking at Brigitte Bardot and those kinds of girls. When they were dressed up, it was often a bold red lip.
+- I always think about fashion when it comes to making music and music videos... what the colours will look like, what the material will be, how will it work with the sound of the music.
+- You can't like everything! You hate some stuff! Say what you hate! Like, I hate Pitbull, and I don't care!
+- I really just want to change the way women think about themselves.
+- If you're in control of everything, then no matter what it is, you can make that feminine.
+- I just feel like the songs I write lend themselves to this girl-power feeling, and those are the artists that I looked up to when I was younger.
+- I count myself as not only just an artist, not only as a singer, but a business woman. I write my own songs; I write my own video treatments, manage other artists. I write for other artists; it's not just about getting on stage and singing a song.
+- Most of my youth I spent being obsessed with Baby Spice, so she was my favorite for a really long time. Now that I'm older, I actually really like Posh Spice the best. Nineties Victoria Beckham is perfection, I think.
+- Fashion is instant. It makes you feel something the second you see it on a body... whether you love it or hate it, or it offends you, or it makes you laugh or cry.
+- I was 15 when I started making music properly.
+- I've wanted to write good pop music, beautiful pop music - not just throwaways. I've always wanted to make it sound luscious and beautiful and cinematic.
+- If there's intelligence behind an opinion, then I'm all for expressing it, but I would never just start a fight with someone for the sake of it - that's just not me.
+- I'm not interested in the idea of celebrity.
+- I like befriending my collaborators because I'd rather make music with people I like than people I pretend to like.
+- The scenes in 'The Virgin Suicides' where Elle Fanning is ice skating are really amazing.
+- When I first started, I wasn't really aware of anything in the industry or aware of who I really was. I just put my music out there and tried to get as many people to hear it as possible. I hadn't really thought about the kind of music I wanted to make.
+- All my favourite pop songs are the most stupid ones, the ones that are the most obvious.
+- I'm a really big Rihanna fan, and I think she's such an incredible artist.
+- I feel like I'm a pop star without being a diva.
+- I love karaoke and totally hog the mic when I go out and do it with my friends.
+- For me, I'm very visually inspired. I'm more inspired by photographs and movies than I am by listening to other music, so for me to create an amazingly intense visual live show is a dream, so I would love to be on that level for sure.
+- I'm not super easy to talk to a lot of the time. I'm just kind of weird.
+- I feel like, throughout 'True Romance,' I was unsure of myself in terms of songwriting. Even though it was my voice, I feel there were a lot of other voices on that record, too.
+- If I can sing along to it, it's pop music.
+- I was only 14 when I started playing the east London rave scene. At the time, I was so captivated by everything. I didn't ever wanna progress out of that scene.
+- I've heard people say to me, 'How can you claim to be a feminist when you dress like that?' I wear a lot of slip dresses and nightwear and stuff. People always question my credibility because of that: 'Oh, are you selling sex? Are you doing this or that to be recognized more or to sell your music?' No, it's just a fashion thing for me.
+- I believe I deserve everything that could maybe happen. And I don't think that's a cocky thing to say because I've worked really hard, and I've never bitten the hand that fed me, and I've always been really respectful.
+- I really love Grimes, Niki & the Dove, stuff like that.
+- I think the process of 'I Love It' becoming such a big song opened my eyes to sides of the industry that I'd never been aware of, which I wasn't so into.
+- I see music in colours. I love music that's black, pink, purple or red - but I hate music that's green, yellow or brown.
+- In the same way that musicians inspire me, artists and photographers like David LaChapelle influence me with their visuals. A photographer like LaChapelle creates an entirely new and unique visual for their work, and that's what I'd like to do with the Charli XCX world as well.
+- I always love wearing Vivienne Westwood. Her dresses just seem to fit me perfectly, and she makes dresses for girls with curves - I love that.
+- Obviously, getting a number in the charts is a nice thing but the cherry on the cake rather than the main cake.
+- My dream collaboration would be with someone like Bjork, Kate Bush, or even Dionne Warwick.
+- You should respect the people you are around.
+- I'm inspired by artists like Robyn, just because she writes amazing pop songs, and they're not throwaway. When I listen to a Robyn pop song, I don't feel like she's just kind of saying something and not thinking; I feel like it's really emotional.
+- My real friends are definitely the people I grew up with - the people who don't care about my music career at all.
+- I love Tinashe.
+- I know some people are like, 'I'm depressed, and I'm a struggling artist,' and that really works for some people, but that doesn't work for me. I have to be really happy, even when I'm writing my depressing songs; I have to come through that stage before I can write.
+- Making my first record, I was really inspired by all the color palettes Sofia Coppola has in her films.
+- I know how to win people over if things aren't going my way.
+- I like working really fast. The best ideas are the first ones that come into your head - so why bother thinking of any more?
+- I've passed up on many a thing that could have made me a big artist or something. Like, I was offered a feature on a Christina Aguilera song and I turned it down. It just wasn't right. She's cool, but it just wasn't right.
+- I definitely went through a phase where I wanted to be a fashion designer when I was younger... But I certainly wasn't very good at it.
+- I loved Justice and Uffie and everyone signed to the label Ed Banger. They were really influential to me when first started making music.
+- I'll listen to 3 artists on repeat for more than a month.
+- I hate the idea of people thinking that I'm just a little girl who goes into studios with pop producers, and they work their magic.
+- The XCX really stands for 'kiss Charli kiss,' which is unbelievably crap.
+- I wrote a song for Icona Pop which boosted my confidence quite a lot.
+- I had this dream to be a rapper when I was younger.
+- When you're growing up, I think there's this idea that the coolest people are the ones who are really rude and feverish. But I've come to realize that isn't cool.
+- If I'm really honest, I can't cook. I'm, like, the worst, worst, worst cook in the world.
+- I actually think it doesn't even matter what age you are or what sex - though that does play into it sometimes - you always have to fight in any kind of creative world because nobody knows your own brain and your own creative ideas better than you do.
+- I think it's cool to be a rock star; I don't think there are many. There aren't many who speak out and take risks. And I think that's important.
+- I always see my songs in colors, and I'm often more inspired by movies and photographs than I am by other songs when I write my music. I'm also inspired by fashion, and I want my music to be a visual painting of what's in my mind.
+- I quite like doing laundry. I find it quite like relaxing.
+- I'm just not very good at being happy all the time.
+- I've been really inspired by Paris Hilton, small dogs, and a glitter, luxe lifestyle.
+- One thing I don't understand is how people want you to replicate your past successes. Being an artist should be about freedom and not just becoming one thing, because I think that's terrible and boring.
+- To me, 'X Factor' is like Vegas. Fake, twisted, but kind of wonderful. Maybe I'm sick, but I find the whole thing quite funny sometimes.
+- I do this weird thing in studios where I climb stuff when I get nervous.
+- A sold-out crowd is better than a number one. But being in the studio is better than all of that.
+- I'm not good at dressing up fancy; I always just do my thing, which is whatever I'm in the mood for.
+- I'm not a diva, and I'm not mean to people or have weird rules.
+- I think I'm a girl's girl in the sense that I support women a lot, and I'm definitely all for girl power, but I think I'm quite a tomboy at heart - even though I love my fashion and dressing up, I think my essence is very boyish.
+- I used to try to bully my friends into imitating the Spice Girls on the playground.
+- Whenever I'm writing a song, if I have an idea for the music video, that's how I know it's a good song.

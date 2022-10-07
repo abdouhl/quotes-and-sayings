@@ -1,0 +1,22 @@
++++
+author = "Chris Cooper"
+title = "Chris Cooper Quotes"
+quotes_len = "16"
+description = "the best 16 Chris Cooper Quotes"
++++
+- I've got research, I have my own life experience I can apply, and I have my imagination.
+- I like a very dry wit, not the big kind of humor like Robin Williams. I don't think I'm capable of that.
+- You look at a herd of cattle and well, they all look the same... but they know. They all have an individual personality, and those personalities change from day to day. They can have their grumpy days and their happy days and their serene days. But it's unpredictable. You can't be off in outer space when you're dealing with animals.
+- I suspect that a lot of studio executives still think of me as 'what's-his-name'.
+- As a rule it usually takes three or four readings for me to be interested in a script, and if I'm interested I'll read it three or four times before I make a strong decision.
+- At my age, I dare say I've kind of established myself, and I don't have to chase a paycheck.
+- I had a couple come in with a negative amortization mortgage on a house that costs way too much relative to their income. They're consuming real estate, not investing in it.
+- Good scripts have always been, I think, hard to find. Good storytelling, good writing - it's just not easy. I have made it a point that - if I'm going to put the energy into doing this work - I will wait until I find something I'm really happy with.
+- I've been around horses, but I certainly wouldn't call myself a horseman by any means. It's a combination of being very aware of them, and not trusting them.
+- You jot down ideas, memories, whatever, concerning your real life that somehow parallels the character you're playing, and you incorporate that in your scene work.
+- When I feel like I'm doing my best work, there is a bit of a freedom, a bit of flight that you're not so much losing yourself but you're sort of in the zone.
+- Well, all I can say is thank goodness I had 15 years of theater before ever I did film roles. You build technique that you can rely on.
+- I'm thrilled with my body of work.
+- I've never been the guy who tried to line up three or four projects down the road. I like to find one piece that speaks to me and then pour my heart and soul into it. Then I come home, recoup, and relax.
+- I don't want to go bald, I don't know what's coming up next.
+- Frankly, my politics are pretty left of left.

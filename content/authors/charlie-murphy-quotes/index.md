@@ -1,0 +1,106 @@
++++
+author = "Charlie Murphy"
+title = "Charlie Murphy Quotes"
+quotes_len = "100"
+description = "the best 100 Charlie Murphy Quotes"
++++
+- Aaron McGruder is a straight-up G. I call him Champ.
+- I feel blessed to be able to do my stand up comedy all over the world, because some people never even leave New York.
+- Everything was a lot more challenging for me because of who my brother was. If I were in the film, someone would had said that I got the part because Eddie's in the film. If I wrote a script, folks would say that I didn't really write that: that Eddie did and I threw my name on it.
+- I was into basketball, football, karate, boxing.
+- I don't think there's a person in the industry that wouldn't love to work with Dave Chappelle. That's a no-brainer.
+- I didn't go to no school for acting. I learned it all by trial and error.
+- The whole thing with the Rick James story sketch and the Prince story sketch - I recounted my past, you know? - and that's what I was doing. It's not like I sat down and said I want to come up with a great story about Rick James. That stuff really happened.
+- You make shows, and you don't go into it thinking, 'Our show's going to be number one'; you go into it hoping to stay on the air.
+- I was always proud of my brother. He helped me tremendously, but we're family, so we were never in his shadow.
+- There's only going be one Richard Pryor. You know how many came out after Richard Pryor and died trying to be compared to him? Or Bernie Mac? You got to be like you.
+- I would say I was an all-American teenager.
+- I guess I must have a good metabolism.
+- Every barbershop has a guy who wrecks shop every time he comes in. He has the whole barbershop laughing. That doesn't mean he's a comedian.
+- If you can't laugh at yourself, you don't deserve to laugh at anybody else.
+- I wasn't drawn to comedy: it was drawn to me - from fighting in school to going to jail, then joining the military and getting into Hollywood.
+- Before I started doing standup, I knew that I had what it takes to develop an act. I went down to clubs with not many people there, and I just worked on it, man. A lot of my friends are comedians, so that part had a lot of encouragement, even though the shows were very caveman-like.
+- Richard Pryor - he had stories, he had characters, he had short jokes, and he had bits. He had all those things. Eddie Murphy has all those things, and he can sing. A comedian is a bunch of stuff; it's not just one area.
+- I think I have had a remarkable and colorful life, so I decided to share it.
+- When I was nine, my father passed away. It's one thing when you're a kid and your father wasn't there for you. My father was there, and then he was taken away.
+- The audience is my hardest and best critic.
+- Eddie had the perfect template of what not to do. His big brother did all the wrong things.
+- Comedy has bits, has jokes, has stories, and it has characters.
+- What I'm pretty much giving you when you see me onstage is me; it's not a fake character.
+- Gangs are formed by kids who want love.
+- 'Chappelle's Show' was like the Tupac of TV shows. It came out, it got everybody's attention, it was a bright shining star, but it burned out, and for some strange reason, it burned out quick.
+- One thing helps the other. My stand-up helps my writing; my writing helps my stand-up; my stand-up helps my acting. They're all interlocked.
+- I was a bodyguard for somebody I love. That's not a good combination. I was always ready to beat somebody up.
+- If I want to be a real comedian, I can't let you dictate my material, so I started creating more new material.
+- I protected Eddie. He never had to fight, because people knew who his older brother was.
+- Back when Sammy Davis, Jr. and Dean Martin were doing roasts, they were all friends. They knew each other's children, each other's wives, each other's families. It wasn't about being disrespectful. It was about being funny.
+- Nobody gave me anything.
+- It's easy to go on television and say horrible things about somebody. And it's cowardly.
+- In the Navy, you're around a lot of people from different parts of the country. They've got different accents, different upbringings. I learned to love country-western music.
+- I never went around saying who my brother was. Everybody else was doing that.
+- I've never felt like I was living in anyone's shadow. My life was what it was.
+- I don't need to wait for someone else to get a bright idea and say, 'I wanna work with this guy.' I can do my own thing and drop it right on the Web and bypass you and your bright idea.
+- Don't take people for granted.
+- When I first started, it was a dare. Someone basically said, 'You're a tough guy... but I'll bet you won't get on a microphone in front of a bunch of people.' I was terrified, but I did it. Once I broke the ice and got onstage and got some laughs, I thought, 'That's not so bad.'
+- If I look at my family tree and follow every generation before us, going all the way back to the slaves, then Eddie Murphy is the highest achievement as far as my bloodline is concerned. How could you be jealous? You can only be proud, unless you got some serious issues.
+- Don't take life for granted.
+- When you're in the military, you get accustomed to sleep deprivation.
+- A comic's like anybody else - he does what he does to support himself and feed his family. But if a comic says the wrong thing, there's a chance the audience will want to take you down.
+- I look at the world and I find the funny in it, because there's funny in everything. No matter how ugly it may be, there's a funny way to look at it.
+- If the 'Chappelle's Show' had stayed on, I seriously doubt I would have developed this fast as a stand-up comedian. I probably would never have taken stand-up comedy really seriously.
+- People who know me know that I'm the last person on earth that wants to be somebody else.
+- If you don't know things, you know, you just go by your instinct.
+- I don't think I have any hobbies.
+- I'll put it like this: When I was in high school, I would never win a popularity contest back then... it was always somebody else that got picked first for whatever reason. But all those people that went before me usually dropped the ball... then I'd get my shot.
+- I respect everybody. You don't have to earn my respect. You earn my disrespect.
+- I've been in a lot of different arenas of life.
+- As far as stand-up comedy, I got into the business later than most, yeah.
+- While I have been to Switzerland, Stockholm, and other parts of Europe and Canada, I don't have a specific place that is my favorite. I just represent Earth.
+- I'm always working, and I'm a single parent, so I don't think I have time for stuff most normal people do.
+- My own son called me Eddie Murphy's brother once. Once.
+- Other comedians got love for me. But don't get it twisted - I'm not a clown, I'm a comedian and work hard as an artist. Clowns go to college.
+- When I was nine years old, I was in a movie called, 'Landlord' with Pearl Bailey, Lou Gossett, and Beau Bridges.
+- I have people tell me all the time, 'I was expecting you to be mean.' Why is that? Because you saw me in a movie? That's acting.
+- If you can't eat incredible food, then what's the point?
+- I'm an entertainer, period. I can write it, I can speak it, and I can act it.
+- I have a very good talent at finding out exactly what it is about yourself that you don't like and then keep bringing it up.
+- I went to jail for a year when I was 17. When I got out, my mother took me to the recruiting office, and I spent the next six years in the Navy.
+- I've been called Mr. Eddie's brother, but I don't trip on that. Whether you realize it or not, that's a sign of disrespect. If you address me, call me by my name. You can't lower me or make me feel uncomfortable.
+- When you don't have money, you fall under the influence of anybody who has the appearance of having it.
+- If you want to laugh, see a comedy. If you want to cry, see a drama, and if you want suspense, see a thriller.
+- In the military, the reason you take the right path is they eliminate other choices. I needed that. They set me straight.
+- You have comedians who just do jokes, and they're called comics, not comedians. You have comedians that do bits - a person that has a lot of jokes that have a beginning, a middle and an end, but it's not a real story. And you have someone that does great stories, the one that blends those things together - that person is doing comedy.
+- If you look at my acting career, I never played a role that was similar to anything my brother played. I was always cast as the bad guy or a gangster, because my brother didn't do those kind of roles.
+- At the end of the day, when Charlie Murphy ain't here no more, I'll have a body of work that people can laugh and remember me by.
+- Before stand-up, I didn't even have an agent. Once I started doing stand-up - boom. I got an agent. In fact, I got three agents. I got a lawyer. Now I get taken seriously.
+- I bombed in front of 5,000 people. Anybody that's ever stood in front of 5,000 people that don't like them can tell you, it's an energy associated with that. You don't want to feel that. You ask yourself, 'Do you really really want to do this?'
+- I like to tease people. I hate when people do it to me, though.
+- My name is Charlie Murphy. I was born into this name, and I've been rolling how I've been rolling my whole life.
+- I was the dude you didn't wanna go to school with, because I would come to school and get on your shoes. If you had a hole in your pants, I'd talk about it all day long. If your hair was messed up, if you had buck teeth, I'd talk about it all day long. And I made people laugh doing it, but it wasn't like I thought I was a comedian.
+- Every script I've read for 'Black Jesus' has been hilarious.
+- Charlie Murphy has been around for a long time. I've worked with a lot of exciting artists, and it was a thrill to be around to watch them display their skills.
+- There are many styles of standup, but the comedians I like are people like Dick Gregory and Richard Pryor. Because Richard Pryor told the truth. Chris Rock. I love Chris Rock. He's funny, but he's also poignant. He's not there just to make people laugh; he's there to make people wake up, too.
+- My whole life is a funny moment, man.
+- I went into the military because I wanted to get an education, not because I wanted to fight anybody.
+- Carolines is the best. It has great sound, you can hear from the front all the way to the back with the same quality. If you want to see the top comics, go to Carolines.
+- I've become a writer, an actor, producing films, and having a TV show. I'm pretty successful and proud of it.
+- I don't hang out with soft cats.
+- Several of my uncles are comedians. My father is a comedian; my grandfather was known for his jokes. It definitely runs in the family.
+- If I'm afraid of something, I'll deal with it and get past it.
+- Most actors can't write. Most writers can't act. Most comedians can't act. I can do all three, so why wouldn't I do that?
+- I don't like to go to regular, big stores - I don't like to wear anything anybody else does.
+- Prior to the 'Chappelle's Show,' you know, no one would even listen to me, in the frame of, 'Oh, he is trying to be funny.'
+- I may make you angry or make you feel sorry for me, but in the end, you appreciate my show because it's not one-dimensional.
+- I didn't want to do anything that could possibly tarnish my brother's career.
+- As the older brother, I was expected to make sure no one messed with Eddie when he went to the park. He didn't have to deal with anyone saying, 'I'll get you after school.'
+- I've always had the luck or blessing that someone would say, 'I liked what you did in that movie. I'd like you to be in my movie.'
+- As a man, if you lose your wife, it's a horrible experience, especially with kids. But when one person passes away and you're still alive, people still depend on you - that's what you have to lean on.
+- I used to irritate people. I'd give them a hard time, and when it drove them crazy, that was funny to me.
+- My background is part of my comedy. Your experiences are where the jokes come from.
+- I wake up every morning, and I am ecstatic.
+- There's no one on the road that I tried to pattern myself after. There's no one in history that I tried to pattern myself after. Because one thing I was told that in standup you want to develop your own voice.
+- I don't have beef with anyone, only martians.
+- Don't underestimate the power of the Web.
+- When I first started doing comedy, I was 42 years old, and I was the brother of one of the most celebrated comics in history who made his name in the game 20 years earlier.
+- There's a lot of racism when I was in the Navy, and I had to deal with that.
+- Most of my good friends have fights with me. Those guys know that I was in martial arts for 12 years fighting on the circuit.

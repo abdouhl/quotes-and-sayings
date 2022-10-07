@@ -1,0 +1,30 @@
++++
+author = "Lynn Shelton"
+title = "Lynn Shelton Quotes"
+quotes_len = "24"
+description = "the best 24 Lynn Shelton Quotes"
++++
+- I don't have a desire to make films that have cardboard cut-out or Hollywood stand-in replicas of humans. I need the real deal.
+- Before adolescence I had an incredible voice. Like when I was 12, 13, 14 - I was taking acting classes, I was painting, I was making music, I was taking photographs. I was kind of exploding creatively, and then something about adolescence really just ground that out of me.
+- There's always so much more that can be conveyed on screen visually in the expressions of people's faces, in their bodies, in their body language. And also with sound design, with music.
+- So many people have said this, but it's true: 95 percent of what I do as a director is casting and getting people who can bear the load of what you're asking them to do and creating this emotionally safe environment.
+- I can't wait to do a fully improvised script again, to find people who are really comfortable and into it. It's about the capabilities of the people you're working with, what are their strengths and weaknesses. Some of the most brilliant actors need the spine of the text to work off of, and there's no shame in that; they're actors, not writers.
+- Hmm, can I be obvious and say there is probably a double standard for male vs. female directors? Sadly, I think that's actually the case. And it probably stems from the fact that there are proportionately so many fewer women directors than men ones that each project is perhaps more closely scrutinized for its content.
+- All we really want in life is to connect to other human beings, and when you desperately want to connect physically to one specific human being and you can't? That's something I find compelling.
+- Flaws make us all human, and you're rooting for characters because of those flaws. It's ageless if you're interested in relationships and the way people can or can't relate to each other.
+- I like to put people into situations that are out of their comfort zone and see what happens.
+- I always knew that I was an artist. I never expected to be able to make a living.
+- You wake up one day and you realize that all these years have gone by and I have this mortgage and I have this couch and I have this life and... is this going to be my prison?
+- I've fallen for straight men, I've fallen for gay men, I've fallen for straight women and gay women. I really have. I had crushes on really every single kind of person in the world.
+- My mom was in education, and I remember reading in one of her books about multiple intelligences - this whole theory about how there are all these different ways you can be intelligent, like eight or 10 of them or something. And one of them is emotional.
+- By the time I hit college, my secret shame was the reason I was an actor was my own words sort of dried up. I stopped writing. I stopped being able to form my own vision. That's actually what my first feature is about - looking back at two different selves.
+- When I started working in film, I loved photography, I loved the image, I loved telling the story within a frame, but as I started playing around with film and video, it was like, 'Oh my god.' You just have so much more to play with.
+- I had a background in theater as an actor, and then a photographer, and then as an experimental filmmaker and editor.
+- For me, I want to see diversity in storytelling sources because we live in a very diverse society, and the stories are for the whole society. That's really important. For me, as a female filmmaker, when I was out on the festival circuit on 2006, I felt like such a freaking anomaly - an oddity.
+- I'm drawn again and again to relationships between people who really, really want to connect and just can't get out of their own way to do it.
+- I can connect with whoever I want to connect with in the world. And I can also write my own script. I don't have to follow rules. I can sort of just be unconventional.
+- Although humor is present in every one of my films, it has always been used as a way to make the darker, heavier stuff in my stories more palatable. I never set out to make 'Humpday' a comedy.
+- I'd love for there to be a situation - a world in which that's just not even a question anymore. We are all filmmakers - different stripes, genders, sexual orientations, colors - and our work can be taken on its own terms. I'm really looking forward to that day.
+- Truth be told, I hear stories every day that would make you say, 'If you put that in a movie, you wouldn't believe it.' Real life really is kinda incredible; the stories from people's actual lives defy credibility. People's lives are messy, humans are messy, and they're flawed.
+- I'm really fascinated by the self and how our selves shift and change over time and in relationship to different people.
+- I feel like this is the way I was meant to interact with acting. Which is as a director, and helping, working with actors to find their way. Facilitating their performances is so satisfying for me.

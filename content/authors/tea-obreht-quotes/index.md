@@ -1,0 +1,28 @@
++++
+author = "Tea Obreht"
+title = "Tea Obreht Quotes"
+quotes_len = "22"
+description = "the best 22 Tea Obreht Quotes"
++++
+- My road to publishing actually came through a colleague who connected me to my agent, and the faculty at Cornell was very supportive.
+- What inspires me most to write is the act of traveling.
+- I like dark subject matter. I'm not sure what that means about me!
+- For me it was a lot harder to come to terms with the death of my grandfather than it was to come to terms with what's happened to the former Yugoslavia.
+- A lot of writers that I know have told me that the first book you write, you write about your childhood, whether you want to or not. It calls you back.
+- When I hit a block, regardless of what I am writing, what the subject matter is, or what's going on in the plot, I go back and I read Pablo Neruda's poetry. I don't actually speak Spanish, so I read it translation. But I always go back to Neruda. I don't know why, but it calms me, calms my brain.
+- My family lived in Egypt from 1993 to 1996.
+- At the end of the day, it's about the reader's attachment to and belief in the magical elements that make or break magical realism.
+- In terms of people that I know, my grandmother and my mother are huge influences on my writing life because they are both massively supportive and always have been of my career.
+- I am very interested in place, and the influences of place on characters.
+- Being taken seriously, for a young writer, is a wonderful form of encouragement, but at the same time, I don't think one should ever feel like attempting a kind of artistic endeavor is beyond your scope just because of age or inexperience.
+- When you're in a place, the details you focus on are different than details you focus on when you're writing about it.
+- I've always written about animals. I'm still trying to process why that is.
+- I think the mythology of death really ran away with me when I was very young.
+- You never know what's going to happen in your life, and you never know what's going to happen in someone else's life either.
+- In the mess of moving from place to place, I skipped two grades in the space of one year.
+- When I was eight years old, I wrote a paragraph-long short story about a goat on my mother's hundred-pound, black-and-white-screen laptop. The story came about largely because I liked the way the word 'goat' looked on the page, but I decided then and there that I wanted to be a writer. That desire never changed.
+- My grandfather and I were very close.
+- A family has its own rituals and its own superstitions.
+- I grew up in Cyprus and Egypt, these fantastic places I remember fondly.
+- The best fiction stays with you and changes you.
+- I do no writing while I'm in Belgrade visiting my grandma.

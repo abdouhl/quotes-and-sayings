@@ -1,0 +1,70 @@
++++
+author = "Catherine Tresa"
+title = "Catherine Tresa Quotes"
+quotes_len = "64"
+description = "the best 64 Catherine Tresa Quotes"
++++
+- Challenges are fun. It's no fun being repetitive.
+- You learn and grow with every film.
+- Generally, I look forward to doing different roles and I am game for challenges.
+- For me, a place is defined by the kind of people inhabiting it.
+- I did Kannada when I was in college. I wasn't even sure of what I was doing. I started figuring out my career in acting when I began doing Telugu and Tamil films.
+- Ranjith is such a perfectionist. His visualisation of scenes makes it easy for the technicians as well as the actors. His attitude exudes so much energy that we want to give every shot our best.
+- The thing I liked most about Puri Sir is that he was so relaxed on the sets. So everyone else was also relaxed. Since there was no stress, one worked better.
+- If I don't enjoy the role I play, how will audience enjoy it?
+- I like mainstream cinema. I like films that are definitely commercial. I try and stick to that as much as possible.
+- I did not make any specific statement in 'Madras' and did what the character demanded. 'Kanithan' was an entirely new concept that needed the glamour quotient.
+- I read a lot of books; I am a lazy person when I don't work!
+- Part of being an actress is being glamorous. For me, it is fun.
+- I listen to music, meet my friends, spend lot of time with my pets and party at the gym!
+- I always liked performing. I learnt to sing, play the piano and dance. I was good at academics too but I was interested in extra-curricular activities. My parents encouraged me.
+- I am conscious that each film I do is in stark contrast to the earlier one.
+- While growing up, my favourite part about Diwali was the delicious sweets.
+- When you dance with Arjun, the bar is set so high that you need to really push yourself to match up to him. Nevertheless, it's always fun to dance with him.
+- Puri Sir is a fantastic director.
+- I want to be a versatile actor and do different kinds of roles.
+- I'm not particular about being kissed under mistletoe. That being said, I'm not averse to trying it either!
+- I was brought up in the U.A.E.
+- Chennaiites are warm and caring - and for me any city is about the people. In fact, I would love to spend more time in the city. Also, I am fond of the south Indian dosa and sambar.
+- In the film 'Paisa' my character can't be called glamorous. It's more performance oriented.
+- It truly is the most amazing Indian festival. I love Diwali because of what it symbolises - it's a festival of light and how it takes over darkness and brings positivity into our lives. That's the essence of Diwali and it's beautiful.
+- I don't like to stagnate. I'd get bored doing similar films.
+- I love to dress up and look good.
+- The response to 'Kadamban' was strictly average; all of us know about it. The result didn't match our efforts and it was a let-down. We slogged hard and gave it our all, but failure is part of the game.
+- Something can have an impact on you only if it challenges you.
+- If you want to be an actor, you have to be serious about it. You can't be goofing around.
+- Whatever I do, I give my 100 per cent to it.
+- I am open to all scripts and I am not very picky.
+- Kadamban' is not a documentary, although it's set in a tribal backdrop. There's dancing and a whole lot of entertainment.
+- It is important to learn a new thing. You shouldn't be boring... nobody wants you to see you that way.
+- Who knows which film and what role can bring you fame?
+- I thoroughly enjoyed working with him. He's truly a fantastic actor and is extremely dedicated. I feel I have grown better as an artist working with Karthi.
+- When I hear a story, I think about it from the point of view of the audience.
+- Every actor and director goes through ups and downs and I feel it's not to right to judge them.
+- I like clarity in what I do.
+- I like dancing a lot, but I would like to do it as a part of a film and not as a special number.
+- I am fond of turkey with all the stuffing, which is my favourite!
+- I easily get bored when I have to play the same kind of roles.
+- I'm extremely happy to be doing different projects, taking up diverse roles that allow me to explore my own potential as an actor.
+- None in the 'Madras' team knew what to expect. We were just sure that we were making a good film.
+- I wouldn't say films are a natural process after modelling. Films are more complex. There is not much connection between ramp shows and films.
+- When I started out in films, I didn't know any of the languages I worked in.
+- I may be working in different languages, but the sentiments of audiences remain the same.
+- I don't subscribe to the idea of a first and second heroine. I go by if a role is strong.
+- I don't believe in the concept of a niche or a space. I'm doing good films and I just want to keep getting better.
+- I want to improve my dance moves and achieve perfection.
+- For more reasons than one, my first film in Kollywood, 'Madras,' will stay with me forever.
+- When I was in school, Diwali was always a holiday. So we would go and meet friends.
+- Vishal is a gentleman. I really enjoyed working with him on the sets. But he keeps pulling everybody's leg!
+- I choose a film only if my character has got importance. My character should have some weight. I shouldn't be someone who just comes and goes.
+- I like movies and I love working in both Tamil and Telugu.
+- I grew up in a household where sweets were not given to you whenever you want. It was restricted only to special occasions.
+- I look at my role and how important it is for the film. For instance, my role in 'Sarrainodu' was very much appreciated.
+- I want to do different kinds of roles and work on good scripts because doing the same kind of roles is boring - both for me and the audience.
+- Every film is special, irrespective of the result.
+- Of course, as a model and actor, one has to look good and maintain oneself.
+- I am a great food lover.
+- The first time I visited Chennai was in 2013, July, I think. I came here to meet the director of my first Tamil film, Pa Ranjith for 'Madras.' We did a test shoot and I left the same evening. I didn't get to explore the city much at that time.
+- I did 'Madras' because of the script, which was compelling.
+- Glamour, for me, is looking good. It has nothing to do with short clothes.
+- I enjoy working in the Tamil industry very much.

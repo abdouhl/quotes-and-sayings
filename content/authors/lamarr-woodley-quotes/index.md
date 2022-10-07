@@ -1,0 +1,15 @@
++++
+author = "Lamarr Woodley"
+title = "Lamarr Woodley Quotes"
+quotes_len = "9"
+description = "the best 9 Lamarr Woodley Quotes"
++++
+- Having bands in the NFL would take up seats. If you take up seats in the NFL, you're losing money.
+- Man, y'know, I'm a music guy. I like a lot of different things. It depends on the time of the day and the situation.
+- When I see other people out there, involved, and really giving their time and effort for the kids, then I don't mind giving my time and effort for the kids as well.
+- In the game of football, you need to be strong, and at my position, you need to be able to put up a good fight. So I work on my upper body and lower body strength because your body's got to be able to last.
+- You don't want to overeat too much because then you have to work twice as hard.
+- I love the smell of Burger King when I ride past, but sometimes I have to avoid it.
+- I'm usually listening to Sirius Satellite in the morning. 'The Heat' usually plays good music.
+- On Monday I come in and get in a full body workout, and then I come back in on Wednesday and do a quick six, which consists of bench press, biceps and triceps curls, pull downs, something for the back and the neck. And then you come back and hit it again on Friday with a 16-machine workout.
+- Winning and making history is something you can't buy. Me? I'm a guy who loves history. When I'm 60 or 70, I don't want to be remembered for the money I make. I want to be in the history books.

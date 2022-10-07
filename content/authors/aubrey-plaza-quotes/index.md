@@ -1,0 +1,41 @@
++++
+author = "Aubrey Plaza"
+title = "Aubrey Plaza Quotes"
+quotes_len = "35"
+description = "the best 35 Aubrey Plaza Quotes"
++++
+- My people would love it if I smiled more, if I was more 'approachable.'
+- There's no photo-shoot academy. If there was, I'd probably be kicked out.
+- When I'm on the couch, I usually have the TV on and my MacBook Air nearby. And sometimes, when my ADD is really kicking in, I have my iPad too. And my iPhone. And a magazine that I haven't gotten to. And a book under the pillow to my left.
+- I get really weird when I'm not working. I have to keep working.
+- A lot of independent films offer a harsh reality check.
+- I've felt depressed many times in my life, so I can draw on those times in my life when I need to.
+- I'm pretty good at weaseling my way into a job, even if I have no business being there.
+- There are always parts of me that come out in the characters that I play - it's the only thing I have to work with and to draw off of.
+- I like my name. My mom named me after a song by the 1970s group Bread. So, it's meaningful, and I like the song. It's a love song - kind of - but it's kind of depressing and dark.
+- I'm not super comfortable in my skin. I have to make it work for me, and that usually amounts to making it uncomfortable for everyone else.
+- I'm totally an anxious mess all the time. There's a constant dialogue going on in my brain, and it's just reminding me of all the failures that I have had, and all of the things I need to do, and all of the things I'm not doing good enough.
+- Well, I was obsessed with Judy Garland growing up. Like, obsessed.
+- I just want to keep finding special characters that I feel like I can bring to life and characters that are real and not superficial.
+- I'm not a super emotional person, so that's one reason I love acting - it makes me deal with myself in that kind of way.
+- My grandfather came over from Puerto Rico and raised his kids speaking English so that it would be easier for them to assimilate.
+- Sarcasm is weird. Even not in acting, in life I feel like 'sarcastic' is a word that people use to describe me sometimes so when I meet someone, it's almost like they feel like they have to also be sarcastic, but it can sometimes just come off as mean if it's not used in the right way.
+- I think being on a TV show is amazing but also, people get kind of used to seeing you a certain way and so it becomes a challenge to break free from that in a way.
+- Writing is hard - writing is the hardest.
+- I don't let myself 'surf' on the Web, or I would probably drown.
+- Louis C. K. is one of my all time favorite standup comedians.
+- I would never do a commercial for something that is embarrassing, and I think that people maybe have a different perspective on what is embarrassing or not. Some people think doing a Revlon hair commercial is really cool. To me, that's embarrassing, but World of Warcraft - not embarrassing, very cool.
+- When I was in high school I was a really huge 'SNL' fan. I remember the cast around the time I started watching it - Will Ferrell, Ana Gasteyer, Molly Shannon, Cheri O'Teri, Tracy Morgan. I did research to find out how people got on the show. Their bios always said they came from an improv team, so I started taking classes.
+- I'm not, like, Daniel Day Lewis. Yet. I will get there!
+- I can't say I follow politics extremely closely, but I'm definitely aware of what's going on in the world.
+- I love great acting, as nerdy as that sounds.
+- If I have the option, I always read the paper or a book or something I can touch and destroy in my own hands.
+- I am a Netflix/DVR junkie. I don't like to watch TV without a plan.
+- I mean, sometimes I hate interviews because I always feel like I sound stupid.
+- When I was doing comedy in New York, before I was in movies, I was never known as the deadpan actress. I was just a comedienne.
+- Tina Fey is one of my heroes.
+- I'm like that person who hates going to magic shows - and I love magic, I love wizards - but going to a show where there is any possibility of audience participation is a nightmare for me.
+- I obviously bring all of my insecurities along with me to any role that I tackle.
+- With stand-up, it doesn't matter who you are. If the audience claps because they love your movies, that clapping stops after five seconds, and then it's your job to make them laugh.
+- It's such a thing now, people making fun of other people on the Internet.
+- When you improvise, you work off the laughs from the audience, but when you step on stage to do standup, it's silent.

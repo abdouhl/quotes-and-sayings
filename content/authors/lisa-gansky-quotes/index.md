@@ -1,0 +1,28 @@
++++
+author = "Lisa Gansky"
+title = "Lisa Gansky Quotes"
+quotes_len = "22"
+description = "the best 22 Lisa Gansky Quotes"
++++
+- Every time we share something rather than own it ourselves, we reduce the stress on the planet. That could make the critical difference as the global population continues to grow.
+- Those projects most successful on Kickstarter - those that receive funding completely and quickly - do so largely because the creator has a strong social network and invites people to be engaged.
+- A shift toward access and service would deepen the big-box retailer's relationship to customers and win their loyalty. A service focus would bring more rewarding, frequent, and lasting contact with grateful customers.
+- We are able to use technology to make it clear that someone's car is available or a room in a home is accessible; that there is an available desk in an office someplace.
+- Walmart and other big-boxers could become the center of gravity for the conservation of goods, employ people with actual know-how, and develop deeper, longer term, more profitable relationships with their customers.
+- A new model is starting to take root and grow, one in which consumers have more choices, more tools, more information, and more power to guide these choices. I call this emerging model 'The Mesh.'
+- Insurance and funding traditionally drive capital investment. But in a world based on access, not ownership, the duration, value, cost and extent of financial services is distinctly different.
+- A brand is a voice and a product is a souvenir.
+- The mobile Web, location-based services, inexpensive and pervasive mobile apps, and new sorts of opportunities to access cars, bikes, tools, talent, and more from our neighbors and colleagues will propel peer-to-peer access services into market.
+- Your brand is your public identity, what you're trusted for. And for your brand to endure, it has to be tested, redefined, managed, and expanded as markets evolve. Brands either learn or disappear.
+- I really like Kickstarter because you don't have to be a Medici to fund the arts and sciences or to get behind a big idea or a person that sparks your imagination. It's a type of microfunding directed toward creators.
+- RelayRides and WhipCar, AirBnB, Roomorama and One Fine Stay are all stellar examples of how new, access-based offers entice and provoke insurance companies and banks to re-think risk, value, customers and deal terms.
+- I've felt a little culpable that we entrepreneurs often invent businesses just to drive people to buy more things.
+- Our ever-present mobile devices provide the immediate and convenient information necessary to make sharing things truly irresistible.
+- Some of history's cleverest business minds understood the power of share platforms, from the aggressive titans who made fortunes building the nation's railroads, to Conrad Hilton, who created the first premier brand of international hotels.
+- At the global level, there are a growing number of city-based bike-sharing programs that take advantage of mobile devices to reserve your bike, keep track of it, and collect data that helps to improve the service.
+- Try out lots of different options early in your career. Then watch the responses: how you feel, what the market values, what people appreciate about you. It's the only way to find work that's uniquely right for you.
+- For most jobs, especially those in the digital economy, there is no objective standard for being 'qualified.' If you and the team you're working with think you're qualified, you are.
+- The Mesh is about creating and managing what's perishable. It provides businesses with the ability to reach an audience of one, at a precise time.
+- Cities are ripe for redesign, and many are already well on that path. Cloud-based networks that provide easy and inexpensive access to and tracking of services like transportation, energy, waste management, bill pay, citizen engagement and more are testing and enriching their services.
+- The Mesh difference is that with GPS-enabled mobile Web devices and social networks, physical goods are now easily located in space and time.
+- When what you do and care about is aligned with what the market wants and cares about, you've created a recipe for career success.

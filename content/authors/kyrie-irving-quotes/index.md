@@ -1,0 +1,38 @@
++++
+author = "Kyrie Irving"
+title = "Kyrie Irving Quotes"
+quotes_len = "32"
+description = "the best 32 Kyrie Irving Quotes"
++++
+- I love the gym; I love basketball. I'm really passionate about it.
+- I'm going to give input when I need to. When it needs to be said.
+- I can't even give my father a proper gift. Every single Father's Day means so much to me. I'm so close to him. He's my big brother, but also my father.
+- 'Grease' is an awesome movie. I wish they'd make a new one, more for our time. The graphics are terrible when you look back on it.
+- When I'm playing the 1-guard, teams do a great job of just loading up and preparing for my drives and preparing for my three-point shots.
+- Going in, you want to play a perfect season and play throughout the whole entire season, but injuries are a part of basketball.
+- Even during my injury, I had fun because I got to be a regular college kid.
+- I do feel like a Clevelander. Every time, when people ask me, I automatically say, 'My home is Cleveland.'
+- Everybody in the NBA is good. And then you have the really good ones and the great ones.
+- Multiple Bentleys isn't making anyone 'financially set.'
+- When you're playing against a whole bunch of All-Stars, it's like a video game. There's so much talent on the floor at once.
+- Guys like Josh Gordon need to stay in his sport and mind his own business.
+- My eventual goal is to win a championship. And before I retire, I just want to win a championship. That's it.
+- When I'm playing the 1-guard, I'm kind of seeing everything that's going on. When I play the 2, I have a more broader understanding of what's going on and where the screens are being set in order for not only myself to get open, but for my teammates.
+- One thing that somebody told me is that leadership is a lonely role - some people can do it, and some people can't.
+- I've been musically inclined since I picked up an instrument in the fourth grade. I just really appreciate music. I love to listen to it; I love to sing. I wouldn't consider myself, like, a natural singer. I just developed it over time, honestly, just listening. I'm a great listener to music.
+- One game I'm always on is 'NBA Jam.' And 'Bejeweled,' games like that, and 'Temple Run.'
+- I'm a big video game fan.
+- I don't leave home without my Skullcandy Crushers. I don't leave home without my Bible, without my phone, and without my computer.
+- My focus is basketball, and that's it.
+- I'm not really a big X's and O's guy, but if you want to go there, I'm more of a space-the-floor type of coach: Five out, zero in, and that's the way we play basketball, screen and roll here and there, pocket passes everywhere; it's what it's about.
+- I'm probably one of the most competitive people ever.
+- The only thing I command is respect.
+- I want to be on the cover of 'GQ.' That's a personal goal.
+- I've worked countless hours in the gym, so I feel like I'm already prepared for the game. So when I'm listening to music pregame, it's really just about personal enjoyment.
+- Draft day is a hectic day, especially for draftees and, more or less, for management.
+- All I do is sit at home and watch Netflix.
+- You want to keep the defense guessing.
+- I do have a chef, but I still go out. Sometimes I can still blend in, and sometimes I get a little bombarded. It's the best of both worlds.
+- I went to my agent and told them, 'I want to be on another Disney show.'
+- Directors tell me what to do, and I kind of just put my own twist to it, just to get inside my personality that everybody doesn't really get to see - my off-the-court interests and the way I act. It's just me.
+- When it applies to the Olympics and making a decision, I have to claim Australia as my country.

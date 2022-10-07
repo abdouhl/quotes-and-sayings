@@ -1,0 +1,31 @@
++++
+author = "Kim Raver"
+title = "Kim Raver Quotes"
+quotes_len = "25"
+description = "the best 25 Kim Raver Quotes"
++++
+- For me, the amazing thing was entering into this amazing world of 'Sesame Street.' We'd be in the kids' room, and there was a door into the soundstage that said '1-2-3 Open Sesame.' I remember pushing that door open and going into this incredible magical world of make-believe. In one episode, I was playing football with Joe Namath.
+- In my sports or workout life, I like to prove to myself I can do something, whether it's a half marathon or whatever it is. I like to take challenges that scare me because then once we've accomplished it, we feel stronger.
+- You finish a job and it's very emotional because you're working crazy long hours, and your work family is like a real family.
+- In this business, there is an insane amount of pressure, spoken and unspoken, to be thin. If you look at some of the television shows, eating disorders become like a competitive thing.
+- When I started 'Third Watch,' I knew I was going to be with the firefighters and lifting, so I was doing yoga, running, and swimming - all at the same time. I didn't have a kid then. Now I don't have time for that. I want to spend time with my son and my husband, so it's mainly just yoga now.
+- I have an incredible role model in my mom. She was a single mother raising two kids in New York.
+- When you live in America, it's kind of insular - the news coverage that you get - unless you're really smart about it and find more international news coverage.
+- Maybe because I didn't have a huge film career right off the bat, I've been able to create something different, which is so important to me. That's myself, my idea of who I am.
+- As long as I get those running shoes on, then there's no turning back, and I have to go for that run. As long as you've got those workout clothes, you've got them on, you've got to go.
+- I think it's necessary to let kids get bored once in a while - that's how they learn to be creative.
+- I have a dog. He needs to be walked, and I love running, so I pull out my running shoes.
+- We always have dinner together as a family - even when our schedules are totally hectic. I inherited that from my mom, who would come home from her ad agency job to eat with us before going back to work.
+- For me, because I've been working out since I graduated college, I have to mix it up. But it's not just working out for health's sake; it's also a whole mindset for me. Yoga is really important for that.
+- I had this roommate in college who would get up almost 2 hours before class to do hair and makeup. That's not for me.
+- I just am a huge fan of PBS. They've taken great risks from great shows.
+- I love to roll out of bed and throw something on. I had this roommate in college who would get up almost 2 hours before class to do hair and makeup. That's not for me.
+- When you live in America, it's kind of insular - the news coverage that you get - unless you're really smart about it and find more international news coverage. I've learned that from my husband. In the French culture, they talk politics.
+- In the French culture, they talk politics. I didn't find it was part of our culture to have political arguments at the table. My husband's family will get into major politics, and it's not an aggressive thing. It's so interesting and you learn so much, whether it's Right or Left, and that to me has been really great.
+- There seems to be a theme running through the women I play. They take their circumstances and try to make the best of them.
+- For a quick, healthy meal that's also fun for kids, I serve fish tacos: soft tortillas, lettuce, tomatoes, black beans and brown rice.
+- When I need a break from the boys, I go with my girlfriend to buy pretty little dresses for her daughter.
+- I think what's so interesting for me is the different roles that I play. I love doing the research, and I love - I feel fortunate in the sense that I get to explore many different worlds, of things that I may not really get to learn a lot about.
+- I've learned from my French husband and the way they eat, it's all about moderation. And that's really sustainable.
+- My mom has always been a huge inspiration. She was a single mom raising two kids in New York. Now that is full-on all the time.
+- As women in general, I don't think we take the time to find ways to take care of ourselves.

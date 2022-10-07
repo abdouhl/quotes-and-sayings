@@ -1,0 +1,27 @@
++++
+author = "Lesli Linka Glatter"
+title = "Lesli Linka Glatter Quotes"
+quotes_len = "21"
+description = "the best 21 Lesli Linka Glatter Quotes"
++++
+- I was born in Dallas, and I grew up both there and in New York City, which was very schizophrenic.
+- Every creator sets up their world differently. That's what's so amazing about someone like Aaron Sorkin and his writing.
+- On various shows, I've been the producing-director, the executive producer-director; and if you were working with the material you love with the right group of people, it's an incredible job to be doing.
+- I don't ever want to impose something on the story. I want the story to tell me.
+- When you're working in a collaborative storytelling medium, every step of the way, you're opening yourself up.
+- Demi Moore is an extremely sexy woman. Melanie Griffith, Annette Bening - these are all brave women. They've all managed to have kids and still be sexy. If anything, being a mom makes them even sexier.
+- To anyone in the position to hire women directors: Make the commitment.
+- When I went into film, it never occurred to me that I wouldn't be able to do whatever I wanted to do. Maybe that was a good thing in the beginning. I had blinders on, and I charged forward.
+- We often hear of a male director directing a great indie and immediately being offered the next huge comic book movie. Rarely, if ever, does this happen to a woman.
+- Like any director working today, I started out when somebody took a shot at hiring me. It's how we all start out - male, female, white or minority.
+- The characters, to me, in 'Homeland' are not one note in any way.
+- As somebody who has been an executive producer on a television series, I can tell you that increasing director diversity is as simple as hiring more women and more people of color.
+- America had the message of freedom and democracy, but we haven't actually shown that to be what we do in the world. So I think that's a terrifying thing.
+- Film schools are now nearly 50-50 male-female, and women are also well represented at festivals and in indie film. But what happens to them after they direct their first film or short? Where do they go? They certainly aren't being given the same opportunities as their male counterparts.
+- I like to really know what every scene is about, what the text is, what the subtext is. Then I figure out how to express that when I'm shooting.
+- Trust the material; trust the story that you're telling.
+- We've heard the excuses from those responsible for hiring that they don't want to take a chance on a new director. But the truth is that the industry hires new directors all the time; it's just that most of them are white males.
+- One of my first episodic jobs was on 'Twin Peaks,' if you can imagine that - one of the most unusual series ever.
+- Sometimes there are no good choices.
+- My background is in modern dance. I was a dancer and a choreographer before I was a director, and in dance, you can't cheat. Your leg goes up in the air, or it doesn't. So when I direct, I'm a big preparer.
+- I have been helped over and over by wonderful men and women in my career. Men help each other all the time, and that kind of inclusion among women can create similar success.

@@ -1,0 +1,36 @@
++++
+author = "Alex Pettyfer"
+title = "Alex Pettyfer Quotes"
+quotes_len = "30"
+description = "the best 30 Alex Pettyfer Quotes"
++++
+- I love New York. I love L.A. too. I love both places.
+- 'I Am Number Four' is an action-packed adventure entwined with a romantic story. I play the role of John Smith. John wants to be a normal kid, but he is from a different planet and he has been given this destiny of becoming a warrior.
+- I think most actors are insecure and scared of rejection.
+- I've always been the guy that loved being scared or loved having pressure on me, because I always wanted to prove myself wrong and always wanted to prove that I could do it.
+- I want to have lots of bodyguards around me and be surrounded by beautiful women while watching my brother play at Wimbledon.
+- I never think about the next movie. I always think about the situation I'm in now, but you do think about an arc someone can go. I love Johnny Depp, I love 'Pirates of the Caribbean,' but I never wanted to play the same character over and over again.
+- I prefer to play the bad guy - it gives you more freedom as an actor.
+- I jumped off a cliff backwards for 'I Am Number Four,' which was pretty cool. I'd never done that before. It took seven takes from different angles and luckily there were no injuries. I came close, though. My head nearly hit the rock at one point.
+- There are not many places in the world where you can get to the beach in an hour, the desert in two hours and snowboarding or skiing in three hours. You can do all that in California.
+- I love traveling, but I hate planes.
+- Los Angeles is a very magical place when you take the entertainment industry out of it. You have beautiful beaches and amazing mountains here. I'm a big rock climber. I head out into the mountains whenever I have free time. It's amazing.
+- The thing is when you play a character it's the persona you bring across from a book to film, or book to script to film. If I play Frank Sinatra, there's gonna be things I do in a movie that Frank might not have done, but it's the personality that comes across.
+- Look, every actor has a different way of preparing or creating a character and yeah, we all are from different backgrounds.
+- I've heard I've been called a bad boy, or difficult.
+- I don't really look for a script and go, 'I need to do a thriller, so I'm going to do this.' I just read scripts and look for the best possible story.
+- I did a modeling gig for Burberry once, and it was a great experience, but no I am not a model. I want to be a model because it's a lot easier than acting.
+- I think you have to be very secure as an actor to escape yourself - to revisit someone's past, whether you're portraying another person or creating someone, and then to come back to who you are and not bring those emotions with you.
+- 'I Am Number Four' is a great story about a guy who's trying to find his destiny and figure out who he is and his identity.
+- I've learned by watching films that inspired me and people who inspired me like Robert Redford and Paul Newman. I love old school acting. I love subtlety, and I also love being spontaneous, and that's really what works for me.
+- I wish I had some interesting stories about living in L.A., but mostly I just do my work and then go home.
+- To act alongside a TV idol of mine, Peter Krause, was phenomenal. I watched him in 'Six Feet Under,' I watched him on 'Dirty Sexy Money' and I'll carry on watching him, and I've been lucky enough to be a part of that world with him.
+- I'm the gypsy man. I don't really live anywhere. I've got a roof over my head in Los Angeles, and I've got a lot of friends everywhere.
+- Being an actor in L.A. is like being in prison: you go, you serve your time, you try to replicate Johnny Depp's career - and then you move to Paris.
+- I'm very ambitious. I live in reality but I have dreams I want to fulfill - I want to be a director, and I've already started my own production company. But I also have a measure of success that I keep to myself. It's something very personal to me.
+- My favourite books are Charles Bukowski's 'Post Office' and 'Women.'
+- My dad's one of my biggest heroes. I also think Paul Newman's an inspiration. I know a lot of people say that, but I love that he's a great role model and a humanitarian. I admire people who don't necessarily want to change the world, but try to make it a better environment.
+- I'm forever a Pittsburgh Pirates fan. Apparently I've picked the worst baseball team in the world.
+- I'm too scared to perform onstage. I'm not very good with big crowds.
+- I remember reading 'Disturbia,' one of the first scripts I ever got, and I go 'Pfft, who wants to make a movie about a guy in a house?'
+- And that's what I really love, is finding a script and fantasizing and going to a different world and kind of portraying a character that is interesting. Because other lives interest us, that's why we read magazines like 'People' and try and fascinate and drool over what other people are doing.

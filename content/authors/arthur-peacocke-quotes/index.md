@@ -1,0 +1,14 @@
++++
+author = "Arthur Peacocke"
+title = "Arthur Peacocke Quotes"
+quotes_len = "8"
+description = "the best 8 Arthur Peacocke Quotes"
++++
+- God is creating at every moment of the world's existence in and through the perpetually endowed creativity of the very stuff of the world.
+- Humanity could only have survived and flourished if it held social and personal values that transcended the urges of the individual, embodying selfish desires - and these stem from the sense of a transcendent good.
+- In the nineteenth century, many Anglican theologians, both evangelical and catholic, embraced positively the proposal of evolution.
+- For many decades now - and certainly during my adult life in academe - the Western intellectual world has not been convinced that theology is a pursuit that can be engaged in with intellectual honesty and integrity.
+- We are the first generation of human beings to have substantial insights into the origin of our cosmos and of human life in it.
+- The scientific perspective of the world, especially the living world, inexorably impresses on us a dynamic picture of the world of entities and structures involved in continuous and incessant change and in process without ceasing.
+- Such an emphasis on the immanence of God as Creator in, with, and under the natural processes of the world unveiled by the sciences is certainly in accord with all that the sciences have revealed since those debates of the nineteenth century.
+- Classical philosophical theism maintained the ontological distinction between God and creative world that is necessary for any genuine theism by conceiving them to be of different substances, with particular attributes predicated of each.

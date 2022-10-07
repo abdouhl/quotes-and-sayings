@@ -1,0 +1,41 @@
++++
+author = "Tim Curry"
+title = "Tim Curry Quotes"
+quotes_len = "35"
+description = "the best 35 Tim Curry Quotes"
++++
+- The way the world is, I think a silly evening in the theatre is a good thing, to take our minds off terror.
+- Musicals are famous for being in a constant state of flux.
+- Um, musicians are funnier you know, than actors on the whole.
+- I'm not a conventional leading man at all and have no wish to be.
+- There's nothing more daunting than a musical, but there's also no more direct line to joy. Getting there, though, is like pushing treacle up stairs.
+- But we live in a modern world, you know, and, and also it does seem to me that if you - that whatever talents you have, it... I mean it may sound a bit absurd but I, I think it's your, absolutely your duty to resolve them, you know?
+- I still find it quite easy to find my way into a child's imagination. We're all Peter Pan ourselves in some respects. Everybody should keep some grip on childhood, even as a grownup.
+- My great hero is Billie Holiday, and I've always wanted to do an album of standards with a piano-led quartet.
+- Well, you know... I grew up in postwar Britain, when you were lucky to get anything to eat. People in America have absolutely no conception of how austere England was after the war. While you were all sort of eating butter and eggs, we were eating rabbit. That's what there was in the butcher shop.
+- I'm good at my own company.
+- I remember candy rationing until I was, like, 7.
+- With a sequel, you always worry for its integrity.
+- When I did 'Amadeus,' I hadn't done a play for five years. And I was so happy doing it and felt so foolish that I hadn't done a play for such a long time that I wanted to go back and really kind of reach out for a classical career.
+- I moved to L.A., because that's where they point cameras at you. And that's what I'd like them to do.
+- I think that if you get too close to the character, if you do too much historical research, you may find yourself defending your view of a character against the author's view, and I think that's terribly dangerous.
+- Any part that makes you world famous has got to be a blessing, hasn't it?
+- Contrary to popular belief, I don't just play dreadful old villains.
+- One of the best things that ever happened to me was Rocky Horror being a total flop in New York as a play. I mean, it was a disaster, and it was the night of the long knives as far as the critics were concerned.
+- Mozart was very much an arrested adolescent.
+- I want to establish a wide range and play all kinds of parts. It's that sort of acting career I really respect. I like to turn a sharp left from whatever I've done before because that keeps me awake. That's why I want to be an actor - I don't want to play endless variations on one character.
+- I love to sing.
+- I've turned down a lot of roles to make time to record and tour.
+- I think artists are driven by the engine of their own talent, but it's a question of what use they put it to.
+- I was a huge J.M. Barrie fan as a kid, as most English children are.
+- The people on the business side in the music business are kind of different from the theatre business. I think it's partly because there are different pressures on the industries.
+- My career has evolved at its own peculiar pace. American careers are supposed to have a much more singular direction than I've been able to... stomach.
+- I've worked in a few sort of 'institutional' theaters - the Royal Shakespeare, the National Theater in England - and they're hopelessly top-heavy with bureaucracy.
+- I find there is something very intimate about being the voice in someone's ear when they're driving.
+- Kids will eat anything, won't they?
+- You can't stay away from the theater too long.
+- Don't dream it, be it.
+- In most careers, you find something you do well, and you tie an increasingly larger bow on the package.
+- I like risky parts - abrasive characters the audience won't necessarily like.
+- I like dangerous directors who like dangerous actors and dangerous productions.
+- My interests and obsessions have always been so wide-ranging that I keep popping my head out of different boxes as much as possible.

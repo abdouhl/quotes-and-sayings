@@ -1,0 +1,35 @@
++++
+author = "Ray Fearon"
+title = "Ray Fearon Quotes"
+quotes_len = "29"
+description = "the best 29 Ray Fearon Quotes"
++++
+- I loved playing a character that women fancied.
+- I'm shy; I work hard.
+- I now go to my dad's grave to read scripts and learn lines. It's the most peaceful place. I go to see him, and it's fantastic.
+- I gave up tennis to study, but not before it had shown me how to focus and concentrate. It taught me self-discipline: I was playing four or five hours a day and doing five-mile runs. When I stopped, my energy had to be channelled into something else.
+- I only ever agreed to appear in 'Corrie' for two months, but I ended up staying a lot longer. I really enjoyed it.
+- When you're playing your part, you don't watch other people - you just play your part.
+- I'm a member of BAFTA, so I vote in all the films that come up for the Academy Awards.
+- I like curvy women. But obviously, a sense of humour is the most important thing. And there's nothing sexier than a girl who is comfortable in her own skin.
+- I suppose I've been selfish in the past and put my career first. But priorities change.
+- You only learn if you're given a crack at things.
+- Anything that brings people to see Shakespeare is fine by me. He's the great humanist.
+- Evening dinner dates can cloud your judgment.
+- I normally go through every single line as part of my warm-up before a show. When I'm working on a film or TV programme, there often isn't a rehearsal, so I tend to learn my lines much later. They are often shorter, too, so they're essentially just there.
+- The important thing with memorising a part is not to force it. Sometimes when you're rehearsing, you'll think it's not going in, but it is. On stage, you have to trust that the lines are there, because they are. The real challenge is to relax.
+- When I discovered drama, I felt a connection.
+- My father died from a heart attack. He was the sort of person who wouldn't complain. The symptoms are not heavy - a bit of chest pain, arm strain, or indigestion. People ignore those symptoms because they think it's trivial. Don't feel afraid to come forward.
+- I got my Equity card and agent before I ever went to drama school.
+- I went to the RSC, and I became a leading actor.
+- I'd like to meet someone. I'm not scouring the streets, but I'll keep an eye out.
+- On your journey, don't forget to smell the flowers. Take time out to notice that you're alive. You can only live in one day.
+- I like people who enjoy life. I can't stand women who play games. I lose interest very quickly. I prefer up-front honesty.
+- The script looks huge when you first get it, but you just have to go home and drill the lines out. The more you read it, the shorter it gets. I usually read it at least four times.
+- A lot of my ex-girlfriends would say I've been a rubbish boyfriend.
+- I can guarantee this to you: every single actor has had a dream of walking on stage on press night and realising that they don't know their lines.
+- In modern life, we hide behind ourselves. In Shakespeare, there's nowhere left to hide. It's life, larger than life, and every actor has to raise their game to get there.
+- Great actors - it's got nothing to do with colour.
+- I just want to work on good scripts.
+- Isn't it annoying when your face doesn't do what you want it to express?
+- If I lose touch with that... the reason why I act... then I'll leave it all. I don't do it for fame or money.

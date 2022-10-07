@@ -1,0 +1,17 @@
++++
+author = "Tyler James Williams"
+title = "Tyler James Williams Quotes"
+quotes_len = "11"
+description = "the best 11 Tyler James Williams Quotes"
++++
+- I got started acting by going to auditions that my mom found in the entertainment section of our local news paper. Then, I got a manager and started going out on more auditions.
+- I'm very cheap. My friends hate me.
+- Just because you are on TV, it doesn't mean you're not going to make mistakes.
+- What I love most about acting is being able to play different types of personalities without being considered crazy.
+- When kids tried to pick on me, I always had one line to shoot them down with: 'I make more money in a week than you'll make in your entire life.' Which probably wasn't true, but they thought it was.
+- I have a saying: 'I'm good for three things: making fried bologna sandwiches, making money and picking out good movies.'
+- What I remember most about working on 'Sesame Street' is having fun in the green room with the other kids while waiting for my time to go on camera to work with the puppets.
+- I think some of the best songs are written in love and then out of love. That's the best time to put something together.
+- I don't feel like I should pay somebody to do something that I can do.
+- I am an actor, and although I love music, and at times can't live without it, I eat, sleep, breath, sweat, and bleed acting.
+- I've been dancing forever; since I remember, that's what I've been doing.

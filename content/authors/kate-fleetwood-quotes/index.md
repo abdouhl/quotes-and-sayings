@@ -1,0 +1,20 @@
++++
+author = "Kate Fleetwood"
+title = "Kate Fleetwood Quotes"
+quotes_len = "14"
+description = "the best 14 Kate Fleetwood Quotes"
++++
+- The Forest of Arden, where I grew up, is where 'As You Like It' is set. It was idyllic.
+- When you're in a rehearsal room, it's like getting into a car and going on a long journey with everyone's stuff in the back. If you keep stopping the car and going, 'Are you sure we want to go?' and think, 'This is really daunting,' you will get frightened, so you just have to keep ploughing through it.
+- I looked at but was not allowed to touch Ai Weiwei's 'Sunflower Seeds' at the Tate. The film of making them was really moving.
+- But nothing beats a Woody Allen film on a Sunday night, with a glass of wine and some leftovers.
+- My guilty pleasure is reality TV, as I am really nosey.
+- I am a total sucker for an actor's autobiography/biography. I have probably read most of them.
+- When you're an actor, you just hope you get a job to go to.
+- I read everything by Ian McEwan, he is so elegant. I love reading anything about Shakespeare, too. He is my first love. If I had a time machine, I would be hanging out with him.
+- I'd quite like to direct. I don't think it will happen, but my urge is that way inclined.
+- When you have young children, it is hard to see live performances. Unless I am in it. I do manage to see my husband Rupert Goold's work, of course.
+- I would see anything by Antony Gormley.
+- I am a massive fan of early electronica like Steve Reich, Pat Metheny and Thomas Dolby. I used to be a big raver, too, so anything dance. I love ambient music like Tunng. I love acoustic and classical, too.
+- Being on Broadway and getting a Tony nomination - this has been an incredible ride, from rather humble beginnings.
+- My parents are not theatrical people, but my dad took me to the theater.

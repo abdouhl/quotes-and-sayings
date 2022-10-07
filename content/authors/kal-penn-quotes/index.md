@@ -1,0 +1,15 @@
++++
+author = "Kal Penn"
+title = "Kal Penn Quotes"
+quotes_len = "9"
+description = "the best 9 Kal Penn Quotes"
++++
+- My folks are in Jersey. And I have a lot of friends and other family there. So, I try to visit as much as possible.
+- In many ways, I feel like having the opportunity to play Gogol in 'The Namesake' really was my dream role in many ways.
+- To the folks walking around the District of Columbia, I would say this: 'Be careful.'
+- What I love about L.A. and Washington, D.C. is that they're almost the opposite of each other. L.A. is a very creative space while D.C. is a very cerebral space. So, they're the ying and the yang in my world. I like them both for their own reasons.
+- I'm also politically independent so I'm not a fan of either the Democrats in Congress or the Republicans in Congress.
+- Cable news is more titillating to talk about who's up and who's down and all that nonsense as opposed to what's actually done.
+- The water cooler conversation in every job I've had is sports, it's what did you do this weekend, it's 'How are your parents doing?'
+- I think the media loves taking the most absurd clips for a sport that has become congressional politics.
+- The point of serving your country is not to do your own thing or to go rogue, but to work as part of the process.

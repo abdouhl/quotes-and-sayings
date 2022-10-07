@@ -1,0 +1,63 @@
++++
+author = "Thomas S. Monson"
+title = "Thomas S. Monson Quotes"
+quotes_len = "57"
+description = "the best 57 Thomas S. Monson Quotes"
++++
+- You see your children growing. You look at your grandchildren, and you say to yourself, 'What if I weren't here? Have I done all I can to prepare them for their role in life?' You realize that you never quite do everything, but you want to do better than what you have done.
+- Find someone who is having a hard time, or is ill, or lonely, and do something for him or her.
+- What will you and I give for Christmas this year? Let us in our lives give to our Lord and Savior the gift of gratitude by living His teachings and following in His footsteps.
+- Many years ago, it was my opportunity to serve as president of the Canadian Mission. There we had a branch with very limited priesthood. We always had a missionary presiding over the branch. I received a strong impression that we needed to have a member of the branch preside there.
+- When you see people your own age afflicted and experiencing life-threatening illnesses, I think it prompts you to apply to yourself the philosophy, 'I want to do the best I know how to do every day.'
+- I know that God lives, my brothers and sisters. There is no question in my mind. I know that this is His work, and I know that the sweetest experience in all this life is to feel His promptings as He directs us in the furtherance of His work.
+- On occasion we need to make a second effort - and a third effort, and a fourth effort, and as many degrees of effort as may be required to accomplish what we strive to achieve.
+- The priesthood is not really so much a gift as it is a commission to serve, a privilege to lift, and an opportunity to bless the lives of others.
+- As I approached my 18th birthday and prepared to enter military service in World War II, I was recommended to receive the Melchizedek Priesthood.
+- Choose your love, Love your choice.
+- I testify that this work in which we're engaged is the Lord's work. I've felt His sustaining influence.
+- The way to be with God in every season is to strive to be near Him every week and each day.
+- Amidst the confusion of the times, the conflicts of conscience, and the turmoil of daily living, an abiding faith becomes an anchor to our lives.
+- Faith and doubt cannot exist in the same mind at the same time, for one will dispel the other.
+- The spirit of Christmas is the spirit of love and of generosity and of goodness. It illuminates the picture window of the soul, and we look out upon the world's busy life and become more interested in people than in things.
+- We must not let our passions destroy our dreams.
+- Christmas is the spirit of giving without a thought of getting. It is happiness because we see joy in people. It is forgetting self and finding time for others. It is discarding the meaningless and stressing the true values.
+- The future is as bright as your faith.
+- I am certain that the Lord, who notes the fall of a sparrow, looks with compassion upon those who have been called upon to part, even temporarily, from their precious children.
+- Choose your friends with caution; plan your future with purpose, and frame your life with faith.
+- Do not pray for tasks equal to your abilities, but pray for abilities equal to your tasks. Then the performance of your tasks will be no miracle, but you will be the miracle.
+- Courage, not compromise, brings the smile of God's approval.
+- Choose a field that will supply sufficient remuneration to provide adequately for your companion and your children. I bear testimony that these criteria are very important in choosing your life's work.
+- My brothers and sisters, true love is a reflection of the Savior's love. In December of each year we call it the Christmas spirit. You can hear it. You can see it. You can feel it.
+- I urge you to hold fast to your standards. I plead with you not to waver.
+- The sweetest feeling you can have in this world is to feel the hand of the Lord upon your shoulder. In my patriarchal blessing as a boy, I was promised that I would have the gift of discernment. I have to acknowledge that such a declaration has been abundantly fulfilled in my life.
+- I hope I work effectively, but I never feel I have exhausted what I should be doing... I believe we have a responsibility to be a good influence on others.
+- I remember that our deportment in Primary was not always as it should be. I had a lot of energy and found it difficult to sit patiently in a class.
+- Perhaps the surest test of an individual's integrity is his refusal to do or say anything that would damage his self-respect.
+- We tend to become like those whom we admire.
+- The drive was brief and the conversation limited, but oh, what a legacy of love! Father never read to me from the Bible about the good Samaritan. Rather, he took me with him and Uncle Elias in that old 1928 Oldsmobile and provided a living lesson I have always remembered.
+- I'm a great believer that the Lord provides us specific experiences to prepare us to deal with some of the challenges that we're going to encounter in our own period of service.
+- I wasn't with Joseph, but I believe him. My faith did not come to me through science, and I will not permit so-called science to destroy it.
+- Should doubt knock at your doorway, just say to those skeptical, disturbing, rebellious thoughts, I propose to stay with my faith, with the faith of my people.
+- There is absolutely nothing in this world that will provide more comfort and happiness than a testimony of the truth.
+- Traveling is difficult when you go for long stretches at a time, but you always come back refreshed, feeling that you've accomplished something. I'm on my knees before I go anywhere in this world.
+- I have never known Frances to complain once of my Church responsibilities. I have been gone many days and many nights, and I have rarely been able to sit with her in the congregation. But there is no one like her - absolutely no one. She is in every way supportive and is a woman of quiet and profoundly powerful faith.
+- Finding the real joy of Christmas comes not in the hurrying and the scurrying to get more done, nor is it found in the purchasing of gifts. We find real joy when we make the Savior the focus of the season.
+- We may not only find faith in God in our sorrow. We may also become faithful to Him in times of calm.
+- The reward of eternal life requires effort.
+- Never delay a prompting. When you honor a prompting and then stand back a pace, you realize that the Lord gave you the prompting. It makes me feel good that the Lord even knows who I am and knows me well enough to know that if He has an errand to be run, and He prompts me to run the errand, the errand will get done.
+- Each heartfelt prayer, each Church meeting attended, each worthy friend, each righteous decision, each act of service perfomed all precede that goal of eternal life.
+- Though we may not necessarily forfeit our lives in service to our God, we can certainly demonstrate our love for Him by how well we serve Him.
+- I counseled many returning missionaries. I interviewed 1,700 missionaries all over the world. My advice to them is that you should study and prepare for your life's work in a field that you enjoy.
+- One sees a blatant disregard for the precious souls of mankind.
+- I hope with all my heart and soul that every young man who receives the priesthood will honor that priesthood and be true to the trust which is conveyed when it is conferred. May each of us who holds the priesthood of God know what he believes.
+- We must develop the capacity to see men not as they are at present but as they may become.
+- May I always be found 'on the Lord's errand.'
+- Our Father's commitment to us, His children, is unwavering. Indeed He softens the winters of our lives, but He also brightens our summers.
+- There is no better time than now, this very Christmas season, for all of us to rededicate ourselves to the principles taught by Jesus the Christ. It is the time to love the Lord, our God, with all our heart - and our neighbors as ourselves.
+- Work will win when wishy washy wishing won t.
+- In reality, we are all travelers - even explorers of mortality.
+- The opportunity to declare a truth may come when we least expect it. Let us be prepared.
+- We should strive for steadiness, and for a commitment to God that does not ebb and flow with the years or the crises of our lives.
+- I hope that you will learn to take responsibility for your decisions. Don't take counsel of your fears.
+- The principles of living greatly include the capacity to face trouble with courage, disappointment with cheerfulness, and trial with humility.
+- My brothers and sisters, may the spirit of love which comes at Christmastime fill our homes and our lives and linger there long after the tree is down and the lights are put away for another year.

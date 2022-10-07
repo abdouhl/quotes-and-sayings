@@ -1,0 +1,102 @@
++++
+author = "Atal Bihari Vajpayee"
+title = "Atal Bihari Vajpayee Quotes"
+quotes_len = "96"
+description = "the best 96 Atal Bihari Vajpayee Quotes"
++++
+- In the euphoria after the Cold War, there was a misplaced notion that the UN could solve every problem anywhere.
+- Population needs to be stabilised for sustainable development.
+- We hope the world will act in the spirit of enlightened self-interest.
+- India has the sanction of her own past glory and future vision to become strong - in every sense of the term.
+- This power of democracy is a matter of pride for our country, something which we must always cherish, preserve and further strengthen.
+- Poverty is multidimensional. It extends beyond money incomes to education, health care, political participation and advancement of one's own culture and social organisation.
+- It requires an effort of logical acrobatics to believe that carnage of innocents is an instrument for freedom and elections are a symbol of deception and repression!
+- If Pakistan had not accepted the demand to stop cross-border infiltration and the United States had not conveyed to us Pakistan's guarantee to do so, then nothing could have stopped a war.
+- While accepting donations, no one looks at the colour of money.
+- During the 1942 Quit India Movement, I was a student at Gwalior High School. I was arrested by the British for participating in the movement. My parents then sent me off to my village where, again, I jumped into the movement.
+- The overwhelming public sentiment in India was that no meaningful dialogue can be held with Pakistan until it abandons the use of terrorism as an instrument of its foreign policy.
+- The prime minister's office is not something that one enjoys.
+- Our nuclear weapons are meant purely as a deterrent against nuclear adventure by an adversary.
+- We used to fight with Pakistan with bombs. Now we are fighting with them on the playing ground.
+- If Pakistan claims to be a crucial partner in the international coalition against terrorism, how can it continue to use terrorism as an instrument of state policy against India?
+- We believe in equal respect for all faiths.
+- Violence does not contribute to anything.
+- There was an implicit conviction that the UN would be stronger than the sum of its constituent member-states.
+- I believe that democracy is the best guarantor for peace and cooperation among nations.
+- Let no one challenge India's secularism.
+- If India is not secular, then India is not India at all.
+- No guns but only brotherhood can resolve the problems.
+- I dream of an India that is prosperous, strong and caring. An India, that regains a place of honour in the comity of great nations.
+- We have given up office, but not our responsibility to serve the nation. We have lost an election, but not our determination.
+- The BJP decides its own policies.
+- We are unnecessarily wasting our precious resources in wars... if we must wage war, we have to do it on unemployment, disease, poverty, and backwardness.
+- People want government to deliver - here and now.
+- As we talk with candour, we open the doors to new possibilities and new areas of cooperation in advance in democracy, in combating terrorism, in energy and environment, science and technology and international peacekeeping.
+- Our aim should be to make India a global R&D hub.
+- Terrorism has become a festering wound. It is an enemy of humanity.
+- India has a legitimate right to becoming a permanent member of the U.N. Security Council.
+- My message to the people and rulers of Pakistan is, 'As neighbours, we want peace and friendship and cooperation with you so that together we can change the face of South Asia.'
+- We have ended hunger, but now we have to end famine.
+- I try to indulge my muse whenever I am able to get away from it all.
+- Our objective should be to firmly deal with terrorism and its sponsors, financiers, and arms suppliers. At the same time, our doors should always be open for processes which would restore peace, development, and progress to societies which have been devastated by terrorism over many generations.
+- Creative universities are bedrock of every developed nation's S&T strategy.
+- India was secular even when Muslims hadn't come here and Christians hadn't set foot on this soil. It is not as if India became secular after they came. They came with their own modes of worship, and they, too, were given a place of honor and respect. They had the freedom to worship God as per their wish and inclination.
+- We believe that the United States and the rest of the international community can play a useful role by exerting influence on Pakistan to put a permanent and visible end to cross-border terrorism against India.
+- You can change friends but not neighbours.
+- Empowering the individual means empowering the nation. And empowerment is best served through rapid economic growth with rapid social change.
+- Whatever understanding is reached with Pakistan has to be followed honestly, and everybody will have to rise above party politics and be actively committed to make India prosperous.
+- The reality is that international institutions like the UN can only be as effective as its members allow it to be.
+- Free and fair elections have again demonstrated that Jammu and Kashmir is part of India, and the people want to remain with it.
+- Though I stay in Delhi, I often think about Himachal.
+- The regional parties have emerged as a strong force, and they, too, deserve a place in national politics.
+- Let me make one thing clear. I have never considered mere survival in power as any achievement, just as I have never seen coming to power as an achievement in itself.
+- For development, peace is essential.
+- I believe the gun is no solution to problems.
+- The UN's unique legitimacy flows from a universal perception that it pursues a larger purpose than the interests of one country or a small group of countries.
+- We want peace to be permanent.
+- For me, power was never an attraction.
+- It is true that of all the states in India, Nagaland has a unique history. We are sensitive to this historical fact. But this uniqueness has in no way diminished the spirit of patriotism among the Naga people.
+- Himachal is my second home.
+- We need to convert the extraordinary goodwill between India and Russia into a thriving, visible, vigorous, and mutually beneficial economic relationship.
+- I have a vision of India: an India free of hunger and fear, an India free of illiteracy and want.
+- The Bio-diversity Convention has not yielded any tangible benefits to the world's poor.
+- My government is committed to carrying out electoral reforms. It is our firm resolve to keep criminal elements away from power.
+- Our words, actions, and diplomatic efforts should be aimed at trying to achieve pragmatic goals rather than creating rhetorical effect.
+- India helped Bangladesh to achieve independence. The Bangladeshis should remain happy inside the territory of their own country.
+- If Advaniji did not want, I would never have been Prime Minister.
+- Indian democracy's greatest strength is that we have always put the nation above politics.
+- People who ask us when we will hold talks with Pakistan are perhaps not aware that over the last 55 years, every initiative for a dialogue with Pakistan has invariably come from India.
+- I prefer to die rather than eat beef.
+- Labour reforms are not anti-worker.
+- If the elections are a mere fraud, why are terrorists being trained and infiltrated into India at the command of the Inter-Services Intelligence Agency of Pakistan to kill election candidates and to intimidate voters?
+- Members of India's diaspora, living in distant lands of the world, my good wishes to all of you. You may be far away from India, but you are always close to our hearts.
+- The spending in science and technology need to be to increased.
+- We should always care for the minorities and be attentive towards their welfare.
+- Ours is a multi-religious country, a multi-lingual country; we have many different modes of worship. We believe in peaceful and harmonious co-existence.
+- I have never been a traitor. I am not an informer; I never betrayed my nation.
+- Our frequent initiatives to normalise relations with Pakistan are not a sign of our weakness; rather, they are an indication of our commitment to peace.
+- India has never played politics with national security.
+- No one can be considered untouchable on political grounds.
+- I believe India and Israel should focus on building bilateral relations on the basis of shared perspectives and commonalities between our two democracies. This has to be a forward-looking exercise rather than harking back to perceptions of the past.
+- I would like that no citizen of the state feels alone and helpless. The entire nation is with them.
+- India has a consistent and well-known position on terrorism. We oppose all acts of terrorism, wherever they occur. We have repeatedly said that no cause can justify violence and destruction, particularly aimed at civilians.
+- In Indonesia, Malaysia, wherever Muslims are living, they don't want to live in harmony.
+- I am contesting elections since 1952, but never did I throw mud.
+- My poet's heart gives me strength to face political problems, particularly those which have a bearing on my conscience.
+- We believe in resolving all disputes peacefully.
+- It is a matter of concern that science departments in India's vast university system have suffered greatly due to lack of investments, both material and in terms of faculty.
+- India is a proud and sovereign country. We do not take any decisions under pressure from the U.S. or any other power.
+- Our nuclear scientists and engineers have done a splendid job, and naturally, the entire nation has risen to salute their professional excellence, discipline, and patriotism. They have had the benefit of having been led in the past by great men like Homi Bhabha and Vikram Sarabhai.
+- Who can forget that in critical times of war in 1962, 1965 and 1971, Naga underground organisations did not fire on the Indian Army? They showed restraint.
+- Victory and defeat are a part of life, which are to be viewed with equanimity.
+- There can be no compromise regarding corruption.
+- Global interdependence today means that economic disasters in developing countries could create a backlash on developed countries.
+- The BJP is not a party dependent on a single individual, nor is it tied to the apron strings of a family.
+- For the Bharatiya Janata Party, Gandhian socialism is what we want to achieve and make society free of exploitation and full of opportunities.
+- No state should be allowed to profess partnership with the global coalition against terror, while continuing to aid, abet and sponsor terrorism.
+- Quiet diplomacy is far more effective than public posturing.
+- India and the United States have taken a decisive step, away from the past. The dawn of the new century has marked a new beginning in our relations. Let us work to fulfil this promise and the hope of today. Let us remove the shadow of agitation that lies between us and our joint vision.
+- The BJP regards Muslims as Indians and human beings.
+- Neither India nor Russia perceives a threat from the strength of the other. Each sees a benefit for itself in the increased political and economic strength of the other.
+- I am often accused of colluding with the British during the freedom struggle. I want to ask, how?
+- Our aim may be as high as the endless sky, but we should have a resolve in our minds to walk ahead, hand-in-hand, for victory will be ours.

@@ -1,0 +1,64 @@
++++
+author = "Ludwig Wittgenstein"
+title = "Ludwig Wittgenstein Quotes"
+quotes_len = "58"
+description = "the best 58 Ludwig Wittgenstein Quotes"
++++
+- Not every religion has to have St. Augustine's attitude to sex. Why even in our culture marriages are celebrated in a church, everyone present knows what is going to happen that night, but that doesn't prevent it being a religious ceremony.
+- The world is independent of my will.
+- You learned the concept 'pain' when you learned language.
+- Logic must look after itself. In a certain sense, we cannot make mistakes in logic.
+- Man has to awaken to wonder - and so perhaps do peoples. Science is a way of sending him to sleep again.
+- Humor is not a mood but a way of looking at the world. So if it is correct to say that humor was stamped out in Nazi Germany, that does not mean that people were not in good spirits, or anything of that sort, but something much deeper and more important.
+- Someone who knows too much finds it hard not to lie.
+- A new word is like a fresh seed sown on the ground of the discussion.
+- Knowledge is in the end based on acknowledgement.
+- Philosophy is not a theory but an activity.
+- It seems to me that, in every culture, I come across a chapter headed 'Wisdom.' And then I know exactly what is going to follow: 'Vanity of vanities, all is vanity.'
+- I don't know why we are here, but I'm pretty sure that it is not in order to enjoy ourselves.
+- What can be shown, cannot be said.
+- What is your aim in philosophy? To show the fly the way out of the fly-bottle.
+- If people never did silly things nothing intelligent would ever get done.
+- Don't get involved in partial problems, but always take flight to where there is a free view over the whole single great problem, even if this view is still not a clear one.
+- An inner process stands in need of outward criteria.
+- One often makes a remark and only later sees how true it is.
+- I sit astride life like a bad rider on a horse. I only owe it to the horse's good nature that I am not thrown off at this very moment.
+- The world is the totality of facts, not of things.
+- Never stay up on the barren heights of cleverness, but come down into the green valleys of silliness.
+- Propositions show what they say: tautologies and contradictions show that they say nothing.
+- A philosopher who is not taking part in discussions is like a boxer who never goes into the ring.
+- The human body is the best picture of the human soul.
+- If a lion could talk, we could not understand him.
+- Philosophy is a battle against the bewitchment of our intelligence by means of language.
+- Our greatest stupidities may be very wise.
+- A confession has to be part of your new life.
+- Logic takes care of itself; all we have to do is to look and see how it does it.
+- The common behavior of mankind is the system of reference by means of which we interpret an unknown language.
+- One of the most misleading representational techniques in our language is the use of the word 'I.'
+- For a truly religious man nothing is tragic.
+- The real discovery is the one which enables me to stop doing philosophy when I want to. The one that gives philosophy peace, so that it is no longer tormented by questions which bring itself into question.
+- The face is the soul of the body.
+- Whereof one cannot speak, thereof one must be silent.
+- Resting on your laurels is as dangerous as resting when you are walking in the snow. You doze off and die in your sleep.
+- A serious and good philosophical work could be written consisting entirely of jokes.
+- Language is a part of our organism and no less complicated than it.
+- Nowadays it is the fashion to emphasize the horrors of the last war. I didn't find it so horrible. There are just as horrible things happening all round us today, if only we had eyes to see them.
+- A man's thinking goes on within his consciousness in a seclusion in comparison with which any physical seclusion is an exhibition to public view.
+- Death is not an event in life: we do not live to experience death. If we take eternity to mean not infinite temporal duration but timelessness, then eternal life belongs to those who live in the present.
+- A picture is a fact.
+- When one is frightened of the truth then it is never the whole truth that one has an inkling of.
+- It is an hypothesis that the sun will rise tomorrow: and this means that we do not know whether it will rise.
+- Uttering a word is like striking a note on the keyboard of the imagination.
+- Logic is not a body of doctrine, but a mirror-image of the world. Logic is transcendental.
+- A man will be imprisoned in a room with a door that's unlocked and opens inwards; as long as it does not occur to him to pull rather than push.
+- Nothing is so difficult as not deceiving oneself.
+- There are remarks that sow and remarks that reap.
+- The limits of my language means the limits of my world.
+- It is one of the chief skills of the philosopher not to occupy himself with questions which do not concern him.
+- A philosophical problem has the form: I don't know my way about.
+- The logic of the world is prior to all truth and falsehood.
+- A nothing will serve just as well as a something about which nothing could be said.
+- Like everything metaphysical the harmony between thought and reality is to be found in the grammar of the language.
+- Philosophy is like trying to open a safe with a combination lock: each little adjustment of the dials seems to achieve nothing, only when everything is in place does the door open.
+- You get tragedy where the tree, instead of bending, breaks.
+- It is so characteristic, that just when the mechanics of reproduction are so vastly improved, there are fewer and fewer people who know how the music should be played.

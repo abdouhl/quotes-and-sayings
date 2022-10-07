@@ -1,0 +1,21 @@
++++
+author = "Anne Campbell"
+title = "Anne Campbell Quotes"
+quotes_len = "15"
+description = "the best 15 Anne Campbell Quotes"
++++
+- The sensors have many potential practical uses - in Government buildings, train carriages, cargo containers, on a soldier's lapel - and are a thousand times cheaper than current sensors that are used for the same purpose.
+- You can plant a dream.
+- Poorer students take out larger loans and will have to contribute more to the cost of higher education.
+- They also explained how the sensors can monitor the levels of acetone on people's breath, and this can be used to tell people who suffer from diabetes when their next insulin shot is due. This is a more discreet method than what is currently on the market.
+- With the club now in administration and concern about where the money for land sale has gone, I know there are huge commercial difficulties to be resolved, but I hope that football will once again become the most important issue.
+- Quite a few people have commented during the campaign that more help is required for small businesses. SMEs need support and encouragement in their early stages, and in Cambridge the links to the University and the huge pool of expertise here helps that.
+- There is still a lot of misinformation being spread about higher education funding arrangements under the new Act. The students page on my website sets out the main points in the Act.
+- I had hoped that the board would accept Johnny Hon's offer of a loan to buy the stadium back for the club, as I think this would be best way of continuing the long tradition of Cambridge United in Cambridge - and it was a generous offer.
+- Ending up-front fees should make it far easier for all students to go to university as they will no longer have to pay up to /1,125 out of their loans at the start of each year. Student loans will also rise to meet average living costs.
+- Cambridge is thriving and Britain is working. We have been telling people - 'if you value it, vote for it' - and this is particularly relevant in Cambridge.
+- Love means to commit yourself without guarantee.
+- I have never been afraid to stand up to the leadership on issues where we disagree. If you chose to keep Cambridge Labour, then I can continue to press the Government for the things that matter to you, in a way that members of the opposition are unable to.
+- I hope lots of people will join the solidarity march on May 7th and I hope things will change.
+- I have been overwhelmed by the response that I have received on the doorstep during this campaign.
+- Elections are also about the future - the pledges that we are making for this country. For those who care about equality and fairness in the UK, and beyond, Labour really is the only choice.

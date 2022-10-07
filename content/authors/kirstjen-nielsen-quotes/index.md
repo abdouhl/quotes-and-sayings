@@ -1,0 +1,32 @@
++++
+author = "Kirstjen Nielsen"
+title = "Kirstjen Nielsen Quotes"
+quotes_len = "26"
+description = "the best 26 Kirstjen Nielsen Quotes"
++++
+- I took an oath when I became secretary of homeland security to defend and support the Constitution.
+- What we've done as a country is, we've said we owe it to our citizens to know who is traveling here and if they intend to do us harm.
+- We need to fund our troops. We need to protect them. We need to increase homeland security. These are vital national security interest we need to fund.
+- We need to do more to prevent radicalization, the inspiration of terrorism in this country.
+- Congress makes immigration law. It's that simple. That is how our system works.
+- Asylum is for people fleeing persecution, not those searching for a better job. Yet our broken system - with its debilitating court rulings, a crushing backlog, and gaping loopholes - allows illegal migrants to get into our country anyway and for whatever reason they want. This gaming of the system is unacceptable.
+- If you are a DACA that's compliant with your registration, meaning you haven't committed a crime, you, in fact, are registered, you're not priority of enforcement for ICE should the program end.
+- I think occasionally it's the presence - or increased presence - of federal law enforcement that can cause that fear.
+- My decision has been that anyone who breaks the law will be prosecuted. If you're a parent or you're a single person or you happen to have a family, if you cross between the ports of entry, we will refer you for prosecution. You've broken U.S. law.
+- I would hate for anybody not to abide by alert warnings coming from government systems.
+- It is my great honor to represent the men and women of DHS who work every day to enforce our laws and secure our nation.
+- We are a country based on the rule of law.
+- We want to find a permanent solution to the DACA population, not a continual three-year renewal period.
+- What we have seen the Russians do is attempt to manipulate public confidence on both sides. So we've seen them encourage people go to a protest on one side; we've seen them simultaneously encourage people to go to that same protest on the other side.
+- I worked at the crossroads of policy and operations. I kind of bring all that experience together because homeland security is a team sport, and I've played almost every role, every player, every team.
+- Our policy is if you break the law, we will prosecute you. You have an option to go to a port of entry and not illegally cross into our country.
+- I do believe that Russia did and will continue to try and manipulate Americans' perspective on a whole variety of issues.
+- Up until the point that you're a citizen, we wanna continue to make sure we understand who you are and why you're here.
+- People think of border security in very different ways, but to me, it's very simple: border security is national security.
+- Border security is the most basic and necessary responsibility of a sovereign nation.
+- There is no need for a wall from sea to shining sea.
+- The Department of Defense is a longtime partner of the Department of Homeland Security, and I thank them for their support.
+- I do absolutely believe that the climate is changing. I'm not prepared to determine causation.
+- Every day, we rely on a number of partnerships to help us accomplish our mission to secure our borders. State and local officials, interagency federal partners, Congress, and of course, our international partners. I have been with and will and continue to work with these partners.
+- By preventing the federal government from removing known criminal aliens, we allow our country to be a safe haven for criminals.
+- I fully intend in all cases and in all ways at all times to fully comply with all laws. I would expect the same of any employee or member of DHS.

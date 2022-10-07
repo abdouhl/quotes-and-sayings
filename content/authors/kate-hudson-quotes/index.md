@@ -1,0 +1,73 @@
++++
+author = "Kate Hudson"
+title = "Kate Hudson Quotes"
+quotes_len = "67"
+description = "the best 67 Kate Hudson Quotes"
++++
+- A lot of people don't want to grow up because it sucks.
+- I didn't just wake up one day understanding how to take care of myself. I had to learn how to do so over time, and I continue to learn - each and every day. This is a process, and my body is constantly changing. So is yours. And when I learned how to accept that I will always be like this, I relaxed. Our bodies do not stand still for time.
+- Sometimes I'll lock myself in a room and dance. I'll turn music on as loud as possible and just get weird!
+- Never worry about bad press: All that matters is if they spell your name right.
+- Yes, I help my kids with their homework. But I also get bored doing it. I will sit and listen to my children pontificate and discuss their ideas till the day is long because it warms my heart, but I really don't want to do math!
+- You have people who can't act and they get all these parts. Paris Hilton falls into her own category. She's made a career out of it.
+- I was 19 when I discovered Pilates, and I'm still doing it. It's the workout my body really responds to. It's all about alignment, elongating your spine, and strengthening your core. It makes me feel my strongest.
+- If you're not mindful about sugar, high sugar intake is just the worst thing for you, but I'm, like, everything in moderation, and that's how I approach it.
+- The goal when you get into a relationship is not to be out of the relationship. It's to try to stay in the relationship. But if it doesn't work, you can't force those things.
+- While I try to keep my fitness regimen consistent, during awards season, I'm especially conscious of what I'll be wearing and plan my workouts accordingly.
+- I did not like leaving them when they were little or big. You have to have priorities regarding what you will allow to take you away from your kid.
+- If something's not right, I don't believe in maintaining something for the sake of what's considered a traditional family, because I believe that there are different ways to raise children. It's far more effective to raise children in happy homes.
+- What makes Mom the best is that she never put any expectations too high on the kids. She just wanted us to be doing the things that made us happy, as long as we were working hard, but we never had to live up to something.
+- I'm going to go to work out, and I'm going to enjoy it, and I'm going to eat really healthy. But I'm going to go to Vegas, and I'm going to stop at In-N-Out Burger, and then I'll be back on track.
+- Somebody can become a celebrity for being stupid. That is what it's turned into.
+- I'm a nature girl. I grew up in Colorado and was always outside. I still am, even when I'm in the city.
+- When I exercise, I need to connect to myself and see how I'm feeling at the moment because my mood is constantly changing.
+- I was a dancer, so for me, if I don't work out for a week or move my body in some sense, I feel weird.
+- I smoke, isn't that terrible?
+- I live by a rulebook of eating alkaline - no meat, no dairy, no gluten, I try to stay away from sugar - but I'll cheat when I want to since I'm a bit of a foodie.
+- Happiness is not something that just comes to you. It's an active process.
+- Honesty will never break you.
+- I have never done a thriller, and it will just be really fun for me to heave and pant and run and climb and break windows and scream every once in a while.
+- I'm big on manners. I'm big on politeness. I'm big on gratitude.
+- I love my shape because I work really hard at it. I honor my body by working out and seeing what it can do.
+- I talk about everything. I'm like the person who comes home and can't hide anything. Even my friends sometimes are like, 'Kate, you've got to stop talking so much about your life.' And I'm like, 'Why?' I can't keep things in, really.
+- I like when life is sort of spontaneous. I like the unexpected. I'm comfortable in that!
+- Do you know what a blessing it is to make movies that make people happy?
+- I make sure I eat well without depriving myself of the things that I love: a cheeseburger and fries, creamy white-truffle pasta, bowls of ice cream. Everything in moderation, but I indulge at least three times a week.
+- I gained 60 pounds, and I'm proud of it. Why do I need to watch my weight when I'm pregnant? I could eat whatever the hell I want to eat.
+- My workout mantra is 'Break a sweat every day.' Even if it's just for 20 minutes. I'm very disciplined about that.
+- The only things I'm competitive in are backgammon and poker.
+- I think that's like the age-old psychological core issue for any situation. Anybody who has had an experience with a parent that is absent, it's going to manifest.
+- The best thing I probably do is - I'll say I'm a pretty darn good parent. I got good kids.
+- I really do feel very lucky. I've had my kids and my relationships. I've set my life down - I'm in my house, and I'm alone with my children - and I'm at peace, and that's a really nice feeling. All I really want in my life is to maintain that.
+- Forgiveness in any aspect of something that is complex is the greatest tool.
+- I was looking at my Instagram, and someone said to me, 'Who manages your Instagram?' I would never let anyone manage my Instagram! I enjoy it.
+- If I want to go out and eat at a restaurant with amazing food, I'll do that, like, once a week where I'm not thinking about it. I want to indulge! I want to do things that are not necessarily healthy sometimes.
+- I talked to ex-wives of musicians of the '70s for research. They're the funniest people in the world, yet there is this sad, beautiful thing in their eyes that says they've seen more than they could ever possibly tell you.
+- I'm very flirtatious, and I enjoy it.
+- I auditioned on my own. I tried to make a mark for myself without anybody's help, not even Mom's.
+- I think any message behind a lifestyle brand should embrace everyone.
+- You have a choice: Support the woman standing next to you, or compete with her. But if you compete, you're going to be miserable.
+- My parents aren't married. And one of the reasons why they never got married is because they had been married before, and they liked it the way it was. They didn't feel like they needed a piece of paper to be committed. So for me, I know that marriage is not a golden ticket.
+- A triathlon is on my bucket list. I started training a long time ago, and my life took a different turn: Things happen; work happens. I will definitely accomplish that at some point!
+- When you're nursing and you're working 18-hour days, that's pretty hard.
+- I'm superstitious... but not like wear the same underwear for two weeks superstitious.
+- To me, I think when women who have children are fighting overseas, that's long distance. And that's very challenging. I really honor those families that do that.
+- I just keep working out. You can't stop. Everyone thinks there's a trick, but there's no trick! The trick is, you have to be consistent.
+- We get to a point where we're like, you know what, one day we're just not gonna be here anymore, so I'm going to enjoy every second of it.
+- I always wanted to be a mom.
+- Relationships ending are painful, and you can choose to carry that, or you can choose to reframe it.
+- A lot of people are quite discouraged by the process of getting healthy because, one, they think they can't afford it, and two, it's daunting. I wanted to start a dialogue. Because you won't be able to even get there until you actually accept yourself and start connecting with yourself.
+- I'm not afraid of heights. I rock climb. I can repel off the side of a building.
+- If you work out 20 minutes a day in some way, you're going to see changes.
+- I'm a big Peyton Manning fan.
+- I'm not a big fan of romantic comedies, believe it or not.
+- I went on countless auditions. I begged my parents until I finally was allowed to be in a theatrical play when I was 13. It was the most important thing in my life.
+- If it's a big hit, fantastic. If it's not, then it's not. I don't worry about my work.
+- I don't know if people really want to know how I feel about drugs. I'm not such a stickler. I believe you can choose to live your life any way you want.
+- To create a nice relationship with an ex, the love has to change form. I think you just have to put your children first.
+- Some days, I feel like I should win Best Mom of the Day award, and some days, I find myself doing strange things that don't have any real purpose, in faraway corners in my house, and I realize I am literally and deliberately hiding from my children.
+- I actually really love to work out. You need to find what you love.
+- If I feel like I need a little color, I'll get a natural spray tan. Not only does this give me a little extra coverage, but it also allows me to achieve the bronzed look I want without the sun damage.
+- Nothing, literally nothing, makes me feel like I'm back to my body more than Pilates.
+- As a woman, and as a working mom trying to get things done, you find yourself meeting adversity a lot, but you never talk about it because you don't want to bring attention to it. You don't want to go there.
+- I pick the wrong kinds of guys, but they're so hot.

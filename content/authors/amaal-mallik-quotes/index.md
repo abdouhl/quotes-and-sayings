@@ -1,0 +1,106 @@
++++
+author = "Amaal Mallik"
+title = "Amaal Mallik Quotes"
+quotes_len = "100"
+description = "the best 100 Amaal Mallik Quotes"
++++
+- I would love to collaborate with Hariharan Sir.
+- I don't like doing substandard work... I can't sleep at night if I make a bad song.
+- Since Bollywood is getting more corporate, it is getting difficult for the composer alone to take a decision unless you are a big name like Pritam or Vishal-Shekhar who can speak his heart out and say that 'This is the singer I want for this song.'
+- In my opinion, lyrics are a paramount factor and will always be.
+- I don't jump on to singing every song of mine because I feel that will make my music repetitive.
+- Unluckily actors don't get much free time, they are demanded every time and everywhere.
+- Due to the comparison with our dad and uncle, the expectations were humongous. From that to people saying that my music has my signature has been a long journey. The fight has been worth the while.
+- I had grown up with music influence of my grandad, uncle, dad. So, professionally I first assisted others to do something different, to get an edge.
+- Sonakshi Sinha's single 'Aaj mood ishqholic hai' is the worst auto-tuned song sung by an actor.
+- The reason we see more recreations is because people want to re-introduce some iconic songs to the younger generation. I support recreations too, as long as they're done well and respectfully. I have done a couple myself too, but when I recreate a song, I do it like a tribute to the makers of the original song.
+- Every artist needs the appreciation he deserves.
+- For people, we were never Dabboo Malik's kids, we were always Anu Malik's nephews.
+- My singing is not Hindustani classical or too western. It is a balance of Indian and western music. That's the kind of music I grew up on.
+- Every time an artiste goes on stage, he thinks 'I hope today goes well and I hope I give my best.' That is important - that little bit of nervousness or tension is what makes you perform better.
+- Things in the industry get too competitive. In that pressure, you tend to lose yourself. So, it's important to have someone to turn to and vent out.
+- I am someone who likes to take my time. I do one album in three years, unlike others.
+- For all my songs, I keep changing singers till I am not happy.
+- In 2014, I composed the music for 'Jai Ho' which premiered in Dubai and I was a 23-year-old kid back then.
+- In a lot of ways life has come full circle for me, which I'm very grateful for.
+- I only think that awards are important to everybody and if not that, a nomination serves as a recognition and a positive drive to do better work.
+- All my songs encapsulate a particular emotion.
+- Non-film music is a different world together, and unlike films, usually there are no actors, actresses or other superstars to help you carry the song, they can only share and support.
+- With every film, for which I'm the only composer, I try to switch genres. I find that really exciting.
+- 'Zara Thehro' stemmed from a thought of marrying two separate thoughts - musical and conceptual.
+- The meaning of the word 'remake' has changed so much over the years that from being a channel through which the younger generation heard classic melodies, it has now become a formula, a business model.
+- I just look to make great music and garner the love the people have always been kind enough to give me.
+- For 'Kabir Singh,' an entirely original album had to be done and that's how music should be made, but unfortunately that does not happen as the labels and the producers are more interested in fast food music.
+- Punjabis are the only people keeping non-film music alive in a big way.
+- When you are a part of an all ensemble kind of thing, with many composers in one film, you get the freedom to work on one, or maybe two songs, and experiment without thinking too much about the film.
+- Success is good, but I have seen the other side. I don't think much about it. I just work towards making a good melody, with catchy yet meaningful lyrics, and as I'm a music producer and arranger myself, I know the sound I need.
+- Indie music is picking up and artistes are more confident about putting out music with no big name attached to it.
+- You either have to choose your soul or you have to choose your bank.
+- I had sittings with Akshay Kumar during 'Airlift.' People who are passionate about music get involved in the making of the songs. I used to have a good interaction with him.
+- I hear singers on a daily basis and there are some who really end up touching your heart.
+- My appeal to the composers, whoever touches an old classic, will only be this much: take it up only if you can express it your way, too; work hard with the writers; make them see your new vision for the song; change the lyrics, yet, keep the soul of the original song intact.
+- Many composers are asked to come up with three great songs in ten days... But it's rare for us to pull that off. You cannot force the brain to make a great song and I'm very scared of doing bad work.
+- I became a music director because I never saw my father get the success he deserved.
+- I like making music which connects to me and the real situations in life.
+- My dream is to compose for Karan Johar and Aditya Chopra.
+- Unfortunately, we have very few female composers in our country, but Sneha Khanwalkar, Alokananda Dasgupta, and Jasleen Royal are forces to reckon with.
+- Remember the past, live the present, think a little less about the future.
+- There is a layer of Armaan's voice in the hook line of 'Kar gayi chull' and it was mainly his voice there, but he wasn't credited in the track.
+- When Armaan sang his first song for Vishal Dadlani, he didn't know that they were making Daboo Malik's son sing. He went inside the studio when he was 10-11, sang a scratch and it went on to be part of 'Bhoothnath.' He didn't get the opportunity because he was so and so's kid.
+- I have been quite open to the idea of working with any actor who wishes to sing for their films but only if their voice suits the song in hand.
+- The Saina Nehwal film's soundtrack is one of the most prestigious and powerful scores I have worked on.
+- It was always my dream to do non-film music, where I'm the voice and face of my composition.
+- I will always look to approach every project like it's my first.
+- It takes lot of years for a composer to make a name.
+- I listen to a lot of music from outside, lot of background scores.
+- I've had friendships and relationships in the past where things weren't working out for either of us, but I still found it really hard to let go.
+- I started assisting music composers at 15 in an attempt to run away from studies. But my mom, hailing from a traditional, academically inclined south Indian family influence, made me complete my degree.
+- Back in the '90s, we saw prominent non-film artists like the Bombay Vikings do a splendid job on old classics and people danced to those new tunes without ever feeling that the song had been spoiled. We slowly saw this trend creeping into mainstream cinema.
+- I'm talented and I don't listen to people. I have a mind of my own.
+- Honestly speaking, I am very hardcore when it comes to my music because at the end of the day the song that I am creating will remain forever.
+- My songs are my babies and I am protective about them, especially 'Main Rahoon Ya Na Rahoon' since I dedicated it to my grandfather.
+- I think no composer knows he's creating a hit until the audience gives it a nod.
+- I love collaborating with different voices.
+- It's difficult to really assess what I've done right per say, but if I did have to point out, I'd say that I never really looked to have goals that will limit me. When one knows where he is going to or wants to end up, he/she actually doesn't realise that the goal is more limiting, than liberating.
+- I am one of the few composers who has been lucky enough to manage to do songs with female singers, despite the labels and producers wanting otherwise. They don't believe that songs with female voices can work and often push us to work with male singers.
+- First of all, with due respect to my dad, he wasn't an ace composer. He never got the success that my uncle did.
+- I love making soundtracks for video games, because it is a completely different challenge, and I get to do something different.
+- Upcoming composers in Bollywood are falling prey to the volume game, without caring what they are doing to the history of Indian music, and that's something to worry about.
+- I have been hearing from people that everyone is loving my music, which is a great feeling. To be honest, it's overwhelming... The female following on Twitter is insane.
+- I do not have a problem with remixes but original songs are not being included in an album, this is sad.
+- I am a horror to work with for any singer. At first, no one will like to work with me, but it changes once the song releases.
+- My father's failures inspired me the most and still drive me. He worked for 10 years, but wasn't invited to award functions, forget being nominated. So winning even one trophy is a high for our family.
+- I think every artist wants to create something, on their own, without any boundaries.
+- My EDM outings 'Sooraj Dooba Hain,' 'Zindagi Aa Raha Hoon Main,' 'Chal Wahan Jaate Hain' are melodically very different songs. I have mixed up the genres.
+- Since the start of my career I've been doing a lot of music for films. It was important for me to focus on only that for some time, till I have a name that people can bank on, trust and support.
+- I don't have to rope in Armaan for every song just because he is my brother. There have been times when I have replaced him with another singer. We don't have a war over it at home.
+- I am too chill for Bollywood.
+- Kailash Surendranath believed in me and my talent when I was just 19, and he gave me my first big commercial and thereafter worked with me on 25 jingles which really made people notice my work in the ad world.
+- I love to do songs that speak of the female heart.
+- I think I have the capability to make music different from what I have already released. There are ghazals and other songs that I can create. There is no stopping me though.
+- What's needed to be appreciated about Young Zwann is that he is quite receptive to changes, always willing to learn and adapt to new styles. I am sure that given his dedication, he will manage to carve his own space in the music industry.
+- 'Airlift' changed a lot of things for me. It is a difficult film to make hit songs. So when I was able to crack that, I felt nice.
+- I used to compose a lot of music for video games, before I got into movies, and I am slowly getting back to it.
+- I began working as an assistant since the age of 16 with my father Dabboo Malik, went on to work with composers like Amar Mohile, Salim-Sulaiman, Pritam Da, and Sandeep Chowta.
+- The source is always me, but when the inspiration is an amazing idea or entity, it gives the process of music making a very beautiful route to proceed on.
+- I never jump on to a song and say 'I will only sing it.' I am not too obsessed as a singer. I am happy being a composer.
+- I have always made music with passion, love and honesty.
+- I never choose films because of its starcast - the director and the story are the most important factors for me.
+- I feel we have a music industry within the film industry.
+- Our industry holds a musical perception about each emotion that we depict in our narrative. As music composers, our job is either to cater to that particular need or give it a contrast that grows on the audience in a way that it begins to sound more universal, than just obvious and expected.
+- I have slowly paced myself in movies, and I am pretty happy with what I have done there.
+- Armaan has a simple approach and understands what a composer wants. I tell him, 'Give the song your own vibe but I will still come and fight with you and change it.'
+- Even sometimes when I don't have a heartbreak I purposely get my heart broken so that I can make that song!
+- It is such an honor to be one of the youngest composers to compose for an Amitabh Bachchan film.
+- It's not happened overnight for me or my brother as well. Maybe, it's even a bit tougher for people who have a name.
+- 'Aashiq...' is my tribute to the '90s David Dhawan-Govinda era.
+- A lot of people have that notion that it must have been easier for me because I had the Malik tag. But I don't feel it's right. With due respect to someone like Ankit Tiwari who leaves everything at home to come and make it big here without any backing, I agree I have an advantage.
+- I will never do 20 remixes with no original in a year.
+- The remake of 'Gulaabi Aankhein' went into a bad spin and I'll only hold myself responsible for it. I shouldn't have done it.
+- I am not looking to maintain an image.
+- I think the work process' - composers do not get enough time to make a good song. That's the one thing which needs to be changed.
+- If 200 songs are coming every year, there should be a ratio that at least 150-180 songs should be original.
+- U2 happens to be one of the world's most celebrated bands of all time, and they have influenced my own music and playlists growing up. In fact, when I was in college, I won a singing competition with a U2 song.
+- I do not do a remix without crediting the original makers. For me, that is what is most important.
+- My childhood friend, Shiva Maheshwari, who is also an executive producer of 'Jung,' introduced me to Young Zwann. I loved his vibe and instantly fell in love with his lyrics.
+- Every time I do a dance track it's like I'll get a heart attack, because it depends heavily on the video, the hook line, the stars and the promotion. Any of these factors fail, the song fails.

@@ -1,0 +1,24 @@
++++
+author = "Ikue Mori"
+title = "Ikue Mori Quotes"
+quotes_len = "18"
+description = "the best 18 Ikue Mori Quotes"
++++
+- I always wanted to get out of Tokyo and in 1977, New York seemed like the most interesting place to visit. I didn't intend to live here- I just wanted to get out and see what was happening. I just happened to stay here then.
+- Mars is really different, into art. Lydia Lunch is more energy. James Chance is more commercial in a different way, in funk and jazz. They were all doing original things, trying to create their own sound and music. I think they're all great.
+- The way I create music is maybe like a painting, to compose in a more visual way. Basically it's the music that I want to hear- that's my inspiration and bottom line. I just try to get ideas from books, movies, paintings.
+- Because it's dance music, you can't really have a lot of changing in there. It's really not for me because there's too much repetition. I like more diversity.
+- With a rock band, you play the same things over and over and over.
+- Come to think of it, the way I play is like a drum machine- very mechanical.
+- I was playing in other rock bands. Any of those bands didn't last long.
+- I got tired of different drum sounds so you buy different effects for more manipulation.
+- Blood and death. That moves me.
+- I've done some music for films and I really enjoy doing it.
+- Somebody gave me this drum machine and somebody else asked me to program something for a project. I really liked programming and I was really interested in using the drum machine.
+- Improvising things is always changing. A lot of momentum.
+- I'm interested in stories and the dark side of peoples' minds.
+- I still think that I'm playing instruments, not just pushing buttons and there it goes. It's interactive and alive with the sound and the manipulation and it plays like instruments.
+- The most important thing is that it's much more fun to play in a band than to be in an audience in a club. That's the main thing I think, that you can do it.
+- Actually, there was another band where we were three girls, around '84 when I met John Zorn, called Sunset Chorus. It was just bass and drums and guitar- we didn't make any records but we played a lot of different clubs in New York.
+- So now I don't have time to practice drums. It's been five years since I've touched the drums.
+- I really didn't intend to be a musician when I left Japan.

@@ -1,0 +1,106 @@
++++
+author = "Alaska"
+title = "Alaska Quotes"
+quotes_len = "100"
+description = "the best 100 Alaska Quotes"
++++
+- I think 'Drag Race' is a remarkable phenomenon and we won't even be able to see the impact of it until many years later.
+- I think that my attitude about myself is something that I've been trying to work on - trying to be more positive and just believing in myself more.
+- Honey, unlike the song 'Same Parts' by Tatianna, what you see with Alyssa Edwards is always the truth. She is literally a walking catchphrase factory. She is like an oil out of the ground. She is reality tv, and I absolutely love her.
+- I love working with people I admire.
+- It's like, when RuPaul calls, I answer.
+- Over the years I've evolved a lot as a performer.
+- I do believe the children are the future.
+- If I could send myself a bunch of snake emojis, I probably would.
+- I'm a giant person. I can't go and buy women's shoes in a shoe store. I don't even go in the shoe section because it just breaks my heart because the shoes are so beautiful, but they don't fit me.
+- I come from the theater, so I like it being: curtain up, this is what we want you to see, we have a reason for showing it to you, and then the curtain comes down, and that's it.
+- If people are laughing at you, you might as well be in on the joke.
+- I'm the Terry Bradshaw of drag. Not Carrie Bradshaw. Terry!
+- At the end of the day and at the beginning of the day, I am a man who dresses up like a lady who is from outer space. Not everyone is going to get that. Not everyone is going to be on board with that.
+- There's still an immense amount of discrimination that happens against trans people.
+- Really, drag is like, 'Oh, I'm putting on women's clothing,' but it's just clothing. The people who assign it as being for women is the culture and society.
+- I've lived in a trailer park.
+- I always used to dress up in little girls' clothes when I was really young. Then I realized that boys weren't supposed to do that, and I got really shy. I didn't do it for many years.
+- When I'm doing drag, I get to just be a pure channel for it.
+- The thing about 'Drag Race' now is that you don't really know what's going to happen when it gets to the end of the season.
+- I'm not a huge dancer onstage. In fact, I like not moving at all if I don't have to. But even just standing up for any given amount of time in 6-inch heels ends up leaving me feeling like I've been cracked in half like a rag doll after a few shows.
+- I was always drawn to beautiful women.
+- I love 'Keeping Up with the Kardashians.'
+- Pittsburgh is an underdog city because it's been in a recession for a really long time, since the steel industry collapsed, so it has this underdog mentality. Yeah, there are a lot of people who are conservative, but I also think they want to rally around their Pittsburgh people.
+- You can't control how you come across and if you try to then you come across looking like an idiot anyway.
+- Drag is something real. We're so fake that something real actually comes through.
+- I think it's good for 'Drag Race' to be moving toward the mainstream. I'm grateful for the move to VH1. I'm glad that one million people watched the first episode of Season 9. Our message is one of love and acceptance and truth and strength and perseverance, and I believe it should reach everyone, near and far.
+- It's crazy how much time can change things.
+- I think Christmas is a time for the whole family.
+- We believe the Queer community is a model for our global extended family, and together we have the power to create positive change for all of humanity.
+- If 'Drag Race' gets an Emmy nomination, I will put on a red glittery face mask over my mouth and I will lip-sync to an Ariana Grande song.
+- My mom was really good at swearing growing up.
+- I'll be in, like, Starbucks or something and I'll say my order and someone will snap their head around and go, 'Whaat, Alaska?! Hieeee!' I find it nice because I can be alone in a strange city where I don't know where I am, and then if a fan runs into me I feel like I am among friends and family.
+- I'm unabashedly obsessed with 'The Golden Girls,' and I have been for many years. And I consider myself to be a priest in the church of 'The Golden Girls.'
+- If we took the passion and the conviction that the activist trans community has and we combined it with this over-the-top marketable charisma of drag, I feel like if we worked together, we could really effect major social change and world change.
+- In my early career I was sort of anti-drag. I said, 'Drag is dumb and boring, and I want to be an effing weirdo and go crazy and rebel.' But now it's like I've come to respect and understand how deep and traditional drag as an art form is.
+- I would like to see the breakdown of the binary way of looking at gender and sexuality.
+- I'm inspired by Divine certainly, oh, and Britney Spears. I look exactly like her.
+- In show business, there's a lot of time when you're under contract, and you're not allowed to talk about things.
+- I wanted to record an album that moved through the body's chakra energy system.
+- Perhaps I'm just a 'RuPaul's Drag Race' superfan.
+- So pride is a time for us to say we're here, we're visible, we're strong, we're able to organise and we're able to activate and work together as a community to make change. That's what pride's about for me. And it's really fun too!
+- Drag is political.
+- After taking a retreat into the woods of the Russian River Valley to write, reflect, and commune with nature and one another, 'Amethyst Journey' was born. The album is a collection of songs that are a combination of our outlook and inspirations - a response to current issues and the state of our planet.
+- I can be pretty, I just prefer not to.
+- I've never been on that side - being reviled by hundreds of thousands of people online. I guess that experience was really terrible, but it's just added another stitch to the tapestry of my character, so I've seen life from both sides now. I've been beloved and reviled.
+- Drag queens are extremely innovative and, I mean, we will persist through plague, famine, war or pandemic. We will prevail.
+- I was like, 18 and it was in West Virginia because I was allowed to get into the clubs in West Virginia, not Pennsylvania where I was growing up. And we went in and there was a drag queen on stage and she was huge and beautiful, but she was lip syncing to a song. I was legitimately stunned.
+- Drag Race' is giving visibility to our community. It's on TV and you can see RuPaul, who is a black, queer, powerful figure who has run this empire for years, and I think that's an amazing thing.
+- Charli XCX is able to write these really catchy, sexy, irreverent, fun hooks.
+- Realness is something in such short supply; you can't believe anything anyone is saying when you turn on the television, and then during the commercials, they are lying to you there also. You can't believe anything, but when you go see a drag show, something real is happening on stage.
+- I love Little Mix!
+- I get to work a lot of times in nightclubs and large theaters, so I wanted to make music that is fun to perform in those settings. But I also wanted to contrast it with really serious, sincere ballads.
+- Music is really personal.
+- Let us be kind to one another and be slow to anger.
+- My mom knew that I was gay. So she just came up to me in the kitchen one night, and she said, 'Justin, are you a homosexual?' And I said, 'Yes,' and that was that. She took all the steps, she went to talk to a family counselor beforehand to see how she should bring it up, and now my mom's my biggest fan.
+- Well, I love Britney Spears, and I condider myself to be Britney Spears.
+- The House of Andrews really invented what we know as polished, glamour drag.
+- I care deeply about 'Drag Race' and drag. It's my life and it changed my life.
+- I want make sure I'm showing up for the people I'm really close to and my family, and so finding a balance is really important. But I don't want to quit drag at all. I want to be 90 years old and I want them to prop me up in the doorway and have hot dudes dance around me like Mae West. I really do!
+- It's always been that I feel more masculine in drag than I do out of it. I only get called 'ma'am' out of drag and I only get called 'sir' in drag.
+- My biggest fashion tip for quarantine is, honey, just because we're homebound doesn't mean you can't put on a gown or a nice jacket, do your hair or put on a winged liner, just go for it.
+- I think drag helps move us in the direction of loosening up the man/woman binary. The idea that you're one, or the other, it's false. The more that as a society we become a little looser, more open to laugh about gender, that's the direction the world needs to go in.
+- It's a scary world that we are living in.
+- I want to make the world a better place, and I think we can all work together to do that.
+- Hold on to your dream; hold on to your dream - because if it can happen for me, it can happen for you.
+- Meditation is essential. I try to start each morning with a focus on the breath and three things I'm grateful for.
+- I feel like the theme song to 'Duck Tales.' 'Life is like a hurricane; it's a duck blur.' That's absolutely what it is.
+- I love drag so much and it's a huge part of who I am but there's also another side that hasn't really gotten out into the music and I'm excited to show that.
+- I think I first learned about Stonewall in Queer Theatre class at the University of Pittsburgh. It made me mad that queer people out at bars could be raided and arrested and harassed by the police just for being who they were.
+- RuPaul has a very playful outlook on the world. He always looks on the bright side.
+- My last name is like 'Voldemort.' It's the name that cannot be said on television. It adds a sort of mystery to me, and I like that.
+- Since I was a kid, I've always been skinny and frail framed. I felt powerless as a child, but I always saw so much power in femininity and female sexuality.
+- RuPaul is someone who I really look up to because he's very much a renaissance man.
+- I'm from Erie, Pennsylvania. We're just naturally really nice, I think. In a show like 'RuPaul's Drag Race,' that isn't always good.
+- I have a very vague surface level awareness of Metallica.
+- Personally, I like drag that's a little rough around the edges, drag you can run around in it, drag you can get in the Uber without worrying about!
+- I care about 'RuPaul's Drag Race' a lot. It's given me a career as an artist.
+- I don't want to hurt anybody's feelings.
+- There's always been extreme misogyny in the music industry.
+- I was really scared that I would never be able to date anyone... because there was a huge stigma against drag. But the drive was so strong to do it that I was like, 'I don't care. If that happens, I'm fine.'
+- Straight people love to steal from drag queens. It happens all the time.
+- The truth is, people who have longevity are able to be aware of their public perception and take it and use it and make it work for them.
+- I like to say that I am based in Los Angeles, but I mostly reside in airports.
+- I think that we've made a lot of progress in the years since the Stonewall uprising, and as far as equality for marriage and things like that go.
+- You have to take the tragic and turn it to magic.
+- I wanted a song my 6-year-old niece could listen to in the car. 'Everyday is Christmas' sounds like a sweet sentiment, but in reality if every day were actually Christmas it would be a candy cane-riddled hellscape from which the human race could never awaken. So we're lucky it is just a lighthearted Christmas tune.
+- It was horrible having to watch myself on TV. I think I would have had a much better time if I didn't take it so seriously.
+- Pittsburgh's definitely the city where I learned how to be on a stage, hold a microphone, and interact with an audience. It's where I got my chops as an entertainer and as a performer, so I'm grateful to the queer community there because they are active and vocal and they care about each other.
+- I like to take whatever work opportunities I can. I like to work with as many people as I can. I like to show up on time, and I like to have a good time.
+- I love acting, so doing roles as a man or a woman would be something I'd love to do in the future.
+- I try to keep Alaska fresh by doing laundry and bathing at least once a month.
+- Why sleep when we can do drag?
+- My perfect day starts with putting on the teapot. Then I have tea in my favorite 'Golden Girls' mug and watch 'The Daily Show.'
+- I think I've become more professional or more marketable. That happened naturally, and I think 'RuPaul's Drag Race' had a lot to do with that.
+- I've certainly had to find a balance for myself and I have to now schedule months where I say, 'OK, I'm not going to travel during this month.'
+- I was really grateful that The Vixen, especially, was on season 10 because she was having conversations about race. You can't ignore it, especially in the drag community, in the 'Drag Race' world.
+- As your newly crowned queen of Earth, it is my first royal decree that flats are sexy and nails are optional.
+- I think that Life Ball is great because we're celebrating life and also raising awareness. That's all we need to keep doing.
+- Working out grounds you in your body and in the moment so if I'm ever feeling fuzzy headed a workout always helps check in with the moment.
+- I feel like I want to be in a world and in a community where we can be kinder to one another, because that is never going to hurt... And that should start with myself.

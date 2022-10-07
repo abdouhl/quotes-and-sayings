@@ -1,0 +1,76 @@
++++
+author = "Kevin Young"
+title = "Kevin Young Quotes"
+quotes_len = "70"
+description = "the best 70 Kevin Young Quotes"
++++
+- I didn't know any poets growing up in Kansas.
+- Can you explore real issues as a fake character? Yes - it's called acting. Or fiction. But acting is not a method of engaging with the actual world, just as pretending to know what a character might eat does not a novel make - much less make that make-believe real.
+- I try to read as a reader and also read as a writer. I mean, they're not so different.
+- That sense of mystery, but also of revelation, is what I turn to poems for. They're able to embody experience. We need more and more of that.
+- One of the most troubling things about the term 'fake news' is that it has become a force field against accusations you don't like.
+- I do think there's a certain savviness to be able to recognize the way people want a good story, and I think that we underestimate that.
+- Poems evolve. I don't feel like I choose them; they just come to me.
+- For 'The Grey Album,' I'd been thinking about the good side of lying - lying as a kind of improvisatory act in black culture. Afterward, it nagged at me because there are those other kinds of lies that I think are all around us, and I was fascinated about hoaxes in general. So 'Bunk' became a natural extension of 'The Grey Album.'
+- I try to have a lot of influences, which is to say not to have one specific influence too strongly; that can end up badly.
+- There's something about the kind of time travel that a poem can provide. It can take you to somewhere else - a culture far from you, a language far from you, but suddenly you're there. You're that person, seeing with that person's eyes. I think that's really tremendous. Even things like cinema or more traditional history can't quite do that.
+- Blackface remains exoticist and offensive as a practice, not just because of its long tradition of being used to mock black selfhood, sexuality, and speech but because of its assertion that black people are merely white people sullied by dark skin.
+- The mid-eighteen-thirties marked the rise of eugenics and racialism, with phrenology emerging as just one of the many pseudosciences that sought to enact, reinforce, and restrict racial difference.
+- Music and the blues, they have taught me a lot. I think in this book, 'Book Of Hours,' there is this blues sensibility. There are moments of humor even in the sorrow, and I'm really interested in the way that the blues have that tragic-comic view of life - what Langston Hughes called 'laughing to keep from crying.'
+- A DJ draws a connection between two seemingly disparate things and says, 'Look, they are alike. You can dance to them.'
+- For me Louisiana was mostly family when I was there. We hardly left; there was no need to... We hardly left the front porch. You would just sit, and folks would come by, and it was really old school in that way.
+- The hoax is the very absence of truth, which usually means art is absent, too - hoaxes regularly substitute claims of reality for imagination, facts for form, acting as if artifice is the antithesis of art.
+- For the black author, and even the ex-slave narrator, creativity has often lain with the lie - forging an identity, 'making' one, but 'lying' about one, too.
+- Here are the facts: my folks grew up so poor that, in the words of Redd Foxx, there were twenty o's between the p and r.
+- Writers need their totems, their altars. Mine, I feel, share the same randomness and utility of those belonging to painters I know, who are relentlessly visual and even poetic.
+- Harper Lee's novel 'To Kill a Mockingbird' became iconic almost immediately after appearing in 1960: best-seller status; the Pulitzer Prize the next year; a classic movie soon after, with Gregory Peck in an Academy Award-winning role.
+- Listen to the late Isaac Hayes covering 'Walk on By' by Burt Bacharach or Mayfield singing The Carpenters' vanilla-seeming 'We've Only Just Begun,' and you realize soul's insistence on transformation: Mayfield in particular makes the song not just about love but the start of revolution.
+- I think Barnum is at the center of American culture. He's helping to invent what we now think of as pop culture. He invented pretty much our notions of the circus.
+- The question of sort of music and history, I think, are so important to understanding the poem as an idea but also us as people in the world.
+- When I'm in full-on writing mode and have the day, I try to get in my office around 10 A.M. and stop once 'Judge Judy' comes on at 4, when I quit and come down. Sometimes, I leave her on while I edit - if she can make the tough calls, then so can I.
+- I didn't technically grow up in the South, but both my parents were from there.
+- The willed recovery of what's been lost - often forcibly, I suppose - is what keeps me going. It is this reason I found myself a poet and a collector and now a curator: to save what we didn't even know needed saving.
+- I think the hardest thing, really, is trying not to write.
+- Rereading 'To Kill a Mockingbird,' I was struck by what I had forgotten of the book: in a manner of pages, we encounter shame, history, ruin, conflicting stories, and wounds badly healed; in short, the South.
+- Is there a bad song on 'Sign O' The Times?' There isn't.
+- I'm not a historian. I know historians. I've worked with them. They have a really powerful way of looking at the world, and I think so do poets.
+- It's hard to describe one's own alchemy that makes one into a writer, but I definitely think American language is so interesting, and specifically Southern language and black Southern language; it's hard to separate Southern language from black language.
+- I remember in the '80s, people would literally have arguments over the best guitarist.
+- To me, poetry is spoken - not exclusively, but there's a mix of languages in it. That's what I liked about 'For the Confederate Dead;' it has many different tones to it.
+- In many ways, I feel like the form carries so much of the weight in a poem, obviously. But I think we sometimes forget that.
+- Race is the true protagonist of the American novel. Our most popular classic fictions have known this, from 'Moby Dick' to 'Beloved;' all these books take on race or talk it out, often in other forms; they are less 'horror stories for boys' than ghost stories from a haunted conscience.
+- Footnotes are for proving and showing where you've been. Also, they're for the curious - they can then go and find the information on their own.
+- A poem can provide testimony. A poem can provide solace. It can provide a connection.
+- Even Toni Morrison claiming Bill Clinton as 'black' could not prepare us for the election of America's first undeniably black president, Barack Obama.
+- In African-American culture, there's often a family historian, someone who does the genealogy or keeps the family Bible. I became aware that might be one role the poet has.
+- We quickly erase hoaxes once exposed, excising the monstrous palimpsest, because as with any witch hunt or obvious fake, afterward we can't quite explain why we ever believed the outrageous thing in the first place.
+- The first rule of influence is that there isn't any. The second rule of influence is that it is everywhere.
+- In a long poem or a sequence of poems, you're trying to formalize your obsessions and give them a shape and a name. The key is to realize if the connections you are making are ones with resonance.
+- I think music is poetry in the sense that I think the condition of poetry I'm going for has some qualities of music that it aspires to.
+- We've learned quickly that the Web is far more pseudonymous than anonymous: online, our names have simply been changed to a number, an I.P. address, protocol, and code.
+- I think I go with the Duke Ellington view on music. He said, 'There's two kinds of music - there's good music, and then there's the other kind.'
+- I think poems return us to that place of mud and dirt and earth, sun and rain.
+- Not many poets have editors.
+- I think that I try really hard to think about how we deceive ourselves, and we let ourselves be deceived.
+- It took a while for anyone to want to publish 'To Repel Ghosts.' I thought people would want to publish a three-hundred-and-fifty-page book about a dead painter, but they didn't.
+- I think the Internet is a free press, you know?
+- I feel music is another kind of literature.
+- In the absence of an answer that is complicated and sort of maybe troubling, we sometimes settle for the easy answer. It's easier to believe that my discomfort comes from some fact that is being hidden from me.
+- Forget reparations - we need to rescue aspects of black culture abandoned even by black folks, whether it is the blues or home cookin' or broader forms of not just survival but triumph.
+- We had moved cross-country from upstate New York to Kansas in the heat wave of 1980, with two cars, no air-conditioning, and a black dog. I can still see the infernal temperature of a hundred and nineteen degrees on a bank sign somewhere near Ohio.
+- What a poem can do is provide you this intimate eye that, for the length of a poem and hopefully a little bit after, can provide testimony or a point of view.
+- I rather think that archives exist to keep things safe - but not secret.
+- I write about what hoaxers do, but I also want us to think about what believers do. Why do we want to believe a story like James Frey's 'A Million Little Pieces?' Why did we want to believe that Lance Armstrong really did all these things that, looking back, seemed impossible?
+- When I was ten and in fifth grade, I read all of 'Robinson Crusoe' in one weekend.
+- At our peril, we ignore the fact that black vernacular, like the blues, both has a form and performs... For just as there would be no American music without black folks, there would be very little of our American language.
+- While claiming advocacy, what hoaxers really exhibit is self-interest. Often, this is because there is only the self to support their false claims; any revelations merely provide further opportunities for details and forgery.
+- There's always been really interesting, diverse black voices talking and arguing and counterpointing.
+- I was a professor for 20 years, 12 of those at Emory University.
+- Great music - say jazz - has that inventive, improvisational quality that tells us something about life.
+- Pleasure is a revolutionary act in the face of pain.
+- People sometimes say hoaxes are about the blurry line between nonfiction and fiction. I just don't think it's a blurry line at all.
+- It's a black Southern belief that blue glass keeps out bad spirits.
+- Certainly, there is, in our culture, this notion of, you know, you can become anything. You can change.
+- Hip-hop at its zenith insists on thinking and dancing simultaneously. In fact, it sees them as synonymous.
+- There is, of course, no larger mass hysteria in American history than the epidemic of racism.
+- Poets often are dealing with history and are thinking about the way history moves across us, and we move in it.

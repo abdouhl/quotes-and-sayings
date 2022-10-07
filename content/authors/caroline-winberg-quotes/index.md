@@ -1,0 +1,17 @@
++++
+author = "Caroline Winberg"
+title = "Caroline Winberg Quotes"
+quotes_len = "11"
+description = "the best 11 Caroline Winberg Quotes"
++++
+- I don't get time to hang out with my friends because every time I make a plan, my agent tells me I can't go. I'm used to it.
+- A lot of American guys wear really wide legged jeans and square shoes. Then they come to Sweden and think my friends are gay because they're wearing 'really tight jeans'. It's called 'fitted!'
+- I think it's important to always keep professional and surround yourself with good people, work hard, and be nice to everyone.
+- In a relationship, it's important to make each other laugh. To give each other freedom, support each other and be proud of each other.
+- You can always enhance your natural beauty; you learn what works for your face because crazy make-up doesn't really suit anyone.
+- Everyone tells me I have a funny accent. It's because I copy people. I learned English at school but have best friends who are French, Australian, English and American; a very weird mix.
+- I play a lot of sports. I played football for 12 years, I like tennis, I surf, I snowboard, and I ski. I always like to do an activity.
+- I'm a bad loser, but I'm not a good winner either - I like to rub it in people's faces!
+- I like a guy who is confident and easy-going, but a man who's a man, not a man who is a little boy. I like a man who is comfortable with himself.
+- We don't do 'dating' in Sweden.
+- I like ungroomed men. The relaxed look. I don't like fussy guys. Just shower and use deodorant.

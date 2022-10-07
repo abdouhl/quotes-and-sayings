@@ -1,0 +1,27 @@
++++
+author = "K. Eric Drexler"
+title = "K. Eric Drexler Quotes"
+quotes_len = "21"
+description = "the best 21 K. Eric Drexler Quotes"
++++
+- An international race in the relevant technologies is getting under way at this point, not necessarily with an understanding of where that race leads in the long run, but strongly motivated by the short-term payoffs.
+- The really big difference is that what you make with a molecular machine can be completely precise, down to the tiniest degree of detail that can exist in the world.
+- But if we can manage it so people don't have things forced on them that they don't want, I think there's every reason to believe things can settle out in a situation that is recognizably better than the one we're stuck in today.
+- After realizing that we would eventually be able to build molecular machines that could arrange atoms to form virtually any pattern that we wanted, I saw that an awful lot of consequences followed from that.
+- The basic parts, the start-up molecules, can be supplied in abundance and don't have to be made by some elaborate process. That immediately makes things simpler.
+- Protein engineering is a technology of molecular machines - of molecular machines that are part of replicators - and so it comes from an area that already raises some of the issues that nanotechnology will raise.
+- It's a lot easier to see, at least in some cases, what the long-term limits of the possible will be, because they depend on natural law. But it's much harder to see just what path we will follow in heading toward those limits.
+- Likewise nanotechnology will, once it gets under way, depend on the tools we have then and our ability to use them, and not on the steps that got us there.
+- The other advantage is that in conventional manufacturing processes, it takes a long time for a factory to produce an amount of product equal to its own weight. With molecular machines, the time required would be something more like a minute.
+- But while doing that I'd been following a variety of fields in science and technology, including the work in molecular biology, genetic engineering, and so forth.
+- You can find academic and industrial groups doing some relevant work, but there isn't a focus on building complex molecular systems. In that respect, Japan is first, Europe is second, and we're third.
+- In thinking about nanotechnology today, what's most important is understanding where it leads, what nanotechnology will look like after we reach the assembler breakthrough.
+- My greatest concern is that the emergence of this technology without the appropriate public attention and international controls could lead to an unstable arms race.
+- My work at MIT had focused on what we could build in space once we had inexpensive space transportation and industrial facilities in orbit. And this led to various sorts of work in space development.
+- If you take all the factories in the world today, they could make all the parts necessary to build more factories like themselves. So, in a sense, we have a self-replicating industrial system today, but it would take a tremendous effort to copy what we already have.
+- I've encountered a lot of people who sound like critics but very few who have substantive criticisms. There is a lot of skepticism, but it seems to be more a matter of inertia than it is of people having some real reason for thinking something else.
+- Today we have big, crude instruments guided by intelligent surgeons, and we have little, stupid molecules of drugs that get dumped into the body, diffuse around and interfere with things as best they can. At present, medicine is unable to heal anything.
+- On the molecular scale, you find it's reasonable to have a machine that does a million steps per second, a mechanical system that works at computer speeds.
+- I had been impressed by the fact that biological systems were based on molecular machines and that we were learning to design and build these sorts of things.
+- Any powerful technology can be abused.
+- And that because the moving parts are a million times smaller than the ones we're familiar with, they move a million times faster, just as a smaller tuning fork produces a higher pitch than a large one.

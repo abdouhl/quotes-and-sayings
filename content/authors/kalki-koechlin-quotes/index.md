@@ -1,0 +1,106 @@
++++
+author = "Kalki Koechlin"
+title = "Kalki Koechlin Quotes"
+quotes_len = "100"
+description = "the best 100 Kalki Koechlin Quotes"
++++
+- My mum was quite strict, so I was in a very strict household.
+- If you want to have a nice laugh, then 'My Friend Pinto' is a movie to watch.
+- If you can't go for a honeymoon, steal a weekend and go somewhere. Anurag and I do it quite often. We switch off our phones and go for a small weekend getaway.
+- In marriage, a woman becomes the weaker sex, even if her husband doesn't want her to be. This happens because of the way society has built the institution.
+- Women should get together and become the pillars of support for each other.
+- I have so much advice for men. They need to know that their mother is not their wife... and their wife will never be their mother.
+- It is enough if I can be relevant. It is more about me keeping up with youngsters than influencing youngsters. So I just want to stay relevant, really.
+- I will say that my style sense is very mercurial. There are days when I love to be all comfy, relaxed in casual wear, and there are days when I go all matching, matching.
+- I, in particular, am in a confusing spot because I am Indian, but I am white, which people don't get. So often I find myself struggling to explain my Indianness.
+- When I was studying in London, I worked part-time as a waitress. I was teaching drama to kids. I did a lot of odd jobs to pay for my studies.
+- In your 20s, you are worried about body issues, your weight, how you are dressed. In your 30s, you're like, 'Oh my God, I am getting old. I am going to enjoy everything.'
+- Being a feminist means asking for equality. But people take it the other way at times. It is looked down upon is because it is seen as man-hating. But, feminism is a really crazy idea that suggests men and women are equal.
+- I am just like a common woman who love shopping in Sarojni Nagar and Janpath. I am the one who shops on Indian street, in malls of Dubai and even vintage stores of London and New York.
+- I think you're stereotyped after every film. Post 'Dev D,' I was only offered bold roles. Similarly, after 'Margarita With A Straw,' I was offered roles where I had to play differently-abled people. So, no matter what type of film you work in, people tend to slot you.
+- We need better and stronger roles for female actors.
+- As a teenager, I was very awkward in my skin. I was never in the cool gang. I had braces and was quite the geek as well as a tomboy.
+- Everybody should read 'Slaughterhouse-Five' by Kurt Vonnegut. This book is about the hypocrisy of war, told in satire, and is hard-hitting and truthful.
+- There's lots said about me. I have teeth that are way too big for my face or that I am too skinny for my own good... And I can safely say that I have three left feet. But there's nothing I can do about it. That's the way I look, and that's the way I was born.
+- Now I know Hindi, and I can read and write Hindi, but the problem is that I can't improvise when I am acting because I think in English, so I have to translate my thinking from English to Hindi, and therefore, I speak slowly.
+- Vulnerability is important in life, I feel. That's what allows you to experience intense emotions, whether it's joy or pain or sadness.
+- Once I got married, I was only invited to the things that Anurag was invited to. People would say, 'Call Anurag's wife.' They wouldn't say, 'call Kalki' or 'call Kalki's husband.'
+- I find it very hard to dance. I have 2 left feet.
+- I like to believe I perform better under pressure and at the last minute.
+- You shouldn't feel awkward in your own body and constantly try to be an image for somebody else. You should to be comfortable in it.
+- I haven't been trying to lose weight. I wish I would put on some weight.
+- A lot of people make fashion their whole life, which I think is not cool.
+- In India, you can just show up at a friend's house, and they will feed you; you can borrow someone's clothes and touch each other. In London, they would say, 'Oh, let's meet for coffee at 4:15, and we will talk about, I don't know, this play that we saw.'
+- In the beginning, I was very stubborn and always wanted to be just an actor. I was told by a lot of people to try my hand at writing or directing, but I always thought, 'I am an actor, and this is what I want to do.'
+- You wouldn't believe how many people have told me that I need to fix my teeth or that I need to restructure my jawline.
+- I think, no matter how successful you are, there is some struggle of one kind or the other for every actor at every level. There are times when your work progresses at an extremely slow pace.
+- I want to work with as many directors as possible because with each director, you learn something new.
+- I don't even mind playing a bimbo or a silly girl, as long as it isn't stereotyped and there's a reason for that character to be part of the story.
+- I have always been good with kids, as I used to teach drama to kids.
+- I do not differentiate between a commercial and an indie project as long as there is a strong subject and the character in the script is relatable.
+- At home, my parents were quite old, so the surrounding was of elder people. There was no noise. Reading books was encouraged; TV was not encouraged, so I was the geeky, studious type of girl.
+- Adults should be intelligent enough to know what they want - if you don't like it, then don't consume it. A rating system for kids and teens is more important. Especially for violent shows.
+- I like Kerala a lot. The beautiful beaches there, the backwaters - I have good memories of the place.
+- I love being unconventional because that's the reason I stand out.
+- Going to London at 18 to study drama and theatre made me grow up really fast.
+- I think the glamour industry, all over the world, does portray a version that is 'Photoshopped' - a picture that is not very realistic.
+- There's a thing about opinions... They are formulated over time. They tend to change with time, and you are going to change your mind many times.
+- Even when you don't want, your clothes always speak for you. So fashion is definitely an important statement.
+- If you are a musician, you practise your instrument every day, but actors can't be on a set every day. Theatre is a way for me to keep practising my art form.
+- What makes us really human is it's in the presence of death that we start valuing life.
+- When your private life has been dragged into public space, you tend to attain a zen-like composure.
+- We can't let fear steer the way, dictate our lives.
+- I don't believe in becoming famous overnight.
+- I think it's what's inside that makes you beautiful on the outside.
+- Theatre is my first love; I would not have done it if I didn't love it and certainly not for the money - you really have to believe in it.
+- I don't have any limitations that I only want to do serious films. I am trying to break that image but not very consciously.
+- Theatre is more metaphorical where you have to be louder and larger than life, whereas film is more subtle and more real.
+- People often think that I am funny and crazy, but I think they have also come to love me for it.
+- The country has double standards - it's obsessed with fair skin on one hand, but if the woman is white, she is expected to be loose-moraled.
+- Women are not a doormat. We are equivalent to men. It is just that we have different bodies and different biological needs.
+- There is always going to be depth and layers to people and that's what interests me in a character: when there is some problem to overcome, when there is a complication to understand in a person.
+- I was born in Pondicherry. Both my parents are French. They met in Pondicherry in the '70s, got married, and stayed back in India.
+- I like fashion, but it's not something that I follow religiously.
+- I feel, at times, women in India go beyond their comfort zone just to clad the trend, and that automatically becomes a faux pas. If you are not comfortable with something, please don't wear it.
+- It's only over time that you get to exploring or adding nuances to the character. Like my part in 'Zindagi Na Milegi Dobara' - I am so not the person who wears high heels and totters about like a poodle.
+- I don't comment on everything; I don't comment on things I don't know enough about. I feel people should talk about something only if they feel strongly about them.
+- I don't want to choose between commercial and independent cinema. I just want to choose between a good film and a bad film.
+- I like social media, as it cuts out the middleman. You can be yourself, you can't be misquoted, and it's also useful for me to get information about my theatre shows across to people.
+- You can't force people to change. You can only give them the option.
+- We don't expect someone in a bikini to stand up for women's rights; we only expect a girl in an 'NGO outfit' to speak about it. It's as much as the right of the girl in the bikini to talk about it as a woman in a kurta. We need to embrace that multiplicity.
+- I love outdoor places in the evenings; I don't like box-like clubs.
+- Theatre is really an actor's playground.
+- A director's job is like parenting. You have to look after your actors like children, pay attention to each of their different abilities.
+- When I have to be in public, I can't be in a bad mood.
+- Being independent in my choices is important to me.
+- People like Priyanka Chopra and Kangana Ranaut are really paving the way for successful women.
+- Theatre is something that keeps me very alert, and I am actively creating whether I am on stage or directing. In films, I feel I become more of an introvert, going deeper in the realism of a character.
+- My mom was very worried when I was starting off my career in the film industry. She never told me to not take up acting, but she would always tell me to have a backup plan so that if nothing works out in the acting career, then I can switch.
+- Of course, people have tried to stereotype me... But it's very short-lived if you realise that you're only as new as your newest film... You have to look beyond the period of initial reactions and recognise that there's a bigger body of work and an effort to do something bigger.
+- Often, we hide our personality and are afraid of bringing it out in our clothes. So, I think when people are fashionable, they are able to express themselves.
+- I do not get that many offers in commercial cinema, to be very honest.
+- Yes, India is intolerant towards women, at least when it comes to their safety issues. When I was shooting in Jharkhand, I was constantly being followed by two soldiers to ensure that I was safe. Women are so unsafe in our country.
+- I have never been ashamed of whatever I do.
+- It's great to come home always... coming home to good south Indian meals or Andhra food is always a pleasure.
+- 'Jia Aur Jia' is like my first proper fun, masti Bollywood film. I have a full-on dance number.
+- I keep saying this: If you're not a feminist, you're a bad person.
+- I consider myself as a human being with lots of ups and downs and learning from a lot of failures before I can succeed.
+- There's nothing like performing for a live audience.
+- I'm from a small town where the pace of life is slow.
+- Every role that one does - at least, that's what happens in my case - becomes a sort of therapy.
+- In Bollywood, it's always feast or famine for an actress. That's the way of the game.
+- I, for one, personally like rom-coms, silly rom-coms, but at the same time, I also want to watch a documentary or an award-winning drama.
+- I don't work for awards; they're just an icing on the cake.
+- I cry at the drop of a hat.
+- Woody Allen's sense of humour has always attracted me, and I love the way he can make life so meaningful and yet show us what a farce it can be at the same time.
+- It's only that we live in a patriarchal society, and therefore, the word 'feminism' has to be used as a counter to patriarchy. But feminism is about being equal. The word used should be 'equalist,' as it is about all humans being equal and respecting each other for that.
+- I do like to dress up, and I love to go for red carpet events and look my best, but I have to be comfortable, and I don't want to wear make-up when I am taking a flight.
+- I think beauty shows exteriorly what you are feeling inside; so if you are not in a great mood, it shows on your face a lot.
+- There were a lot of pretty women in cinema around Audrey Hepburn's time, but she stood out because she had a very interesting personality - which went beyond her looks. She did so much for women, for animal rights, for children's education - it's always the personality that comes through and makes one seem beautiful.
+- A film is a mirror image of our society. If there's something wrong with the way we make films or the way women are stereotyped, then it means that it's happening in real life.
+- I am not an activist. I am an actor.
+- There's a lot of pressure on women to look in a certain way. It's not easy to live in a world that objectifies women.
+- I improvise a lot and try something new every couple of years.
+- I am probably spiritual in the sense that I do believe there is more to life than what we see.
+- I am always open to any film from any place, given the role and the script is interesting.
+- Once I wanted to get into films, I took my time about it because when I first got to Bombay, I gave my photos and CDs to all the production houses. But the roles that came my way were the 'typical white girl dancing in the background' kind of roles, which I was not too interested in, or it was advertisements.

@@ -1,0 +1,85 @@
++++
+author = "Amy Winehouse"
+title = "Amy Winehouse Quotes"
+quotes_len = "79"
+description = "the best 79 Amy Winehouse Quotes"
++++
+- I don't even have a TV.
+- Yes, I'm still going to misbehave!
+- The jazz I love is sweet and pure with raw elements, which is exactly what the good hip-hop is doing now.
+- I don't think your ability to fight has anything to do with how big you are. It's to do with how much anger is in you.
+- I don't regret anything.
+- I'm ugly.
+- I'm always happy to blow up any misconceptions that people have about stage school cos everyone thinks it's really nasty there but it's not.
+- There's no point in saying anything but the truth.
+- Having listened to great songwriters like James Taylor and Carole King, I felt there was nothing new that was coming out that really represented me and the way I felt. So I started writing my own stuff.
+- I can express myself.
+- Girls talk to each other like men talk to each other. But girls have an eye for detail.
+- I always wrote poetry and stuff like that, so putting songs together wasn't that spectacular.
+- I didn't think it was special to be able to sing.
+- I wouldn't say I'm a feminist, but I don't like girls pretending to be stupid because it's easier.
+- I've got a crush on my backing singer.
+- I write songs about stuff that I can't really get past personally - and then I write a song about it and I feel better.
+- I look after people.
+- Since I was 16, I've felt a black cloud hangs over me.
+- Women don't try to use me.
+- If I died tomorrow, I would be a happy girl.
+- I'm lucky because I do get to fly first-class now.
+- I really thought I was on the way out. My husband Blake saved my life. Often I don't know what I do, then the next day the memory returns. And then I am engulfed in shame.
+- I want at least five kids. I want twins.
+- My justification is that most people my age spend a lot of time thinking about what they're going to do for the next five or ten years. The time they spend thinking about their life, I just spend drinking.
+- If you play an instrument, it makes you a better singer. The more you play, the better you sing, the more you sing, the better you play.
+- You know how you either grow up in a Michael Jackson house or a Prince house? For me it was Michael Jackson. I could never decide whether I wanted to be Michael Jackson or marry him.
+- I do suffer from depression, I suppose. Which isn't that unusual. You know, a lot of people do.
+- I would say that jazz is my own language.
+- Every bad situation is a blues song waiting to happen.
+- I fall in love every day. Not with people but with situations.
+- I'm of the school of thought where if you can't sort something out for yourself then no one can help you.
+- Since I was 16, I've felt a black cloud hangs over me. Since then, I have taken pills for depression.
+- I'm such a kid at heart.
+- I really started writing music to challenge myself, to see what I could write.
+- I've had everything pierced at some point.
+- To be honest, I think kids have got a lot more going on than adults. They've got their heads screwed on a lot better.
+- Some men do think I'm a psycho bunny-boiler.
+- Basically, I live to do gigs.
+- Some people reckoned that I looked healthier when I was bigger but I had terrible skin and no energy.
+- Yeah, I'm an open book.
+- I listen to music that is of our time and I just get angry.
+- I made an album I'm very proud of, and that's about it.
+- I was hit by a car once on my bike, but I still rode home.
+- I saw a picture of myself when I came out of the hospital. I didn't recognize myself.
+- My parents pretty much realized that I would do whatever I wanted, and that was it, really.
+- All the songs I write are about human dynamics, whether it's with girlfriends, boyfriends, or family.
+- Here in England, everyone's a pop star, innit, whereas in America they believe in the term artist.
+- I'm not frightened of appearing vulnerable.
+- I like pin-up girls. I'm more of a boy than a girl. I'm not a lesbian, though - not before a sambuca anyway.
+- I'm my own worst critic, and if I don't pull off what I think I wanted to do in my head, then I won't be a happy girl.
+- When I'm nervous, I stutter, and I had to keep stopping and starting.
+- I love food.
+- I just dress like... I'm an old black man. Sorry! Like I'm an old Jewish black man. I just dress like it's still the '50s.
+- I don't listen to a lot of new stuff. I just like the old stuff. It's all quite dramatic and atmospheric. You'd have an entire story in song. I never listen to, like, white music - I couldn't sing you a Zeppelin or Floyd song.
+- I'm happiest with my family around me.
+- I'm not very ambitious at all.
+- I've always been a little homemaker.
+- I can play a lot of different instruments adequately but nothing really well.
+- If I heard someone else singing like me, I would buy it in a heartbeat.
+- When you're around kids you can be a little kid yourself and pretend that life is magic and you don't have to be one of those sweaty people going to work every day.
+- I can be a cruel person.
+- I was gutted to leave my boyfriend at home when I started my tour, but taking my pillow was like taking a little bit of him with me.
+- I've never been a boyfriend kind of girl.
+- I just like tattoos.
+- I don't have emotional needs, only physical ones.
+- Cause I'm a musician, I'm not really good at posing and being a model, like, modeling.
+- I know I'm talented, but I wasn't put here to sing. I was put here to be a wife and a mom and look after my family. I love what I do, but it's not where it begins and ends.
+- I love America, it's a much more permissive place.
+- I read a lot when I'm travelling and always have a couple of books on the go.
+- Life's short. Anything could happen, and it usually does, so there is no point in sitting around thinking about all the ifs, ands and buts.
+- I'm of the school of thought where, if you can't sort something out for yourself, no one can help you. Rehab is great for some people but not others.
+- I'm very loyal.
+- Now I think that going to the gym is the best drug. I go four times a week and it gives me the buzz I need.
+- If you're nice to me I'll never write anything bad about you.
+- I'm much healthier now.
+- My husband is everything to me and without him it's just not the same.
+- I don't think I'm such an amazing person who needs to be written about.
+- I would love to study guitar or trumpet.
+- I'm not a natural born performer.

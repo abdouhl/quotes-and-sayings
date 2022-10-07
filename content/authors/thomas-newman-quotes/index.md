@@ -1,0 +1,63 @@
++++
+author = "Thomas Newman"
+title = "Thomas Newman Quotes"
+quotes_len = "57"
+description = "the best 57 Thomas Newman Quotes"
++++
+- If you fail, fail fast enough so you can regroup and do it better.
+- There was no saying I could ever step in and do what John does, because it'd be really hard to be John Williams.
+- It's always nice to remember that there was a time when I loved something that I didn't know much about; it just reached my ears and moved me.
+- Losing makes you strong.
+- Sometimes the best experiences are when I know nothing about this movie: I've never met the director, and I come and see something and I'm blank, because then it's coming at you in a way it would never come at you if you'd read the script, with an expectation.
+- I didn't listen to any of my dad's scores.
+- I think as storytelling has changed, you know, it's kind of turned into kind of hyper-reality movies.
+- I think I compose as a listener: improvising and listening back excites me because I get to ideas that never would have occurred. Then I bring in the computers and samplers... and I begin to loop and process and change them.
+- In general, I probably have a shy nature. So the idea of poking out with my music is probably not something I want to do.
+- My father used to say it was just there, the opportunity. It was all teed up for him. The talkies were starting, and here was Hollywood waiting for people to come from New York who had the training, who could do music with a sense of dramatic context.
+- When you see an early edited version, you're not sure what it is. The movie is getting on its wobbly legs.
+- My father's Alfred Newman - born in 1900, child prodigy at the piano, ended up in pit orchestras in the teens. I think he's one of the youngest conductors to conduct Broadway and worked with George Gershwin and Jerome Kern and Cole Porter - went out with Irvin Berlin in 1930 to Hollywood and never left.
+- Robert Altman was a very jovial guy and obviously a famed improviser and perhaps less effective in post-production, which is like the crystallising process. So I found myself at sea often with him because we'd have conversations about what music is, and in the end, I don't know how interested he was?
+- I know what my taste is, and I do like my touch on the piano.
+- I flew to England to see the rough cut of 'Revolutionary Road.' I was quite moved. As a married man, it's kind of disturbing to see a couple try so hard to work things out and fail so miserably.
+- Music is one of the last elements in the creative process. It can and hopefully should tie a bow around an artistic concept, how a story moves forward, the pace of that storytelling.
+- Movie music allows me to work with players as creatively as I can.
+- Music is such an odd thing when you think about it - behind an image until you take it away, and then you realize a movie sounds blank without it.
+- The rare opportunity of writing music for a movie about the making of 'Mary Poppins' was impossible to ignore. The fact that it could provide emotional content in relief of the struggles that the Sherman brothers and Walt Disney endured was reason enough to take on the challenge.
+- In animation, action is changing so quickly that there's really not a lot of suspended moments.
+- In live action, sometimes a mood or a feeling can go on for quite a while. Animation is a lot more effort. There are a lot more notes.
+- I had ideas. A lot were good, but in many ways, I had no idea or experience about how to carry them out.
+- It's a practical matter. If you're useful to others, you'll be hired.
+- The idea of creating film scores was terrifying for many years, into my 30s. It struck me as a career of doing 30-page term papers the night before they're due.
+- The fun for me musically is that you never quite know what works and why. So why pretend you do? Why not just put things together and discover, in the creative process, if and why they work? That approach has served me well.
+- There were certain things in 'Nemo' - just this low hum of ocean and watery sound - that was enough to imply water, as opposed to restating it over and over again.
+- There are moments when I invoke my dad and think about him on the podium, but in a very positive way. I don't feel at all intimidated by him. I feel like I've found my own voice.
+- The experience of a film is immersive, and music is supposed to underline and help that experience.
+- In the end, you don't want music to be noticed as much as digested and integrated into the storytelling. And make audiences sit forward in their seats and enjoy the movie.
+- 'Sugarcoat the Galaxy' is inspired by color-inflected photographs of galaxies. It likens sounds to spun sugar and confection, wrapping static harmonies inside energy and pace.
+- With film music, endings are often more difficult than beginnings, because a beginning is an underline, a way of exciting a moment, and then you have to find a way to dissipate that.
+- I like being the underdog.
+- I guess there are certain conventions that come with film and with scoring film. So maybe one of those is menace in a lower register. It's trying to evoke some sense of chaos and adventure.
+- The thing I don't want to do as a film composer is reiterate. I prefer to subtextualize or to underline rather than to say, 'This is what you should be feeling.'
+- You can always hear a director saying, 'Well I don't really know what this piece is saying, so therefore, I reject it.' There are any number of things you can anticipate going wrong, and sometimes they go right. But I think the things you like most are the things that get rejected first. That's just how things work.
+- You want to say as little as you can and get the most punch out of it, always with the knowledge that people are not in the theater to listen to your music so much as to respond to the movie. You're a part of that experience.
+- I realized so much of my life hasn't been in a well-lit room, and I realized the importance of documenting my experiences as a way to memorialize them.
+- Post-production is kind of the death of hope. The money has been spent. The grand ideas are either there or they're not there. So music oftentimes has to compensate if there are issues, or it has to stay out of the way if the movie is working really well.
+- The thing about the creative process is it's so chaotic.
+- Part of me wants to stay hidden; it's no coincidence that I write movie music. It lets me stay in the shadows, in a way, but still lets me be expressive.
+- It's always easy, I think, to raise the importance of a scene through the addition of music. But it's very awkward to end it unless there's a door slam or a gunshot or something that just takes you right out of it.
+- For me, like anyone, you want to go into a movie and have an enjoyable time where you're just involved.
+- In 'Saving Mr. Banks,' the challenge was just transitions. Time transitions from 1961 to 1906; how do you follow a character in one environment to another? And sometimes these transitions were quick, so how do you do that?
+- I'm a huge fan of not overemphasising with music.
+- What satisfies me most are those nonverbal moments with players, when I sense them thinking and responding. And I think, 'Wow, this is amazing.' Hollywood gives us the money to do this. I want to be grateful for that, and I also don't want to waste it.
+- We're all shocked by new ideas, and we're less shocked when we hear them again. And less shocked when we hear them a third time.
+- My uncle Lionel ended up being a bug guy at 20th Century Fox, which my father had been - and, of course, my cousin Randy - you know, one of the great American songwriters. It was a storied family and, in many ways, very tough to emerge from.
+- There's nothing like desperation to sharpen your sense of focus.
+- The golden age of Hollywood was the conceit of the movie and the style of the movie.
+- There were moments in 'Malala,' I felt very moved by the storytelling, and 'pleased' would be the wrong word, but the music could be part of what moved me: that I was trying to contribute to something that was meaningful outside the realm of creative work but just more in terms of the world.
+- After the music that had been created by my family, I thought there was no way I could stack up.
+- I just want my music to involve an audience in what's taking place onscreen.
+- I first came to Abbey Road Studios in 1994. I scored 'Little Women' there. What I remember most about it was how hard it was to come to London from Los Angeles and conduct when you're jetlagged.
+- 'The Starship Avalon' is perpetually mobile. The music is designed to give the impression of endless sleep and endless journey with a significant interruption that guides the story that follows. It's color and pulse followed by great size.
+- There was no way I could not do 'Finding Dory.'
+- When you go into something like a space movie, you think there's going to be no music or little music.
+- Whatever you say to yourself about it being just another movie, and you're going to do the job you always do, it ends up being a 'Bond' movie and a sense of what it is to put music to James Bond and to honor the music that exists.

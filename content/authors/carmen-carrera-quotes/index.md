@@ -1,0 +1,98 @@
++++
+author = "Carmen Carrera"
+title = "Carmen Carrera Quotes"
+quotes_len = "92"
+description = "the best 92 Carmen Carrera Quotes"
++++
+- As someone who's visible, I feel it's part of my responsibility to have a voice for trans people because the fight is not necessarily on television. The fight is every day.
+- Being a woman means everything to me.
+- Regardless of whether you're in a gay or heterosexual relationship, you're going to go through your ups and downs.
+- Beauty comes from within, but it's up to us to use fashion and beauty to express who we are on the inside.
+- I just want to say that I'm, like, living for myself, because I was onstage at Radio City Music Hall with Christina Aguilera - and my name was on the screen. It was a big moment!
+- I'd like to live in a country where I feel safe.
+- When you transition, it's a long process. Some people are so, like, ignorant about it. They're like, 'Oh she's a girl tomorrow.' It's not like that. You have to literally, you take all this medication. It's really hard on your body.
+- My life isn't really that different from a biological female.
+- My message is: beauty has no gender. At the end of the day beauty is beauty.
+- It's important to have transgender representation because we represent the forthcoming generation, and their new perception on the standard of beauty - which I believe is being true to yourself, loving yourself and others.
+- I like to jump around, and it takes a long time for people to catch up to me sometimes.
+- I'm not Laverne Cox. I'm not Janet Mock... I'm just a girl from New Jersey who has experience and lived.
+- Honestly, when I was a boy and I was out as a gay boy, I never really dealt with anyone bullying me or anything like that.
+- I'm a show girl at heart.
+- We must learn to exist together in peace and love people as they are. That is the only way humanity wins.
+- Being a voice for my community is something that I don't take lightly.
+- When you live this trans experience, there's a point and time in your life that you almost stop developing because you don't know where to go.
+- For me, I've tried to always live in the moment and I don't think that much about what is law, what is written down.
+- I would hope that one day there will be a time when it's not so much about transgender, it's just people will just see us as women.
+- I know during my transition it was difficult for me to stop believing I would be stuck unhappy forever, but that's not true. Physical changes take a while but internal feelings of changing and finding your peace can take way longer.
+- Trans people are beautiful. It's a different kind of beauty, and it should be recognized and respected.
+- My family is very supportive, lucky for me.
+- I don't need to rely on my concealer to have a sense of myself. I should be able to go out without my concealer, without my makeup, and still be able to be joyful.
+- When it comes to beauty, I try to teach my step daughters to embrace themselves the way they are,and to have fun.
+- When I was a kid, I was really quiet.
+- The way I see things is that, I think that transgender people are super brave. If you're a female to male, male to female, if you're that brave to take control of your own body and make it however you want it to be, more power to you.
+- When you don't have a support system, and you're constantly being bullied for who you are, and you begin to not accept yourself for who you are, it's a distraction from schoolwork. It's a distraction from learning and from growing.
+- I always love working with other creative talent.
+- I see the human body as your soul's apartment.
+- For me, I know I am a trans activist and I try my best to stand up when the time is right, but at the same time, I don't always want to be considered transgender around my friends and people at my daughter's school. I just want to be considered a woman.
+- I would say what's really interesting about me personally is that I've taken my transgender experience, and I've looked at it on the bright side, on the positive side.
+- I like to think of myself as an active American in our politics, but I get lost sometimes watching everything.
+- Growing up, I didn't really watch the Victoria's Secret fashion show too much. I really just saw folks who weren't real to me, so it didn't really interest me.
+- Trans women are a part of the female population and I think that they deserve a respectful representation.
+- If people can understand me and accept me as a woman, I'm going to get booked for more jobs.
+- And I come from a very proud Hispanic family. We're proud to be Latino. We're proud to be Peruvian. And my dad's side is proud to be Puerto Rican.
+- For a long time trans people have always been a joke. Our reputation has always been the bottom of the barrel and it's not fair.
+- All you have to do is respect me. Use the right words. If you don't consider me a woman, then use trans woman. Whatever works for you. But don't try to use something that's a slur or something that's meant to degrade who we are.
+- Everyone else is following these male and female tracks that have already been set for them, but when you're trans there is no trail.
+- I want to be able to supply the knowledge that transgender women need in order to live peacefully and become accepted among all men and women.
+- Beauty is the ability to utilize the tools provided in order to showcase your spirit in order to show your true soul.
+- It would be pretty amazing for Victoria's Secret to be that huge corporation that embraces trans women. We shop there as well.
+- For any model in this industry, you never know if you're going to get work. You never know if people are going to relate to you, and embrace you. And then being trans is kind of like - I hate to say it - but it's kind of like a setback.
+- I got kicked out of Catholic school, by the way, because I was too feminine. I was too feminine and I had a crush on this boy named Anthony and the nuns were not having it.
+- My coffee usually is very light, very sweet with milk preferably Almond Milk but if not available I take whole milk but I'm trying to go vegan, so I try for at least soy.
+- Luckily for me the public have known me before my transition and I've always had the same body type.
+- Beauty is the idea of who you truly are.
+- Loyalty is my favorite quality in a 'bestie.'
+- I wasn't a masculine kid; I was pretty effeminate.
+- I don't know any lingerie brands that really embrace transgender women at all, to be honest.
+- Every one of us deserves the right to have a great education that's going to prepare us and give us the tools that we need in order to thrive outside of school. It's our government's responsibility to make sure that everyone is included.
+- I want to inspire strength. I also want to inspire people to create their own happy reality.
+- I've learned that my word carries weight, and that's something I have to always have to keep in mind.
+- Respectable transwomen were not as visible and very unclear in how they defined themselves. I had no one to look up to, pre-transition.
+- I want to make 'People' magazine's 50 Most Beautiful People.
+- Your gender should not matter in your heart or in the way you express your personality.
+- I want to be a mom. I want to be a wife.
+- I'm very passionate and believe that every time the LGBT community is featured in the media, people are learning about us.
+- Before my transition I felt trapped, and now I've been set free.
+- I run into a lot of ignorance and stupidity. It gets really frustrating, but you have to take yourself out of it and realize what's happening in the bigger picture.
+- We cannot let fear and terror dictate how we live our lives, no matter what. Life is a blessing with an expiration date, and we must embrace it while we can.
+- If I ever feel like I don't know what to do next, I always think about WWJD, like 'what would J-Lo do,' 'cause J-Lo for me is like the epitome of feminine sensuality, mixed with show stopping beauty.
+- My experience started in the gay nightlife/drag life. I was just as consumed in ignorance about what is offensive to transpeople because at that time I hadn't found myself. I was living as a drag performer only.
+- I would love to do more modeling. I would love to do anything really, mainstream, and help to create, I guess, a feeling of acceptance for people who are different and not look at them like they're freaks or whatever.
+- Being in the entertainment industry, I do have some privileges, but when I'm off sets and in the real world, I'm a trans individual whose rights and safety have been taken away.
+- I ended up going to public school in the first grade, and that's when I knew I had to be very strategic about my survival in school. I tried my best to be friends with people who were going to protect me.
+- I consider myself an activist for women like me, who want to be confident and don't want to be judged.
+- I don't dedicate my whole life to being a trans advocate. But I do believe that me, and how I represent myself and how I am honest and open to everybody, I do feel like I'm doing something for the trans community.
+- Drag has always been an open space where anyone within the LGBT community can express their creativity.
+- But if you look at Victoria's Secret models, honestly, young girls don't necessarily look up to them for the healthiest reasons. It's more about the envy, the desire to look aesthetically best: it's an unattainable, elitist mindset.
+- I want to be respected as a woman, as a mother, as a wife. That's why I transition.
+- I've been told that I can't do things simply because I was trans.
+- Courtney Love gave me advice on how to stay focused. She told me I have a lot of positivity and I have a lot of light and to just stay on that path, because it's easy to become affected by the negativity.
+- I've always had a 'stand up for the people' type of personality.
+- There's a lot of healing that needs to happen between the LGBT community and the cisgender heterosexual world. There's a ton of misunderstanding.
+- Drag Race' was when I was kind of confused about how I wanted to live the rest of my life and I was just having fun, a little ignorant, a little young.
+- The only way to combat hate is by demonstrating empathy and love.
+- I'll have men, or I'll have women say that I'll never be a woman because I don't menstruate, or because I'm not made up like Kim Kardashian. So in that sense, I use makeup for a little bit of confidence. But for the most part, day-to-day, I wear makeup if it feels good.
+- Most Americans need to be told discrimination against trans people is against the law. Instead of looking at us as people, they look at us as not people. If there's a law that states this treatment is not allowed, I'd feel safer to function more confidently in society because I'd know I'm protected by the law in the country I pay taxes in.
+- Feeling comfortable with your body as you go through a transition is not easy, and honestly, as a trans person on hormones or after surgery, you just don't really know what your results will be, how you'll finally look. Managing all of that is a challenge.
+- I don't view myself as a 'trans actor' or a 'trans model.' I mean, I am - it's part of who I am - but it's not something that solely defines me.
+- I want to just be able to act and be like the girl next door or the cute babysitter or the busy mom who's fun or who knows, maybe something super dramatic, somebody who's really insecure and angry.
+- I always try to think about what I can do to let people know that I'm just like everyone else. I have two girls here at home I'm trying to raise. I'm trying to be a good stepmom. I'm trying to stay fit and be a good model and break ground in the acting world. I'm working that same struggle every other woman is trying to work.
+- It just so happens that I'm trans. It shouldn't have to be like 'Oh, that's the trans model selling the trans clothes.'
+- Stepping into the gym or going out to do sports is a scary thing for a trans person - you feel like everyone is looking at you.
+- I don't want to reclaim the word 'tranny.' I don't want anyone to refer to me as 'tranny.'
+- Couples Therapy' is pretty big for me because it's opening the door to a new audience - a hip-hop following, which I feel is a bit more judgmental toward the LGBT community.
+- In my early 20s, I set out to kind of find myself. At that time, if you were different or if you ever questioned your gender identity or sexual orientation, society kind of put you in the gay club.
+- I think that for a lot of people, I inspire them to be themselves.
+- In all honesty plastic surgery these days goes hand-in-hand with beauty maintenance. It's nothing new. Who I am, my body, I was not created from surgery, at all, whatsoever.
+- I want to be a successful trans woman burlesque performer.
+- My favorite hip hop album would be the 'Miseducation of Lauren Hill.'

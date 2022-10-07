@@ -1,0 +1,83 @@
++++
+author = "Lawrence M. Krauss"
+title = "Lawrence M. Krauss Quotes"
+quotes_len = "77"
+description = "the best 77 Lawrence M. Krauss Quotes"
++++
+- Empirical explorations ultimately change our understanding of which questions are important and fruitful and which are not.
+- One thing I cannot understand - and people are probably going to be upset about this - is why local school boards have control over educational content.
+- Life has survived for more than three billion years because it is robust, and almost no mutations can easily outwit the defense mechanisms built up through eons of exposure to potential pathogens.
+- It's all too easy to imagine Trump issuing an ultimate, thermonuclear 'You're fired!' to China, Iran, or another nation - and perhaps to the whole human race.
+- When it comes to the things that people really want in science fiction - like space travel - the simplest things end up causing them not to happen. Humans are 100-pound bags of water, built to live on Earth.
+- Imagining living in a universe without purpose may prepare us to better face reality head on. I cannot see that this is such a bad thing.
+- These days, gun violence can strike anywhere, from a church hall in Charleston to a movie theatre or a Planned Parenthood office in Colorado. But our response to it depends on whether that violence is understood to be terrorism.
+- To me, what philosophy does best is reflect on knowledge that's generated in other areas.
+- Formal logic is mathematics, and there are philosophers like Wittgenstein that are very mathematical, but what they're really doing is mathematics - it's not talking about things that have affected computer science; it's mathematical logic.
+- Nothing can create something all the time due to the laws of quantum mechanics, and it's - it's fascinatingly interesting.
+- For the record: Quantum mechanics does not deny the existence of objective reality. Nor does it imply that mere thoughts can change external events. Effects still require causes, so if you want to change the universe, you need to act on it.
+- The Bible is full of dubious scientific impossibilities, from Jonah living inside a whale, to the sun standing still in the sky for Joshua.
+- Whatever the evolutionary basis of religion, the xenophobia it now generates is clearly maladaptive.
+- I am in favor of saying, 'Okay, let's get teams of educators and experts in certain disciplines to say, 'What are the basic things that we think are an essential part of an early education for people?'' Put them together and create, as well as possible, a set of goals and tools to learn those things.
+- People are interested in science, but they don't always know they're interested in science, and so I try to find a way to get them interested.
+- Donald Trump's candidacy has been a source of anxiety for many reasons, but one stands out: the ability of the president to launch nuclear weapons. When it comes to starting a nuclear war, the president has more freedom than he or she does in, say, ordering the use of torture.
+- On the question of information security, he claims that, in a Trump Administration, the U.S. government will not spy on its own citizens. If true, this would represent a turn away from the strong language that he has used about identifying terrorists on our soil.
+- Immediately after the San Bernardino shooting, when it was unclear whether Syed Rizwan Farook and Tashfeen Malik were motivated by a terroristic ideology, the focus of the conversation was on gun laws.
+- By his own admission, Carson's remarkable hand-eye coordination allowed him to soar as a surgeon, and he used that success to build a lucrative reputation as a purveyor of advice for young and old. His book for young people is titled 'You Have a Brain.'
+- Empty space is a boiling, bubbling brew of virtual particles that pop in and out of existence in a time scale so short that you can't even measure them.
+- I used to read a lot of science fiction when I was younger.
+- A snowflake is another beautifully ordered example of what simple, natural meteorological processes can produce. Stars form by gravity, collapsing into spherically ordered structures that can remain in this form only if they release tremendous heat energy into the environment.
+- Science is only truly consistent with an atheistic worldview with regards to the claimed miracles of the gods of Judaism, Christianity and Islam.
+- Scientists don't read theology; they don't read philosophy. It doesn't make any difference to what they're doing - for better or worse, it may not be a value judgment, but it's true.
+- For many, to live in a universe that may have no purpose, and no creator, is unthinkable.
+- What we can do is provide the tools, through our educational system, for people to be able to tell sense from nonsense. These tools include the scientific method, skeptical questioning, empirical evidence, verifying sources, etc.
+- Philosophy used to be a field that had content, but then 'natural philosophy' became physics, and physics has only continued to make inroads. Every time there's a leap in physics, it encroaches on these areas that philosophers have carefully sequestered away to themselves, and so then you have this natural resentment on the part of philosophers.
+- I don't know if science and reason will ultimately help guide humanity to a better and more peaceful future, but I am certain that this belief is part of what keeps the 'Star Trek' fandom going.
+- If innovations were predictable, they wouldn't be discoveries.
+- A significant fraction of evangelical voters appear more likely to ignore the candidates' specific economic and foreign policy platforms in favor of concerns about gay marriage or abortion.
+- Neutrinos alone, among all the known particles, have ethereal properties that are striking and romantic enough both to have inspired a poem by John Updike and to have sent teams of scientists deep underground for 50 years to build huge science-fiction-like contraptions to unravel their mysteries.
+- Organized religion, wielding power over the community, is antithetical to the process of what modern democracy should define as liberty. The sooner we are without it, the better.
+- The biggest conceptual change over the last 100 years in the way physicists think about the world is symmetry.
+- For a man with an impressive educational C.V., Ben Carson makes a lot of intellectual missteps.
+- As a physicist, I've always found cosmology to be a rational elixir; it distances me from ordinary concerns.
+- By no definition of any modern scientist is intelligent design science, and it's a waste of our students' time to subject them to it.
+- Teaching and writing, to me, is really just seduction; you go to where people are and you find something that they're interested in and you try and use that to convince them that they should be interested in what you have to say.
+- Parents, of course, have concerns and 'say,' but they don't have the right to shield their children from knowledge. That is not a right, any more than they have the right to shield their children from healthcare or medicine.
+- The rise of a ubiquitous Internet, along with 24-hour news channels has, in some sense, had the opposite effect from what many might have hoped such free and open access to information would have had. It has instead provided free and open access, without the traditional media filters, to a barrage of disinformation.
+- For a physicist or a mathematician, the most symmetrical object you could think about would be a sphere, because it looks identical no matter what you do to it, however you rotate it in any given direction.
+- The illusion of purpose and design is perhaps the most pervasive illusion about nature that science has to confront on a daily basis.
+- Local order in parts of the universe is always possible at the expense of heat and disorder dissipated to the external environment. The human body is one example: we take in energy from our environment to build up complex molecules that help power our bodies, and, in doing so, we release heat to the world around us.
+- Symmetries are the playing field on which the physical world works and which determine the rules of the game. The symmetries of nature determine for us things that remain constant, that can't be changed. Those are the guideposts in physics, the quantities like energy and momentum.
+- I can't prove that God doesn't exist, but I'd much rather live in a universe without one.
+- Symmetry does mean something different for physicists than for members of the public. It means that an object or a theory does not change when you make some transformation - either rotating or moving it or doing something to the equations.
+- I have always felt that, aside from research that violates universal human mores, when it comes to technological applications, that which can be done will be done.
+- Richard Nixon, famously, conducted his foreign policy according to the 'madman theory': he tried to convince enemy leaders that he was irrational and volatile in an attempt to intimidate them. But this was a potentially useful approach to foreign policy only because it was an act.
+- Donald Trump called for the closing of borders to Muslims; John McCain said, in response to the President's address on the San Bernardino shooting, that 'this is the war of our time.' As that shooting shows, we react to terrorism with far more intensity than we do to an ordinary crime.
+- We should teach kids how to question. Now having said that, of course, to be a productive adult, there are certain skills that are required - reading, writing, and, in the old-fashioned days, we used to say arithmetic. Now we say mathematics.
+- No one intuitively understands quantum mechanics because all of our experience involves a world of classical phenomena where, for example, a baseball thrown from pitcher to catcher seems to take just one path, the one described by Newton's laws of motion. Yet at a microscopic level, the universe behaves quite differently.
+- We need to walk into the future, no matter how unnerving, with open eyes if society is to keep pace with technology.
+- When it comes to the real operational issues that govern our understanding of physical reality, ontological definitions of classical philosophers are, in my opinion, sterile.
+- One might rationally argue that individual human beings should be free choose what moral behavior they approve of, and which they don't, subject to the constraints of the law.
+- Education is far less about a set of facts than a way of thinking, than learning how to critically think. And therefore, what I always think should be the basis of education is not answers but questions.
+- Religious leaders need to be held accountable for their ideas.
+- The notion that anyone in the 21st century could take seriously the notion that the sun orbits the Earth, or that the Earth is the center of the universe, is almost unbelievable.
+- When considering real-world issues, particularly those that touch on science and technology, it is harder to speak in platitudes or rely purely on emotion or fear. Substance, or its lack, becomes harder to mimic or mask, which is why I wish we had a true televised presidential debate on these subjects.
+- I was most eager to see how Trump would respond to the climate-change question.
+- If our species is to survive, our future will probably require outposts beyond our own planet.
+- Keeping religion immune from criticism is both unwarranted and dangerous.
+- There are areas of philosophy that are important, but I think of them as being subsumed by other fields. In the case of descriptive philosophy, you have literature or logic, which, in my view, is really mathematics.
+- For all of his bravado, obnoxiousness, hatred, and vitriol, the scariest thing about Trump, to me, is his unique combination of ignorance about the world, convolved with ignorance about himself.
+- The Internet is a clear example of how our lives have changed in ways we couldn't have imagined: a distributed information source, which is invisible to everyone, where you can access anything, and it's distributed throughout the whole world. Basically, communication is instantaneous.
+- Either Trump only talks to those who play up to his delusion, or he simply doesn't listen to those who might burst his bubble. Either way, that is a cause for worry.
+- Feynman once said, 'Science is imagination in a straitjacket.' It is ironic that in the case of quantum mechanics, the people without the straitjackets are generally the nuts.
+- On the question of preserving public lands, Trump replies that our elected officials have spent too long rewarding 'special interests,' by which I assume he doesn't mean petroleum companies and the Bundy family.
+- It is, after all, impossible in the modern world to shield everyone from nonsense and stupidity.
+- We should provide the meaning of the universe in the meaning of our own lives. So I think science doesn't necessarily have to get in the way of kind of spiritual fulfillment.
+- Cabinet members may disagree and even resign in protest, but, ultimately, they must obey the order of the Commander-in-Chief.
+- If I knew what the next big thing was, I'd be doing it now.
+- The root cause of the looming energy problem - and the key to easing environmental, economic and religious tensions while improving public health - is to address the unending, and unequal, growth of the human population. And the one proven way to reduce fertility rates is to empower young women by educating them.
+- To the extent that we even understand string theory, it may imply a massive number of possible different universes with different laws of physics in each universe, and there may be no way of distinguishing between them or saying why the laws of physics are the way they are. And if I can predict anything, then I haven't explained anything.
+- The universe has a much greater imagination than we do, which is why the real story of the universe is far more interesting than any of the fairy tales we have invented to describe it.
+- It never ceases to amaze me that every second of every day, more than 6,000 billion neutrinos coming from nuclear reactions inside the sun whiz through my body, almost all of which will travel right through the earth without interruption.
+- I cannot stress often enough that what science is all about is not proving things to be true but proving them to be false.
+- When a person's religious beliefs cause him to deny the evidence of science, or for whom public policy morphs into a battle with the devil, shouldn't that be a subject for discussion and debate?
+- Aside from communications satellites, space is devoid of industry.

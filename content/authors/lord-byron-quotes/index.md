@@ -1,0 +1,133 @@
++++
+author = "Lord Byron"
+title = "Lord Byron Quotes"
+quotes_len = "127"
+description = "the best 127 Lord Byron Quotes"
++++
+- Ye stars! which are the poetry of heaven!
+- Shelley is truth itself and honour itself notwithstanding his out-of-the-way notions about religion.
+- Absence - that common cure of love.
+- Every day confirms my opinion on the superiority of a vicious life - and if Virtue is not its own reward I don't know any other stipend annexed to it.
+- I have a great mind to believe in Christianity for the mere pleasure of fancying I may be damned.
+- If I am fool, it is, at least, a doubting one; and I envy no one the certainty of his self-approved wisdom.
+- What a strange thing man is; and what a stranger thing woman.
+- Men are the sport of circumstances when it seems circumstances are the sport of men.
+- Though I love my country, I do not love my countrymen.
+- Sincerity may be humble but she cannot be servile.
+- The dew of compassion is a tear.
+- All farewells should be sudden, when forever.
+- Let none think to fly the danger for soon or late love is his own avenger.
+- America is a model of force and freedom and moderation - with all the coarseness and rudeness of its people.
+- Self-love for ever creeps out, like a snake, to sting anything which happens to stumble upon it.
+- For truth is always strange; stranger than fiction.
+- Between two worlds life hovers like a star, twixt night and morn, upon the horizon's verge.
+- The poor dog, in life the firmest friend. The first to welcome, foremost to defend.
+- A thousand years may scare form a state. An hour may lay it in ruins.
+- We are all selfish and I no more trust myself than others with a good motive.
+- The 'good old times' - all times when old are good.
+- I shall soon be six-and-twenty. Is there anything in the future that can possibly console us for not being always twenty-five?
+- Life's enchanted cup sparkles near the brim.
+- There is no such thing as a life of passion any more than a continuous earthquake, or an eternal fever. Besides, who would ever shave themselves in such a state?
+- They never fail who die in a great cause.
+- Where there is mystery, it is generally suspected there must also be evil.
+- He who surpasses or subdues mankind, must look down on the hate of those below.
+- But words are things, and a small drop of ink, Falling like dew, upon a thought, produces That which makes thousands, perhaps millions, think.
+- Always laugh when you can. It is cheap medicine.
+- Who tracks the steps of glory to the grave?
+- He who is only just is cruel. Who on earth could live were all judged justly?
+- Friendship is Love without his wings!
+- What should I have known or written had I been a quiet, mercantile politician or a lord in waiting? A man must travel, and turmoil, or there is no existence.
+- A mistress never is nor can be a friend. While you agree, you are lovers; and when it is over, anything but friends.
+- If I could always read, I should never feel the want of company.
+- I would rather have a nod from an American, than a snuff-box from an emperor.
+- 'Tis pleasant, sure, to see one's name in print. A book's a book, although there's nothing in 't.
+- It is very certain that the desire of life prolongs it.
+- A woman should never be seen eating or drinking, unless it be lobster salad and Champagne, the only true feminine and becoming viands.
+- Her great merit is finding out mine - there is nothing so amiable as discernment.
+- Folly loves the martyrdom of fame.
+- Cervantes smiled Spain's chivalry away; A single laugh demolished the right arm Of his country.
+- I have always believed that all things depended upon Fortune, and nothing upon ourselves.
+- Be thou the rainbow in the storms of life. The evening beam that smiles the clouds away, and tints tomorrow with prophetic ray.
+- This man is freed from servile bands, Of hope to rise, or fear to fall; Lord of himself, though not of lands, And leaving nothing, yet hath all.
+- Out of chaos God made a world, and out of high passions comes a people.
+- Love will find a way through paths where wolves fear to prey.
+- It is odd but agitation or contest of any kind gives a rebound to my spirits and sets me up for a time.
+- Sorrow is knowledge, those that know the most must mourn the deepest, the tree of knowledge is not the tree of life.
+- I have great hopes that we shall love each other all our lives as much as if we had never married at all.
+- Those who will not reason, are bigots, those who cannot, are fools, and those who dare not, are slaves.
+- Friendship may, and often does, grow into love, but love never subsides into friendship.
+- Men think highly of those who rise rapidly in the world; whereas nothing rises quicker than dust, straw, and feathers.
+- There's naught, no doubt, so much the spirit calms as rum and true religion.
+- Though sages may pour out their wisdom's treasure, there is no sterner moralist than pleasure.
+- For in itself a thought, a slumbering thought, is capable of years, and curdles a long life into one hour.
+- Man is born passionate of body, but with an innate though secret tendency to the love of Good in his main-spring of Mind. But God help us all! It is at present a sad jar of atoms.
+- Now hatred is by far the longest pleasure; men love in haste but they detest at leisure.
+- This is the patent age of new inventions for killing bodies, and for saving souls. All propagated with the best intentions.
+- Man's love is of man's life a part; it is a woman's whole existence. In her first passion, a woman loves her lover, in all the others all she loves is love.
+- Smiles form the channels of a future tear.
+- For pleasures past I do not grieve, nor perils gathering near; My greatest grief is that I leave nothing that claims a tear.
+- It is very iniquitous to make me pay my debts, you have no idea of the pain it gives one.
+- The beginning of atonement is the sense of its necessity.
+- What is the worst of woes that wait on age? What stamps the wrinkle deeper on the brow? To view each loved one blotted from life's page, And be alone on earth, as I am now.
+- The fact is that my wife if she had common sense would have more power over me than any other whatsoever, for my heart always alights upon the nearest perch.
+- I only go out to get me a fresh appetite for being alone.
+- Men love in haste, but they detest at leisure.
+- There is no instinct like that of the heart.
+- All who joy would win must share it. Happiness was born a Twin.
+- I cannot help thinking that the menace of Hell makes as many devils as the severe penal codes of inhuman humanity make villains.
+- But what is Hope? Nothing but the paint on the face of Existence; the least touch of truth rubs it off, and then we see what a hollow-cheeked harlot we have got hold of.
+- I know that two and two make four - and should be glad to prove it too if I could - though I must say if by any sort of process I could convert 2 and 2 into five it would give me much greater pleasure.
+- The busy have no time for tears.
+- I do detest everything which is not perfectly mutual.
+- I should be very willing to redress men wrongs, and rather check than punish crimes, had not Cervantes, in that all too true tale of Quixote, shown how all such efforts fail.
+- I am about to be married, and am of course in all the misery of a man in pursuit of happiness.
+- As long as I retain my feeling and my passion for Nature, I can partly soften or subdue my other passions and resist or endure those of others.
+- The great art of life is sensation, to feel that we exist, even in pain.
+- Women hate everything which strips off the tinsel of sentiment, and they are right, or it would rob them of their weapons.
+- What is fame? The advantage of being known by people of whom you yourself know nothing, and for whom you care as little.
+- Who loves, raves.
+- For what were all these country patriots born? To hunt, and vote, and raise the price of corn?
+- Then stirs the feeling infinite, so felt In solitude, where we are least alone.
+- Adversity is the first path to truth.
+- The Cardinal is at his wit's end - it is true that he had not far to go.
+- Wives in their husbands' absences grow subtler, And daughters sometimes run off with the butler.
+- The heart will break, but broken live on.
+- 'Tis very certain the desire of life prolongs it.
+- Roll on, deep and dark blue ocean, roll. Ten thousand fleets sweep over thee in vain. Man marks the earth with ruin, but his control stops with the shore.
+- If I don't write to empty my mind, I go mad.
+- Fools are my theme, let satire be my song.
+- In England the only homage which they pay to Virtue - is hypocrisy.
+- I am sure of nothing so little as my own intentions.
+- Yes, love indeed is light from heaven; A spark of that immortal fire with angels shared, by Allah given to lift from earth our low desire.
+- Man, being reasonable, must get drunk; the best of life is but intoxication.
+- The best prophet of the future is the past.
+- A man of eighty has outlived probably three new schools of painting, two of architecture and poetry and a hundred in dress.
+- Fame is the thirst of youth.
+- A celebrity is one who is known to many persons he is glad he doesn't know.
+- Romances I ne'er read like those I have seen.
+- There is something pagan in me that I cannot shake off. In short, I deny nothing, but doubt everything.
+- It is useless to tell one not to reason but to believe - you might as well tell a man not to wake but sleep.
+- I am acquainted with no immaterial sensuality so delightful as good acting.
+- Death, so called, is a thing which makes men weep, And yet a third of life is passed in sleep.
+- There are four questions of value in life, Don Octavio. What is sacred? Of what is the spirit made? What is worth living for and what is worth dying for? The answer to each is the same. Only love.
+- Why I came here, I know not; where I shall go it is useless to inquire - in the midst of myriads of the living and the dead worlds, stars, systems, infinity, why should I be anxious about an atom?
+- The place is very well and quiet and the children only scream in a low voice.
+- I have no consistency, except in politics; and that probably arises from my indifference to the subject altogether.
+- If we must have a tyrant, let him at least be a gentleman who has been bred to the business, and let us fall by the axe and not by the butcher's cleaver.
+- Lovers may be - and indeed generally are - enemies, but they never can be friends, because there must always be a spice of jealousy and a something of Self in all their speculations.
+- Truth is always strange, stranger than fiction.
+- A woman who gives any advantage to a man may expect a lover but will sooner or later find a tyrant.
+- Society is now one polished horde, formed of two mighty tries, the Bores and Bored.
+- Like the measles, love is most dangerous when it comes late in life.
+- To withdraw myself from myself has ever been my sole, my entire, my sincere motive in scribbling at all.
+- The reading or non-reading a book will never keep down a single petticoat.
+- One certainly has a soul; but how it came to allow itself to be enclosed in a body is more than I can imagine. I only know if once mine gets out, I'll have a bit of a tussle before I let it get in again to that of any other.
+- My turn of mind is so given to taking things in the absurd point of view, that it breaks out in spite of me every now and then.
+- 'Tis sweet to know there is an eye will mark our coming, and look brighter when we come.
+- Shakespeare's name, you may depend on it, stands absurdly too high and will go down.
+- Opinions are made to be changed - or how is truth to be got at?
+- Prolonged endurance tames the bold.
+- Sometimes we are less unhappy in being deceived by those we love, than in being undeceived by them.
+- There is pleasure in the pathless woods, there is rapture in the lonely shore, there is society where none intrudes, by the deep sea, and music in its roar; I love not Man the less, but Nature more.
+- I love not man the less, but Nature more.
+- Nothing can confound a wise man more than laughter from a dunce.

@@ -1,0 +1,42 @@
++++
+author = "Lauren Ashley Carter"
+title = "Lauren Ashley Carter Quotes"
+quotes_len = "36"
+description = "the best 36 Lauren Ashley Carter Quotes"
++++
+- I love comedy. Comedy is one of my favourite things to do.
+- I'm a huge Jackie Chan fan, and my boyfriend is Taiwanese, and he doesn't like to read. He had this Jackie Chan book, and I was asking him questions about him, and he didn't know, and I said, 'What do you mean you don't know? You have the Jackie Chan autobiography right there on the bookshelf!'
+- I remember on 'Jug Face' working with Chad Crawford Kinkle, who is as sweet as they come. He told me someone had given him advice that if you're making a drama, you basically need to put your main protagonist through living hell in every scene, and then you'll have a successful film. He laughed it off until watching me every day!
+- When you're the good guy in a horror film, you're usually suffering a lot throughout the entire thing.
+- A little bit of neurosis is OK as a performer, but untethered, it can tear one apart.
+- Sean Young is such a sweetheart and just absolutely lovely. From day one, she was just very easy to be around. She's definitely a 'mom' and very much a girl's girl. She likes talking about makeup and the business and just being a woman.
+- I did attend a convention with the production company behind 'The Woman' and 'Jug Face,' and I loved it and thought, 'I have to come back, as they are so much fun!' But those tickets are really expensive, and you're buying merchandise, and you want autographed pictures with people, so it's kind of like Disney World.
+- You always feel pressure to do your best, and when you know that the story revolves around you, it can become very overwhelming.
+- It's important to always do your best work, no matter what the film is.
+- I have to be vulnerable to allow myself to give the best performance I ,and that doesn't stop in between takes, and it doesn't stop when I am finished for the night.
+- With the performances, I have been very fortunate to pick things and to find scripts that I really love. I always try to do something that I haven't done before.
+- In theater, one of the biggest problems when you're rehearsing comedy over and over again is that you stop laughing at each other.
+- I want to make movies that I would want to watch as a fan.
+- There's a certain joy in taking a dramatic narrative and then adding that element of horror to it.
+- I always tell people, 'If you say you don't like horror, it just means that you haven't found the right movie.'
+- Angela Bettis - I can't say enough about her. She is just an incredible presence. She is very petite and soft, while she still has this power that floats around her.
+- It's kind of wild for me any time anybody says, 'I love this movie with Lauren Ashley Carter. I'm going to watch all her other movies,' because that's exactly the way I feel as a fan of other actors.
+- 'Imitation Girl' is a feature written and directed by Natasha Kermani. She's one of the founders of Illium Pictures who co-produced 'Pod.'
+- There are awful things that happen, dreams get crushed, you build yourself back up again, and then there are, hopefully, incredible partners in misery that say, 'Let me help you. I've been there before.'
+- 'Pod' was a significantly larger crew with Ilium Pictures co-producing. 'Darling' was bare bones. We had less than half of the crew that we had for 'Pod.'
+- When I do theatre in New York, I typically only get cast in comedy.
+- I'll continue doing horror until the day I die. I love it; it's so much fun.
+- Ruth Gordon was such a delight to watch in 'Rosemary's Baby' after I had first seen her in 'Harold and Maude.' And Ellen Burstyn is a hero of mine from 'Alice Doesn't Live Here Anymore,' The Exorcist,' 'Requiem For A Dream.' These women impacted me greatly as an actress.
+- I grew up watching Sean Young films with my father; we've always been huge fans of hers. A surprising fact is that she loves to work on comedies, which was great for me to hear, because then I could ask her a million questions about 'Fatal Instinct,' which was a VHS I wore out from the video store.
+- For horror movies, it's great because I know exactly what I am doing and what should be done. But for a cop drama, I can't calm my face down, and so it's really nice to be able to be in this genre where nothing is too much, and no one yells at me for having big eyes.
+- Auditioning is a lot of fun for me.
+- I'm a horror movie fan; I'm an avid fan and have been since I was five years old. My father and I watched horror movies, so this is a genre that is very close and very important to me.
+- 'Hellraiser' was the first horror film I ever saw, so it will always be a favorite.
+- In elementary school, I was always writing little plays for my friends to be in. I was much more of a director than a performer.
+- I don't have much power to make many films, but I do have the power in what roles I choose.
+- Being on a low-budget film is difficult enough, and you may as well be working on something that you really believe in and you really love, and for me, that's to play different characters, to play different roles, and challenge myself.
+- Whenever I write, I write very dialogue-heavy things because I love to force my characters to interact with one another.
+- I try to keep myself busy creatively; it's for my own sanity after auditioning in the city for bad television shows and bad scripts and not being a name and having the clout to get my tapes passed on further.
+- I love film very much. It's very special to me, and seeing how it all turns out is always just a magical moment for me.
+- In real life, I'm a large character, and I need the space and platform to be large.
+- I've always said if you're comparing movies to music, then horror would be the black metal of the categories.

@@ -1,0 +1,67 @@
++++
+author = "Craig Sager"
+title = "Craig Sager Quotes"
+quotes_len = "61"
+description = "the best 61 Craig Sager Quotes"
++++
+- I have wrestled gators in Florida. I have sailed the ocean with Ted Turner. I have swam the oceans in the Caribbean.
+- I have acute myeloid leukemia, an aggressive type of cancer. The typical prognosis is 3-6 months to live, but I would like to stress that is for a patient who is not receiving treatment.
+- I try to get there three hours before the game, talk with the ushers and the security guards, the coaches and the fans.
+- Nobody knows how long they have left on Earth. There's no guarantees, and for me, when they tell you - not once, twice, three times - 'You've got a couple weeks to live,' or a couple months, you have to determine how you want to do that.
+- I will live my life full of love and full of fun. It's the only way I know how.
+- There are things you want to do, but you can't really look at the future. You don't know how much there is.
+- Erik Spoelstra has always been a guy I'd talk to even when he was just doing video clips for the Heat.
+- I was a big sports fan, and I had been closely monitoring Hank Aaron's home run totals since I was a kid playing on the sandlot adjacent to the Foundry and Machine Company in Batavia, Illinois.
+- Something that I've always been. Always lively. I don't want to be dull.
+- Krista's got a great boyfriend; they've been going together for years. I want to be around to walk her down the aisle.
+- I grew up in Batavia, Ill., a small town out in the corn fields, west of Chicago. It was boring.
+- To those out there who are suffering from cancer, facing adversity, I want you to know that your will to live can make all the difference in the world.
+- I first met Jim Valvano in the 1980s when he was a frequent guest on our CNN 'Coaches Corner' show based in Atlanta, as he was always in the area recruiting the next North Carolina State basketball phenom.
+- In 1974 when I was 22 years old, I was working for $95 a week at WSPB, which was an Atlanta Braves-affiliated AM radio station in Sarasota, Florida. Fresh out of Northwestern University, I was the news director at the station, and my main bread and butter was to handle updates during the morning and afternoon drive times.
+- I'm fighting cancer and I refuse to give up.
+- The way you think influences the way you feel, and the way you feel determines how you act.
+- I always see the glass half full. I see the beauty in others, and I see the hope for tomorrow. If we don't have hope and faith, we have nothing.
+- Back in the early '70s, there were two airlines that flew puddle jumpers from the Sarasota-Bradenton airport to Atlanta: National and Eastern, neither of which exists today.
+- I've had every chemo in the alphabet, most of them more than once. Some of them that aren't even in the alphabet, they're just numbers - clinical trials. But I bet if you added all those up, it would have to be like 60- or 70-something. I've had 23 bone marrow aspirations. Having one isn't fun and I've had 23. So that's been tough.
+- When you raise kids, you want them to grow up and be successful. If they can grow up and be like you, it's quite flattering.
+- I can't bring out something I've already worn. I want to make sure I don't look down. I want people to say, 'Man, he looks good'.
+- For our senior picture, they said, 'Black or navy blazer.' And I thought, Why do I want to look like everybody else?
+- I've never had one of those middle of the nights when I go, 'Why me?' or 'I don't know if I can keep fighting like this.' No. Those thoughts don't even enter my mind.
+- I will never give up, and I will never give in.
+- As a young boy, I had the usual hobbies - sports, baseball cards, model airplanes and trains. But I always had a distinct fascination with trains.
+- Time is something that cannot be bought; it cannot be wagered with God, and it is not in endless supply, Time is simply how you live your life.
+- I'm a kid from the small Illinois town of Batavia, who grew up on the Chicago Cubs and made sports his life's work, although there's never been a day where it actually seemed like work.
+- If I missed a game, that meant I was losing the battle. I'm not going to let leukemia affect me.
+- Whatever I might have imagined a terminal diagnosis would do to my spirit, it summoned quite the opposite - the greatest appreciation for life itself. So I will never give up, and I will never give in.
+- I will continue to keep fighting sucking the marrow out of life as life sucks the marrow out of me.
+- If I've learned anything through all of this, it's that each and every day is a canvas waiting to be painted - an opportunity for love, for fun, for living, for learning.
+- I try not to match too much. You know, if there's a blue coat and a blue shirt and a blue tie, I try to stay away from that. I'd rather have a blue coat and a yellow shirt and a pink tie. I don't like to look too matching. You know those mismatched socks kids wear? That's my idea of a good suit.
+- I think my demise has been prematurely reported. That's what I think. I think I'm going take this and make medical history, and I really believe that.
+- When doctors tell you that you have three weeks to live, you try to live a lifetime of moments in three weeks. But you say, 'To hell with three weeks.'
+- Ya gotta think positive.
+- What is time, really? When you are diagnosed with a terminal disease like cancer or leukemia, your perception of time changes.
+- Sports are supposed to be fun, and so I have fun with the way I dress.
+- People come up to me and say somebody in their family has cancer, and we appreciate what you do, and we appreciate your fight, and don't give up, we love your attitude.
+- I am not an expert on time, or on cancer, or on life itself.
+- I have run with the bulls in Pamplona. I have raced with Mario Andretti in Indianapolis. I have climbed the Great Wall of China. I have jumped out of airplanes over Kansas.
+- Hope is not just... out in the sky, or accepting the facts or reality. Hope is having optimistic, positive expectations.
+- If you're running around with a negative attitude all the time, you're going to feel down; you're going to have negative results.
+- I don't know how much time I have left, and there are certain things I'd like to do. I've got five kids. Kacy, the oldest, I'd like to see her be happy and fulfilled with her dreams. I want Junior, who gave me the two transplants, I want him to find his niche; I know he's going to make a very big impact someday.
+- I've already had two stem cell transplants. Very rarely does somebody have a third, so I have to maintain my strength so I can go through this.
+- Vice President Biden had recently launched the 'Cancer Moonshots', a campaign to finally eradicate cancer across humanity. He had lost his eldest son, Beau, in 2015, to brain cancer, and the ESPYs gave him a platform to raise awareness.
+- Everyone has to face obstacles. Everybody has to face hurdles. It's what you do with those that determines how successful you're going to be.
+- A dramatic turn has matched me with acute myeloid leukemia. From the sidelines to being sidelined, 40 veins and 40 electrolytes.
+- When doctors tell you that your only hope for survival is 14 straight days of intense chemotherapy, 24 hours a day, you sit there, and you count down the 336 hours. You see, each day is a blessing.
+- When I was diagnosed with cancer, like so many other people, my life changed forever.
+- They wanted to try this outpatient chemo, and I said no problem. I was adamant. I didn't want to miss any games. It's where I'm supposed to be, and I wanted to be there.
+- So many times, when you're doing a job, you feel like you're a nuisance at times to people, intruding on their space when you ask them questions; maybe they don't want to deal with you at the time. And now, it's, 'Hey, welcome, where's Craig?' Whereas, now, it's kind of different.
+- I look forward to continuing my work on the sidelines for Turner Sports.
+- It seems everybody has been somehow affected by cancer, either through a relative or a close friend or somewhere, and they know how devastating cancer can be. And they see me, and I refuse to let it affect how I live and what I do.
+- Sports are in my soul. That's what drives me.
+- I'm grateful to HBO for telling my story, and I'd like to thank everyone for their ongoing support.
+- I never complain: 'Oh, I have to go to the hospital and get platelets.' No. It's just something you have to do, so why complain about it?
+- Sarasota in 1974 was a city of 46,459 people, the 73rd-largest market in the country and sixth-largest in Florida, according to Arbitron Ratings. To supplement my meager salary, I was a bartender at Big Daddy's on St. Armand's Circle and a sailing instructor at nearby Lido Beach.
+- I can't even use a can opener. I'm mechanically challenged. I ripped off two thumbnails trying to change kids' bicycle chains.
+- I'm fighting not only for myself and for my family, but I feel I am fighting for everybody who has cancer.
+- I get this call and they go, you know, 'Do you want to do the finals?' and I go, 'Yeah, I guess, I've never, never done the finals.' Especially for somebody who's done as many thousands of games as I have, it kind of takes you one step further.
+- Like most boys, I had a model train set up in my bedroom, resting on a little-used ping-pong table upstairs.

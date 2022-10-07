@@ -1,0 +1,44 @@
++++
+author = "Katie Lowes"
+title = "Katie Lowes Quotes"
+quotes_len = "38"
+description = "the best 38 Katie Lowes Quotes"
++++
+- I love singing! I was a musical theater girl in high school. We were always singing and dancing around, and just doing little community theaters and high school musicals. Then, when I got to NYU, I focused more on drama.
+- There's nothing better than renting a small, 50-seat theater in L.A. and just getting up there.
+- When I start my mornings, I put some essential oils in a diffuser; it might be orange blossom or jasmine to energize and spruce me up or lavender at night to really calm me down.
+- I went to NYU Tisch for undergrad, and it was amazing. My life then was extremely experimental with acting. I did crazy theater where we would be rolling around on the floor. I would be playing grandmothers, and clowns, and all this crazy stuff. Then I would be doing Shakespeare eight hours a day.
+- As somebody who has psoriasis, it's your job to constantly stay on top of these things: talking to your doctor and talking to your doctor and just being proactive about your specific case.
+- It's just heaven to be a mom, and a working mom, and a pregnant person in Shondaland.
+- Acting is a growing tick muscle. I really believe that it's similar to being a musician in that the more you practice it in any capacity, as much as you practice doing it every day, the better you get.
+- Being a new mommy really is the best.
+- I don't know if it's because of 'Scandal,' but I am a huge wine and popcorn fan.
+- For me, having a baby was never going to be timed randomly. I wanted to have mine while I was on 'Scandal.' Kerry Washington is one of my best friends, and I've gotten to watch her go through motherhood. I also have the greatest female boss in Shonda Rhimes, who is a mother of three and a huge advocate for women.
+- A lot of times, I put my own personal health to the side, focusing on work or family or getting ahead. At the end of the day, you're just exhausted on your couch and haven't made that doctor's appointment, didn't make that phone call, and feel terrible.
+- 'Scandal' has been, for me, the most consistent time I've ever logged in front of a camera. I grew up in the theater, and I feel very confident and comfortable on the stage and in front of a live audience, but the camera is a very different medium.
+- After having a real baby, I was sitting on a doughnut for a month.
+- I feel so honored to be a mom and get to do something that women have done for thousands of years.
+- Until you get pregnant, you never know about baby brands and baby furniture, but it's actually a choice. And Oeuf is a very affordable company, and everything is organic - chemically free, sustainable. It's all beautifully made and can also transition from babies to toddlers. Everything has conversion kits, so it's practicable.
+- I'm big on yoga and of taking care of my mental health.
+- I look so fondly back on that time in my life when you first got an agent and you were in your mid-twenties and the world was your oyster.
+- I'm a New Yorker, so I speak really fast, naturally.
+- My husband and I are both actors; we're obviously dramatic.
+- This whole thing of motherhood is insane.
+- I am a type-A planner. That's just how I roll.
+- Everybody has parts of themselves that they're not 100% happy with - that's what makes you human. And being an actor, your job is to play human beings. Your job is to play real people.
+- I do Hatha yoga at Yogaworks three times a week and do two hikes a week.
+- I love to walk in the door of my home and love what I see.
+- When I have any sort of diet that's high in sugar or yeast, I would find that my body would be very much out of whack.
+- I was a wedding planner's assistant for years. And I knew I did not want to have a traditional wedding because I had worked a million of them. So my husband and I got married at a sleepaway camp in the Berkshires.
+- If you can find a group of women, any age, who are supportive and kind and love you, that's the best. I have a group of girlfriends that I would lay in front of a bus for. They've picked me up through really, really bad times and I can definitely say I've done the same for them.
+- Kerry Washington is a mentor to me. She is so strong and smart. She's also so giving and supportive.
+- I think that there is something truly beautiful in everybody you meet.
+- I think it's just important to be always bouncing between TV and theater, and hopefully I'll get to do movies at some point.
+- I run into so many people who also have psoriasis and share the same feelings as I had. I tell them that it's about being your own boss and of not settling until they find whatever it is that works for them and they have their life look the way they want it to.
+- I got 'Scandal,' and that was, far and away, the biggest deal that had happened in my career. Simultaneously, the stress from planning my wedding and being in the public eye for the first time, combined with genetics - I got the diagnosis that I had psoriasis, and I was completely embarrassed and ashamed. I felt like a lesser person.
+- To have an opportunity to get in front of a camera every single day is just priceless because it gets you closer and closer to being less self-consciousness in front of it and really being human and really making choices and standing by them.
+- I can't even remember anything before Albee. There is this bursting love you feel, but it's so intense and so all-consuming. I've become one of those psychopath mothers who loves looking at my kid and being with my kid, and then, when he takes a nap, I'm just looking at videos and pictures of him on my phone. I'm obnoxious.
+- In high school, I had a couple girlfriends who had very extreme eating disorders. Anorexia and bulimia. And in college as well. It's just heartbreaking. As someone going through it, it's heartbreaking. And as a friend who's helping a friend going through it, it's heartbreaking. It's a real, real disease.
+- I think it's important to find humor anywhere you can. In real life, with the darkest, scariest, most intense moments, if you can find something funny, that's good.
+- I wanted a doula because it's my first baby, and I want to be able to call her when I'm going into labor so she can come over and help us go through the early stage.
+- There's something about getting onstage in a play where the actor tells the story, beginning, middle, and end, the way they want to tell it. For me, it's the most powerful place to be, and it's the most empowering place to be.

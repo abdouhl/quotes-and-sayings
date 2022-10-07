@@ -1,0 +1,103 @@
++++
+author = "Kevin Owens"
+title = "Kevin Owens Quotes"
+quotes_len = "97"
+description = "the best 97 Kevin Owens Quotes"
++++
+- Shawn Michaels is the reason I wanted to be a wrestler.
+- I wasn't in NXT for very long, but what I learned there was very valuable once I got onto the main roster - how to communicate to a larger audience, stuff like that.
+- I'm a lot happier on RAW. I actually can't overthink how much better I think I am on RAW than I was on Smackdown. And I don't really know the reason why that is. I feel like I look more at home here, and I feel like I look like I belong here. It's pretty obvious that RAW's the place for me.
+- Fortunately, in the WWE, the security staff is very dedicated and very professional. They know what they're doing.
+- I'm genuine, and I think people can see that when they watch.
+- My parents could have told me, when I was 12 years old and telling them I wanted to be a wrestler, that it was silly and to be serious and find something more secure and safe, but they didn't. They pushed me as hard as they could.
+- You don't want to be too hesitant and not give everything you could give.
+- I have dreamed of being a champion in WWE, and there's nothing I won't do, no length I won't go to, in order to keep it that way.
+- I like having titles. I feel like when I walk out and I don't have a title, it's strange. Even in the independent scene before I got to WWE, I was a champion in most of the companies I wrestled for. Being a champion is just what I do.
+- The way I look and the shape I am in, I've had so many people tell me, 'You'll never make it because of the way you look.' But that never stopped me - it may even have motivated me a little.
+- I went from beating John Cena in my first match to winning the Intercontinental title to defending it at WrestleMania.
+- I wanted to become a wrestler because I saw a tape of Wrestlemania XI. I thought to myself I wanted to be a WWE superstar one day, and now here I am.
+- A. J. Styles is an incredible performer; very spectacular.
+- My wife, she's been with me for 10 years. She saw the ups and the downs, and she saw so many people tell me I would never make it to WWE, but she never doubted it.
+- I don't feel like I'm a character; I certainly don't feel like I'm a gimmick. I am who I am.
+- When I was a kid and went to shows, my favorites were Live Events. You really see a performer's personality on Live Events than on TV.
+- I think if you look at NXT, the one guy who seems like he would belong in a WrestleMania main event is Nakamura because of the aura and the buzz that he gets. He is able to grab the attention of people who don't really know who he is right away with his mannerisms and entrance - by the time he gets to the ring, you are kind of hooked.
+- You can't choose who your brother is. You're born, and whoever is in your family is your family. That's your blood. That's the way it is.
+- Being on Raw every Monday is obviously important, but the pay-per-views are the big shows: that's where everything comes to a head, and I want to be a part of those as often as possible.
+- I'll never forget fighting on top of a cell with Shane McMahon.
+- There's a lot of people out there who are just miserable in their own lives, I guess, and just trying to make other people miserable as well to bring themselves up. There's no shortage of that, that's for sure.
+- I think when people don't respect wrestling, it's because they're misinformed.
+- My son's a big John Cena fan and obviously a big fan of mine who is very proud of everything I'm accomplishing.
+- I met Steve Austin at an airport in 2005, and he gave me the best piece of advice I could ever receive - to keep running my mouth and never stop talking! I took that advice to heart, and it has helped me get where I am today.
+- No matter how much wrestling you have watched in your life, you know how big Wrestlemania and how momentous it is. My sister-in-law and her boyfriend aren't die hard WWE fans, but they are fans of Wrestlemania just because of how huge the event is.
+- People ask me how I am such a good heel, but I don't know; I just try to be me and go and do what I need to do to get the job done on any show that I am on and achieve the work that is set up in front of me.
+- I was in NXT for six months, and it was some of the best times I've had in my career.
+- NXT is very special, and everybody who turns in for Unstoppable is gonna see that.
+- I'm well aware that no matter how big of a jerk I am, some people will cheer me, and no matter what I do, some people will boo me, and that's fine. I just need to elicit emotion. That's all I care about.
+- Everything I do really is for my family.
+- Honestly, to me, the WWE championship and the Universal championship are the same thing. They're the top championships on the respective brands.
+- I was a wrestling fan long enough, and once in a while, I would get bored. I'd be on board with a superstar and love what he'd do. Then eventually, I would get bored with him. I don't want people to think that way of me, so I'm doing everything I can to make sure it doesn't happen.
+- All I really care about is my son.
+- I am not the typical WWE superstar.
+- I remember sitting in the stands at WrestleMania 30 thinking, 'I have to be a part of this one day.'
+- I don't think I'm a loud mouth.
+- Everybody wants to get the MITB contract; that usually means at some point they will become champion. That's a big deal; that's what everybody strives for.
+- A big reason why I signed with WWE in the first place was because my son wanted to see me wrestle in WWE, and he wanted to see me wrestle John Cena.
+- My dad's father would take me to WWE shows when I was younger, and my other grandfather, my mom's dad, would watch wrestling with me at the house. They just really enjoyed it. Unfortunately, they both passed away before I signed with WWE.
+- I don't think anybody deserves anything than what they already have because I believe everyone gets what they deserve.
+- NXT really built some momentum and became something pretty special.
+- I do whatever entertains me. If it entertains me to throw flowers halfway across the room, then that's what I'll do.
+- I'm not as extreme in real life as I am in the ring or on television.
+- Great matches are necessary, and everybody loves to watch a great match.
+- I've never been the sort of guy who wants to emulate this guy or that guy. I just try to forge my own path.
+- Sometimes you have chemistry with people that is undeniable, and it just works, and sometimes you have matches with someone you think you are going to have good chemistry with, and it just doesn't turn out that way.
+- I know Jim Cornette says the reason that I'm successful now is because I changed my attitude, and I must be listening to what people tell me now, and I used to not listen to him. But the thing is, I used to not listen to him or question his methods because I didn't agree with him, and I didn't share his vision.
+- If there's something funny to be said, I will say it.
+- All I can say is that Triple H is literally the most dedicated man in sports entertainment. Nobody works as hard as he does.
+- It's not hard for me to stay humble. I think there is always somebody better than me, so that's what keeps me humble. A lot of people could learn how to stay humble.
+- I would like to be champion - that is everybody's ultimate goal - but my one goal at all times, whether on Raw, Smackdown, a pay-per-view, or a live event, is to make people walk away and remember what I did.
+- I always strive to receive the loudest reaction that I can; whether that is being booed out of the building or being cheered.
+- Whether it's the NXT title or the United States title or the Intercontinental title or the World title, if I have that title, then that's the most important one.
+- It is pretty daunting - the Cell has been responsible for some amazing matches, but it can also lead to some pretty real injuries, so that plays into your mind.
+- When I was 11 years old, I started watching WWE.
+- There are some cities that you go to that bring something out of you. Toronto is one of them.
+- Cockroaches can't survive me, and neither can Dean Ambrose.
+- Jim Cornette and I have never really seen eye-to-eye.
+- When I signed with WWE and moved to Orlando, my wife and my two kids came with me.
+- The crowds have always been known to be pretty loud and wild in the South.
+- Chris Jericho was always someone I looked up to. I was a WWE fan growing up, and I remember his debut.
+- Owens may not be my real last name, but it's close as it gets, because it's my son's name, Owen. That's why I picked that name, and Kevin Owens is who I am. I can't stress that enough.
+- The Hell in a Cell match that always sticks in my mind is the original Michaels versus Undertaker match. It was really something. The bout itself was so good, while Kane's debut made it even more memorable. That takes the cake in terms of Hell in a Cell matches.
+- I think healthy competition is great, and I think WWE would agree.
+- I wrestled in Detroit many times before getting to WWE.
+- I will be driving on the road after a show at night, and it will hit me that I am a WWE superstar, and this is what I dreamed about, and I get to live it.
+- Whenever WWE is in town, it's a great time, but Live Events are special. If you've never been to one, I highly recommend it.
+- I've always found a way to stand out from the crowd.
+- I went into NXT with no expectations. That's what I was told when I was hired - have no expectations, just do the best I could - and that's always what I've done for the last fifteen years. That's what I did, and you know, it's obviously working out pretty good.
+- I've been part of so many pay-per-views, and I've been in the ring with John Cena and Dean Ambrose and Randy Orton and Chris Jericho and Roman Reigns... all the top names. And I've been Intercontinental champion twice.
+- I don't have many particular beliefs, but I do believe in people who we've lost. I'll speak to Owen Hart; he was a big influence on me as a young wrestler, and when he passed, I felt a great sense of loss. Ever since then, I just talk to Owen Hart before every match, and I ask him to be with me and make sure I don't get hurt.
+- Someone like me who has been a fan of the WWE my whole life, to be a part of SummerSlam every year makes it even more special.
+- I have never been a SmackDown guy. I never felt at home at SmackDown.
+- When I'm on, people watch; people pay attention.
+- I'm a 'no frills' kind of guy.
+- After a couple of years, in 2010, Ring Of Honor went through a shift in management, and the people that came in and took over kind of decided that they wanted to push me out. They weren't fans.
+- I look up to Tye Dillinger.
+- I played hockey until I was 13 or 14 years old.
+- I want to be remembered.
+- I've always believed in myself, quite frankly, and believed in my abilities.
+- I've wrestled in front of great crowds in Montreal, and I've wrestled absolutely terrible crowds where you're in front of, like, 200 people.
+- Sami Zayn and I have had a long history. Same goes for Adrian Neville. I might not get the chance to work with them now, but Seth Rollins, Cesaro and Daniel Bryan, all those guys, we all spent a lot of time together wrestling all over the place.
+- I don't know how well it can go when you get thrown off a 20-foot ladder.
+- I was drafted way later than I should have been, and all that shows me is people don't see my true value.
+- From the time I was 11 until I was 23 and met my wife, wrestling was all I cared about. It was an obsession, and that's why I think I ended up making it. There was no other option for me.
+- John Cena and Roman Reigns get insane reactions where half the crowd loves them and half the crowd despises them. When you're in the ring waiting for your opponent, whether it's John or Roman, you get hit by this crazy noise.
+- I've been a top guy since I walked in - since I beat John Cena in my first match.
+- I have interest in competing in every big event like Money in the Bank or Elimination Chamber or SummerSlam or whatever it is. I want to be part of those shows, I want to be part of that product; that's where I want to be.
+- The first time I was in the ring, I wasn't good at it, and I honestly thought, 'Maybe this isn't for me.' Then I went back the next day and the next day and the next day... because I loved it more than anything.
+- Thank God for FaceTime. I can't imagine wrestlers from the '80s being on the road all the time without cell phones and stuff like that.
+- Everybody at the Performance Center is trying to help you in their own way, and they give you their opinion on what they think will work or what they think you should do.
+- To be clear, NXT is a great place to be at, you know what I mean? ... Obviously, everybody aspires to be on Raw or Smackdown. That's why they sign with WWE, because they want to be able to perform on that stage and at Wrestlemania and Summerslam.
+- I just know that I have this Universal championship, and I want to make it worth as much as possible, and that's what I'm focusing on.
+- I hope that Ring Of Honor could one day sell out Madison Square Garden when WWE is not in town.
+- I enjoy every second I get in the ring. But there's a bigger picture now and a much bigger purpose to everything, and it's to take care of my kids and my wife and make sure they have a good future.
+- I was never a WCW fan growing up, so I was never a Goldberg fan at all - and I've told him that.
+- I was actually a big Owen Hart fan, but I wasn't a Bret Hart fan at all growing up.

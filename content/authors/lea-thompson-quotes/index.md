@@ -1,0 +1,41 @@
++++
+author = "Lea Thompson"
+title = "Lea Thompson Quotes"
+quotes_len = "35"
+description = "the best 35 Lea Thompson Quotes"
++++
+- 'Red Dawn' was really the most fun I ever had making a movie, because I love Westerns, and I love the idea of being a tomboy, and riding horses and shooting guns.
+- Sitcoms are usually given short shrift by the acting profession, but it's quite an amazing job.
+- I had been a ballet dancer and never could make a living, and just being so excited that I got to, all of a sudden, live as an actor.
+- I mostly played 'Pac-Man', but I played 'The Sims' with my kids when they were growing up.
+- I play a lot of 'Scrabble' with my brother online.
+- Usually, you don't really end up lifelong buddies with your co-stars.
+- One of things I like about looking at pictures when you're young and also meeting back with old friends you haven't seen in a long time is, for me, it's a glimpse of who I was.
+- One thing the futurists never get right, though, is that the extreme desire for polyester only lasted a brief period in the '70s!
+- I hate when people don't hear the actual words out of your mouth or even the intent of it. They just hear something completely different.
+- I enjoy learning about the new technologies. I enjoy getting to know the new fans and dealing with them on their turf.
+- I'm always really excited to try something new in my profession that I haven't done yet.
+- It's hard not to want to strangle people when you work with them for four years.
+- You're sexy when you're young. You've got it going on, and then you have your kids, and you give your whole life to your kids, and then they're kind of gone, and like, what do you do? You've got to fight to stay inspired, and you've got to fight to learn new things and stay young in your heart.
+- My beauty secret is to try to keep my heart as open and happy as I can, because it really makes the sad lines on my face look better.
+- It's actually shocking to me how hard it's been to get back into the movie business.
+- 'Howard the Duck!' That's a really interesting movie. I appreciate my career, because I've had a lot of very interesting ups and downs, and most people... That movie is such a famous flop. In a land of a lot of flops, it's kind of awesome to be in a really famous flop. I mean, it's kind of a poster child for flops.
+- I have to read something positive every single day. I have to have faith that the day is unfolding in a way that is going to be useful to somebody else... For me, living every day in gratitude has been profound for me.
+- 'Red Dawn' was very resonant with a lot of people - they love that movie. I always thought it was a little hysterical.
+- I'm not overweight, but I'm not in shape at all. I do not work out.
+- As you get older, you have to fix your insides, because your face naturally gets a little crabby-looking, so if you're thinking mean thoughts, you look doubly mean when you get older. You can't hide it.
+- I don't like a class system. I don't like the idea of being in a different class than other people.
+- And I definitely gravitate toward people who use laughter to pull themselves out of the abyss.
+- I was such a fan of Cyndi Lauper and her whole 'Girls Just Want to Have Fun' thing.
+- 'Caroline In The City' was such an interesting thing, because I'd never been on the set of a sitcom or even auditioned for a sitcom when they gave me that part.
+- I love really crappy carnivals, where you think the ride is going to break. There's something so seedy about them.
+- The whole experience of doing a sitcom is... Telling jokes with such precision is really exciting, but it's also terrifying.
+- Cyndi Lauper's 'Time After Time' was a perfect song. It was so beautiful and so heartfelt. Her vocals were so amazing. And, for me, that was a song I went to when I was feeling sad and wanted to feel even sadder.
+- 'Howard The Duck' has a lot of fans, and usually when they come up to me, I just think they're the coolest. Because it takes a lot of strength, a lot of perseverance to love 'Howard the Duck.'
+- My mother told me to raise my kids with calculated neglect. They get their self-worth from doing what they can do and not having everything done for them.
+- Casual games are a great way to spend time when you get bored. It's hard to keep people off all their little games.
+- Of course, I'd like to produce and direct a blockbuster, but you gotta build up to that. So now I'm learning from a bunch of little movies. And it's more fun with smaller pictures. It's more creative.
+- I think it's really hard to understand the depths and the power of the love that someone has for their children unless you really have children.
+- In my deepest parts of sadness, I'm always making a joke or being sarcastic.
+- I always felt like my best years would be from 50 to 65 years old. I don't know why. It was a feeling I had even when I was really young.
+- So when my film career took off, I always felt like I was trying to play catch-up because I hadn't studied acting before. I didn't know how to manage money or my career. When I look back, I think I was a little bit shell-shocked.

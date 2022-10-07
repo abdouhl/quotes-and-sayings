@@ -1,0 +1,17 @@
++++
+author = "Chuck Eddy"
+title = "Chuck Eddy Quotes"
+quotes_len = "11"
+description = "the best 11 Chuck Eddy Quotes"
++++
+- California club pop chirper Dev's debut is as stark as it is sweet. This is owed partly to the casually giddy lightness of her talk-singing - familiar from her slizzered 2010 cameo on Far East Movement's smash 'Like a G6,' and around-the way-girl frisky like 1980s Latin freestyle.
+- I like critics with strong opinions.
+- Critics should stick to their convictions.
+- Music critics are part of the world, and I am part of the world.
+- Mayer Hawthorne's old school pop-R&B homages are so meticulous that it's tempting to overrate his pipes.
+- If I am thinking the same as everyone why bother pushing to get it published?
+- Few bands in hard rock history have been so adept at balancing the awesome and trivial as Van Halen in their prime.
+- Gary Allan has long been one of country's most reliably velvet-voiced beautiful losers.
+- By the late '80s, I was already giving up on rap music.
+- I'm that grumpy old guy yelling at all those pesky little Grizzly Bear fans to get offa my lawn.
+- No band on 21st-century radio has mined pre-grunge hair-metal's sleaze like L.A.'s Buckcherry. So it makes poetic sense that they'd spend their sixth album tallying all seven deadly sins.

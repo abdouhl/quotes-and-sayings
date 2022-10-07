@@ -1,0 +1,15 @@
++++
+author = "C. C. H. Pounder"
+title = "C. C. H. Pounder Quotes"
+quotes_len = "9"
+description = "the best 9 C. C. H. Pounder Quotes"
++++
+- With acting, I started very young, and I'd performed for a lot of children in boarding schools, late at night after the dormitory lights were out. I'd have a flashlight, and I'd be Count Dracula, or Shakespeare, or Yogi Bear, and leap from bunk to bunk. I loved the laughter; I liked the way it made people feel.
+- The thing about being black and having a different accent, in the beginning, is that it makes you foreign.
+- When I was a kid, a pickleball hit me in the back of the head, and I had memory problems. I was in a boarding school and the nuns gave me poems to remember to try and get the memory going again.
+- I don't have a problem with recognition... It's very, very rarely about who I am, it's always, 'I love your work.'... It's always in relation to my work, which I think is a really lucky thing to have happen as opposed to, 'Oh, you're a famous personality.'
+- I've got a general callout with the Caribbean world in which I'm interested in helping in any way to get their well-written good stories out to the rest of the world. I am really interested in helping those stories get to a completion and public viewing.
+- 'Bagdad Cafe' was a film that changed many, many people's lives... how they saw themselves and how they looked at their life situation. I thought I made a little movie. All the mail that I get is about how it changed lives, and that's wonderful.
+- Applause is the most powerful thing... people talk about the sound of it, but what I hear is glee.
+- I'm not successful in Hollywood, and I probably would never be. I think Hollywood has such an interesting model for success, and it creates those successful people. I'm not in that chosen category, but what is successful for me is that, in spite of that, I've been able to work and do the things that I wrote down that I wanted to do and be.
+- I considered myself very lucky after 'Baghdad Cafe,' and I have 'The Shield.' In every genre, I've kicked butt at some point. I'm real happy.

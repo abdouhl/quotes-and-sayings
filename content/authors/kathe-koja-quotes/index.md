@@ -1,0 +1,15 @@
++++
+author = "Kathe Koja"
+title = "Kathe Koja Quotes"
+quotes_len = "9"
+description = "the best 9 Kathe Koja Quotes"
++++
+- Y.A. wasn't really a specific genre when I was fifteen, but if it was, I would probably have shunned it; I was a huge snob.
+- I don't think kids have a problem reading books meant for adults; the problem is on the other side of the fence, a misconception of what one kind of literature is 'supposed' to be, perceived to be, as opposed to another: if it's for kids, it can't be any good; it's got to have been dumbed down and/or sweetened up.
+- 'Alice in Wonderland' has been done a million times; why do it again? Nerve's answer is that Alice is Everyman and Everywoman, going through the stages of life.
+- I have one rule when adapting any text: nothing gets added; all the words are the original author's own. But in the ordering and recreation of the story, I can do as I please, and to me, the heart and the point of 'Dracula' is appetite.
+- People react differently to puppets than they do to human performers: they become more playful, more open.
+- I never consciously choose what I'm going to work on next; I don't have an agenda beyond that attraction. Fortunately, my wonderful agent, Christopher Schelling, knows how I think and points me toward things I might like, which is how I started writing Y.A.
+- My writing process hasn't changed - it's is the same whether I'm working on a Y.A. novel or, as now, a new novel for adults. A lot of reading, a lot of research if the subject warrants it, a lot of sticky notes and scraps of paper - and get to work.
+- 'Under the Poppy' is the love story of Istvan and Rupert, lovers and friends from childhood, who've been parted by jealousy - and a secret betrayal by Istvan's sister, Decca, who also loves Rupert, with whom she runs the brothel called Under the Poppy, where the floozies cater to every taste from saucy to peculiar.
+- Darkness might seem to obscure what's happening, but I find it's always pretty revelatory: it brings out the awe in us, the fear in us, the excitement of exploring the hidden or unknown. It seems to conceal, but it really shines a light on what we want, what we need, and what we'll do to get it. Especially when we think no one can see us.

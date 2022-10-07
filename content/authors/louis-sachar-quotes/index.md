@@ -1,0 +1,31 @@
++++
+author = "Louis Sachar"
+title = "Louis Sachar Quotes"
+quotes_len = "25"
+description = "the best 25 Louis Sachar Quotes"
++++
+- The media tends to portray the teenage world as one where drinking and sex is taken for granted. In fact, I think most teenagers don't drink, are unsure of themselves, and feel awkward around members of the opposite sex.
+- I'm an avid bridge player. I usually go to the local bridge club three or four times a week. I've always been a game-player, and I think bridge is one of the greatest games ever invented. It's too bad that not many young people play it any more.
+- When I wrote 'Sideways Stories from Wayside School' I never expected it to be published. It was kind of a hobby. Now, it's a job, but it's a job I like very much.
+- I really began to love to read while in high school, and my favorite authors were my heroes: J.D. Salinger, Kurt Vonnegut.
+- Every time I start a new novel, it seems like an impossible undertaking. If I tried to do too much too quickly, I would get lost and feel overwhelmed. I have to go slow, and give things a chance to take form and grow.
+- 'The Cardturner,' while it has bridge in it, you certainly don't need to know how to play bridge to read it. It's basically a book about relationships - between Alton and his great-uncle, and Alton and his friends, and how it changes his life.
+- I write in the mornings, two or three hours every day, and then at least four times a week I play in a duplicate game at a bridge club. I try to go to tournaments three, four, or five times a year.
+- Not counting 'Small Steps,' I think 'Holes' is my best book, in terms of plot, and setting, and the way the story revealed itself. It hasn't changed my life, other than that I have more money than I did before I wrote it. I'm still too close to 'Small Steps' to compare it to 'Holes.'
+- I remember my fourth grade teacher reading 'Charlotte's Web' and 'Stuart Little' to us - both, of course, by E. B. White. His stories were genuinely funny, thought provoking and full of irony and charm. He didn't condescend to his readers, which was why I liked his books, and why I wasn't a big reader of other children's' books.
+- I didn't become a good writer until I learned how to rewrite. And I don't just mean fixing spelling and adding a comma. I rewrite each of my books five or six times, and each time I change huge portions of the story.
+- I don't listen to music when I write. I need silence.
+- I never think of an entire book at once. I always just start with a very small idea. In 'Holes,' I just began with the setting; a juvenile correctional facility located in the Texas desert. Then I slowly make up the story, and rewrite it several times, and each time I rewrite it, I get new ideas, and change the old ideas around.
+- With 'Holes' I was troubled that there weren't very many female characters. I tried to put them in where I could. But the setting didn't lend itself to girls.
+- I jog in the morning and then write for about two hours. There are times when I'm really excited and can't wait to get back to it. But there are days when I don't know what's coming next, and I really have to force it.
+- Part of me becomes the characters I'm writing about. I think readers feel like they are there, the way I am, as a result.
+- I don't think too much about the audience when I'm writing... I'm aware that 'Holes' was read by kids as young as 8, up to adults.
+- I'm no good at describing my books. 'Holes' has been out now for seven years, and I still can't come up with a good answer when asked what that book is about.
+- I actually started an adult book, worked on it for about two years, and then decided it just wasn't coming together for me, and thought I'll go back to children's books, and almost immediately I started 'Holes,' and it just seemed to take off on me.
+- I think of a book and a play, or a book and a movie, as two separate things - I don't think of it as my novel having a new life.
+- I want kids to think that reading can be just as much fun and more so than TV or video games or whatever else they do. I think any other kind of message or morals that I might teach is secondary to first just enjoying a book.
+- I think what makes good children's books is putting the same care and effort into it as if I was writing for adults. I don't write anything - put anything in my books - that I'd be embarrassed to put in an adult book.
+- My parents played bridge, and I remember being fascinated watching them. I sometimes got a chance to sit in on a hand, which I loved. But then I didn't actually play on my own for about 30 years.
+- When I write a novel, every word is mine. I welcome suggestions from my editor, but in the end, I make all the final decisions.
+- I guess what led to me writing 'Holes' was having moved to Texas in 1991, and it was sort of my reaction to Texas.
+- It's - I write the books and let the market find who reads it. I guess a young adult is anywhere from ten to fifteen.

@@ -1,0 +1,22 @@
++++
+author = "Lewis Tappan"
+title = "Lewis Tappan Quotes"
+quotes_len = "16"
+description = "the best 16 Lewis Tappan Quotes"
++++
+- Most of the prisoners told the interpreter that they are from Mandingo.
+- They have a fine breeze and are now we hope, well on their way.
+- One of the men attached to the prison was the occasion of great amusement on the part of the prisoners, as well as the spectators, by taking a large lump of ice to show these strangers from the tropics.
+- These meetings all have excited great attention, and have been of an exceedingly interesting character.
+- If any fall by the hand of violence, others will continue the blessed work.
+- If you wish to draw off the people from a bad or wicked custom, you must beat up for a march; you must make an excitement, do something that everybody will notice.
+- You may imagine the joy manifested by these poor Africans, when they heard one of their own color address them in a friendly manner, and in a language they could comprehend!
+- The curiosity to see the prisoners appears to be unabated.
+- The event of the landing of these brethren upon our shores is to be, not without its beneficial effect, as well to the colored population of this country, as it promises to be to ill-fated Africa.
+- The African prisoners are orderly and peaceable among themselves.
+- They said their sufferings were great on the passage, and several of their number had died.
+- There is too much theology in the Church now, and too little of the Gospel.
+- Indeed, the whole company, although thin in flesh, and generally of slight forms, and limbs, especially, are as good looking and intelligent a body of men as we usually meet with.
+- The Anti-Slavery public have generously responded to our appeal, and sent the means to enable us to fit them out well, to pay their passages, supply them with many useful articles and give the Missionaries money to sustain themselves for a while.
+- We will persevere, come life or death.
+- The prisoners eyed the clothes some time, and laughed a good deal among themselves before they put them on.

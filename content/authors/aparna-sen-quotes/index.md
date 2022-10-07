@@ -1,0 +1,45 @@
++++
+author = "Aparna Sen"
+title = "Aparna Sen Quotes"
+quotes_len = "39"
+description = "the best 39 Aparna Sen Quotes"
++++
+- A lot of us were worried that the secular fabric of the country was under threat and it was time that citizens begin to speak out. Hence we called ourselves Citizen Speak India.
+- I only make films when I have something to say.
+- It is the responsibility of a director to introduce their politics in their films, and whether you like it or not your politics will be reflected unless you are an opportunist which some directors are.
+- This politics is bound to be reflected in the work of a serious filmmaker. When I make a film, I try to tell a human story to the best of my ability. I do not set out either to preach messages or purely to entertain.
+- I grew up in a film lovers' family and I have been watching the best of world cinema from age six.
+- Yugant' is not a feminist film at all. It shows how the disintegration of the marital relationship is part of a greater disintegration all around of us of ecology and values.
+- I feel scenes of sexual intimacy are ruined if the director is embarrassed.
+- It's so important for me to keep a good house. I take a lot of pleasure in cooking and I think there is a lot in common between cooking and film-making. You put all these ingredients together to make something wholesome. Except the rewards in cooking come a little sooner.
+- My personal fave is 'The Japanese Wife', because I think I achieved a lot of what I wanted to do. I wanted that Japanese minimalism in the film, which I managed to get somewhat.
+- At the drop of a hat, people have begun to take offence. You can't write, paint, make films without worrying about some faction or other whose 'sentiments' will be hurt!
+- It is time that the female gaze made its presence felt both in cinema and in a world that's been driven by intolerance, greed, hate and lust. We need to make gentler, more inclusive films where multiple voices may be heard.
+- As it happens, I live in Kolkata; my husband Kalyan lives in New Jersey in USA; our elder daughter lives in Cincinnati - also in USA; my younger daughter lives in Mumbai; my sisters live in Delhi.
+- I had a turtle that I called Kalidas.
+- Mainstream Bengali cinema unashamedly tries to copy Bollywood. They forget that they don't have the kind of budgets that Hindi filmmakers have.
+- I hate being late. I am always punctual. In fact, I am known for it.
+- I don't think I have too many filmmaking years left since I hurt my spine and knee.
+- It's difficult to do a love scene in Indian cinema. The censors are sitting on top of your head.
+- Unless we citizens speak out, unless we are vigilant, democracy cannot fully function.
+- The very act of voting is a political act.
+- You have woman filmmakers, who have a male gaze. They play according to the rules of the patriarchal system and make a success of it.
+- We have inherited both Rabindranath Tagore and Satyajit Ray. We love them and we respect them and we adore them, so we also have the right to critique them.
+- The fact of the matter is that all true artistes are androgynous by nature, the yin and yang perfectly balanced.
+- Of course, I write. I have stories to tell. But I don't want to do superficial stuff any more.
+- Someone should tell the fundamentalists that even Advaita philosophy in Hinduism talks of oneness in all existence.
+- I'm very heavily trolled, but one learns to ignore such thing.
+- When I make a film about a woman, it is possible that my feminist politics surfaces somewhere but it is not with the intention of propagating feminism.
+- Without the huge budgets, mainstream Bengali cinema falls flat on its face.
+- Every single person is political. I am a Left-liberal and my politics is issue-based.
+- English is the medium of communication for people all over India.
+- My self-confidence doesn't come from my looks.
+- All human beings are lonely at the core. We come alone, we go alone.
+- While I think love is a beautiful emotion, I can't make simple love stories any more. In the time that I have, I would like to make films about things that move and bother me.
+- I let the images crowd my mind before I start writing a script.
+- A musical by its very nature doesn't allow for a lot of nuances.
+- Sufism states that deep within, everyone is the same.
+- I certainly am a feminist but, in my cinema, I don't talk about any 'isms'. I deal only with individuals; even if an 'ism' surfaces, it is not underlined.
+- We think we can control life by controlling our immediate circumstances. But we can't!
+- With the kind of money Bollywood directors have, they can at least add drama, gloss and glamour to their films, even if the stories are uninspiring and run-of-the-mill.
+- Male filmmakers only need to tap their female selves in order to develop their female gaze as many great filmmakers have done. But why is it important to do so? Because the world has been run by aggressive males and landed itself in a fine mess.

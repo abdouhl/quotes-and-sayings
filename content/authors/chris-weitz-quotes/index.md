@@ -1,0 +1,15 @@
++++
+author = "Chris Weitz"
+title = "Chris Weitz Quotes"
+quotes_len = "9"
+description = "the best 9 Chris Weitz Quotes"
++++
+- It's easy in a novel to be completely unambiguous about the relationship between animal and daemon simply by stating it outright; whereas you get very few opportunities to do this in an elegant way in a film.
+- I try to put out fires when bizarre rumors get started.
+- 'The Golden Compass' became a bad experience because the studio didn't have faith in the strength of the ideas of the novel, which is ironic because it's one of the greatest fantasy novels ever written, if not the greatest, and they took the religion out of it and tried to turn it into a popcorn movie.
+- I often make movies that involve depression or deep holes of sadness, although there are also these other great things in 'New Moon,' like this epic set-piece at the end of the film in Italy.
+- I love being by the ocean. It stills the voices in my head.
+- I am a surfer, though quite a poor one.
+- People always want the stars of movies to fall in love with one another.
+- All I can say is that with 'The Golden Compass,' I didn't get to make the movie I had planned to make. When I look at the film, at the casting and certain scenes, I'm very happy. As for the final product, I can't vouch for that.
+- The Internet is a fantastic, strange place where you can write an open letter and be reasonably assured that people are going to read it.

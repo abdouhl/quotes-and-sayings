@@ -1,0 +1,20 @@
++++
+author = "Koichi Tanaka"
+title = "Koichi Tanaka Quotes"
+quotes_len = "14"
+description = "the best 14 Koichi Tanaka Quotes"
++++
+- In 1978, I entered Tohoku University, into the Department of Electrical Engineering, Faculty of Technology.
+- My grandmother valued even the smallest of things.
+- From my father, I learned the importance of working sincerely at things to which I had committed myself, and to persevere untiringly even in the face of little progress.
+- I cannot say that I was a particularly diligent student, especially during the lower grades.
+- When it came time to find employment, I set my sights on becoming an engineer at a home electronics manufacturer, a field that was closely related to my major at university.
+- However, the occasional visit of success provides just the excitement an engineer needs to face work the following day.
+- In such an environment, I was able to study things that could be of immediate usefulness to the world. That learning experience undoubtedly served me well when I eventually entered the work force.
+- My natural mother died one month after I was born, apparently due to giving birth at an advanced age.
+- I suppose the reason I chose electrical engineering was because I had always been interested in electricity, involving myself in such projects as building radios from the time I was a child.
+- The tenacious character I've possessed since I was a small child propelled me to successfully meet this challenge, and I was able to safely gain acceptance to the university of my choice.
+- The thought grew strong in me that since I had gone to the trouble of being born, I might as well be useful in helping people live long and healthy lives. And this thought has always resided in the back of my mind.
+- Upon receiving my notification of acceptance to the university, my parents noticed that they were obliged to submit to the university, among other things, a copy of my official family register. After much mental anguish, they decided to inform me of the secret of my birth.
+- The Faculty of Technology of Tohoku University is renowned for its tradition of practical studies.
+- Most of the work performed by a development engineer results in failure.

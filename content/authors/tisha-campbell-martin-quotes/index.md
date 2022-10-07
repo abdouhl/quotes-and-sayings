@@ -1,0 +1,14 @@
++++
+author = "Tisha Campbell-Martin"
+title = "Tisha Campbell-Martin Quotes"
+quotes_len = "8"
+description = "the best 8 Tisha Campbell-Martin Quotes"
++++
+- In the beginning of my career, all I did was drama, and I couldn't get arrested doing comedy; nobody would hire me!
+- It's a good note for any young hopeful in this business to take: study up and make sure you are informed at all times because knowing how to anticipate someone's subtle nuances in a performance will only elevate your own art!
+- I became an actress and studied human emotions so that I could give the gift of feelings to my son. This is what my whole journey has been about.
+- Autistic children are extremely bright if you can connect to them and bring them into our world. Socially it's really hard for them, but it can happen.
+- I figure out who I'm playing opposite, and I really do study them.
+- I was diagnosed with a lung disorder that some people walk around with and don't even know they have. Through early diagnosis, I'm happy to share that I stay healthy with diet and exercise.
+- Although I look really good holding a gun, I can't shoot. I can't shoot anything. I'm the worst shot.
+- I hang out with people who are amazing parents and really value a rich living. I'm not talking about monetarily. I'm talking spiritually and mentally, and we help make sure that each one is on their game for their spouses.

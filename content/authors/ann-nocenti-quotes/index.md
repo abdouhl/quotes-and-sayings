@@ -1,0 +1,50 @@
++++
+author = "Ann Nocenti"
+title = "Ann Nocenti Quotes"
+quotes_len = "44"
+description = "the best 44 Ann Nocenti Quotes"
++++
+- I am thrilled to be working with Alex Sanchez as the artist on 'Katana.' His work is wildly eclectic, exciting and powerful, yet slyly humorous, which is a perfect match for Katana.
+- When I read Katana's run in 'Birds of Prey,' I was curious about her restraint. She didn't laugh, didn't loosen up, didn't seem to have a light side. I thought, well, that demure nature is what we believe of women of Old Japan, so she seemed not like a modern Japanese but from an earlier time.
+- The things that churned inside Daredevil were deeply religious, somewhat guilt-driven traces of the messianic, with his powers being a compensation for and driven by the vulnerability of being blind. Green Arrow is not driven by dark forces.
+- I'm thrilled to be taking over Green Arrow. What I adore about the Arrow is his recklessness. He'll shoot off on an impulse, dispatch someone if they deserve it; his heroism is instinctive.
+- The Creeper in the 'Katana' series is the same Creeper that will be in 'Villains Month.'
+- It always amazes me that Japanese comics have, like, 200 pages. How do they do that? They're fat books; it's a whole different kind of comic that's very close to their films. So I'm drawing from that history and bringing it here - bringing it to Katana.
+- I like talking about comic book process, and one of the things is that I have plans going ahead for years, and the plans constantly get thrown away and shifted. There's a difference between planning and what actually happens in life, and comics have a life of their own.
+- When my editor sent me the first two images of Joker's daughter, I was struck by how confident she looked despite her boney appearance and horribly scarred face. So I starting thinking, how did Duela gain such confidence in a world that prizes beauty?
+- I want Green Arrow to have fun. I don't want him to be a tortured hero. I mean, I've written plenty of tortured heroes, like Daredevil. But it's all there in Daredevil's origin as to why he'd be a tortured adult. Green Arrow doesn't have that kind of origin. In fact, he's such a clean slate that he doesn't even have an origin anymore.
+- I believe in working with your morning brain - you have your coffee, and then maybe you'll start thinking about the grand plan and what's going to happen in the next arc, and then you write for a while, and then you get really dreamy, and over the course of the day or in the middle of the night, something comes, and you just throw it in!
+- I know my predecessors have written a Green Arrow who has a lot of thoughts about social justice, but that was a more evolved, older, wiser Green Arrow.
+- Rotgut was, to me, just this way to get into the underground of Manhattan where you have these little pockets a villain could rise from; a rot in the bowels of Manhattan. It led to these stories that were just very creepy.
+- I'm dying to fool around with the distance between Selina Kyle and Catwoman. And, you know, the whole double identity thing is endlessly fascinating. I mean, you can always find another riff for it.
+- I'm very much about stories that are fast but character development that moves slow.
+- I know I've erred in the past putting too much of my social justice sentiments in comics, but hopefully not too much, and I tried to only do that with characters that it made sense with it. These days, with the 'social justice' aspects of the two books I write, 'Catwoman' and 'Katana,' the concerns are more about moral justice.
+- Mythology contains a rich history of legendary weapons, most famously 'Excalibur,' weapons that could only be used by the pure of heart.
+- Catwoman isn't a 'joiner.' She's a solo operator. She isn't naturally heroic; she's fairly selfish.
+- I'm one of those people who believes you are what you do.
+- Katana is a trained, disciplined martial artist. She removes herself from Birds of Prey to go on a personal journey in Japantown, San Francisco, and pursue a quest for vengeance against the Sword Clan, the men that killed her husband.
+- I'm a huge, huge lover of weaponry, of Japanese martial arts movies.
+- There are a lot of Chinese comics, but the Chinese comics tend to be more historical and conservative. Japanese culture, just the comics are amazing. They're like films: very few words; they move so much in these books with hundreds of pages.
+- I'm a huge lover of 'Seven Samurai' and anything Kurosawa ever did. The comedic work out of Japan in terms of martial arts movies, some of them are hilarious.
+- I've never written a character that wasn't burdened by years of pain and trauma. Let's face it: Most comic-book heroes have some serious baggage. Not Green Arrow. He's a healthy guy - imagine that? Carrying your hero around in your head, imagining the world through his eyes, is just a hoot.
+- When you choose the sword over a gun, just like Green Arrow chooses an arrow over a gun and Catwoman chooses a whip over a gun, you have to be highly skilled and highly trained. I can grab Green Arrow's bow, but I'm not strong enough to shoot it. I can grab Catwoman's whip, but have you ever tried to whip a whip? It's not easy.
+- When I first started writing comics, in the way-back days, Typhoid Mary was my explosive response to women characters in comics - I made her an innocent virginal type, a clever, dark, liberated woman, and as Bloody Mary, a feminist bent of punishing men - all in one character. She was an instinctual rather than a calculated creation.
+- I live in New York City, and one day many years ago I was with a poet, Gregory Corso, walking through Greenwich Village. He pointed to a doorway in an alley that he said led to a tunnel under Manhattan, a tunnel he'd use to run from the cops. I started learning about old Prohibition-era speakeasy tunnels under the city, for running whiskey.
+- I think the best collaborations in comics come from a lot of talks with the artists where you are finding out what they want to draw, what kind of villains they want to do.
+- I actually have a peculiar feminism that does not involve the idea that women shouldn't be sexy. Female characters written in comics have always been pretty damned sexy, and used their sexuality. And I don't have any problem with that.
+- There was a Japantown in San Francisco, but after the internment camps that locked up all the Japanese, Japantown shrunk down to just a couple tourist blocks.
+- There are a lot of writers who just want to do their own thing and avoid the rest of the Marvel Universe. But for me that was one of the things I loved about Marvel: that shared universe. So of course you would run into a mutant in Manhattan. You would run into another hero in Manhattan. For me, I figured why not? Why not have that fun?
+- There is an unspoken feminist layer to Katana. She's an aggressive modern woman with traditional Japanese roots. She was in love with her sword because she believed it contained her husband.
+- Is it possible to run a big industrial corporation in a benevolent fashion? We see these days that even the hippest companies hide some rotten practices to make their profit margins work.
+- Green Arrow was a very complicated character to take on because he has archaic weaponry. Catwoman, I think is more of a simple archetype to grasp, so it will be about nuance. But I think you need three or four issues before you say, 'Ah ha! Now I really know how to write this character!' You're carrying them around with you.
+- I have a fascination for extra-judicial societies and underground cultures, and in situations where justice can only be found outside the law, and how these societies have evolved over the centuries.
+- I walked the streets of New York; I would feel the presence of Daredevil. I would see him up on the rooftop. What you are doing in your life, you start to see in your book. It all starts to merge together.
+- I am inspired by both Japanese Samurai films, in particular the films of Kurosawa, and how they share the spirit of American Westerns, with the influences running in both directions, and including the 'Spaghetti Westerns' and films of Sam Peckinpah.
+- I wanted the new Green Arrow to somehow sense his long, brutal past. It's like someone who has past lives they can't remember but feels occasional flashes of.
+- When I was in college, I worked at a state hospital that was a dumping ground for all manner of the criminally insane and 'mental defectives' as they called them back then. It was a horrible place, like Arkham, mostly in terms of total neglect of the inmates, so I wanted to write an Arkham story.
+- People struggle with moments of deep dread about life and moments of surety. Often within the course of the same day. Life is a roller coaster, especially if you take risks.
+- I don't think most people are all heroic or all villainous, so I find ambiguity of motivations to be a natural human condition.
+- Green Arrow has gone through so many changes; he's been right-wing, he's been left-wing, he's been rich, he's been poor, he's been a social justice guy, then when I got him, he was a rich playboy guy. So it was a lot harder to get into a character that has so many personas in the past, and I just looked at his anger.
+- I think writers process their own experiences through the characters and situations they write. So for Batman, I used my own experience of losing a loved one. Grief is a strange place; it's like an altered state. You might sleep too much, so you can see the dead in your dreams.
+- Comics shouldn't be 'tools' for anyone's agenda except for the characters. And I am speaking only of super hero action comics. I love many of the alternative comics that are like journalistic stories. Documentary comics, a mix of reportage and fiction. Those are just great.
+- Catwoman has an awesome, iconic personality. It's a blast to write her. You get her; she's an archetype. You can just kind of put on the cat-suit.

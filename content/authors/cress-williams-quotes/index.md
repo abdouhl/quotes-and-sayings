@@ -1,0 +1,37 @@
++++
+author = "Cress Williams"
+title = "Cress Williams Quotes"
+quotes_len = "31"
+description = "the best 31 Cress Williams Quotes"
++++
+- I have a history, even going back to my time in college doing plays, of always hurting myself at some point in whatever I'm in. Like, always! And it's usually my own doing and me being rambunctious and going, 'Oh, I can do that better,' or 'Oh, I can do that quicker,' and it results in injury.
+- I was a poor kid. I grew up watching film and television but primarily television. And I graduated high school, and I knew I wanted to go to college because nobody in my family had. So I was like, 'I'll go and be a theater major.'
+- Unfortunately, when you look at the amount of comic book heroes out there, minority heroes are few and far between.
+- Back in the day as a kid, I was really drawn to the Hulk because it just felt so human and was probably one of the first stories that I felt emotionally invested in and not just thought it was really cool. You really feel for that person and put yourself in that situation.
+- A friend of mine kind of revealed to me that idea that there has been countless Supermen and Batman. But I'm the first person to play Black Lightning. It's exciting to originate a character.
+- As a kid, you just like anything fanciful that you're into, but as an adult, I really love that kind of place where the super hero mythos meets life, where it has that human story; that's what I think I was really drawn to when I started getting into the X-Men.
+- There are aspects of small town life that I really like - the routine nature of it, the idea of people knowing you and your likes and dislikes.
+- I didn't really know of 'Black Lightning' until I got the script and started to investigate - it wasn't a hero that I grew up with. So I didn't know if his powers were natural or if it was the suit, but those things are, for me, very important. I really like the idea that his powers are his - that whether he has the suit or not, he has them.
+- Shooting a season can be a grind. It can be seven to eight months of work. Once you stop, it slows down any momentum you had.
+- I grew up watching television. I'm a television addict. I had all these heroes, but they didn't look like me.
+- When I get into collecting things, I get a little obsessive. Which is why when I start buying comics, I buy way too many, and I have to stop myself.
+- I grew up mainly with my mother, and I would see my father from time to time. But I didn't have a constant male figure.
+- Who I always refer to as my acting mentor when I got into junior college is an acting professor by the name of Tom Blank. He took me under his wing, and he was that strong male figure. He was tough love, but he believed in me, saw everything that I had.
+- My first job was television. I got to where I wanted to go, but through a little bit of a detour. When I first started working in film and television, I hated myself - I didn't like what I was doing at all. All I could think of was, 'I'm overacting. Be smaller.' I started to do that, but that was not fun. I felt confined doing film and TV.
+- When you're playing a superhero, you're almost playing two different people. I separate when I'm playing Jefferson Pierce and the days when I'm playing Black Lightning.
+- On 'Black Lightning' I have a stunt double who's a lot younger than me. The fighting style on the show is heavily martial arts-based, and I know boxing; I don't know martial arts. I also have a really bad knee, and he's been doing martial arts since he was 6 years old, so I'm not thinking, 'No, I can do that! I can make that look cool!'
+- Growing up, I didn't really read a lot of comics; we didn't really have the money to get them. But I grew up a universal fan of fantasy and sci-fi and watching a lot of TV. There's always this question of 'Are you a fan of sci-fi or fantasy?' But can't you be a fan of both? We love everything fantasy, my wife and I.
+- I'm a big fan of superheroes and fantasy and sci-fi. I have been since I was a child.
+- From the moment I turned 39, 40, I really turned a corner and became a person who really enjoys working out. When I don't get a chance to, I miss it. I also just recognized that it would give me career longevity if I kept myself in the best shape I could possibly be in.
+- Sometimes you got to mess stuff up to get change going.
+- A lot of times, people believe that until you're a certain-list actor, you say yes to everything; you're not allowed to say no. But early on, something went off in me, and if something didn't ring true for a myriad of reasons, I would say no and was fortunate enough to have people around me that were OK with that.
+- I hadn't gotten a chance to do a lot of comedy, so 'Hart of Dixie' was a great place where I got a chance to do that and play.
+- As an actor, the only pressure I have is to just be truthful and to do my best work.
+- Generally speaking, I would say villains are a little more exciting to play, but if you get a flawed hero, then that can almost be just as amazing.
+- I realized that being that No. 1 on the call sheet sets the tone. That knowledge, it's important to me that everyone - not just actors, not just myself, but everyone - have a workplace that they enjoy, where they feel respected, that they have creative input, and that they feel is a place that they're excited to go to work.
+- As an actor, the flaws are the things that are juicy to play. If the character is perfect, it can be a little boring.
+- I come from theater, so I'm used to the hierarchy of an actor is just on the ladder, and above that is a director, and above that is a producer, and above that is a writer. But on a television show or film, the whole call sheet thing and being No. 1 on a call sheet, people look to you and almost expect you to exercise this power for good or bad.
+- What's great about acting is that there's never a moment when you're like, 'OK, I got this, I understand this.' You're portraying life, and it's a craft that only gets better with time - kind of like playing a musical instrument: the more you get to play it, the better you are.
+- I love when I get compliments on my shirts all the time. I'm a t-shirt guy, and I think nine times out of 10, they have some kind of super hero character on them.
+- As an actor, so much of life is out of your control, and it's really not solid.
+- I have no problem telling people I have a great stunt double. I'm not that guy who's like, 'I do all my own stunts.' Like, no, no, no - it's make-believe, and I'm not in the mood to die. I'm not in the mood to get hurt. I have a wife and kids!

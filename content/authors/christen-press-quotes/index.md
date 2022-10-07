@@ -1,0 +1,106 @@
++++
+author = "Christen Press"
+title = "Christen Press Quotes"
+quotes_len = "100"
+description = "the best 100 Christen Press Quotes"
++++
+- I think I approach pressure by having discipline and learning to be calm in everyday life. I do this with a daily mindfulness practice and commitment.
+- I'm so excited to be a Coppertone brand ambassador because as an athlete, taking care of my body is a huge part of my job, and sunscreen is a vital part of that.
+- I'm the kind of person where I look to myself a lot on how I can get better. What little, nuanced differences can I make?
+- It's really special to play with your friends for your country.
+- I would like to fight as hard as I possibly can in each and every game and win or lose, leave it at that, and move forward. I know in my heart that that is the mindset I need to be a successful and happy athlete.
+- Everyone, especially athletes and fans everywhere, need to make sunscreen and sun protection a priority.
+- If I simply stay in that moment on the pitch and read the game, I can do so much more.
+- If you win games, at the top, there's no pressure to change. You change when you have to change. You change when you don't win anymore.
+- The tremendous honor of playing on the world stage is even more rewarding when I am able to use my accomplishments to help others.
+- It took me a while to learn, but we are allowed to make mistakes and have flaws.
+- I'm very grateful for the way that I feel when I play. I feel very powerful, I feel fast, I feel unstoppable, and that's because of my body.
+- Winning and losing isn't what's important. The attempt at success and getting to your best self is what matters.
+- I want soccer to be a stable profession that attracts young female athletes when they graduate from college.
+- I'm a dreamer, and I'm a perfectionist, and I love excellence, and that's hardwired in me. But when I was young, I lived in a space for a long time where I only felt insufficient.
+- Serena Williams is my sports idol.
+- I've learned from experience not to be too glued to one menu or routine in particular because I never know where I'm going to be and what kind of cuisine it's going to be.
+- I've always felt like my job is to protect my sister. Even growing up, on the playground, when my sister was too shy, I would speak for her... I even had dreams where I had to save her, growing up, all the time - like, she was falling, and I had to save her.
+- I've never been cold during a big game. It's the adrenaline. You're always moving.
+- The hardest thing to do is to fail and keep pushing at the same time.
+- I didn't have any natural instincts toward heading. It cost me lots of opportunities to score.
+- Wherever I am, I always do yoga every day. I think it's so important for my physical health in sport.
+- My restlessness leaves my mind racing as I try to wind down at the end of mandatory recovery day. It keeps me tossing after poor performances. And if I played well, well... playing well makes me itch to play better; there is always room for improvement.
+- I love Chicago. I think it's an amazing city.
+- I've had chronic back pain since I was a preteen - like, 12. I have really funny posture. I developed this funny posture where I hunch my back a little bit when I'm playing, and I overuse my back muscles instead of my abs. My posture has put a lot of strain on my lower back.
+- Of course I have other passions and other interests, but soccer's always my priority.
+- You can be one inch from the national team and the opportunity to make so much money and a life out of it. That's why people hang on so long.
+- When you've learned to love yourself, you get all the things that come with that. Friends, passion, success.
+- The American professional schedule gives players a six-month off-season, so many of us have become pickup regulars while training without an organized team.
+- In the U.S., my whole life, I felt like I had to be the best and score more goals and run with more fitness so I could be the one in the limelight. I think that when I went to Sweden, I found the joy of being part of a team and contributing to everybody's success.
+- I think that a lot of women experience that balance between feeling insecure about and appreciative for their bodies. I definitely have.
+- As a professional athlete, part of my job is to make sure I'm consuming high quality nutrients.
+- At the end of the day in our sport, you just have to sacrifice yourself completely to put the team first. That's not easy for us because we're so competitive, but that's the most important thing when it comes to World Championships.
+- When I left the U.S., I sort of left that frustration and that pressure to make the national team behind me.
+- The speed of life that top American athletes have is boom-boom-boom, and I'm a lot slower. I look before I cross, you know?
+- I'm a once-a-week grocery shopper; I get everything I need for the week, and then in the morning, I have my breakfast, pack three snacks, my lunch, and drinks to stay hydrated in a little cooler. I always have a snack on hand in case I get hungry throughout the day. I love my little cooler!
+- I actually rid myself of superstitions, but I do a quick 20-minute meditation before games.
+- I haven't had many injuries, and I know that's because I take care of my body, and I do the things that I need to do to keep it strong.
+- I love to be outside.
+- When I started playing in Sweden, there was nobody watching. No one knew who I was, so I was just playing for the love of the game. And after my first season, my coach came up to me and said, 'Of all the people you're the one who smiles the most on the field,' and that was the biggest compliment I ever received.
+- I remember, playing in college especially, I cried in almost every game I played. I just felt so much stress and pressure that I was letting everyone down if I didn't score a goal or win the game. I carried that weight with me into every game.
+- While I don't know if I exist in the land of the elite, I'm definitely on the battlefield with restlessness.
+- I meditate daily, and I think it's sort of a life skill.
+- It's something special being able to build a program up.
+- I've spent a lot of time being insecure about my body, but it's done so much for me. It's my tool, my vessel for my job.
+- As a goal scorer, my focus is always on converting my chances and being clinical in the box. That's my No. 1 priority.
+- Whether I'm running up and down the field or running errands, I make it a point to ensure that my skin is protected.
+- When I was able to better live in the moment that I was in, I think that it really freed me.
+- I think the American sports culture has the idea that professional athletes need so much, like flying private planes, which obviously we don't, but that's the American sports culture when they think of the NFL and the NBA.
+- I don't really own a lot of makeup. Usually, though, I don't leave the house without mascara. That is so essential for me. I love playing with lip color, too. I'm just really basic.
+- I think, a lot of my career and my life before I went to Sweden, I felt like I was trying to be someone else.
+- I kind of felt like I was never good enough. I always wanted more.
+- I've always preferred a 4-3-3. It's a more fluid and dynamic system, and I think it plays to my strengths better.
+- I think, in the U.S., we have such a focus on the physicality, on being the best athlete, that it sort of overshadows the football aspect of it.
+- I think my most happy and carefree state was 2012 because I really did say, 'Forget everything. I'm going to play for myself.'
+- I want barriers to be broken down for women.
+- In my time abroad, I learned to become a more complete player.
+- I think that during college, I would say I did not enjoy playing soccer.
+- I remember playing games and having tears roll down my face because it felt like it was never going to be good enough.
+- I really feel gratitude every day in my life that I'm able to do what I love, and I think, because I have that passion and spirit, I've had success.
+- We want more opportunities for women's players throughout the world.
+- I encourage all players to work to be their best, which includes looking for opportunities beyond the playing field.
+- The European leagues have been there a long time, the coaches have been there, the clubs have been there, there's history to the teams. There's already that football support culture.
+- I've learned to love my body and myself over time by being a little more accepting and having grace with myself.
+- When I'm home, I like to plan out all of my workout routines and all of my eating for the whole week.
+- I was in front of the goal so much at Stanford. I still amassed a lot of goals, but there were so many opportunities that I wasn't scoring.
+- I've stayed away from the actual L.A. scene for most of my life.
+- We stress out over things we can't control. So if something is a stressor, you can just simply take the power away from it by focusing on something else.
+- I have butt muscles, thigh muscles, and then my upper body is super skinny - except for in my shoulders, which you need for a little bit of strength to hold other players off the ball. So I think I've developed muscles 100 per cent from just shooting the ball and running. Every single thing about my body looks like soccer.
+- When you're transitioning, and you're trying to develop a better brand of soccer, at some point, you have to step backward before you step forward.
+- I have learned that there's a little bit of a danger in stressing ourselves out and living in the future - worry affects how we are today.
+- On game days, I do yoga as just a really short routine. It's more to warm up and to calm down in the morning.
+- In Sweden, if a player has the ball, and you're running across the line of vision, you would never call for the ball. In the United States, if you're open, you're screaming.
+- Staying grounded, eating healthy, doing yoga, staying out of the sun to protect my skin - I think that the daily decisions we make to protect our bodies are the best ways we can care for them.
+- My first year with Gothenburg was the most carefree because I was playing on a middle-of-the-table team in Sweden. It was a lot less of the global attention.
+- I'm 100 percent a byproduct of my sport. I always tell my teammates that I only have muscles where they get to play.
+- No Tinder, no Match, nothing. I don't mind going up to people when I'm out. I have a better chance of getting a read on them that way.
+- I'm very organized. I have my day-to-day schedule, every 15 minutes, written out.
+- When I went to Sweden, I sort of found out who I was.
+- I think sharing your experiences with younger players is something that's hugely valuable for your team, for your program. It kind of gives me a sense of self outside of just connecting your passes, scoring your goals - it's being a part of the larger picture.
+- There's a lot that's out of your control. But the one thing that you can control is your work ethic.
+- I'm grateful for all of our fans because at the end of the day, they give us purpose.
+- I always want to keep my skin clean when I get up in the morning, and I use sunscreen before I go out to the field.
+- I find the ball, and I think, 'Where's the ball going, and where do I need to go?' It just puts me back in the game, and it's the simplest thing, but it's become sort of like my soccer mantra. I simply use the ball as my focus point and move back into position, and the distracting thoughts disappear, and I'm right back in the game.
+- No hidden talents, but I have a lot of hobbies. Acrylic painting - I got a whole set, and I light candles at night and sit there and paint and look out on Lake Michigan.
+- Before I found my peace, I was way too much in my head. I found myself on the field in my own thoughts. I've learned that there's a time and a place for my thoughts. The most important thing when I'm on the field is to just be in the moment and let it all go.
+- I'm very blessed, thankful, grateful for the opportunities I've had.
+- My mom is just authentically herself all the time. She loves herself. She loves her sense of humor. She brings people in when she talks. She brings people in when she laughs. Watching her, I think that that's when I first learned and was encouraged to be myself and to sort of love and live in that way.
+- I always want to take on the giants.
+- Stanford's an amazing, amazing school. It was an extraordinary soccer program.
+- I have crazy, curly, big hair, so,if I have time to try to make myself look presentable, I usually spend it doing my hair.
+- If I couldn't get to the national team, I wanted to get as much as I could out of soccer, and I think moving abroad was my opportunity to do that. I think that, in turn, playing with that freedom and that spirit allowed me to play a lot better. I escalated my game quickly just by being happy.
+- With yoga, it works every part of the body and increases range of motion. People think you get super flexible and you lose your power in sport. I'm getting back to normal because I'm so wound up and tight.
+- If I put my pinkie to my thumb, I can cover my wrist all the way to the knuckle. When I get a watch, I always have to go and get extra holes put in or get a special bracelet that's adjustable.
+- I gave up on the national team - I thought to myself, 'Well, that's just not something that's going to happen for me.' The national team was in residency camp; I was 6,000 miles away. Nobody was watching, nobody cared... I'm just going to go play for myself and my team and try to be great... and I had more fun than I'd have ever had.
+- For a long time growing up, I thought that everything happens for a reason and it's kind of already written. But as I've grown and learned various things, I think that the most important moment is the one that you're in, and that's the only moment that matters, that you can really control. The future is unknown, and the past is history.
+- The tactics in NWSL are so chaotic. It's so about physicality. It's both teams attacking with nine players, and it's just so open on the transitions, really fast-paced to the point of being out of control. The Damallsvenskan is a little extreme on the other side: it's so under control, there are 20 passes strung before you even go forward.
+- It's important for girls to feel strong and powerful even when they're playing sports.
+- My family is a little ridiculous. They're wild - really colorful and animated and big personalities.
+- I used to be so focused on winning, I had a really hard time enjoying soccer. If I missed a shot, I would spend a lot of time thinking about how I'd disappointed my teammates. Then I learned how moments of struggle make you stronger.
+- I try to practice mindfulness at all times, including the times where I'm nervous and I'm stressed.

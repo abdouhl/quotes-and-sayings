@@ -1,0 +1,59 @@
++++
+author = "Conchata Ferrell"
+title = "Conchata Ferrell Quotes"
+quotes_len = "53"
+description = "the best 53 Conchata Ferrell Quotes"
++++
+- My father wanted me to go into politics but I ended up on television.
+- Certainly Roseanne Barr has power, but it seems like it's more acceptable to be heavy if you're lower middle class and blue collar.
+- The best story about Berta is my audition. I think they wanted her to be the ethnic character. They asked me to come with an Eastern European accent.
+- I've always had the laugh. It just happens. It used to embarrass my parents.
+- Losers don't always know that they are losers.
+- It's OK to say I'm fat.
+- Susan Bloom is a combination of the super agent and the super lawyer.
+- I wasn't a Deadhead, and I didn't follow a band around, but I definitely was an old hippie.
+- It's a tradition in our family that the girls all be given crazy names, usually picked out of Gothic novels.
+- There are a lot of fat women on TV. I know. I've made my living playing them.
+- In 20 years in the business I'd never done a love scene.
+- There's nothing so interesting as a steam roller that's about to be derailed.
+- Fat women are the last minority. I think it's the shape of our culture. What is to be admired is girls with the bodies of 14-year-old boys.
+- I've been overweight since puberty, so acting was never a dream.
+- But I really have no desire to get thin; 175 is my normal weight.
+- My family was disappointed when I named my child Samantha, but they named one of my cousins Rapunzel, and I just felt that was going too far.
+- I grew up in Appalachia, and I've seen people milk cows and slaughter pigs and plow with a big-footed horse. It's not like I was a city child.
+- That explains how I got the name Conchata. It was the name of an Apache squaw in the book mother was reading.
+- I loved Susan Bloom from the moment I heard about her. I admire her chutzpah.
+- No actor is worth $3 million, not even Marlon. It puts too many other actors out of work.
+- I've never missed a single Christmas with my parents.
+- There are a couple of things I would have liked to have done, but the producer or director couldn't stretch the concept to allow for my size. Whenever that happens, I just say, 'Deal with it, and try to get the weight off, and get on with your life.'
+- I went around to see the shows in New York, ending up at the Circle Company one night. I fell in love with the people and started hanging around. It was a family. I liked the way they talked and the quality of work. I learned everything there.
+- Nobody from Cane Fork ever got on television before.
+- I feel like the reason I've survived in this business is because I love acting.
+- I worry about whether people like me.
+- I was a hippie. I dropped in and out of everything. Then I found acting. It really grounded me.
+- I don't trip all over my ego. I don't mind being a second banana.
+- I've been very lucky and fortunate to make my living doing the thing I love.
+- I've even done a few student films over the years, because I believe in giving something back.
+- My only apology for my weight right now is maybe it's not too healthy.
+- April was my first major role and provided me with my Equity card.
+- I had wanted to become an actress, but in Cane Fork where I come, from being an actress meant the movies and Kim Novak. So I didn't try.
+- We've never seen a really fashionable, smart, powerful fat woman on TV before.
+- I was a political hippie.
+- I love playing women who have the nerve to do things that I don't have the nerve to do, and Berta is certainly one of those.
+- My mama's name is Mescal.
+- No diet but plan weight-watching works for me. I'm a voracious eater, that's all.
+- I'm a person who's meant to be heavy, but I need to take off 50 pounds. Blood pressure. I'm gonna try Weight Watchers.
+- I love acting better than anything, and I do it better than anything else I do.
+- Barbra Streisand did us all a great service when she didn't get her nose fixed.
+- I'm a really good supporting player.
+- I used to be asked in interviews what I see for myself 10 or 15 years down the line, and I would say that I see wonderful and interesting things to do.
+- I did sketches and had the best time of my life because people were laughing. I was not self-conscious, because they laughed when I wanted them to.
+- I got into acting because nothing else worked. I have done literally everything. I have sold magazines door-to-door. I've worked on an assembly line in a factory, a restaurant, the desk at a hotel. I've worked in statistical typing, taught school. You name it, I tried it, and nothing worked.
+- When you're carrying weight, you have more power. People certainly don't look at you as a bimbo.
+- A couple of times I've gotten really angry because I was fat.
+- Do you know how many overweight women there are in America? There are a lot. And seeing people like me on the tube makes them feel good.
+- In some parts of Appalachia, actors and acting are still not considered quite decent.
+- I'm overweight and over 40. I usually play nurses and prison guards.
+- I'm a compulsive overeater. It's something I need help to work on.
+- Some people saw Bobby Kennedy as ruthless. I'm sure he did not see himself as ruthless.
+- I was with Lanford Wilson in Philadelphia watching a play of his when the call came from Hollywood. 'Norman Lear wants to do 'Baltimore' on television,' Lanford said. 'What do you think?'

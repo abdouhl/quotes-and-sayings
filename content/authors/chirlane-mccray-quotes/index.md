@@ -1,0 +1,38 @@
++++
+author = "Chirlane Mccray"
+title = "Chirlane Mccray Quotes"
+quotes_len = "32"
+description = "the best 32 Chirlane Mccray Quotes"
++++
+- If you ask the right questions, you learn a lot about people.
+- 'Bad mother' is probably the worst thing you can say to any woman who has children.
+- When you become first lady, it's like, 'O.K., now what do you do?'
+- Symbols are important. It depends on how they're used.
+- It's really hard to get enough sleep, so I try to end my days by 9 P.M. so my husband and I have time to watch TV, chat, and then I like to read for at least half an hour before bed, but we have a lot of events, and there are places to go and people to talk to.
+- I like to go to the subway and hear what people are thinking and feeling and what their concerns are. You learn so much that way. You really do.
+- I am more than just a label. Why are people so driven to labeling where we fall on the sexual spectrum?
+- I went to Wellesley College, and it was really hard for me to get a job after I graduated. I would go into places where I would not see any black people at all in Boston - like, zero. And then in publishing in New York City, it was pretty much the same. I knew that it wasn't about the value of my work.
+- You can be chased home or hit or called names or spit on, and it's over. You have the memory of it, but it's very different from the emotional and psychological experience of feeling invisible, of not learning the confidence to stand up in class and speak.
+- I'm a woman and a person of color; I know what it's like out there in the workplace.
+- Labels put people in boxes, and those boxes are shaped like coffins.
+- It took a long time for me to get into 'I'm taking care of kids,' and what that means.
+- I wish I had more time to read.
+- I have the advantage of many perspectives as someone who has lived in different kinds of communities: as a woman, as someone who previously identified as a lesbian, as someone who is a person of color. I've had a lot of life, so that informs what I do.
+- Finding the right person can be so hard that often, when a person finally finds someone she or he is comfortable with, she or he just makes it work.
+- A very tiny percentage of people with mental illness are also violent. We know this. The constant linking of the two together in national media is so misleading.
+- Pay equity matters because those dollars add up over time.
+- I know my husband loves me fiercely and passionately. I know he supports me and will always stand up for me.
+- Government is not just about maintaining the status quo. It's about helping people's lives to work.
+- Telling my story has not been easy for me. I've had to dredge up memories I would have rather forgotten. The lonely, anxiety-ridden months I avoided others, attempting to hide from interrogations about my social life.
+- I would consider running for office. But not for mayor.
+- We have to think about the state of women in a more holistic way going forward. We can't be segregated by class and race as we have been. Because even the women at the top can do something about violence against women, right?
+- Black women do not have as many positive images in the media as we should.
+- Violence against women is a huge issue. A good feminist should be working on that - making the world a safer place for girls and women, wherever they live.
+- I had never had a deep sense of belonging anywhere. I always felt I was an outsider.
+- It's tough to be a mother. At any age. It's tough. It's a lot of work.
+- Domestic violence is much more prevalent than people realize.
+- My life was very compartmentalized. I went to a school that was all white, and then I went home and to my black family.
+- I was a lifeguard, camp counselor, the president of the YMCA Leaders Corps. I also took piano lessons. I was a dancer.
+- I'd like to be out in the city every day, listening to what people are saying and asking about what they need. I'd like to inspire others by doing as much as I can to help people who are trying to make a better life for themselves and others.
+- Some people are just quiet - they don't need to be talking all the time and aren't extroverted, but they're not necessarily afraid to talk. I'm not really a shy person.
+- I came out at 17.

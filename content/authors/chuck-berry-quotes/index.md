@@ -1,0 +1,80 @@
++++
+author = "Chuck Berry"
+title = "Chuck Berry Quotes"
+quotes_len = "74"
+description = "the best 74 Chuck Berry Quotes"
++++
+- A contract is an ask game, and if it asks for an hour, and I submit to an hour, then it's an hour. When I look at a contract, I look at the obligation - where, when, how long, the compensation. If I agree to it, that's the way it is. I have an obligation. They have an obligation.
+- It's amazing how much you can learn if your intentions are truly earnest.
+- What kind of shorts I wear has nothing to do with music.
+- The world has done nothing to me that I haven't done with the world.
+- There has been a great laziness in my soul. Lots of days I could write songs, but I could also take my $400 and play the slot machines at the riverfront casino.
+- That's all there was in our house: poetry and choir rehearsal and duets and so forth; I listened to Dad and Mother discuss things about poetry and delivery and voice and diction - I don't think anyone could know how much it really means.
+- Music is science. Everything is science. Because science is truth.
+- It amazes me when I hear people say, 'I want to go out and find out who I am.' I always knew who I was. I was going to be famous if it killed me.
+- I would sing the blues if I had the blues.
+- Remember that my view, the only true view I can see with, is through the black eyes that I have.
+- Of the five most important things in life, health is first, education or knowledge is second, and wealth is third. I forget the other two.
+- I always want to play the songs that people want to hear.
+- I made records for people who would buy them. No color, no ethnic, no political - I don't want that, never did.
+- Charlie Christian played amplified guitar with Benny Goodman's quartet. He was the greatest guitar player that ever was. But he never looked up from the guitar. But I put a little dance to it. They appreciate seein' something along with hearin' something.
+- You know, your ears record. You might can sing a song once you hear it.
+- People don't want to see 17 pieces in neckties. They wanna see some jeans, some gettin' down, and some wigglin'.
+- Everything I wrote about wasn't about me, but about the people listening.
+- I'm thankful for each and every day. We never know when time is up.
+- If you're going to be mad, at least let the people know what you're mad about.
+- A song is a song. But there are some songs, ah, some songs are the greatest. The Beatles song 'Yesterday.' Listen to the lyrics.
+- If the people in the audience are talking, you're being ignored. If the people are gazing at you, you've got something they want to hear.
+- I used to work at Kroger's. When the store opened, you were there. When I worked in an automobile plant, you punched in. So it showed if you were a minute late. If you have a paid job, you show up.
+- I directed my music to the teen-agers. I was 30 years old when I did 'Maybellene.' My school days had long been over when I did 'School Day,' but I was thinking of them.
+- I love poetry. I love rhyming. Do you know, there are poets who don't rhyme? Shakespeare did not rhyme most of the time, and that's why I do not like him.
+- I have lots of ambition!
+- I just feel I got my inspiration, education and all from others that came before me. And I added my... I don't even know if I added anything. I played what they played, and it sounded different, I guess.
+- Listening to Nat Cole prompted me to sing sentimental songs with distinct diction.
+- One of my realizations is that if you revel over joy, you're going to ache over pain and get killed over hurt. Your span of feelings are going to go just as far one way as the other.
+- What the heck is a king? I'm a cog in the wheel.
+- Had I been pushed like Colonel Parker pushed Elvis, had I been a white boy like Elvis, sure, it would have been different.
+- The Rolling Stones... The Rolling Stones have a reflection to my music; I wouldn't deny it. I think that's honest.
+- It's not me to toot my horn. The minute you toot your horn, it seems like society will try and disconnect your battery. And if you do not toot your horn, they'll try their darnedest to give you a horn to toot, or say that you should have a horn.
+- The media dresses things up. There's a lot of inaccuracy.
+- I'm thankful for performing as long as I am allowed.
+- You don't just go to the studio and say, 'I'm going to write a hit.' It becomes a hit when people like your compositions.
+- If I wasn't a musician, I'd take up the law. They are the rottenest, wealthiest people in America.
+- The Big Band Era is my era. People say, 'Where did you get your style from?' I did the Big Band Era on guitar. That's the best way I could explain it.
+- My 12th was my most Christian and most boring year of my life. Try as I did, day after day, to cling to righteousness, I was washed down in suds of sinful surroundings.
+- I didn't connect with the kids. I was in the studio. I never saw the kids. I hoped they liked it, of course. And then I'd go write some more. And then I'd go buy me a home. Very American.
+- Praise doesn't mean anything to me. I don't judge myself.
+- I wanted to play blues. But I wasn't blue enough. I wasn't like Muddy Waters, people who really had it hard. In our house, we had food on the table. We were doing well compared to many. So I concentrated on this fun and frolic, these novelties.
+- My father married once. I married once. This is a conviction of ours. This is the way we grew up.
+- Rock's so good to me. Rock is my child and my grandfather.
+- The Man Upstairs is taking care of me.
+- I don't want the bottom, so I have to sacrifice the top.
+- I added and deleted according to the audiences' response to different gestures, and chose songs to build an act that would constantly stimulate my audience.
+- Music should be made to make people forget their problems, if only for a short while.
+- Maybe it is true what they say, that playing these Chuck Berry songs is easy. But try singing them. The words come out hard, like bullets.
+- There had to be a market in order for you to be successful in a business. The market had to need your business, or the product of it.
+- In the Fifties, there were certain places we couldn't ride on the bus, and now there is a possibility of a black man being in the White House. You have to feel good about it.
+- In a way, I feel it might be ill-mannered to try and top myself. The music I play is a ritual. Something that matters to people in a special way. I wouldn't want to interfere with that.
+- My dad was the cause of me being in show business. He was not only in poetry but in acting a bit. He was Mordecai in the play 'A Dream of Queen Esther.'
+- The music played most around St. Louis was country-western and swing. Curiosity provoked me to lay a lot of the country stuff on our predominantly black audience. After they laughed at me a few times, they began requesting the hillbilly stuff.
+- My first job at Gleason's Bar in Cleveland was $800 a week, when I was making $92 a week with overtime at the automobile plant.
+- In a Toyota, the cops don't think about stopping you so much.
+- My music is simple stuff. Anybody can sit down, look at a set of symbols and produce sounds the music represents.
+- Respect isn't enough. You've got to have a proprietary interest.
+- People said I was king, but I was never king, and I say I'm the prime minister.
+- I grew up thinking art was pictures until I got into music and found I was an artist and didn't paint.
+- I eat meat daily. I'm not Jewish. I'm not Arabic. What's the kind of person that doesn't eat meat? That's right - I'm not a vegetarian.
+- Don't let the same dog bite you twice.
+- Science and religion are both the same thing. They're there; they're life. If it's not science, it's not a fact.
+- That's the misconceptions that people have, that Chuck Berry went to jail. They're just totally wrong. It might have said something in the large papers in the bigger city headlines and things. But, you take a look at any of the local papers, and you will see that I was acquitted. I never went to jail.
+- Chuck Berry doesn't give interviews.
+- I think my interviews were much better than what some of the writers wrote. I just wanted the truth out.
+- I should have been a son of Einstein.
+- My singing days have passed. My voice is gone. My throat is worn. And my lungs are going fast.
+- The first thing I heard was spiritual music, which was imbedded. The second thing I heard was swing. And shortly, along with that, I began to hear the blues. And then I began to hear Latin music. Each one left its mark.
+- Elvis' songs will always be there, and I hope mine will be after I'm gone.
+- Rather than have joy, I would rather be absent of pain.
+- If you want to release your aggression, get up and dance. That's what rock and roll is all about.
+- Rock 'n' roll accepted me and paid me, even though I loved the big bands... I went that way because I wanted a home of my own. I had a family. I had to raise them. Let's don't leave out the economics. No way.
+- I wanted to be a comedian. And I did that so much in high school, I couldn't get a girlfriend.
+- I've written songs on everything. Menus. Napkins. Little pieces of paper.

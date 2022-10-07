@@ -1,0 +1,40 @@
++++
+author = "Camilla Luddington"
+title = "Camilla Luddington Quotes"
+quotes_len = "34"
+description = "the best 34 Camilla Luddington Quotes"
++++
+- 'Halloween' is such a classic, and I think that was one of the first horror movies I've ever watched.
+- The best thing they've told me is to be forgiving of yourself as a mother. I think you go into it, and you want to hold yourself to the highest standards, and you want to be perfect. That's not possible. You make mistakes and learn.
+- I am a proud Valley girl.
+- Anyone who says there isn't pressure to look good as an actor in L.A. is lying.
+- As long as 'Tomb Raider' will have me, I will be their Lara Croft.
+- I like Converse on a guy. I can't stand flip-flops or anything too over-the-top, flashy, or bright. Nothing too bulky. I'm a Converse girl myself, so I feel like we can bond over our love of simplicity and comfort.
+- My mother passed away when I was 19. She always made me feel confident, and I've carried that feeling with me my entire life. It's helped me in this industry, where people are sizing up your looks.
+- My favorite pair of shoes I've worn for a role would have to be the brown Vera Wang combat boots that Jo wears in her everyday life away from the hospital on 'Grey's Anatomy.' I love them because they are also something I would wear in my everyday life.
+- I can't sleep when there's any light.
+- As a female there aren't too many characters that are very empowering, and there's something very empowering about Lara Croft. She kicks butt and she does it in style. She's confident and she's educated.
+- I love folding clothes just out of the dryer because they smell so amazing.
+- My dream is to one day afford a real pair of ruby slippers. For me, they will always be the ultimate shoe.
+- Emotionally, I think you're going on a journey with the character, so you have to be present for each and every scene, and for me,one thing I like to do is step away between takes, away from everyone else, listen to some music, and just get into that place to help me perform.
+- I only use one side of the Physicians Formula Twin Cream Concealer Opens a New Window - the yellower side. It's great for covering up red spots.
+- I think about what I'm eating every day. I still have burgers and stuff that's not good for me sometimes, but I'm always trying to be careful. I don't just eat whatever I want.
+- I'll make a horrible housewife. It's not like I'm disgusting, but I'm pretty bad about having a drink or eating something and then leaving the plate and rushing to go.
+- I'll bring in UNO, and we'll play that on set.
+- I think Comic Con pushes you to have a little more fun and be playful. Everyone else is dressed in cosplay... it would feel weird to wear something boring when you're standing next to a Khaleesi!
+- It's been so wonderful to hear the realities behind motherhood.
+- All pregnant women are warriors. It takes strength just to get up and go to work.
+- It's not like I have the most perfect body in the world. I'm a normal girl.
+- I have an older brother, and he was a very active boy, and we were always climbing trees together.
+- Mimicking childbirth on 'Grey's' has taken the mystery out of it.
+- With something like 'Tomb Raider,' it's very intimidating to step into the boots of Lara Croft.
+- Running is what keeps my weight down. I have to stay active or I could easily gain weight.
+- When I have time, I'll be a good girl and do my chores.
+- I don't eat red meat anymore.
+- There are no doctors in my family, and I've joked about this, that my dad got the doctor daughter he always wanted. But I would make a terrible doctor - I hate the sight of blood!
+- There have been periods of my life when I was heavier, like right after high school I definitely gained that freshman 15. It was tough to lose. Ever since then, I know that I can gain weight, so I try to be careful.
+- I've been a fan of Lara Croft. She's gorgeous. She's sexy. She's iconic. She's British.
+- I think whenever you take over a role, you're just really hoping that people will embrace you.
+- My entire schedule gets turned around for 'The Bachelor' and 'Bachelor in Paradise.'
+- I definitely have curves. I don't intend on losing them.
+- When I was a kid, I had a rag doll named Lucy, whom I took everywhere with me. I lost her when I was 12.

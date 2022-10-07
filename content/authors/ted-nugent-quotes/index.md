@@ -1,0 +1,56 @@
++++
+author = "Ted Nugent"
+title = "Ted Nugent Quotes"
+quotes_len = "50"
+description = "the best 50 Ted Nugent Quotes"
++++
+- Do you want to feel good, or do you want to do good?
+- If there is one thing I am, it's always right.
+- I'm not in the leftist controlled Rock and Roll Hall of Fame because of my political views, primarily my lifelong militant support of the NRA, the Second Amendment, and my belief that the only good bad guy is a dead bad guy.
+- I really have the American dream licked.
+- I have busted more hippies' noses than all the narcs in the free world.
+- Use your lives wisely, my friends, and conserve these precious freedoms for future generations.
+- I am the Great White Buffalo and I play an American-made Gibson guitar that can blow your head clean off at 100 paces.
+- Without question, the Red Ryder BB gun is the most important gun in the history of American weaponry.
+- My idea of fast food is a mallard.
+- Every study on crime and or firearms proves time and time again, that 99.99999% of American gun owners do not commit crimes or use our firearms in any dangerous or improper way.
+- The government is so out of control. It is so bloated and infested with fraud and deceit and corruption and abuse of power.
+- Fortunately, as it pertains to guns, my dad and uncle introduced me to guns the way it needs to be done: smart, slow and safe.
+- The war is coming to the streets of America and if you are not keeping and bearing and practicing with your arms then you will be helpless and you will be the victim of evil.
+- I don't pay to have my dirty work done for me. I do it myself.
+- I clearly understood the concept of wise use before I ever heard the actual words, for my father wouldn't allow us to waste anything.
+- Gibson has been making the finest electric guitars the world has ever witnessed for over 70 years. They are as American as God, guns and rock and roll.
+- Like the average American that I hang out with, and like my father before me, I raised all my children to respect tools and use them wisely and safely.
+- I think you should ride the line between fatigue and chaos. The chaos keeps the energy level and spontaneity maximized, while fatigue is just over the edge, and you should try to avoid it.
+- While I now own more guns than the 82nd Airborne, my first gun is still the most important gun I've ever owned.
+- There are hundreds of millions of gun owners in this country, and not one of them will have an accident today. The only misuse of guns comes in environments where there are drugs, alcohol, bad parents, and undisciplined children. Period.
+- At 62, I remain clean and sober and my ponytail remains erect.
+- Mr. Janet Reno? I think Mr. Janet Reno... I think he's one of the best hunting dogs in the world.
+- I'm healthy, have a loving and adorable family, great hunting dogs, a gravity defying musical career and most importantly, fuzzy-headed idiots hate me.
+- If you want to save a species, simply decide to eat it. Then it will be managed - like chickens, like turkeys, like deer, like Canadian geese.
+- Look what venison does to a goofy guitar player from Detroit? I'm going to be 54 this year and if I had any more energy I'd scare you.
+- I surround myself with positive, productive people of good will and decency.
+- There is no finer sonic-producing weapon for a guitar slayer than a hand crafter Gibson masterpiece.
+- The good news is that real-world hands-on conservation is alive and well and catching on across the America I travel.
+- War is good when good survives and evil is crushed. If you don't crush evil then evil will get you.
+- Mankind: A quality of life upgrade is available to each and every one of you. It should give you a quality of life upgrade, which means no drugs, no alcohol, no fast food - unless, of course, it's a mallard.
+- Every hateful statement ever made about me is a dirty lie.
+- Liberalism is assisting quality of life, whatever you may choose.
+- Only criminals and bloodsuckers reward bad behavior.
+- I am Classic Rock Revisited. I revisit it every waking moment of my life because it has the spirit and the attitude and the fire and the middle finger. I am Rosa Parks with a Gibson guitar.
+- I still tour like a man possessed, because I am.
+- Without question Gibson guitars are the finest, most revered guitars on the planet.
+- For the Nugent family, fast food is a running herbivore.
+- I have self-actualized. Pardon me whilst I adjust my glowing halo.
+- I'm the gun guy, a loud guitar Dirty Harry with a ponytail.
+- Hopping the fence or wading the Rio Grande River isn't part of America's immigration process.
+- Americans have the right to choose to be unarmed and helpless. Be my guest.
+- I'm so much fun. Every kid wishes I was their grandpa! I'm the Motor City Madgramps.
+- There's an absolute surety to the hands-on conservation lifestyle of hunting, fishing and trapping where you know you're going to consume today.
+- Like all other law-abiding Americans, I fully support legal immigration.
+- Vegetarians are cool. All I eat are vegetarians - except for the occasional mountain lion steak.
+- I hump the wild to take it all in, there is no bag limit on happiness.
+- Where you have the most armed citizens in America, you have the lowest violent crime rate. Where you have the worst gun control, you have the highest crime rate.
+- If America is a nation of laws as we proclaim, then our immigration laws are part of the package.
+- It was psychobabbler Abraham Maslow who wrote of the phenomena of self-actualization. What Maslow failed to grasp is that reaching true self-actualization can only be ultimately achieved when you have your own brand of ammunition.
+- I don't wanna be a rock star. I don't believe in rock stars. If you really examine what goes with being a rock star, I've avoided that really well.

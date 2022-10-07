@@ -1,0 +1,106 @@
++++
+author = "Liz Carmouche"
+title = "Liz Carmouche Quotes"
+quotes_len = "100"
+description = "the best 100 Liz Carmouche Quotes"
++++
+- After my time in the Marine Corps with 'don't ask, don't tell,' I didn't want to hide any more.
+- My best friend in the Marines, her name is Kim, said one day while we were in Iraq that homosexuals in the Forces should be put on the front line because they deserved to die. This was my best friend talking.
+- I'm genuinely a flyweight.
+- My friends' parents who were in the Marines, they were the people I looked up to the most. I looked up to them as role models.
+- Depending on what I'm training for, I might do more defensive moves, more counters, more attacks.
+- I've always been a little powerhouse.
+- There's a feeling of invincibility that comes with being young, with being fit and in the prime of your life. But I learned when I was in the Marines just like I've learned as a UFC fighter that no one is invincible, and that you have to project yourself at all times.
+- I don't think anyone should try to put themselves in a situation or push themselves out of the zone that they don't feel comfortable and safe in.
+- After the Ronda fight, I wasn't sure what the UFC held for me. I think coming out of that fight, I didn't know if losing that fight meant that I could get cut because I knew the rumors at the time was how easily fighters could get cut from the UFC.
+- I want to fight more often than just once or twice a year.
+- When I joined the Marine Corps, you have to do a vocational test to get in, and I took the test, they were like, 'You did great. You can do anything you want to do.' I said, 'OK, I want to do this.' 'Except for that because you're a woman.'
+- Everybody has strong feelings and they back what they believe, and they have the right to.
+- If anything I love when I'm the underdog. It gives me an opportunity to fight back stronger and show people, 'Ok, if you want to be on the side of the other person, then I'm going to make them pay for that mistake. Their body is going to pay the cost for you choosing them.' So if anything, that always lights a fire for me.
+- I spent so much time in the closet in the Marine Corps and I wasn't going to hide who I was. If it meant I was going to lose out on opportunities, they weren't meant to be.
+- I'm not going to say things to make a point, I let my actions do so.
+- The hype around Ronda is incredible and it's created this aura of invincibility. If you let that play with your mind, you'll be beaten before the bell rings. She's a great fighter, but I know I can beat her and I don't let that aura of invincibility bother me.
+- I definitely was not out as a marine. The 'don't ask, don't tell' policy was still in effect, and the people around me did not seem to be open to the idea to begin with.
+- I've always said it and I always will, that my eye is always on that title. That's what I'm gunning for.
+- My training is always the same. A few things might change for me from fight to fight, but it's really the same regimen.
+- I kind of will over everything. There will be situations where like 'I refuse!'
+- I've had nothing but positive feedback and support from the LGBT community.
+- I never let myself get out of fighting shape. That's always been my thing.
+- I'm constantly pushing myself to evolve and be a better person and the best that I can be and that pushes me in my fighting career and personal life.
+- I fell into a safety zone where I didn't want to risk losing my fighting life with the UFC, so I wanted to go the safe route instead of taking risk and being the fighter I've always been.
+- For me, if there's something that I don't succeed at, I'm not doing well, then I absolutely have to go back until I feel like I'm confident with it.
+- After growing up in a military family and going to an Evangelical Christian school, to look around and see lesbians and gay men of all ages and colors living their lives openly, it was awesome.
+- I wouldn't say I'm a social hermit, but pretty close to that.
+- To me, I feel like I play such small role in this life and this world.
+- Hey look, I respect Ronda. She's done so much for the sport of women's MMA. I'm never going to take anything away from her.
+- There's a certain safety net that you find in the military that, as dangerous as it is, you know they're going to provide you a meal and a home no matter what happens.
+- I understand you always want drama leading up to the fight. You want whatever publicity you can get for it. It's more appealing for fans, for media for everything.
+- I was offered an opportunity to do the Sports Illustrated cover when they did the skin cover with Miesha Tate and Ronda Rousey. That to me was compromising my integrity of who I was and everything that I stand for.
+- I was always a gym rat.
+- Of course, I'm always my biggest critic. So I'll never be completely satisfied with my performance, win or lose, even if I come out with a knockout or submission; I'm still going to wish that I did some things differently.
+- The first time I got to really hit somebody in the face, that changed everything.
+- I hate taking breaks in my training. But I'm having to change that, and let my body heal.
+- Each day I go to train and I'm like, 'This is what I did well yesterday, and this is where I need to improve.'
+- There was a point when people didn't see the UFC as supporting the LGBT community or homosexuality. But by embracing me, the UFC showed that wasn't true and that it wanted to support the community as much as possible.
+- I always needed a physical outlet, this is always who I've been.
+- I've done judo, I've done Greco, I've done boxing, I've done catch wrestling.
+- Coming into Bellator, I didn't want to slide into title contention just because I was in UFC. That wasn't fair to the other women. If I had to fight through all the women, I wanted to do that.
+- It went from 'I was a nobody on the street, just another person.' It turned into something completely different. People were coming up to me, they knew who I was us, requesting pictures.
+- I don't believe in letting my words speak for me, I let my actions speak.
+- I think that my story is similar to most women in MMA. You balance work and your fight career. You climb up the ranks just to get into a situation where it can give back to you financially.
+- I've fought other women where I've gone to move them and thought, 'Oh, she's not budging.' I didn't experience that with Ronda.
+- My mom raised me to be an independent woman, and if there is anything I want in life, to go after it. And that nobody could hold me back. The only person that could do that was myself. That's the core of who I am and she ingrained that in me at a really young age, so I've been an independent, strong person my whole life.
+- When I decided I wanted to fight, one biggest issue was just trying to find a gym where I could train. At that time, a lot of gyms wouldn't allow women to train there at all.
+- I'm just not really meant to fight at 135.
+- It's great that now people can be accepted and the LGBT community can open up and share with the people where they come from.
+- I always train to do five rounds.
+- I've grown through the losses and all those lessons.
+- Somebody showed me a fight where somebody had gotten cut on the forehead and was just gushing blood and kept going throughout the fight. I couldn't grasp the concept that anybody would want to do that.
+- I've definitely been in elements of grappling where I'm tied up and in a weird position and my mouth and my nose are covered and I can't breathe. You still have to be able to escape. The last thing you want to do is tap in that scenario when you have an opportunity to escape.
+- Physically, no disrespect to Ronda, but I don't think she has an advantage over anybody else. She's not physically stronger than any other opponent I've gone against.
+- I'm my hardest critic, I expect the best of myself, I'm a perfectionist.
+- I'll never experience the hardships that I experienced while going to Iraq and being in combat. And that kind of prepared me for life in itself because I knew that if I was able to overcome the military and do three tours and come out alive and stronger for it, then there's nothing in life that's ever going to challenge me and be able to break me.
+- They test NFL players for brain trauma. They track them for the life of their career and even outside of their career. So I've done all the MRIs and testing with them.
+- I took a lot from that Ronda fight. What that taught me was one - just how to manage my time.
+- There's no real hiding from fame.
+- I'm one of the tiniest 135ers.
+- To me, fighting in Strikeforce was a dream, like saying 'I want to be an astronaut and go to the moon.' You don't think that it's actually is going to happen, you just wish it.
+- I always wanted to make sure that within my unit that I was never the weak person. So I made sure that my physical fitness was top.
+- Growing up I was always stronger than all the other kids. I wasn't allowed to play with the other girls because they were too weak. And I had to be careful with boys because I'd always be hitting them and I'd get into trouble for hurting them.
+- I had zero interest in going to college. I used my GI Bill to help pay for training. I hated doing group projects or deal with people in the class who aren't paying attention. That made me go insane. I was looking for any way out. My sanity was fighting.
+- Once I experienced that loss to Miesha, I wanted to get back in the cage and show that it was just a mistake.
+- Growing up, I never thought that I would fall into any category. I felt like I didn't fit in anywhere.
+- My nickname was Liz Lemon. When I would go for a takedown or get in there to 'ground and pound,' I would make this disgustingly horrible face like I sucked on a lemon.
+- If I get a rematch with somebody, cool, but if they're not holding the belt, I really don't care.
+- One thing I learned in the military is we fight for everybody's rights to say and do as they please, so everybody is free to make their choices.
+- As a champion, you are supposed to embody professionalism for the entire weight division.
+- Women always have to work harder to prove themselves.
+- When I watch fights, it's on YouTube.
+- I can't freeze when I go in the cage.
+- I had to wonder if I lost out on fight opportunities and sponsorships. But at the end of the day, I'm the one who has to go home at the end of the day and be okay with myself. I have a son. I have to answer to my son.
+- If you have a dream, put everything you have and follow it because that's the only way you'll have success in your life.
+- I'd rather take that chance and lose to someone who's the best in the world than beat someone nobody has ever heard of.
+- At 135 I always floated too close to my actual weight. I was always trying to keep my weight up to 135. And every time I faced off with an opponent, I could never believe how large they were after they blew up after weigh-ins. I would always just be the same size.
+- I was able to come out to my family, but other than that I couldn't come out to co-workers or to friends because of what that would mean for my military life and my career. That made my life difficult, because I felt like I was constantly conflicted and at war with myself every day that I faced people.
+- I would absolutely be willing to fight Cris Cyborg.
+- When I went to Iraq, I was the lowest person on the totem pole. If everyone else was inside and was relaxing, I was the one working for eight hours straight.
+- When my contract with the military was done, then I started following MMA.
+- I'm that person, if I'm not good at it, that means I have to go back and master it.
+- For a lot of MMA fans, especially in the UFC, they didn't know who I was... unless you're really involved in women's MMA.
+- In society, it's hard for some to view women getting hit. They see the women as different figures rather than as athletes and fighters.
+- To be closeted for so long was so difficult.
+- If there's anything I've learned, it's that I need to take the opportunities when they come.
+- A lot of people see M.M.A. as this violent cage fighting, and they don't see it as being two athletes who have put so much time and energy and focus into it.
+- You can play the what-if game with anything in life. But everything happens for a reason.
+- I'm always brought in to be the loser and I'm OK with that.
+- The way I was raised, I didn't have a role model who was openly out.
+- MMA has been very accepting. I wouldn't say that every gym you go to is as open as the gym I'm a part of. But they just accepted me with open arms.
+- Every day I wake up, and my goal is to be better than I was the day before.
+- I didn't come from a combat sports background where I had a real definitive background in anything to fall back onto.
+- Beast. That's what everybody says about me.
+- I think I'm a different creature from the rest.
+- I started off and I didn't have the advantage like other fighters of having an amateur career to grow and learn and make mistakes. Unfortunately, I spent the early years of my professional career doing that, and I feel like I've learned from all those mistakes.
+- I'm not satisfied with walking away from something and letting it beat me. That's not my spirit.
+- That's one thing that's always helped me as a fighter is that I haven't focused on one thing, like, 'let's make you a jiu-jitsu fighter' or 'let's make you a Muay Thai fighter.' I had nothing when I started, and we work on everything at the same time.
+- There's a lot of hype surrounding Ronda and a lot of the girls she's fought fall for that Ronda hype and they're beaten before they go in. They freeze in front of her and she uses it to her advantage.
+- I seek out people that are experts in their fields and see how I compare with them and if I can hold my own.

@@ -1,0 +1,66 @@
++++
+author = "Cameron Dallas"
+title = "Cameron Dallas Quotes"
+quotes_len = "60"
+description = "the best 60 Cameron Dallas Quotes"
++++
+- There's a time to impress someone, and then there's a time to make an impression on someone.
+- When I talk to CEOs, they're not educated about social media.
+- One of the biggest misconceptions that has been thrown out there is the fact that I started on Vine.
+- I bought a girl roses once.
+- I used to cuss in my tweets, and now I don't.
+- Social media... it's the future for the new generation.
+- StyleHaul will allow me more opportunities to express my point of view in the lifestyle and fashion space.
+- Nowadays, you can be a fan of someone that's not an actor or artist. You can be a fan of someone that makes YouTube videos.
+- Never in a million years would I imagine Calvin Klein flying me out to my first men's fashion show.
+- Calvin Klein is such an iconic brand in fashion, so I feel like working with them means you're definitely doing something right. They bring validation to someone, not only in the fashion community but in someone's career, which is why it was such an honor to work with them.
+- I had no idea at all how to model, but people would start to follow me. So, I would go to these start-up companies and say, 'I have all these followers... how can we work together?'
+- I don't work out or watch what I eat - but I need to start so it doesn't catch up to me.
+- YouTube, as longer form, the content you make there has to keep you entertained for three minutes - or five minutes.
+- Looking back, the biggest mistake I made was feeling ashamed of it. Acne is a part of life. You don't need to be embarrassed of it.
+- I have used Proactiv, and I use X Out, and they are the only things that work for me.
+- I did the Vines first, and then I chose Instagram because the filters were better, and you could post the best picture of yourself, which I figured would help my modeling career.
+- Tom Cruise is dope.
+- We filmed 'Expelled' in Santa Clarita at an all-girl's school. There were twelve hour days.
+- I'm pretty into computers. I used to be a lot more into it when I was younger.
+- I'm from San Bernardino, California. It's, like, all cows and dairies and very open.
+- One time, I pranked my sister: I put red solo cups in her room on her floor and filled them with water. Then I put string all over so you couldn't get anywhere.
+- I have asked my mom and my sister a couple times if I should post something or not. Or if they think a video is funny.
+- I had no idea what modeling entailed and what an agency was. It was crazy. As I continued to do it, it was fun for me to learn everything from A to Z.
+- People get to choose who they follow, so they follow me for me. It's super humbling and awesome.
+- I am really precise about who I want to work with and, no matter the timeline, I push to get what I think would be cool.
+- I'm working on bridging the gap between mainstream famous and Internet famous. They're two different things, but eventually, social media will be the way to become a celebrity.
+- A lot of followers would tell me, 'You've helped me through my depression or helped me stop cutting.' Something as easy as posting a video keeps them happy, or talking to them on Twitter helps them realize that what they're going through is temporary.
+- X Out is perfect for my schedule. It is so simple, fast and actually works. I am more confident in my own skin and always camera ready - a necessity in my line of work.
+- Twitter's more fast-paced. Instagram, it's more, like, lifestyle and posting very specific, cool pictures.
+- My daily diet consists of basically anything I think looks tasty, whether that's pizza, sushi, burgers, quesadillas. I like everything.
+- I like to post positive content, and I like to try and make people smile. That's why those videos are popular. I don't fake it.
+- Everything I post online is curated.
+- Acting - you're taking someone else's visions and someone else's inspirations, and it's up to you to portray that to everyone watching the film.
+- I've been doing this since 2011, when I started on Instagram. Building my presence on there was important to my brand, but I wanted to take my audience to other platforms, so I then crossed over to Twitter second, then YouTube third. It wasn't until I made my fourth crossover to a different platform that I went to Vine.
+- Be an individual. I mean, obviously it's hard for a brand, for a corporation, to have a huge following.
+- I started breaking out of my shell in sophomore and junior year.
+- I don't own cable, but my TV came with a Netflix button.
+- If I made a mistake on a piece of content, I'm going to learn from it.
+- I like to impress myself when I dress.
+- I'm an entrepreneur.
+- There's obviously a sense of responsibility that comes with having this following and having fans, and so there's a lot of stuff that I won't dare to post, just because I want to be a good influence.
+- I'm not the sort of person who wants to live my life doing just one thing. I like to go around and do as many things as possible.
+- I'm really bad at baseball.
+- It's great living with your best friends.
+- My goal is to bridge the gap between social media and traditional media.
+- You can't be like, 'Alright, I'm going to make this viral!' You just put stuff out there, and you hope that people engage and resonate with it.
+- I will continue to try and be innovative to keep it fresh for my fans.
+- I'm excited to join the StyleHaul community and bring new content to my fans.
+- I have a tweet that said, 'I want to be a Calvin Klein model,' and that was in 2011. And then I modeled for Calvin Klein. And then I had a tweet like, 'I wonder what it's like to be in front of thousands of fans,' and I've been in front of thousands of fans.
+- People always like people, you know?
+- I travel a lot, and that makes it harder to date, but it also opens up opportunities for me to meet people where I wouldn't normally meet them.
+- It must be horrible having people scared to talk to you. But I think it's kinda cool that I don't really know anyone in that way.
+- I'd previously done 'Expelled,' and that was more on the comedy side, so I really wanted to challenge myself and see if I could actually do a drama.
+- I think I may just enjoy being behind the camera as much as I like being in front of it.
+- I don't really like to promote anything, but I will promote things I believe in and things that work.
+- It's hard to sell a brand without having a face to it.
+- When I got out of high school, I started breaking out. I tried everything from A to Z as far as seeing doctors and getting prescriptions. I even did home remedies, and I had no luck. A fan gave me Proactiv, and it cleared my skin, but there were too many steps. I lose everything, and I lost one of the products. My acne started to come back.
+- You learn the hard way. That's the thing with social media. Nobody knows what they're doing.
+- I feel like I go through an awkward phase almost every day.
+- I had the longest, biggest bowl cut. It looked like I had a perfectly straightened mop on the top of my head.

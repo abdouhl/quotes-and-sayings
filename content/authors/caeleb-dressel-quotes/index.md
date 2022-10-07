@@ -1,0 +1,100 @@
++++
+author = "Caeleb Dressel"
+title = "Caeleb Dressel Quotes"
+quotes_len = "94"
+description = "the best 94 Caeleb Dressel Quotes"
++++
+- You don't want to show anything, any behavior giveaways that your competition might see, right?
+- I know this stuff really does sound stupid, but this is one of the reasons why I think I've seen some success in this sport - the tiny little habits. I really consider being successful in this sport as just dropping pennies in the bank.
+- In the gym, you get out what you put in. There's no room for excuses, for taking shortcuts or giving half effort.
+- I have to manage my emotions.
+- I feel like I fell short in Rio.
+- I've been doing the sport since I was 5 years old. And if I don't have support behind me, it's just a dream and it will not be able to turn into reality.
+- The Olympics are different, I'll admit that now and stop lying to myself.
+- I was nervous before races. Every race was not perfect... Every morning when I woke up the first words weren't always, 'Oh, I'm so excited.'
+- I always say a prayer before the blocks - it helps calm me down.
+- I want these medals to be for everyone, not just myself.
+- The whole podium time was like it was in slow motion. I was watching the flag go up realizing I'm part of one of the greatest countries on earth.
+- I don't come to meets to count medals. It's not what I do. It's just really for me.
+- I'm trying to show that it doesn't matter where you are from, even a little town like Green Cove. You can make it.
+- I like to learn.
+- I don't very much care for the spotlight.
+- I love the sport, it brings a lot of obstacles that are hard to overcome.
+- For me, it's just kind of a chase for self-improvement in and out of the water. That's why I do enjoy the sport.
+- As soon as the whistle blows, something triggers me.
+- I swear every day I love it more and more. If you want to go 47.0 in a 100 free and you're 47.1, you have all these years behind you and it comes down to a 47-second race. It can be so brutal sometimes, but that's the part I like about it.
+- I would certainly love to be playing Mario Kart up until the wee hours, but sometimes I've just got to call it quits.
+- It's not my goal to beat anybody in particular, it's about achieving what I think my potential is.
+- I pick and choose when I like to have my moments.
+- But just improving each day, that's just the ultimate goal from now until I'm no longer on this earth.
+- I enjoy the sport, I enjoy the challenge that it brings and it certainly does bring that for me and it's not an easy one.
+- It's just me and the water, and I'll share the water with my teammates.
+- I like to race. I like to compete.
+- If I try to be fast then I'm no good, so it's better just to shut everything off and let instinct take over.
+- Look, I'm going to turn on the TV to watch LeBron. I don't care if he's better than Jordan. He's amazing at what he does. Why does it matter if he's better than MJ or not?
+- For me to have my little stamp on the sport, of course it's special.
+- It can be a scary thought to do something that's never been done before.
+- I probably sound like a broken record every time I do a race, but I always look for the bad. That's just kind of how I work.
+- I don't mind the sun at all, I like it.
+- I know my name is thrown out there and I could care less about it. It is something that comes with the sport when you are on top of the podium.
+- This sport was a lot more fun when no one knew my name, to be honest.
+- I always look for the bad. There's plenty to improve on.
+- I understand people's interest in my career.
+- People want to dream up this big, giant goal without putting the stepping stones along the way, and for me, that's what gets you to that giant goal.
+- I'm really good at hiding my emotions.
+- If you don't have to worry about money or how you'll travel to a swim meet, that's so nice to not have that stress. You can just train.
+- Strength training is an important part of every athlete's training program, but for me it's become almost like a sanctuary.
+- Just because it's bad doesn't mean it's not worth it.
+- I don't think I'm 'the guy' in the sport of swimming, but people want to label me as 'the guy.'
+- I can be proud of every swim, every effort I put in the water, every mental approach to every single race.
+- Whatever other people expect me to do, whatever they're comparing me to, I don't care. I'm just trying to swim fast.
+- Your whole life boils down to a moment that will take 20-40 seconds. How crazy is that? And it's every four years. I wouldn't tell myself that during the meet, but it's terrifying. A lot of it boils down to a very precise moment in the universe, and that just happens to be the Olympics.
+- My favorite part of the Olympics was the flag raising and seeing my family there.
+- One thing I learned from my older brothers is there's two sides to everything.
+- Being on the podium, of course, is enjoyable, but the majority of what - not just myself, not just swimmers, I think the majority of all athletes - it's not necessarily fun, the core of the whole process.
+- As a 17-year-old kid, people put you on this podium, and it seems like you're just a source of entertainment for people. I felt like I was swimming for other people and they'd never be satisfied.
+- During the race there's only so much you can do. Whatever's going to happen is going to happen.
+- I don't think anyone will ever be able to perfect the sport, and that's kind of what I love about it. You're always chasing something.
+- I'm kind of like a horse: I just kind of eat throughout the day, so I'm not ever hungry.
+- When I got out of the water in my old routine, I'm just looking for any food in sight to just stuff in my body - just very, very hungry.
+- I don't want to end up leaving the sport early or hating it because I didn't give myself time to respect the water and I feel like the water has always respected me. I would like to prioritize myself a little bit more instead of swimming.
+- If my parents are at the meet, I'll try to look and just kind of spot them out in the stands.
+- I'm not like a social butterfly or anything, but I just miss seeing even my friends.
+- I don't want it to be easy, I really don't.
+- I hate wearing shirts.
+- I love meatloaf so much.
+- I never eat a lot before I get in the water because I don't want to, you know.
+- I hope the feeling of standing up on the podium winning gold will never get old.
+- I wanted swimming to be something that I loved, something that I was motivated to do for myself.
+- The goal is not to count medals, it's just racing the best I can.
+- Everything I do in the gym translates to being a better swimmer.
+- There's parts during the meet where it's not the greatest feeling - the stress that you feel, the pressure I put on myself.
+- Swimming's been a part of my life very much so since around age 4, and I never really dropped it.
+- I don't want to be some hotshot. I'm not about that.
+- You become Team U.S.A. when you're teaching some of the girls to play poker or you're getting food someplace in Hawaii together. It's the stupid little moments, it's not the big moments that are caught on cameras, it's the stuff you guys don't see. And that's what makes this team so unique.
+- I want to have a diploma to hang on my wall. Even if I don't use it, I can say I graduated from UF.
+- I don't know if you'll really get to know me unless you're close to me.
+- Fifth place is unacceptable for U.S.A. Swimming. It stings.
+- I knew I was going to have to come with fire, passion and pride in every single race.
+- I've kind of developed an attitude where sometimes you've got to relax and you've got to go with the flow.
+- It's really special for me just to have that one little moment where I claimed I was the best in the history of swimming.
+- For me, it's about swimming faster. Anything that's not pertaining to swimming faster is irrelevant to me.
+- I think greatness is found within mundanity, those boring little ticks throughout the day.
+- It takes a lot of people. I would not swim if it was just me. If I didn't have any teammates, I couldn't stay in a pool for two hours, twice a day, nine times a week. I can't do that. And I'm fine with admitting that. I couldn't do this by myself.
+- I get to do the fun part which is racing. I get to enjoy the race... I don't need a piece of medal to remind me of that.
+- My lifting routine is designed to develop and maintain explosive strength off the block, so it mainly includes cleans, power cleans, jerks and snatches.
+- I take each event, and I have to learn from it.
+- I've had a couple breakdowns.
+- You go your whole life for one moment that boils down to a race that lasts a couple seconds.
+- I'm pretty over swimming, guys.
+- I was super insecure in middle school; I didn't tell anyone I swam because it wasn't the cool sport to be doing.
+- I can't do anything about what other people expect me to do.
+- Practice does take a lot out of me mentally because I have to be on it for every stroke, every turn, every breakout. Anything I do, I want to be as focused as I can, so by the time practice is done, I'm kind of physically and mentally fried.
+- I can get the physical exercise done with practice and staying in shape. But you've got to sharpen the mental side.
+- I think simple's good. That's why I enjoy swimming. It's very primitive, very simple.
+- You can't reach perfection unless you reach zero seconds - it's just the constant chase for perfection.
+- We play a lot of Nintendo games, a lot of Mario Kart, Super Smash Bros, a few different card games, really just stuff so we can stay loose and get your mind off of swimming before going into the meet with full focus.
+- I just tried to find a fine line between muscling in and staying relaxed.
+- I've got pimples on my face, I'm losing some hair.
+- I didn't want to learn the butterfly because it's hard. I got it right away, but I didn't want to do it.
+- I don't I don't really care what people expect me to do at these Games. It's all about me. It might sound a little selfish, but it's what I want to accomplish and reaching my potential. Everything else, everybody else's opinion, they can kick rocks.

@@ -1,0 +1,106 @@
++++
+author = "Russell Howard"
+title = "Russell Howard Quotes"
+quotes_len = "100"
+description = "the best 100 Russell Howard Quotes"
++++
+- Whenever the word 'weird' is mentioned it can only be an insult.
+- The hit rap duo Kris Kross wore their trousers backwards, in the Nineties, and I wore my trousers backwards to a school disco. It led to some bullying.
+- What do you know when you're 19? I was just stomping around doing gigs.
+- It's just a joy travelling with your job. You get to wander around these interesting cities and then things happen or you observe things and you go on stage at the end of the night and chat about it.
+- Question Time' is a nice forum for reasoned political debate. There's no point having me on there trying to crack jokes.
+- I found out recently that my 'Good News' show has a big following in North Korea and the Vatican City! Who knew Kim Jong-un and the Pope liked fast-paced satire?
+- Yeah, I'd love to write a film, that'd be great.
+- Sometimes I skip breakfast, pop to the butcher and get sunburned while cooking meat.
+- I get panic attacks about dying, it's terrible. Sometimes I wake up in the middle of the night and my brain goes 'you're going to die, you're going to die, you're going to die.'
+- I broke my wrist on TV trying to do a one-armed push-up. A lot of people delight in pointing this out to me.
+- In the summer Regent's Park is one of the best places in the world with every nationality playing every sport.
+- I'm quite good at talking about things I care about.
+- Whenever I come to Ireland, I end up just bantering with the crowd so the show will just be what it is.
+- I'm happy when I'm working.
+- I'm one of the people who actually laughs at everyone else's jokes!
+- It takes a lot to stop myself scrambling around and reading the news.
+- I love Dublin and the locals are extraordinary.
+- But I did break my mum's heart, because I turned down 'Strictly' twice. I just couldn't do it. It's not for me.
+- Audiences around the world are all pretty similar. People just rock up and want to have a laugh, although Americans whoop more than English crowds.
+- I always found it strange, when I went round to other people's houses for tea and that, how strict their parents were.
+- There's a lot of brilliant comics who are amazing, but you can see them doing the same 20 minutes that they were doing five years ago, verbatim. I think that doesn't lend itself to progressing.
+- The number of old ladies who've beaten me up on TV is absolutely ridiculous.
+- I don't want to be one of those comics who says, 'Hey, what's wrong with air travel?' and stuff like that.
+- I'm a very early riser on holiday. I am invariably down at the pool on a sun lounger even before anyone can put a towel on one.
+- Portland is incredible. It's the most amazing place.
+- My mum is unwittingly funny.
+- Real life is hard. I'm sorry, but shopping at Tesco is not as much fun as writing jokes for TV shows, and I struggle with it.
+- If the front-page news is a comedian doing a joke that people think is naughty, that proves there's no real news that day, does it not?
+- I find it really weird, when I'm shopping in Tesco, the amount of times I have people like: 'What you doing in here? You're famous!'
+- I'm really not into technology at all. My brother has to plug the Xbox in for me.
+- At a gig in Liverpool I had this lady give me 21 cup cakes she had made herself. It's not really rock'n'roll is it? Tom Jones gets pants thrown at him and I get given fairy cakes.
+- I never really wanted to be on telly.
+- I'm trying to write a film with my friend. I'd love to get the thrill of speaking actors making my work even funnier.
+- I've reached the age of 32 with little wisdom, I'm afraid. It's tragic. I still have to turn to my mum and dad for every decision I make in life.
+- I'm not really a cake man. I'm more a savoury guy.
+- I buy a lot of Liverpool trinkets. I've got Philippe Coutinho's boot - I spent three grand on that. Which, you know, is insane. But it's Philippe Coutinho's boot, what you gonna do?
+- Neither me or my wife are any good at cooking.
+- The Edinburgh Fringe is a tough beast and you do whatever you can to get through it. But it's really the worst place to see comedians; everyone is so tense and nervous because it feels like Ofsted inspectors are out there.
+- I like New York, I think you've got some of the best comics in the world here.
+- I think all our leaders are utterly beneath us. You just watch 'Prime Minister's Questions' and go: 'How is this the best that we've got?'
+- Tommy Tiernan is an Irish comic who I believe is one of the finest in the world.
+- Because I don't wear a suit, and have such a horrible boy band face, people assume that I'm not doing satirical material.
+- The British Museum is great for seeing how excellent we were at stealing things.
+- It's a bit of a cliche but throughout London, even in places like Notting Hill, you'll see utter luxury alongside council flats - it shows the tapestry of life and I adore that.
+- Seinfeld' was never a show in the U.K.
+- I did a stand-up performance on Conan O'Brian, which was great, but it's not for me. I prefer England.
+- If you're doing 70 gigs in a tour, there's a lot of responsibility. People need a big night out, and you're providing it.
+- I don't want to do a rabidly left-wing show. I think it's much more interesting to turn the knife on yourself.
+- I buck the trend: I eat avocados on a Sunday morning and I'm a homeowner.
+- When you see the American chat shows, they've got so many ideas about what they could with the guests. I did stand-up on 'Jimmy Fallon' and they had loads of sketches and ideas, we don't tend to do that here.
+- You can make bleak things funny but if you're glib about it, it doesn't work.
+- There's a club called Headliners in Chiswick where I do a lot of my warmups for tours. For me it's a nice 'big-small' room: it's a 300 seater, which feels small but you can still get big laughs.
+- I wanna be incidental characters in 'Only Fools and Horses,' that would have been good. I wouldn't mind playing Trigger, Trigger would have been good.
+- I'm not the kind of comic who would try stuff on Twitter, because I have to work up ideas and I can only do that in front of people.
+- The strange thing about people considering me upbeat is that I'm really not.
+- I have 40 cousins.
+- Mumbai was magical, which I was really surprised by, and I got an insight into the world of Bollywood while hanging out with some Bollywood film stars while there.
+- I just don't care what people like Lily Allen think about stuff.
+- I'm not a particularly ambitious person.
+- I don't really do any corporate gigs or I don't really cash in which is a bit silly and much to the annoyance of my family. I'd rather just do gigs that I like and TV shows that I like rather than personal appearances at a nightclub.
+- I do cryotherapy, which is where you're in minus 70 and you have three minutes of deep freeze and your body thinks it's dying so it produces loads of blood cells and then you're fine - apparently.
+- Genuinely, the first gig I did when I was 18, it felt like the world shifted. I realised that I had stumbled upon a mechanism through which you could view life.
+- Los Angeles feels empty and overrated. I struggle with it as a holiday destination. It's the sort of place where you need to know some locals, otherwise it just feels so empty.
+- I just assume a lot of people hate me. You just have to suck it up.
+- When you are doing stand up, it is the most glorious hour, when you are an X-Men version of yourself, with lasers coming out of your eyes.
+- I just couldn't do a comedy show about 'The History Of Dinosaurs;' I'd get bored too easily.
+- I don't really have a political agenda, I just like things to be fair - I get angered by pomposity and privilege.
+- I'll sit down for 'Stranger Things' or 'The Handmaid's Tale' - or a really good documentary.
+- Everything I experience in life, I put through the sausage-maker that is comedy, and then try to make it funny for others. Whether that is healthy or not remains to be seen.
+- Death by rats would be the worst.
+- Mum's side of the family are daft, beautiful and brilliant.
+- Your country becomes funnier the further you are from it. I remember seeing Boris Johnson on the news when I was in Hong Kong, and he looked so much more ridiculous.
+- I'd like to have kids.
+- Chappelle is incredible. He is comfy on stage and he talks about big things and small things. He's a version of himself. That's what I've always wanted to be and hopefully I still am.
+- These are strange times. I'm 37 and this is the weirdest the world's ever felt. There's a right-wing, nationalistic anger sweeping through Europe and America.
+- Most comics' first gig is either brilliant or horrific.
+- If I was to get into Twitter I'd expose myself to people who adore me or people who absolutely hated me. Neither of those are useful to my soul.
+- I think you just have to be comfortable in your own skin, and when I do stand-up or the show I'm in a really good mood.
+- I spent a lot of my childhood sat on a wall thinking, waiting for my mum to pick me up.
+- If you want any attention in the Howard household, you have to shout quite loudly and try to develop a personality.
+- It's really frustrating when you write a show and it's really funny and someone and from Standards and Decency says, 'You can't put that in because it has a naughty word.'
+- I'm a bit of a Luddite.
+- I'd been writing jokes since I was 16, not very good ones though, but I was always trying to make my mates laugh.
+- I have a friend called James who is in his 40s and he's still not allowed to swear in front of his mum. I find it strange that you can't be yourself and be open with the one person who brought you into this world.
+- I bought my mum a car, and I bought my brother one of those hoverboards for Christmas, and I bought my family a holiday to Australia.
+- I lived at home until I was 23.
+- Doing the O2 Arena in London in 2011 was pretty awesome.
+- My life is quite normal and for me it helps with my comedy. If you jump headlong into celebrity life it affects who you are and what you talk about.
+- Britain is perceived as a laughing stock and a mess. It's a very scary and divided place.
+- Sometimes improv doesn't work on TV because the audience had heard the thing that was shouted and they're very much alive, the audience in the room - they're alive in that moment. Whereas the audience sat at home on the sofa, it feels like it's part of a party that they haven't been invited to.
+- I've never been on Facebook. My page is run for me. It is the same with Twitter.
+- I've been doing stand-up for 15 years and I've never even been invited to the Comedy Awards! How mental is that?
+- I don't like doing things badly, that just feels like a waste of a day.
+- Like most comedians, I have crippling low self-esteem, so I always think that what I've just done is rubbish.
+- My Mum is not used to being in-front of camera.
+- 'Monty Python' was never on TV in the U.K. when I was a kid.
+- The last thing you want to do is preach to the converted. What you want to do is talk about issues from a non-political point of view, from a human point of view.
+- Oddly, I am really cool under pressure.
+- I would just like to be remembered.
+- I worked in a watercress bed, picking weeds out of watercress when I was at school. It was awful.

@@ -1,0 +1,25 @@
++++
+author = "Arthur Helps"
+title = "Arthur Helps Quotes"
+quotes_len = "19"
+description = "the best 19 Arthur Helps Quotes"
++++
+- Wise sayings often fall on barren ground, but a kind word is never thrown away.
+- Routine is not organization, any more than paralysis is order.
+- Having once decided to achieve a certain task, achieve it at all costs of tedium and distaste. The gain in self confidence of having accomplished a tiresome labor is immense.
+- Man ceased to be an ape, vanquished the ape, on the day the first book was written.
+- Keep your feet on the ground, but let your heart soar as high as it will. Refuse to be average or to surrender to the chill of your spiritual environment.
+- Choose an author as you choose a friend.
+- We all admire the wisdom of people who come to us for advice.
+- There are no better cosmetics than a severe temperance and purity, modesty and humility, a gracious temper and calmness of spirit; and there is no true beauty without the signatures of these graces in the very countenance.
+- The man of the house can destroy the pleasure of the household, but he cannot make it. That rests with the woman, and it is her greatest privilege.
+- A man's action is only a picture book of his creed.
+- It has always appeared to me, that there is so much to be done in this world, that all self-inflicted suffering which cannot be turned to good account for others, is a loss - a loss, if you may so express it, to the spiritual world.
+- Every happiness is a hostage to fortune.
+- The sense of danger is never, perhaps, so fully apprehended as when the danger has been overcome.
+- A mixture of admiration and pity is one of the surest recipes for affection.
+- In a balanced organization, working towards a common objective, there is success.
+- Is boredom anything less than the sense of one's faculties slowly dying?
+- The greatest luxury of riches is that they enable you to escape so much good advice.
+- Experience is the extract of suffering.
+- Everywhere I have sought rest and not found it, except sitting in a corner by myself with a little book.

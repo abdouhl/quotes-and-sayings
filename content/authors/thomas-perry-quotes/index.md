@@ -1,0 +1,34 @@
++++
+author = "Thomas Perry"
+title = "Thomas Perry Quotes"
+quotes_len = "28"
+description = "the best 28 Thomas Perry Quotes"
++++
+- You have very accurately described the difficulty of presenting my books on film: many of my characters are alone most of the time, and when they do talk, what they say is mostly lies. That can make for a pretty confusing film.
+- I don't think the problem is that people don't read enough mystery books, but that people don't read.
+- I do have to earn a living, so I'm conscious of probable reactions from readers, but the most important one is still the awareness that if I'm not enjoying a story, the reader won't either.
+- I had been writing fiction since I was in eighth grade, because I loved it.
+- I do like to explore evil characters in my books.
+- It was a lot of fun, and writing a series is comfortable. It's almost like having a secure job.
+- Yes, in my books I do edit myself to keep from becoming the Village Explainer.
+- I do try not to spend much time reading in the suspense genre.
+- Being comfortable isn't the way to learn to expand your abilities.
+- All writers are mimics, and I'm not interested in picking up somebody else's style or voice.
+- When I write a book, I'm making it the best book I can.
+- If you'll think about various series you've read, can you think of any instance in which, say, the tenth volume of the series is notably better than the first nine? I can't.
+- I think we did a great job of putting together a program that would have made good e-books available had people been buying e-books in any real numbers.
+- Contrary to what many writers imply about the process, nobody forces a writer to sell his work to the film industry.
+- I do hope to bring Jane Whitefield back before too long.
+- It's important, I think, for a writer of fiction to maintain an awareness of the pace and shape of the book as he's writing it. That is, he should be making an object, not chattering.
+- I held a variety of jobs - most notably ten years working in universities - and kept on writing.
+- I don't have dry seasons, because I don't allow them.
+- Once you have invented a character with three dimensions and a voice, you begin to realize that some of the things you'd like him to do to further your plot are things that such a person wouldn't, or couldn't, do.
+- Reading a novel in which all characters illustrate patience, hard work, chastity, and delayed gratification could be a pretty dull experience.
+- I do want to write about Jane Whitefield again, but only when I have a good enough idea - something I've figured out about her that's news and that's worth a reader's time.
+- Much of what we do in life has a huge component of luck.
+- There are days when I intentionally don't write. For instance, I never write when I'm traveling, because travel is a situation where I can learn more by looking and listening than by working.
+- But at the same time, the commonplace statement about them is true: every character is the hero of his own story. Each has a justification for his actions that is convincing to him. It's fun to give these people voices.
+- I don't consciously do anything to maintain a unique voice.
+- What I look for in any character, good or bad, is whether I can hear him speak. If I can imagine him that clearly, then I can write about him.
+- The characters you refer to as predatory and unsavory are useful. They're the ones who make a novel into a thriller. They're active, and most of the common virtues, the signs of a good person, are not.
+- If I don't have a project going, I sit down and begin to write something - a character sketch, a monologue, a description of some sight, or even just a list of ideas.

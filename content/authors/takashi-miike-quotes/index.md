@@ -1,0 +1,106 @@
++++
+author = "Takashi Miike"
+title = "Takashi Miike Quotes"
+quotes_len = "100"
+description = "the best 100 Takashi Miike Quotes"
++++
+- I don't set out to make a film for festivals abroad.
+- I think that every character, no matter how different they may be perceived, they all have their beautiful moments. All humans do. All people do.
+- You hide your instinctive self and instead create a social self with lies. That's how people are able to get along with each other. What's scary is when you strip all the lies away to get at the essential you. What if it's pure evil? You don't want to face that. So lies aren't all bad - we need them to live.
+- I wanted to make '13 Assassins' in the old manner, to use old techniques and not to rely on modern-day ones such as CGI, or editing that changes the speed.
+- The position of an assistant director in Japan is a handyman who does everything if necessary. They must overcome the unreasonable demands of hard-hearted and whimsical directors, and staff with different personalities or habits.
+- Filmmaking is not a balancing act, although some directors think it is. I don't believe in it. I like ups and downs. They're the best way to translate my feelings to the screen.
+- Even if I were to try to imitate Kurosawa I know that it's absolutely impossible. That era of film was just something else, including the actors. Everything about that era was on a completely different level.
+- Maybe '13 Assassins' is the mortal agony and death rattle of a Japanese film industry that has abandoned its creative talent.
+- Where there is love, there is a possibility of violence but it's not that love is connected to violence but there's a possibility.
+- Live life before making movies, because you cannot make films about life, without having lived one.
+- Visually, I want to try everything. But I believe that every shot of my films really expresses what I think about the story and the character. The most important thing is the story, not the images.
+- I felt that all of us working on our remake of '13 Assassins' had to honour the original director, Eiichi Kudo, and everyone else who created the original.
+- Normally sports day is once a year for kids, where you have fun, and everybody is jostling. For us, making movies is like having sports day everyday: competing with each other, doing your best. It's like that except we don't get awards every day in our sports day.
+- Pleasure can also be a mirror of the anxiety we feel in everyday life, it can have a message inside.
+- We have this desire for that balance between death and life or death and joy. We want to believe that something we can also have.
+- I'm deeply appreciative that many people have enjoyed my films, films that I made in my own style. The successes have helped me learn how to make films free of expectations and focus solely on the pure filmmaking aspect, without worrying about how much money it'll make.
+- Manga, as a medium, is very different from cinema. Its creators are free to express themselves with harsh, cruel stories, and they enjoy vast distribution throughout Japan.
+- I think I'm a director that is very easily misunderstood.
+- Japanese of my generation try to get through life without stepping on anyone's toes; in some ways that's unnatural and stressful. The yakuza are different: They live short lives but live and die on their own terms - it's exciting to portray that.
+- I honestly do feel like the Yakuza film genre is going away. And I don't personally feel like there's any meaning in trying to artificially extend the life of the Yakuza film genre.
+- I always find another version of myself in each of my films.
+- My generation was a special generation. I was born in 1960 and in my childhood we were all big manga consumers that was the culture. We were brought up in manga. Manga evolved around what was being made to cater to kids. All children at that time read ridiculously thick manga books every week.
+- Sometimes it's good to know there are limits.
+- Imprint' was definitely the scariest project that I've worked on.
+- It wasn't really my intention to make movies quickly - it's more to do with the reality of the Japanese film industry. That's been the only way for me to change my situation; to prove how little time you need to make a good film.
+- It's not my goal to make so many movies. It's just sort of a natural process, and I'm just doing my job. And I'm not tied to any genre; I'm willing to do anything. I just keep going.
+- I myself have always had that secret desire to become something completely different and enact revenge on certain things. So I do that through my movies. My desires become reality in the movie because it can't become real in real life.
+- I would recommend 'Lesson Of The Evil' to be given as a DVD gift on a child's 15th birthday. In Japan, children under 15 are not allowed to watch it. Plus, 'Lesson Of The Evil' is one film where the older you get, the more you will be able to understand and enjoy the film.
+- Audiences are an unknown mystery to me, so I can't really predict anything. For me, the best audience is myself, my crew, and the actors.
+- People tell all sorts of lies in order to live. That enables friendships to form and love to blossom.
+- I do enjoy children's shows.
+- People say that my movies are violent. I do not think so.
+- Kurosawa was truly inventive.
+- One Missed Call' was one of many J-horror films at that time.
+- You know when I was a high school student I wasn't a very good student. Upon graduation we were asked if we would become a full working adult or go to university. I decided to go to film school and still to this day I try to avoid being a full working adult.
+- I believe that the difference in genre of movies is a small thing.
+- My style is that I have no style.
+- Actually the hardest films to make are comedies. In normal life, funny things happen by accident; to re-create those by design in a film takes real technique.
+- I think what people think about my films depends on the film they see. It's all different and opinions are all different.
+- I'm just curious how it'd look like if someone tried to remake my work. But I really believe that it's hard to remake of any of my work.
+- My films are like drinking a good beer, but pleasure doesn't mean that it cannot change someone's point of view.
+- Boxing is a metaphor for hitting back and showing you can win in life.
+- The hero has to be an archetype; they have to be like a dream; they have to be perfect. The evil is closer to us.
+- Every medium has its own kind of freedom. I don't want to just cross from one to the next. I want to enjoy the freedom each one has. Sometimes, you can do something for TV that you can't do in the cinema.
+- I see myself as having this innate weakness that a lot of times will get confused with kindness, but I know that it's often more weakness than kindness.
+- I admire Akira Kurosawa. I have a deep admiration for him and I would love to make films like that.
+- I don't slot actors into the image of a character that's already built. I build characters by listening to the voice and the story inside the heart of each actor. Art and life are linked, and expressed through my actors.
+- In general, I'm probably seen as an unusual director.
+- I'm not good at anything else. I just don't have a talent for anything other than filmmaking. Luckily, it's worked out.
+- I am discovering myself as a director all the time.
+- I'm actually quite a scaredy cat, myself.
+- There are fragments of me in all my characters.
+- One Missed Call,' it was regarded as a mainstream film for my career because it was big budget and filmed in Japan and it really opened wide in Japan, it did really well commercially. So I was really surprised.
+- I personally wouldn't pay money to go watch a really scary movie!
+- I guess, in a sense, 'Audition' was a film that gave me an opportunity that I hadn't had up until that point. So that's definitely one that is important to me. Then there's 'Visitor Q' that kind of taught me that there are some kinds of films that can only be made as low-budget films that really wouldn't work as anything else.
+- Some people have iconic directors in their mind, or they want to make particular styles of films they have seen before. I think this is a waste of time and energy.
+- I have three kids. Now they're all grown up, but when they were little, every time I would start a new project, they would say, 'So dad, are you making a movie we can watch or one we cannot watch?' That's the kind of stuff they would ask. People around me - family and friends - usually know when to watch and when not to watch.
+- Once I started working as an assistant director, I just realized very quickly that working on a film set was just a perfect fit for me.
+- I don't think I'll ever get tired of making films. I wish I could make so many that it would make me get tired, but I don't.
+- I'm just trying to make movies simply about life. Naturally, when I'm doing that, horror, violence, and all those kinds of things get mixed in. All those things happen in reality.
+- First Love' is one of my most hopeful movies. It's about love and relationships, so in that way it's different from my other films. That's why it's special for me.
+- For better or worse, I refuse to live my life with regret. Sometimes, I'll look back on my past mistakes with fondness. But I never wished I wouldn't have made them. That's why I don't like re-takes.
+- When you see the violence of Hollywood movies, there is a tendency that the hero is combating and confronting many people, without much harm to himself. But in my films, the hero takes a lot of hits so the very act of the hero being the one on the receiving end, makes the audience cheer and connect with him.
+- Gozu' was influenced by American cinema.
+- I am like any other human being; I am full of different sides.
+- In '13 Assassins' the biggest challenge was that action period films, for budget reasons and because of the age of the actors involved, are not considered to be a good business decision by some companies.
+- Originally, I was an assistant director. For many people in that role, becoming a director is the ultimate goal. But, in my case, that wasn't my goal at all. I just had fun doing it. The schedule was hard, but I enjoyed it greatly so I just kept at it.
+- In Japan, violence isn't as controversial as it is in the West.
+- I use depth in my visuals even in 2-D, and found that 3-D is actually liberating.
+- Regarding the responsibility that a director has to society, first of all, there are ratings. There's freedom to make films, and freedom to watch them or not. It's not like I take those films to a school and force kids to watch them.
+- In film, in general, you have just so many cliche themes or stories that are told over and over again.
+- The people who like my work, I know that I can't trick them into laughing someplace where there is not a genuine reason to laugh.
+- Maybe many directors are trying to create their own style of filmmaking, or to respond to audiences that come expect a certain style from them. But I don't care about that - I don't intend to have a 'Miike' style. I just pour myself into each film, enjoy it, and then what comes out just seems to have a 'Miike' style.
+- I do not proactively approach Hollywood, but also I do not always turn down offers. But since I'm living as a movie director, I have a desire to shoot something like 'This is a Hollywood movie!' at least once in my lifetime.
+- That's a very Japanese idea - that children are an extension of their parents. And that when you're reborn, your new form reflects the sins of your previous life - you can't escape.
+- My influences happen at more of a subconscious level, I don't dig too deep into that or analyze it myself.
+- For me, no matter what movie I make, no matter what the genre or the budget, they all have the same theme at their core: fear of death and happiness about living.
+- More than my films being influenced by manga I was indelibly impressed by Manga, and that definitely comes out in the films.
+- I actually think women are stronger and more capable than men, that men are actually dancing in the palms of women, who are running the show.
+- For many years, I was on working on films which were so small of a budget that I could not even build a set. So, when I was finally able to work on set, it was a rewarding moment. I felt the same feeling when the camera changed from 16 mm to 35 mm.
+- I don't choose to make low-budget films. But that is the reality of surviving in the Japanese film industry. However, the trade off is, since we're working on small budgets, we have freedom. You can't buy this freedom with money. With this freedom, I think there are an infinite number of possibilities.
+- For the birth of one champion, there are many young boxers behind them who had setbacks. In terms of that, I think boxing is very dramatic.
+- The directors whose films scare me the most, are the ones who carefully hide the aggression in the background, and don't show it directly.
+- Personally, it all feels like I've been filming just one long film the whole time and I have no personal like or dislike for any of the films that I've done. I feel like all of the all of them are important to me, all of the cast and all the staff that I've worked with have also been very important to me.
+- Bigger-budgeted films have more restrictions and less freedom to create. Because of this, I try to find freedom in the people I work with. I often work in ways I don't want to. It's more about controlling the situation. Lower-budget films are freer.
+- As a film-maker, it's only natural to feel happy about new possibilities opening up.
+- When I'm facing an issue or a challenge sometimes, it's easier for me to avoid really facing that or dealing with it, and just go make films.
+- You could not imitate Fellini. His beauty was above anything else, but that intelligence was typically Italian. This helped me to realise that I had to create something that was distinctively Japanese.
+- I'm even a little afraid of the dark. If I'm alone in the dark I'll sometimes feel that there's a presence behind me and I'll even be afraid to turn around, but then if I do get the courage to turn around, I'll just be scared that whatever was there has just jumped over to the other side of me.
+- I don't think a film that has no effect on people or society is a good film.
+- Boxing fascinates me.
+- For a long time I was free. I didn't belong to any type of studio, or any company. I kept a sort of freedom and a light touch.
+- I think everyone really wants to just be happy and live the life that they want to live. But they come up against all of these obstacles and sometimes the way that react we react to that can be very hilarious. To me. It's hilarious and laughable.
+- I feel that the smallness of the filmmaking environment is somehow connected to the freedom of creating film.
+- I just feel my body clock is different when it comes to making films than other directors. Being on set, and sweating, that feeling eases me more than actually when the movie's over; being on set, moving around, to me feels more relaxing than being done with the movie.
+- I believe that when people try to live their life at the fullest, there's a certain laughter that comes out of it. The more they try to live their life seriously, the funnier it is.
+- I loved spaghetti westerns but besides these pure entertainment movies, there was also something different.
+- Personally, I enjoy being able to see something that you haven't seen before.
+- I am attracted to bad people because they are very human.
+- When I'm watching one of my movies in a festival with fans who are just into it and they love it? I end up feeling like my film is more interesting, it becomes more fun to watch and I get a special energy that feeds back into my process.

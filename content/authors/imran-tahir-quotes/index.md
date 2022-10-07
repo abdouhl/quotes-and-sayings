@@ -1,0 +1,106 @@
++++
+author = "Imran Tahir"
+title = "Imran Tahir Quotes"
+quotes_len = "100"
+description = "the best 100 Imran Tahir Quotes"
++++
+- I've played all over the world. I've played in England, South Africa, Pakistan.
+- I always come on the ground with a smile on the face, but inside, I'm always ready to fight and try to give as much as I can.
+- You just need to go into matches with a clear plan in T20 cricket. If you go half-half, it's going to be really hard to come back.
+- I can't see myself playing anywhere else in the world. You don't know how much I want to play international cricket for South Africa.
+- I don't want to retire - I love the game and have a lot of respect and passion for the game.
+- I will bowl defensively if I have to.
+- In T20, batsmen are always going after you, so a good policy is to bowl five-six dot balls in your first two-three overs so that pressure builds on the batsman, and he plays riskier shots.
+- All I do is work hard. Try and work on my bowling and keep improving every day. That's the key to success at the international level and in tournaments like the IPL.
+- I have always been an attacking bowler. I am more than happy to go for a few runs and get a few wickets.
+- If you go for wickets all the time, then you will go for runs as well because you will have to flight the ball and invite the batsmen to hit you.
+- It's always nice to be in England - I love it here.
+- There is always a pressure if you play every game and especially when you are representing your country.
+- My biggest ambition, ever since I was a boy in Pakistan, has been to play cricket at the highest level. If I can do so for South Africa, I'll give everything.
+- Playing for South Africa is an absolute honour, and I don't feel like I need to relax. Every game I take more than seriously.
+- I'm the guy who come through a lot of hard patches. I've seen a lot of hardships.
+- I have been bowling at the death sometimes. You need to focus. You know if you miss your target, you will go for a boundary, but it's also good because it makes you a really good bowler. You practise hard, and you try to bowl in one area most of the time.
+- Leg spinners can change the game.
+- I don't want to just keep playing for the sake of playing. The day I realise I'm not good enough, I'll go. I want to play as long as I can - not just to make up the numbers but to play with utmost passion.
+- Legspinners are exciting characters.
+- For me, what is important is, as a legspinner, you need determination, especially in modern-day cricket. You need to feel that you can change a game.
+- I don't bowl for personal numbers.
+- South Africa is now my country.
+- I just like challenge. I had a lot of them in my life, and then when it comes to that, I think I can be ready for anything, really.
+- Spinners have a main role, whether in the IPL or world cricket. But it's hard to be a legspinner: you have to be accurate.
+- I am an attacking bowler, but I can change my plan and go however the team wants me to go.
+- In 2004 in England, there was one catch that was very special to me. I was bowling in a league match, and the batsman hit the ball over my head. I had to run back to between mid-off and mid-on to take the catch, and I did.
+- I always love challenges, and when I bowl, I always look to get wickets.
+- I am the kind of person who will give his best every single time. I cannot underperform unless I'm playing with kids. Actually, I'd probably still get angry if they try to hit me!
+- It's every cricketer's dream to play in the World Cup.
+- Hampshire were the club who gave me my first chance, so I owe them a lot.
+- In professional cricket, everybody wants to win.
+- If you look at me outside the cricket ground, I am a simple, normal guy, like everyone else. But on the field, that passion flows because I have been through a lot of tough times and have lost many special people.
+- My job, if someone picks me, is to come and perform. That's what we do for a living.
+- I always dreamt that, but I never thought I will be here one day playing my 100th game for South Africa. It's an absolute honour and privilege, being given the opportunity by the lovely people from South Africa.
+- I want to be the guy the captain can trust.
+- One needs to have variations. You won't survive if you don't have one - especially playing in India, as they are good players of spin.
+- When you always walk into the middle with green and gold, I just want to take 10 wickets every game.
+- If I get a wicket, I just want to show people that how big that is for me.
+- I always believe I will take wickets.
+- According to me, a leg-spinner is such a character who, on his day, can win the match for you if he is bowling well and has the support of the captain and the coach.
+- It's always beneficial taking advice from Dhoni.
+- The off spinner's job is to contain; for me, leg spinners need to have a bigger heart than anyone else because it is easy to blame them.
+- You have to just adjust to the conditions quickly because there is a big difference in 50-over and 20-over cricket, and if you back yourself, you will do well.
+- I will do what my team wants me to do and justify my place in the side.
+- I have learnt that patience is important: patience when you bowl and also in how you handle life.
+- I wouldn't want to overstay in the team for too long. I want to leave with respect.
+- The start of the English county season - from April to mid-May when it's cold - is the same as South Africa because it seams and swings. After that, the ball starts spinning nicely, and that's when I get my wickets.
+- I've been playing cricket for quite a long time all over the world, and all the situations I have been in have given me confidence.
+- I have a lot of respect, whatever format I play.
+- It's always tough for a spinner to bowl against India.
+- I think I feel good as a South African player that people say that we always get into semifinal and lose... this is one of the biggest achievements to get into semifinal. Not many teams do that. For me, it's a real achievement.
+- I'm just really honoured to play for South Africa. Just to be part of this team is a special feeling.
+- I really can't pinpoint why I celebrate the way I do. I just love it when I pick a wicket, and it comes naturally to me to express my joy in the manner that I do.
+- Its strong management that makes players feel comfortable.
+- I love to talk about bowling, and whoever comes for hel,p I'm always there. Even in IPL, PSL, I try to help the youngsters as much as I can.
+- Playing with Morne Morkel and Dale Steyn, I am a very lucky guy. Not many people are going to attack those two, which means the batsmen will attack me. And if they attack me, there is always a chance I can get a wicket.
+- People think of me as well-travelled, but I had not been out of Pakistan until I was picked in the Under-19 squad in 1997. The flight went from Lahore to Karachi and then from Karachi to South Africa. It was my first time on a plane and my first trip overseas.
+- Any spinner can change the game. It's been proven in T20 cricket.
+- I don't take anything for granted.
+- I am enjoying the experience of working with Mishra. For me, he is a world-class spinner.
+- I have always wanted to play in the World Cup.
+- In T20, there's a time shortage because you've got four overs. In one-day cricket, you relax, and the game goes long, and you only win the game in the last 10 or 15 overs.
+- I always try to help spinners as much as I can wherever I go and play, anywhere in the world.
+- I just like to enjoy my cricket.
+- When I go to bed after playing a Test match, I want to feel that I gave 100%.
+- I lost my parents, which is the toughest thing to overcome.
+- Fifty overs is a long time. It's a good challenge, and you have enough time to show your skills.
+- My wife and kid always support me.
+- I try not to miss my prayers and the 30 fasts in Ramazan, but even if I do miss them due to my cricket, I make up for them later on.
+- The wickets in England are very helpful to me.
+- I'm always looking for new and exciting opportunities.
+- I am more South African than Pakistani now. It's a great country, and I have met so many nice people.
+- I think I have the ability and can play a role in T20 cricket for South Africa.
+- It is a big challenge as a spinner to play modern day cricket, where you have to have five players in the circle.
+- Playing for CSK, one of the best franchises in the world, I've to show people how much I love and respect this team.
+- For me, the most important thing is that the team should do well.
+- The best players of the world play in the IPL, and to bowl to them in T20 cricket isn't easy.
+- Abdul Qadir was my main role model. I just wanted to be like him because, for me, he was only guy who no one could read. He was that good. His passion, his love for legspin, was unique. He would create new things all the time: flippers, sliders, three to four kinds of googlies, legspinners, topspinners.
+- Playing with MSD, getting his advice and learning a lot from him, and I am really, really happy to be part of CSK.
+- I lost my parents without them seeing me play international cricket.
+- I've been working really hard on my fitness.
+- I have bowled with another leg-spinner in county cricket - Shahid Afridi. But he is a totally different bowler than Mishra. I have a lot of respect for Mishra.
+- My wife is a beautician, but the first time I did something to my hair was not through her.
+- Whenever I am playing, I try to contribute to my team.
+- Moving to South Africa and trying to make a mark as a cricketer and then make it to the international team hasn't been easy. This is why I want to enjoy every moment of it.
+- I have always been an attacking bowler, but I am trying my best to learn every day.
+- When someone attacks you, there is always an opportunity, and that's what I look for.
+- One of my dreams was to win the World Cup.
+- If I want to hide myself from my limitations, then I don't want to play this game.
+- There are not too many leg-spinners in the world, and if you look closely, Mishra bhai will stand out as one of the best.
+- I don't think it is difficult to balance professional sports with practising your faith. It is very easy if you follow the right path.
+- One must always love passionately.
+- The googly and the slider are my favourite type of deliveries, and I love it when batsmen try to cut or sweep me and, while attempting those strokes, get lbw or clean bowled.
+- Whenever I have time, I do my fitness. I go running on my own on Sundays or on Eid. I'd rather gym every day than go watch movies.
+- I never look to contain. I always try and take wickets.
+- Thanks to technology, you can sit and see the opposition's mistakes and try to learn from them.
+- I believe one should work hard to get what you want.
+- I love to help kids, especially spinners, in South Africa. You won't see many guys bowling legspin, so I want to try to see if I can develop another Imran Tahir.
+- It's the nature of a human that when you get neglected somewhere, you want to go back and prove a point.
+- Losses are always hard to swallow, and every sportsperson has the same feeling.

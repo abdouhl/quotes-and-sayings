@@ -1,0 +1,16 @@
++++
+author = "Anna Jameson"
+title = "Anna Jameson Quotes"
+quotes_len = "10"
+description = "the best 10 Anna Jameson Quotes"
++++
+- We can sometimes love what we do not understand, but it is impossible completely to understand what we do not love.
+- In morals what begins in fear usually ends in wickedness; in religion what begins in fear usually ends in fanaticism. Fear, either as a principle or a motive, is the beginning of all evil.
+- Childhood sometimes does pay a second visit to man, youth never.
+- A man may be as much a fool from the want of sensibility as the want of sense.
+- Accuracy of language is one of the bulwarks of truth.
+- Conversation may be compared to a lyre with seven chords - philosophy, art, poetry, love, scandal, and the weather.
+- All my experience of the world teaches me that in ninety-nine cases out of a hundred, the safe and just side of a question is the generous and merciful side.
+- What we earnestly aspire to be, that in some sense we are.
+- The only competition worthy a wise man is with himself.
+- What we truly and earnestly aspire to be, that in some sense we are. The mere aspiration, by changing the frame of the mind, for the moment realizes itself.

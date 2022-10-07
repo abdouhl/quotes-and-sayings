@@ -1,0 +1,106 @@
++++
+author = "Alex Smith"
+title = "Alex Smith Quotes"
+quotes_len = "100"
+description = "the best 100 Alex Smith Quotes"
++++
+- For anyone that's reached the NFL, especially top picks, you just come from success.
+- When I got drafted, I was a spread-option quarterback. It was, 'OK, you've got to get under center, throw to the fullback, throw to the tight end. You've got to learn to be a pro quarterback.' And there was a learning curve there, and I did have to learn some of that.
+- It's football. Guys get hurt all the time.
+- Sometimes when you've only got a few snaps, guys try to do too much and try to make too much happen.
+- I put a lot of pressure on myself. Sometimes you are your own worst enemy.
+- When you take shots downfield, you want to be good at them.
+- You only have one brain. There's no replacement surgery for that.
+- I don't feel like I have to prove myself to anybody any longer.
+- That's what you want; that's what you want to play for: fans that are in it and want it as bad as you do.
+- I've seen a rebuild, and I've seen how quickly things can turn around when guys buy in.
+- When the guys are playing well around you, you look good.
+- For me, it's about winning games. I'm trying to score more points than the other team. I don't really care how we do it.
+- You play for your teammates; you play for each other.
+- It's easy when you're always winning.
+- I'm going to play for me and not play for anyone else except my teammates and the guys that matter.
+- There are a lot of peripheral things that you have to deal with in this league, and I dealt with a lot of them when I came in. It's everything from being on your own to facing the media.
+- I think that's the great thing about the NFL. You're out there, and there are very few perennials. It's a battle every single year. You can go first to worst, worst to first.
+- When I was young, I just tried to please everybody.
+- You're never going to make everybody happy; there are always going to be people that, yeah, aren't with you. That's the nature of sports.
+- I can just remember games as a young player, counting my stats on the sideline. 'What am I now? I'm this many completions for this many attempts. I wonder what my rating is.'
+- When I was young, you get into the point where you want to throw everything hard. And it looks good, it feels good... You get to the point, though, where it's not realistic.
+- If you don't go out there and play winning football, they're going to try and find somebody who can.
+- As a quarterback, you've got a huge responsibility: You're touching the ball every single play. You have such a big impact on deciding the game, just in your decision-making and how you are with the football and your fundamentals.
+- I don't really care how many yards I throw for; as long as we score more points than the guys we're playing.
+- Utah will always be special to me. They were the school that gave me an opportunity, and I grew so much as a person and player there.
+- I fast all the time - daily. It's such a counterintuitive thing because, my whole life, I've been training to get bigger.
+- You're never trying to have three-and-outs; I don't care what offense you're playing.
+- The No. 1 stat is wins. As a quarterback, you get evaluated on winning.
+- You look at the best players in the league, the best players at quarterback - I mean Drew Brees, Peyton Manning, the top names - none of those guys are throwing it through a brick wall. They'll have touch.
+- Playing quarterback, you rely on everybody. Everybody impacts you.
+- You love playing on a national stage - anytime you get these games. The Thursday ones are tough; I have a mixed opinion. I think if you win them, they're awesome because you get another little bye week in there, so to speak. They're tough on the quick turnaround.
+- I really have fun playing golf.
+- The longer you play, there's always going to be naysayers.
+- That's a special time, to get drafted.
+- I've been to so many deals with so many of my peers. I hate to say it, but you go, and it's some tournament or big party or dinner, and you don't even know what you're raising money for. It's like, 'Oh, it's for the kids.' Thanks. But what are you doing?
+- I love Kansas City. I love the coaching staff, the players.
+- If you're going somewhere, you want to go somewhere where you have a chance to have success.
+- You're the quarterback, if you lose games... it's the head coach and the quarterback. If you're not winning, it's on you.
+- More often than not as a quarterback, your performance is a reflection of the guys around you. I've been fortunate to be around some pretty good guys.
+- No one's taking quarterbacks, for the most part, in the first round that haven't had a lot of success.
+- Once you pull the trigger, you've got to throw balls aggressively and with conviction.
+- As a quarterback, especially when I come off to the sideline, I am trying to get things corrected, trying to get things figured out and move on to the next series.
+- It's one thing as a quarterback to sit there and warm up. And there's one thing to throw routes. And there's another thing when you drop back in the pocket and, when a guy comes open, to really be able to urgently - bam - all of a sudden. That guy's open; your body has to do what your mind's telling you.
+- I don't measure myself in my contract in terms of what I'm making.
+- Failures and setbacks are inevitable for all of us.
+- I enjoy the challenge of coming together with my teammates and playing well for them.
+- I think the quarterback position, moreso than in all of sports, no other position compares - you rely on so many people to do your job.
+- I think as I've gotten older and the things I've gone through, I'm not as concerned about what everybody thinks.
+- As a QB, it's a team game, and you're all out there in it.
+- I think you have to enjoy the wins. If you're not enjoying the process, there's a problem. You're not doing it for all the right reasons.
+- When you're a quarterback, and you're dropping back, I can't watch what the receivers are doing.
+- No quarterback goes out there and plays well on his own.
+- To a lot of people, I might just be the guy who went No. 1 in the draft. Or the guy who lost his job to Colin Kaepernick. Or the guy who helped turn a 2-14 Chiefs team into a back-to-back division champ... but then couldn't put them over the top.
+- The quarterback position gets a lot of attention.
+- I definitely grew up a Chargers' fan.
+- As a quarterback, you certainly don't want to hamstring your team in any way because - I know this more than anyone - you rely so heavily on those playmakers around you.
+- When I graduated from Utah, I was headed into the biggest job interview of my life, the NFL Draft.
+- I carried around a lot of weight and anxiety - expectations of being a top draft pick and fulfilling those. It was really burdensome and not fun. Stressful. I had to go through some things before I finally turned that around and got back to playing for the right reasons.
+- Losing is not fun.
+- Accept what you cannot control.
+- Golf is so different than football, in many ways. I think that's why I enjoy it.
+- I was on some bad teams, and I played bad as a young player, certainly, at times. And that all mounts. Yeah, that all mounts. The perception. Everything that goes into that. And so, yeah, I think to kind of get over the hump of that, to change perception, it can be difficult. It's a tall task. And it takes a long time.
+- Embrace the new, no matter how uncomfortable, and make it work for you.
+- Most of the time, you're just trying to be the point guard out there based on the play call and the defense that you're getting; that really dictates where the football goes.
+- Obviously, flagrant things have to be called. There are rules. You have got to play to the rules, no question.
+- We can never fully plan our future, so don't try.
+- Quarterback play starts with your eyes and feet. Those have to be in the right place and have to be on time.
+- We can only control how we react and how we respond, and that complex but so simple idea helped me survive.
+- As a quarterback, I always feel like it's my job to be that steady, calm presence in there.
+- You can always get better throwing the football.
+- I don't know if there were many pros for me playing early. I feel like I dug myself a pretty deep hole that rookie year.
+- Dead silence is so much more foreign to me than people screaming at me, good or bad.
+- It's fun to come in when it's first down. It's not fun to come back in when it's third-and-long.
+- To continue to fight, not get frustrated, to stay together and find a way - I think that's important. I think good teams do that.
+- This is the ultimate team sport, and I really feel that the quarterback position is the epitome of that.
+- I used to make fun when I got into the league, and I couldn't believe these old guys that didn't know artists on the radio, like in the weight room.
+- It is healthy to have competition and intense competition, and then, when you walk away from it, you are still teammates, and you play the same position and that we can still put the team first.
+- You have to prove yourself year in and year out, and if you can't get the job done, every team is going to go and try and find somebody else that can.
+- Winning is all that does matter.
+- At the combine and at my workouts, I tried to be the perfect player. I tried to promote my strengths and conceal my weaknesses, and on paper, I kind of succeeded: I was the first pick in the draft. And with that, I inherited this big shiny trophy that I carried around, and it had one word engraved on it - anxiety.
+- In the pocket, you do have some protections, but you get out of the pocket, and defenders' eyes get big. Sometimes you learn that the hard way.
+- Game day can be emotional, and there are a lot of ups and downs throughout a game, but as a quarterback, you have to be able to see the bigger picture, steady that ship, get all the guys focused in on the task at hand, and keep the thing moving.
+- The real football starts in training camp.
+- In this league, you can't take your foot off the gas pedal. You think you have something won, but teams are too good, too talented.
+- I know guys respect work ethic, and they respect the guys that are invested and committed.
+- It wasn't until I stopped worrying about my own validation and finally refocused my energy on things I could actually change that I finally grew as a person and as a professional.
+- As flashy as draft picks are, the reality of them helping out in Year One anyway is not necessarily the case. That's not the reality.
+- As a quarterback, when you do have a three-and-out or things do not go right, you are the first one to know. You know more than anyone out there what went wrong and what needs to be corrected and don't necessarily always need to hear it when you come off to the sideline.
+- You're frustrated when things aren't going right. When you're out there, you have your piece of it, your view. It isn't until usually the next day when you're watching the film that you get to put all the pieces together: 'Oh, this is what happened on that play'; 'This is why I did that.' You don't totally know that game day.
+- That's the great thing about the NFL: A team can get hot and win a championship.
+- There is a strike zone in the pocket that's very clear. Can't hit QBs low, can't hit them high.
+- Obviously, college was an unbelievable experience.
+- It's far different aging as a quarterback than aging as a tight end.
+- Instincts and fundamentals take over sometimes.
+- I've been in this league a long time. The league's not perfect. But I'm definitely proud of a lot of my teammates, coaches, trainers, owners.
+- When I watch good friends play, it's almost worse when you're watching, because you have zero impact: you have zero hand in what's going on. When I'm playing, you don't have that because I'm involved in it. I have some kind of say in what's going on.
+- There are so many good things, great things that go on in this league.
+- Certainly, there were tough times, but no, you can't go back and change it. So, why dwell on it?
+- You get a taste of playing in the playoffs and what that's like, and it's a completely different world. You get a taste in those meaningful games. You get that taste, and you can't get it out. You want more.
+- This is the honest truth: I could absolutely care less on yards per game. I think that's a totally overblown stat.

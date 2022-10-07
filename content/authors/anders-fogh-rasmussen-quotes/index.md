@@ -1,0 +1,21 @@
++++
+author = "Anders Fogh Rasmussen"
+title = "Anders Fogh Rasmussen Quotes"
+quotes_len = "15"
+description = "the best 15 Anders Fogh Rasmussen Quotes"
++++
+- We're strongly in favor of the U.N. plan for a solution to the Cyprus conflict. Hopefully a solution can be found before the end of this summit, but we cannot and will not let it block our decisions on enlargement.
+- I know very well that Berlin attaches great importance to NATO and solidarity, in terms of sharing the burden. For this reason, I feel confident that the German government will take the right decision, one that serves both German and NATO interests.
+- It is the responsibility of Afghanistan's new government to gain better control over the country's administration and to resolutely fight the drug trade and corruption.
+- The American people ask, and legitimately so, why should we carry the heavy burden to ensure international peace and stability. You also profit from it, so you should also take your share in the burden. That's Secretary Gates's message. I share that message.
+- More than forty years of Communist rule in Central and Eastern Europe resulted in an unhappy and artificial division of Europe. It is this dark chapter of European history that we now have the opportunity to close.
+- Perhaps we underestimated the challenges in Afghanistan in the past. That's why we are now strengthening and intensifying our commitment.
+- But Iran has gone far beyond what is necessary for a purely civilian programme. It has concealed several nuclear facilities from the International Atomic Energy Agency, played hide-and-seek with the international community, and rejected all offers of co-operation from the U.S., the EU, and others.
+- The proliferation of weapons of mass destruction and their means of delivery is a threat to both the Nato allies and Russia.
+- Europe should stick to an open economy, to competition and we should refuse protectionism. It will not save one single job in the long run to protect non-competitive industries.
+- Iran also has an extensive missile development programme. Iranian officials declare that the range of their modified Shahab-3 missiles is 2,000km, putting allied countries such as Turkey, Greece, Romania, and Bulgaria within reach.
+- Actually I can't imagine Nato troops on the ground and I think it's also important to send that very clear message to the UN and other organisations right now so that appropriate plans can be in place in due time and the Gaddafi regime can collapse soon.
+- Ten years ago U.S. defence investment represented almost half of all defence expenditure in the whole alliance. Today it is 75%. This increasing economic gap may also lead to an increasing technology gap which will almost hamper the inter-operability between our forces.
+- I think President Karzai realizes exactly how important it is to strengthen the fight against corruption in the country now, step up endeavors to stop the drug trade and to deliver better governance. He said as much in his inaugural address.
+- Nato allies have been looking at various missile-defence options for some time. Nato itself is developing protections for our deployed troops.
+- The Americans provide still more advanced military assets and equipment; the Europeans are lagging behind. And eventually it will be difficult to co-operate even if you had the political will to co-operate because of the technological gap.

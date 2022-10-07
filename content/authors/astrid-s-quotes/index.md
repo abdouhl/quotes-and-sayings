@@ -1,0 +1,34 @@
++++
+author = "Astrid S"
+title = "Astrid S Quotes"
+quotes_len = "28"
+description = "the best 28 Astrid S Quotes"
++++
+- I love doing concerts, and I think my songs get another expression and energy when they are being played live.
+- In Norway, everyone knows everyone, and everyone is very supportive of each other. If there is anyone new, or a new song is coming out, everyone will probably know about it.
+- Sometimes you might feel like you're not good enough or unique enough, but everyone is! Everyone has different personalities.
+- I love watching movies, and I'm very inspired by movies when it comes to songwriting!
+- I've always been really proud of my time on 'Idol,' so for me, I never really had the need to break free from the associations.
+- You really notice how you're growing when you go on tour. To be able to tour around the world, and do bigger venues every year, is really, really cool.
+- I feel like if it's a good song on a guitar, it's a good song no matter what.
+- Change is good, but in the middle of it, it can be very sad.
+- I listen to lots of artists. But I remember discovering John Mayer, whose music made me want to write my own. And so I did.
+- I just want to make good music, and as long as I'm happy with it, the charting isn't that important to me. Although, the best feeling is having a song you're very happy with and also having it at Number One!
+- I've always wanted to live in the '60s and '70s and wear wide pants, knee high boots, and oversized denim jackets.
+- I grew up in a tiny village on top of a mountain and have been skiing and singing all my life!
+- The music industry has become so unpredictable. And I think people know that if someone has a Number One song, it doesn't necessarily mean that you'll have several ones after.
+- I'm very visual when I write and get a lot of inspiration from scrolling through Tumblr or Pinterest. I have picture folders to most of the songs I've written. It would be cool to release it as a book one day!
+- I think I just have to be myself. No one can write the songs I do, and no one can sing the way I do - I believe that's important for every artist to remember.
+- I listen to everything and find parts about a song in the lyrics/melody/chords/production that I like and can be inspired by when I write my next song.
+- I was really into Britney Spears when I was little.
+- There's always a party ending every day but also a new one being made. They are just chapters in our lives, ending and beginning.
+- I went to a soccer high school, and it was really different to being on 'Idol.' So I decided to quit school, and I put all my energy into music, and things started to happen.
+- I'm very involved in the production of my songs. I know what I like and what I don't like.
+- I would love to do some collaborations for my album - the more the merrier! It's fun to experiment and get to tap into different genres and sounds through collaborations.
+- I never think any song really feels like a 'hit' - a song either feels good or bad, in my opinion.
+- Growing up, I'd never heard of any female producers or songwriters. I didn't know you could be a girl and produce, which is terrible.
+- I use my phone to record notes or hum melodies. That's how I remember them.
+- It's fun to have someone to talk to and get input from when you write. I usually get stuck when I'm just in my room writing by myself.
+- Anything can become a big tune in Scandinavia because people decide what they want to listen to. So I think that's very motivating because songwriters can really think outside the box. A great song - whether or not it's radio-friendly - can really blow up here.
+- You never know what to expect when you're in America, especially when I've been in L.A., where you walk out the door, and suddenly there's a monkey bicycling by in front of you. There are just so many weird things going on there, but it's fun.
+- I used to be so into soccer. I would wear soccer team hoodies, another soccer team's pants, and Manchester United earrings. And I had, like, five of everything, so I would just wear the same outfit all the time!

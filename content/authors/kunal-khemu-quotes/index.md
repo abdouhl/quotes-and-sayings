@@ -1,0 +1,101 @@
++++
+author = "Kunal Khemu"
+title = "Kunal Khemu Quotes"
+quotes_len = "95"
+description = "the best 95 Kunal Khemu Quotes"
++++
+- I don't think there is any set formula to have a good relationship.
+- It's annoying to sit at home and not go to work. But I feel it's better to wait and do something that will be seen and appreciated.
+- If you notice, no child star made it big when s/he grew up because the child's image was still fresh in people's memory. They could not digest the fact that the child star had grown into a man.
+- Soha does not like cooking but I like to cook. And since we are in the same profession, we have the same tastes in entertainment we like to watch the same shows on TV. The only thing that Soha is finicky about is her eating habits, which keep on changing. But we do give enough space to each other.
+- I am an ardent watcher of lot of series on the web platform.
+- When you are a public figure, relationships are a bit complicated.
+- See, if there is zero possessiveness in a relationship, then one needs to put a reality check to see if things are really going fine. So, normally, everyone is a bit possessive, and so am I.
+- Although jealousy is a strong word, who would like to see the person they love romance someone else, even onscreen?
+- I hate controversies and want to be in the news for the right reasons.
+- It has been a journey of ups and downs. There have been moments of immense joy and heartbreaks. Everything I have gone through has made me better.
+- I'm glad that the audience and critics have liked my work.
+- I started as a nobody in this industry and today I can say that I have made some sort of a name for myself.
+- More than the length, it's the meat of the character that is more important. It does not matter if you are on screen, standing in the corner for the whole film, as opposed to doing something that stands out in two scenes.
+- After Class 10, I kept away from films.
+- I'm not much of a hectic packer and prefer to travel light.
+- For any relationship to survive, one needs excellent communication.
+- At times I do feel that there is some issue with child actors because in all my films my performance has been appreciated but the films have not created magic at the box office.
+- People always told me that 'Kalyug' wasn't the right choice, but it did well and now I think people have accepted me in the lead.
+- There have been films I have said no to and there are roles that I wish I had done.
+- I love acting and the whole idea of being in front of the camera.
+- I am enjoying being an actor, I really love the art.
+- My kiss in 'Kalyug' was beautifully shot.
+- I don't believe in getting into a blame-game or credit-hogging mode whether a film works or not. We are in it together, no matter what the result.
+- With some many talented people around, it is difficult to cut through competition and stand out.
+- If you love a person, you love everything about him or her.
+- I'm a movie fanatic and love watching all kinds of movies.
+- Sometimes after marriage, one really gets to know his or her partner after three or four outings. But for us, we knew each other's eating as well as living habits.
+- I do know there is a lot of pain sometimes but you need to deal with it and communicate what you're feeling.
+- I have been a funny kid growing up but every one thought I was a serious person. I think it has to do with the choice of my films such as 'Zakhm,' 'Kalyug' and 'Traffic Signal.'
+- Soha is a very balanced and intelligent girl. She does advise me at times. We do discuss films but the decision rests with the individual. We are both strong characters and so at times our fights turn volatile. But me being a Gemini, I blow hot and cold, so I usually patch up in 10 minutes.
+- I keep feeling I constantly debut every two years.
+- I know my limitations as an actor.
+- I admit that I am very possessive.
+- First hand on 'Go Goa Gone' I learnt how to write on final drafts, how the process works.
+- I have been doing films since I was seven. I really love the medium itself.
+- An actor has to be a complete package, he should have a toned body, know how to dance, act and do everything possible under the sun.
+- I think one should take criticism in one's stride and prove oneself. In fact, I would like to thank my critics as their criticism gave me the fire and passion to prove myself.
+- People will always talk about stars who are doing two films together.
+- I enjoyed watching 'Mirzapur,' 'Sacred Games.' There are interesting shows.
+- As a child working in films was like a hobby but now it has turned into a profession. And with that, it's become a life that's full of pressure and nervousness about Box Office results, competition.
+- Sometimes even if a common friend holds Soha's hand, I get jealous. But other days, she can go out for dinner and dancing with someone and I wouldn't think much about it.
+- There is something so different and empowering about travelling solo. It's a unique experience and one that is so self-educating.
+- I am a person who is greedy to do better in life, to do more in life.
+- As an actor I get opportunities to do different kind of films. It's not that if I have done a few comedies, I'm averse to other roles or genres. It's just that I go for the films I like and incidentally some of them have been comedies.
+- Once in a while, I get a massage done at home but I'm not a spa junkie.
+- There are times when your films don't work, your phone doesn't ring and you wonder what you have done.
+- I don't chalk out my career thinking that I want to first do serious drama, then a comedy or an action. I take the best of what's available and only if it interests me.
+- Most people only concentrate on their upper body and ignore their legs. It doesn't make sense to have a bulky upper body and have skinny legs. I too, fell prey to this and had weak legs.
+- Success of a film is not only based on the film being good or bad. A lot of other factors are involved as well.
+- Don't try to fit in or stand out - just be yourself.
+- I never regret what I do. I'm very proud of every work I have done.
+- Directors were apprehensive in trying comedy with me.
+- I love action films because I have grown up seeing some of the brilliant movies of the genre like 'Ghatak,' 'Ghayal,' 'Shiva.' Watching people doing such stunts had always mesmerised me and fascinated me to think that I should also do such things if I become a hero.
+- Dhol' is a light-hearted thriller revolving around four unemployed guys who are chasing money. It's my first attempt at comedy.
+- There are roles that I can't do.
+- I'm a big foodie but not much of a cook. I can cook desi stuff like dal, rice and chicken. I learnt to cook a little bit when I was in college and I used to cook for my friends. I'm not picky about food and eat all types of food, the type of cuisine doesn't matter as long as the food tastes good.
+- I learnt a lot as a child actor. Since I had been before the camera, I knew how it would be to be on a set or on a shoot. That way it was easy for me when I re-entered the industry as the main lead.
+- I don't want to take off my shirt and roam topless all the time, just for the heck of it.
+- I have had my share of flops and it's very discouraging. It's pathetic to be on that side.
+- As a kid, I was playing a character, so the film was not on my shoulders. I did 11 films out of which three were appreciated and remembered. At that time no one was following my career, so it was easier. But now when you are a mature adult, it's a different experience.
+- I don't make a conscious effort to choose any particular genre. If I like the script, I go ahead with the project.
+- I'm happy, I feel I've married my best friend.
+- There are films where the promos reveal all the punches and when you go to watch the film you feel like having seen it all. Such films don't last after a good opening.
+- Life was difficult for my family, as we didn't know where to go after leaving Kashmir. We settled down in Mumbai, in a suburb called Mira Road.
+- I used to once believe that the script is the most important thing, but now I also believe that the kind of people you are working with also matters a lot, and moreso, to see how the film will be promoted.
+- I was born there and I moved away in 1990 when I was seven years old. After that my family moved away from there to Delhi and Mumbai. Now, only a handful of relatives live in Kashmir and we are constantly worried about them. It pains me to see that my birth-place is not a safe place to be in anymore.
+- You don't want to be wearing tight jeans and a blingy jacket on a 16-hour flight.
+- As an actor, I can only do my job well, but in a movie there are a lot of other things that matter too - like how it is edited and promoted and the works. Those are not in my hand.
+- Though I can speak only tooti futi Gujarati, I can understand it completely.
+- Sporting a six-pack doesn't necessarily mean that one is fit as it tends to reduce one's immunity levels.
+- If you don't need it, don't buy it.
+- Don't try to walk in someone else's shoes - literally and figuratively. Wear what you feel confident in.
+- After working in a number of films as a child actor, I took a break so that people could forget me as a child actor and relate to me as a hero.
+- I like watching American TV shows like 'The Sopranos,' 'Game of Thrones,' etc. I also like to watch dance reality shows since I love to dance, even though I haven't been trained in dancing.
+- As an actor you get to play different roles and genres. I feel that it pleases and satisfies me to do different genres as it can get repetitive.
+- Acting is my first love and I want to stick to it. But I would be happy to offer my inputs to a script, if asked.
+- It's a huge learning that things aren't always in your control. You can only be responsible for what you're doing.
+- I am a fan of crime investigative series.
+- I am not a fitness freak.
+- I have generally never committed to things in my life but I am very committed to this relationship. Soha is one of my best friends and sometimes I treat her like a friend more than a girlfriend.
+- We have seen many child actors who have gone astray. They were particular that 'Zakhm' was going to be my last film as a child actor and after that I took a six year break for education.
+- I have been lucky to have got big offers like 'Kalyug,' 'Traffic Signal' or 'Dhol.'
+- Kissing on screen isn't easy.
+- Bollywood has not utilised my potential! But unfortunately, we can't plan and have things our way.
+- As a child, I thought we had come to Mumbai for a holiday. I did not realise that this holiday was permanent.
+- Onion juice and peel applied to the face and scalp is a great natural detoxifier. I followed it for some time but it kills your social life! You can say I didn't find it very a-peeling.
+- I don't think any relation can work if one dominates. It has to be an equal relation for it to be successful and happy.
+- The only time I travelled solo was when I did a 40-day trip visiting America for the first time.
+- All relationships are complicated in some way - you fight, you make up, you laugh, you get angry. It happens.
+- I am not a trained writer.
+- I am lucky to get different roles.
+- When we watch a film as actors, you have to understand that we always see much more than what's on screen.
+- I would love to do roles which would become dream roles for others.
+- I started off with films similar to 'Blood Money' - intense, emotional dramas. But as is often the case, the industry and audience typecast me and I decided to break away. Hence, followed a spate of comedies.
+- I got much acclaim with 'Traffic Signal' but 'Superstar' didn't do well.

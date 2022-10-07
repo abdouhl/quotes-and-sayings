@@ -1,0 +1,46 @@
++++
+author = "Cynthia Erivo"
+title = "Cynthia Erivo Quotes"
+quotes_len = "40"
+description = "the best 40 Cynthia Erivo Quotes"
++++
+- What happens when I go to America is I sound really English. Most people would start sounding American, but I do the opposite.
+- I don't have dairy because I'm a singer and, quite frankly, I don't want to mess around with my vocal chords and how those behave, and dairy is an allergen for me.
+- If you're going to go for a thing, there's no point unless you're going all the way.
+- One of my favourite pieces is 'Antony and Cleopatra' - I'd love to be in that. Or an alternative version of 'Romeo & Juliet' where I get to play Mercutio, something like that.
+- The thing that disturbs me the most, being in England, is that on the screen we don't see very many of us - there aren't very many black girls. They don't make the roles for us, or they don't see us in those roles.
+- There are days when I'm completely obsessed with Kate Bush, and there are days when I'm completely obsessed with the Eurythmics. Then it's Aretha Franklin, then it's Lena Horne, then it's Ella Fitzgerald, then it's John Legend, then it's Michael Jackson. Music, to me, is like food, so I feel like whatever I need that day, I can get from a song.
+- My body is one that kind of looks at weights, and then all of a sudden, I have muscle.
+- When I was 15, I didn't think I was the prettiest at all. But then something happened when I was 20-something - I thought, actually, I really like what I look like. Just because I don't look like everybody else doesn't mean that I can't be just as beautiful.
+- I love that I can demonstrate that it's OK to look and be strong.
+- My faith is with me always.
+- I take biotin to make sure hair and nails are growing well.
+- I would love to appear in 'Scandal,' something like that, or 'Grey's Anatomy' because I think they're incredible.
+- I've seen 'Hamilton.' I'm obsessed. The music is crazy.
+- I like Traditional Medicinals for most teas I drink.
+- I don't drink anything other than water and herbal tea.
+- What I want to see is more mixed casts. We need it. People need to be brave - in the real world, everyone and anyone is around. So if people get to see themselves on the stage, they'll want to come.
+- It's kind of epic to see four women really be physically and mentally strong, in themselves and in their lives. That's what 'Widows' is.
+- Just because I don't look like everybody else doesn't mean that I can't be just as beautiful.
+- I travel with seaweed chips, edamame chips, tea, peanut butter, avocados. I always take my supplements with me because they're easy to carry.
+- As a singer, I like to have a warm beverage with me all the time.
+- Put me somewhere, tell me what to do, and I can get it done.
+- Watching Mum work hard made me do the same. I've watched her since I was little, and I've picked up on how hard she works and the fire she has in her belly.
+- I'm a geek when it comes to my voice. I know if it hurts, something's wrong. You shouldn't feel it! It's very important to look after your voice.
+- I do love to get my nails done.
+- I think what's different about working on stage is that you have another chance to portray it again. If you don't get something right on film, you can do another take, but on stage, once it's done, it's done. You can't go back.
+- If you believe in chakras - head and heart - I think singing opens them up, like a wide open door.
+- What's amazing with 'The X Factor' is that it gives people a chance who wouldn't normally have one. I couldn't go on it, because it would be, like, me being lazy, because I've definitely had my opportunities.
+- I always say that I want to play Serena Williams if they ever did a biopic of hers. I definitely want to do that, and I want to do some films.
+- You sense when something is special, but you don't know how special it is until it's in front of an audience.
+- I became a fitness fiend when I was about 17 or 18.
+- Meditation, yoga, working out, and eating well. That's my wellness. And I think occasionally you have to treat yourself, so if you do need to take yourself shopping, go take yourself shopping.
+- The major perk of living in Brooklyn is that everything is there. If I did not want to leave Brooklyn, I could stay there the whole time.
+- When I was younger, I just liked the sound of different accents, and I used to just play around to see if I could do things. I hear accents like music, so that's what helps me to learn them.
+- I discovered at the age of five that I could sing, and I realised people liked it. The sound that came out made people happy, so I kept doing it.
+- I do have my own washing machine, but I do miss going to the laundromat. I love the smell of fabric softener.
+- I try to ignore the Tonys buzz as much as possible. It's wonderful to be thought of that way, but I have to kind of pretend it's not happening so I can keep focus. It's about the work I'm doing, and it's more than enough to come away knowing that people are changed when they leave the theater.
+- I'm a very, very healthy eater, so it's proteins, greens, proteins, and more greens - and lots of water.
+- I don't think it's different to be a black girl in England than it is to be a black girl from America. We all collectively share in a pain of displacement and not feeling like we quite belong in places.
+- If your body is working correctly, and then you get a cold or something, that cold probably won't knock you out as hard as it would have if you weren't healthy.
+- I don't believe that many things are impossible to achieve so long as you put your mind to it and take the time to get it done.

@@ -1,0 +1,106 @@
++++
+author = "Kyle Larson"
+title = "Kyle Larson Quotes"
+quotes_len = "100"
+description = "the best 100 Kyle Larson Quotes"
++++
+- There's a handful of racing things I've done where it was like, 'Man, that was really stupid and embarrassing.' But I don't mind talking about them.
+- I never had to really worry about anything and I guess I was naive.
+- Being labeled a racist has hurt the most, but I brought that on myself.
+- I think fans appreciate seeing me race a lot.
+- I was having the time of my life racing, sprint cars and midgets and then dirt late models. I was doing stuff that I always wanted to do - maybe didn't think I'd be doing it at 28 years old - but I did accept it.
+- Elk Grove will always be home.
+- I think the definition of 'the greatest racecar driver' is different to everybody.
+- I love making fun of myself.
+- I know deep down I'm not a racist.
+- Accountability matters.
+- All I can do is continue to improve myself and let my actions show who I truly am.
+- I haven't really done a whole lot of daring stuff. Like when I go snowboarding, I don't go in the terrain park.
+- I think in 2012, I ran 28 races in June, so I probably ran 12 or 13 in a row, at least.
+- When I think of a rivalry, I think of two drivers who butt heads.
+- I always root for the underdog.
+- It's definitely a great honor to be the first Asian-American to win a NASCAR Cup Series Championship. It's not something that I set out to accomplish in that way, but now that I have, I know that I hold a much bigger role in the Asian community.
+- I feel the car, but I think with me and my background of dirt racing and stuff and not having pit stops, you just kind of 'All right, this is how my car is handling, I've got to figure out how to drive it' and then you get a feel of how you want it to feel.
+- You have to grow up pretty quick when you get to the Cup series.
+- I don't remember anything about '93. I remember going to some Copper World Classic races. I probably had to have been 4 or 5 around then. I probably mostly remember it because of my mom's pictures that she takes all the time.
+- I don't think I'm as good as what a lot of people say I am.
+- I've just got to remind myself that it's hard to express tone and sarcasm and stuff through text.
+- I really just love racing cars in general.
+- I love racing with the World of Outlaws.
+- I make fun of my dad all the time for crying, and I'm worse than he is.
+- In the sprint cars, you have to be so aggressive for 30 or 40 laps.
+- I always like going to fancy Italian restaurants.
+- NASCAR racing is the highest form of American auto racing, and I've always wanted to be racing in the highest form. I want to accomplish good things in everything I get in every night, but NASCAR is the biggest, most-watched thing in American racing.
+- I feel like I don't hit the radio button ever - or not enough, even on the good stuff. I do shout some stuff when I'm mad at myself, but I'm pretty good about not hitting the radio button.
+- I hate breakfast, so I've got to find somethings that I like to eat in the morning and just make sure I drink enough fluids.
+- Hendrick Motorsports has great, great people there and I'm very lucky to be a part of that team and surrounded by amazing people.
+- Now that I'm at Hendrick, it makes me appreciate my years I had at Ganassi even more. We did way more and accomplished way more than we probably should have compared to what resources Hendrick has.
+- To get back-to-back wins in the Cup Series is something I've always dreamed of doing, and to get it done feels great.
+- I think a lot of people think of NASCAR drivers as living the private life, the luxurious life. But I don't.
+- I like country, and I like some classic rock, too.
+- Everything about the compound there at Hendrick Motorsports just down the street is perfect. Everything down to the way they mow the lawn. It looks amazing.
+- I said a racist word and I can fully understand why people would label me a racist.
+- Hendrick Motorsports overall has a lot of great people and that gives you confidence that you can have a good season.
+- Just blocking noise out and doing something you love and enjoying it and having fun with it. It's kind of made my mentality in me staying calmer much better.
+- I think every driver wants to make an impact in racing at any division they run on the way up.
+- I was accepting of the fact that I probably won't ever race in it again. I'm thankful that I did get that second chance and I was able to do good things through it.
+- I don't watch a whole lot of TV, but since the time I was 10 or 11, I've watched MTV's 'The Challenge.'
+- I feel like in the races I watched before I got to NASCAR, nobody ran like right next to the wall. And I feel like since I've gotten here, a lot more people do now. I don't know if it's the way the cars drive or the tracks age or what, but I feel like I've had a part in changing the style of NASCAR racing a little bit.
+- I have all the respect in the world for Matt Kenseth.
+- Treating others with respect matters.
+- Like any parent, they've been extremely supportive of my racing throughout my childhood. I mean, my mom says that she didn't want me racing, but I think my dad and I both knew she wasn't going to win that battle. She loves it more than anybody, so it's neat to have the archives of all my old races.
+- I want to be who I am, and I think fans and media members appreciate that.
+- In sprint car wrecks, just slam your head against a table a couple times and that's probably what it feels like. You get whiplash, all that stuff.
+- I feel like Hendrick just plays games in a way with NASCAR. I feel like they always start the year off kind of bad to like show NASCAR that they're being nice and cooperating and following the rules and stuff, and then it gets a couple of months in, and then they start cheating and finding some speed.
+- I like being a guy that's bridging the gap between all different forms of racing, especially now that I'm in the Dirt Late Model stuff, too. I think that's helped bridge the gap between sprint car fans and Late Models.
+- I've always wanted to go to an F1 race.
+- People tell me all the time you have to be mentally tough to win the championship, and I feel like enough people hype it up to where you have to act different come playoff time. But I'm not a tough guy. So I don't know how to be tough. I don't know what I'm 'supposed' to be doing.
+- I won the K&N championship in 2012.
+- I won a sprint-car championship in 2010.
+- My phone rang and I got to have a meeting with Rick Hendrick, and my life changed ever since.
+- I have a lot of confidence in myself, but I'm nowhere near as good as Tony Stewart, Kyle Busch, Kasey Kahne. I think over time I hopefully can be.
+- You've got to take care of yourself as you get older, definitely going to try and do a better job of that.
+- I would love to run the Indy 500 someday. But I would only want to do it if the right opportunity was out there and I was in a car I felt like was capable of winning with a team and crew that has a history of winning here at the Speedway.
+- Even when we've been winning, we still look at things that we could have done better, whether it be on the racetrack, on pit road, just little things to maximize our day.
+- The goal for all of us drivers is to get a championship, but I've always wanted to be known as one of - if not the greatest - all-around race car drivers ever.
+- I think people like that I speak my mind, but I think I can speak my mind in a better way sometimes and choose my words a little bit more wisely.
+- I like getting together with friends and just making fun of ourselves and stupid things I've done or I've seen them do - and good races we've had together. When I go home to California, I always talk to my go-kart friends about when we were racing at Red Bluff or Cycleland.
+- I guess I can't pinpoint like one thing that's a weakness, but if we can continue to get every area better, I mean, we'll be really hard to beat.
+- When I was a kid, Jeff Gordon was invincible and I probably thought he was going to race the rest of his life.
+- All the stuff I learned off the track about what's going on in the world made me a bigger and better person.
+- I want to be known as a guy that was competitive in every type of race car he ever got in.
+- I grew up in Northern California, all I ever did was race and that's all I was focused on.
+- I definitely think as much as I race and so many different types of cars that I run - and having success doing it too - I think helps grow the sport of motorsports. It's not something I really have to work to do though. It just naturally kind of happens. And it's what I love to do - I love to race so much.
+- I don't want to lose who I am, but at the same time I need to not get myself in trouble sometimes.
+- I haven't gotten overly confident or cocky. I think staying level and humble has helped me through the bad times and the good times.
+- I try to race everybody with respect.
+- To be around a person who is that well-respected is just going to teach me even more about how to be better.
+- Apologizing for your mistakes matters.
+- You don't forget how to win.
+- It's cool just to be competitive each week really.
+- The 24 is just legendary, it's kind of like the 3 with Dale Earnhardt Sr. where everybody knows the rainbow 24 DuPont Chevrolet. It is just a very recognizable car, driver, just a legendary team.
+- I know there's always going to be doubters, and that's something I've accepted.
+- If I really had a true racing hero, I would say it's Tony Stewart, who I've always believed to be the best race car driver ever.
+- I never really realized how privileged I was in the way I grew up.
+- When I got to experience Hendrick Motorsports, I realize now that we didn't have the resources these big teams have.
+- I think I feel a car like anybody else can, but maybe what makes me different is that I race so much that I have experience racing with a lot of different crew chiefs. I'm really easy to get along with and me not knowing anything about a race car, I know to just let them do their job.
+- NASCAR is where I always wanted to be and I do believe I proved I can compete at the Cup level.
+- I seem to struggle when it comes to racing on road courses.
+- Jalapeno sausage, I love that.
+- I hope I'm the next big thing. We'll just have to wait and see, I guess. I'm sure there are a lot of other 'next big things' coming up. I hope I can stand out as that guy.
+- We wreck a few times a year, we're not getting hit in the head as much as football players, but concussions still happen in our form of racing.
+- I didn't have a full understanding that there are people struggling with different things on a daily basis.
+- My parents have always told me to try and stay humble as you can, and I think that's been a big help to my career.
+- It's been nice to hang out with my friends in the sprint car world just because a lot of drivers in the sprint car racing community are some of my best friends.
+- Nashville has so many music fans and fans of music are also fans of NASCAR and just the atmosphere here throughout town gives you a good feel.
+- I like that, to possibly be the guy to make Chip Ganassi Racing a championship team year in and year out.
+- This sport is so tough so it's nice when you go run a sprint car and go win a race.
+- Well, I never worked a real job.
+- To win a championship is crazy.
+- In 2017, we won four races and we were a championship favorite. That's something I'm really proud of and something I'm more proud of after spending a year at Hendrick.
+- I just want to be known as a real racer.
+- I don't know if any more people recognize me, now that I'm a champion. I went to Disneyland and only had a handful of people recognized me, which was cool.
+- It's hard to diagnose head injuries in any sport, and nobody knows their own body as well as themselves.
+- Each race, I feel like I'm a little more patient.
+- I think you can always get every area of your game better.
+- This is something you always dream about, being in this position to win a championship.

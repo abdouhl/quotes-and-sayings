@@ -1,0 +1,62 @@
++++
+author = "Thomas Mann"
+title = "Thomas Mann Quotes"
+quotes_len = "56"
+description = "the best 56 Thomas Mann Quotes"
++++
+- I don't think anyone is thinking long-term now.
+- Only he who desires is amiable and not he who is satiated.
+- Solitude gives birth to the original in us, to beauty unfamiliar and perilous - to poetry. But also, it gives birth to the opposite: to the perverse, the illicit, the absurd.
+- War is only a cowardly escape from the problems of peace.
+- One must die to life in order to be utterly a creator.
+- What a wonderful phenomenon it is, carefully considered, when the human eye, that jewel of organic structures, concentrates its moist brilliance on another human creature!
+- Opinions cannot survive if one has no chance to fight for them.
+- Animals do not admire each other. A horse does not admire its companion.
+- A solitary, unused to speaking of what he sees and feels, has mental experiences which are at once more intense and less articulate than those of a gregarious man.
+- The writer's joy is the thought that can become emotion, the emotion that can wholly become a thought.
+- We don't love qualities, we love persons; sometimes by reason of their defects as well as of their qualities.
+- A harmful truth is better than a useful lie.
+- An art whose medium is language will always show a high degree of critical creativeness, for speech is itself a critique of life: it names, it characterizes, it passes judgment, in that it creates.
+- It is love, not reason, that is stronger than death.
+- The only religious way to think of death is as part and parcel of life.
+- A great truth is a truth whose opposite is also a truth.
+- If you are possessed by an idea, you find it expressed everywhere, you even smell it.
+- Psycho-analyses, how disgusting.
+- A man lives not only his personal life, as an individual, but also, consciously or unconsciously, the life of his epoch and his contemporaries.
+- For the sake of goodness and love, man shall let death have no sovereignty over his thoughts.
+- Speech is civilization itself.
+- One has the idea of a stupid man as perfectly healthy and ordinary, and of illness as making one refined and clever and unusual.
+- I shall need to sleep three weeks on end to get rested from the rest I've had.
+- I love and reverence the Word, the bearer of the spirit, the tool and gleaming ploughshare of progress.
+- Literature... is the union of suffering with the instinct for form.
+- I never can understand how anyone can not smoke - it deprives a man of the best part of life. With a good cigar in his mouth a man is perfectly safe, nothing can touch him, literally.
+- A man's dying is more his survivor's affair than his own.
+- Time cools, time clarifies; no mood can be maintained quite unaltered through the course of hours.
+- One always has the idea of a stupid man as perfectly healthy and ordinary, and of illness as making one refined and clever and unusual.
+- For I must tell you that we artists cannot tread the path of Beauty without Eros keeping company with us and appointing himself as our guide.
+- Respectable means rich, and decent means poor. I should die if I heard my family called decent.
+- What we call National-Socialism is the poisonous perversion of ideas which have a long history in German intellectual life.
+- People's behavior makes sense if you think about it in terms of their goals, needs, and motives.
+- For to be poised against fatality, to meet adverse conditions gracefully, is more than simple endurance; it is an act of aggression, a positive triumph.
+- The Freudian theory is one of the most important foundation stones for an edifice to be built by future generations, the dwelling of a freer and wiser humanity.
+- He who loves the more is the inferior and must suffer.
+- Order and simplification are the first steps toward the mastery of a subject.
+- The task of a writer consists of being able to make something out of an idea.
+- Human reason needs only to will more strongly than fate, and she is fate.
+- Disease makes men more physical, it leaves them nothing but body.
+- Democracy is timelessly human, and timelessness always implies a certain amount of potential youthfulness.
+- Reduced to a miserable mass level, the level of a Hitler, German Romanticism broke out into hysterical barbarism.
+- It could become much worse.
+- But my deepest and most secret love belongs to the fair-haired and the blue-eyed, the bright children of life, the happy, the charming and the ordinary.
+- Everything is politics.
+- A writer is somebody for whom writing is more difficult than it is for other people.
+- For the myth is the foundation of life; it is the timeless schema, the pious formula into which life flows when it reproduces its traits out of the unconscious.
+- Has the world ever been changed by anything save the thought and its magic vehicle the Word?
+- What is uttered is finished and done with.
+- Culture and possessions, there is the bourgeoisie for you.
+- There is something suspicious about music, gentlemen. I insist that she is, by her nature, equivocal. I shall not be going too far in saying at once that she is politically suspect.
+- Every reasonable human being should be a moderate Socialist.
+- All interest in disease and death is only another expression of interest in life.
+- Time has no divisions to mark its passage, there is never a thunder-storm or blare of trumpets to announce the beginning of a new month or year. Even when a new century begins it is only we mortals who ring bells and fire off pistols.
+- It is a strange fact that freedom and equality, the two basic ideas of democracy, are to some extent contradictory. Logically considered, freedom and equality are mutually exclusive, just as society and the individual are mutually exclusive.
+- For the beautiful word begets the beautiful deed.

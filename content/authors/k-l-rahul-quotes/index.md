@@ -1,0 +1,106 @@
++++
+author = "K. L. Rahul"
+title = "K. L. Rahul Quotes"
+quotes_len = "100"
+description = "the best 100 K. L. Rahul Quotes"
++++
+- I've been consistent in all the three formats, and that's what I want to do as a cricketer.
+- I respect Test cricket a lot. Once I got into the Test team, I learnt so much about international cricket and realised it's not so different.
+- I enjoy wicket-keeping in the shorter format. I think when we are bowling first, it gives me an idea of how the wicket is behaving.
+- Every player needs that one or two innings to get the confidence in whatever format to realise that he's good enough to be successful in whatever conditions or at whatever level.
+- Teams expect a lot from an opening batsman. It is a lot of responsibility.
+- I was fortunate enough to interact with him when I played for RCB in IPL. I learnt from AB as to how he prepares for a game. I get amazed by the kind of strokes he hits and the time he has got to play those shots.
+- Whenever I get opportunities at the top of the order, that's the position I enjoy.
+- Earlier in the shorter format, I was not consistent, so I was not getting noticed. But I always believed that I had the game to do it. It was just about consistency.
+- You need to be ready to bat, whatever you are given; you have to take what is thrown at you.
+- I have always been someone who takes things as they comes.
+- As players, we look to prepare, and if opportunity comes by, we want to do well, both for ourselves and for team.
+- I know opportunities will come my way.
+- When I came into Test cricket, I was good but not as good as I am now.
+- I'm not a person that sets a long-term goal. My goals are on an everyday basis.
+- For me, aggression means not to be shy and to do what your mind tells you.
+- Everyone wants to perform.
+- If you are hitting the ball well, your form, your technique looks good, and when you are not, everything about your game looks bad. That is how it goes.
+- I obviously respect the opportunity I have got to play for the country.
+- There are only a few times in a batsman's life when he gets really eager: when you want to get off the mark or when you are approaching 100 or 200.
+- I have delivered sometimes, and the other times, I have not. I have taken it in my stride as a player and learnt from my mistakes.
+- I am happy to playing against teams like South Africa and Australia early on in my career. It is going to make me stronger as a cricketer.
+- Where I play is not for me to decide.
+- My only sentiment is to win.
+- Fortunately, I got to play some India 'A' games, and some games where the pressure was a little less, so that I can focus on my skill and my technique.
+- While growing up, I used to go to the beach, as I used to find peace there.
+- Fitness is also about being well-rested, eating well, etc.
+- For somebody like me who doesn't bowl, it's important to contribute in the field, and I've worked hard on that, slip catching.
+- Everybody enjoys each other's success. We are always pushing each other to get better on the field and off the field, helping each other out in the nets or in the gym. That's the most important thing.
+- I always knew I had the game to do well in every format. It was just a matter of time.
+- I had to prepare hard for number four because that's not where I batted all my life.
+- When kids are 15 or 16, they should be playing more sports. I played football, basketball, cricket... Name any sport, and I played it.
+- I would be proud if I can score as many runs as Rahul Dravid by the time I retire and serve the country as long as he did.
+- I don't know whether I am mentally tough or not, but one thing I know is that I like the game and spend as much time as possible on it.
+- We, as sportsmen, we're not used to just sitting at home and being at home all day. We want to go out. We want to play sport. We want to be in the gym, want to train; we want to hit balls, and when you're not physically able to do that, it's really tough. It starts playing on the mind a lot more.
+- The more cricket you play in your head, the less you perform on the field. So let cricket, the sport, be on the field.
+- A good wrist spinner is a good wrist spinner against any opposition.
+- Batting with Dhoni is always a dream for me.
+- If you are feeling light, and you are not feeling tired in your body, you can obviously concentrate more.
+- For an opening batsman, it's important to hit a few balls in the middle of the bat and get a few boundaries going.
+- I have always enjoyed keeping. I used to keep earlier for my state and later didn't have much chance to keep. But I keep myself ready if ever anyone wants me to keep.
+- 200 for a batsman is a big landmark, and I have never been somebody who has chased landmarks, but getting a 200 will always be a proud moment for a batsman.
+- I have always enjoyed keeping wickets, as it is something that comes very naturally to me.
+- About wicket-keeping, I have enjoyed whatever little bit I could do and contribute for RCB.
+- I can get runs much faster if I stay there in the middle to give bowlers more time and cushion.
+- If you get off to a good start, even if you get the run-rate down a bit in the middle overs, if you are set till the end, you can do the most damage.
+- Every player goes through rough patches.
+- If I am playing a game, I want to give my best, and that's the only thing that helps me sleep peacefully at night.
+- It took me a long time to realise that I need to stay true to my game.
+- The gap between first-class and international is mostly on the mental aspect.
+- It is a very happy feeling that a legend like Rahul Dravid talks highly about me. But I can't just sit back and be happy about it. I have to back it up with my performances.
+- I have had to work really hard at white-ball cricket. It doesn't come naturally to me, I was a slow batsman; I worked hard on my game and fitness.
+- When you get a chance to play, if you help them win a game, then the team will start believing that the player can also do this for the team. So building that confidence for yourself and the team is very important.
+- As an opening batsman, it's my responsibility to spend as much time in the middle as I can and try and get big scores in the first innings so that we don't have to bat in the second innings.
+- It's a team game, and you need to be flexible.
+- The dream of every kid is to play for the country, and I am no different.
+- Both my parents are teachers, and while they were always cool with what I did, they never let me take my education lightly.
+- Quite honestly, cricket is same at all levels. It's a game of bat and ball.
+- You know when you go to Australia you will get sledged. That's the fun of the game.
+- Working my way through different formats has not changed my batting approach much.
+- 2018 was magical for me as far as IPL is concerned.
+- Having to play Test matches for a month and then switch to T20s in five days is not easy, but that's the kind of challenge I love to face.
+- You need to be mentally and physically very strong to go and perform in Australia.
+- Each time I go back to bat, I will want to get more and more runs.
+- As a team, you try to win - you try to push in as many overs you can - but that's how it's played.
+- I've been successful when I have kept things simple - playing cricketing shots that I'm blessed with or I am good at playing.
+- I have to be patient, keep performing, and be consistent.
+- Nobody wants to lose game.
+- No matter how well I have taken care of my body, I have been injured a few times, which is very unfortunate and which is very disappointing. But each time, I have come back, I have come back stronger, and I have come back hungrier.
+- I never played for numbers.
+- I totally enjoyed playing in Australia. I think they play very tough cricket, and the brand of cricket they play is very strong.
+- I am a sporty person who loves to go to the gym, train, play football.
+- At the highest level, you are playing the best from an opposing country, so the margin of error is very little.
+- I have always felt that there is no substitute of experience.
+- As a cricketer - or any sportsperson, for that matter - you like yourself to be tested and get better all the time.
+- Virat has helped me with my preparation, mindset, and he has given me a lot of confidence.
+- That's where I would love to bat, and I have always batted at the top of the order. Numbers one and two are what I am most comfortable in.
+- Every day, I want to be a winner. I want to train my best; I want to work my best.
+- Every innings is important.
+- For anybody, faith and belief are everything you have. Nobody gave me the India cap; nobody taught me to go and get runs. It's a belief I had in myself.
+- If you are batting first as an opener, you give yourselves a couple of overs, see what's the wicket behaving, and then try to assess what a good score on that wicket would be, and then you plan accordingly.
+- I spent a lot of time with Rahul Dravid, working on my game and chatting about cricket. He helped me a lot in the games I played for India 'A.'
+- After junior cricket, if the team wanted me to keep in a one-off/odd match or if anyone got injured, I was up for it. I kept in One-dayers and T20s.
+- I am only trying to improve as a player with each tournament, each game, each opportunity.
+- Wherever we play, the batsmen have bigger responsibility in ODI and T20 formats to set up big targets and give that cushion to bowlers.
+- T20 may be fast, but still, you never plan for a T20 - the same way you don't plan for the other formats.
+- Sometimes, you tend to hold back, maybe because you have lost a few wickets or something. But when I bat, I'm never shy of doing what my mind says.
+- I was a shy kid but also very mischievous. Because I looked super innocent, no one could really call me out on my pranks.
+- With the new ball, against any bowler, it's important to see off the first few overs.
+- I don't really have routines or follow what my coaches tell me or how people want me to be: this stereotypical 'sleep on time and set good examples' person. I don't really know what setting a good example is.
+- Those first few overs are obviously the most difficult time because you don't know what the ball is going to do in the air and off the seam.
+- I have always liked to attack the bowlers, and batting is all about getting runs.
+- I got some time off from international cricket so I could come back to India and reflect on what was not going right for me.
+- I would like to improve my shot selection when it comes to playing short-pitched deliveries.
+- I just enjoy batting, scoring runs, and contributing for my team.
+- Everybody has different ways of playing the game.
+- When you sit out, then you realize that, when you get the opportunity, how important it is to use that opportunity, not only as a player individually but also for the team.
+- Growing up, I played on matting wickets. I always enjoyed the pace and bounce and somewhere that has a big role or big effect on your game.
+- Playing Australia, of course, is always challenging.
+- I have always felt like I am a positive player.
+- I am not someone who likes to be in the dressing room and waste time; I like to be on the field all the time and be counted. That is how I am.

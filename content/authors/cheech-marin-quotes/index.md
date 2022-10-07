@@ -1,0 +1,64 @@
++++
+author = "Cheech Marin"
+title = "Cheech Marin Quotes"
+quotes_len = "58"
+description = "the best 58 Cheech Marin Quotes"
++++
+- We did six records, then six movies. Now we need to do six of something else, so we get 666 - and then our master Satan can return!
+- I guess what really made me a Dodgers fan from the beginning was that the team had Jackie Robinson, the first 'Negro' in the major leagues.
+- I guess one of the ways that karma works is that it finds out what you are most afraid of and then makes that happen eventually.
+- When I lived in Paris in the early '80s, I had the occasion to hang out with Prince Albert of Monaco quite a few times.
+- Being a Chicano in Hollywood, my experience is that you're not given credit for any sophistication... You're just kind of some guy that just crossed the border, you know, on the back of a truck and that's it.
+- We are a multicultural country - always have been, and to our credit, always will be. It is something that we should be very proud of and embrace.
+- I was part of the draft resistance movement in L.A. where we did demonstrations at the draft centre and burned our cards and made a lot of trouble on campus. I had a student classification and they said that anybody who'd taken part in these demonstrations would be reclassified and drafted. And that's when I went to Canada.
+- It always trips me out that America, the most powerful and magnificent nation in the history of the world, whose might was built by immigrants from all over the world, only speaks one language.
+- I've always wanted to be able to say that I come from Los Angeles, California and feel quintessentially American - even if I said that in Spanish.
+- Mexicans are quasi-legal.
+- You know you're in a bad movie when the Catholic clergy is being played by Jews.
+- Well, sometimes you need the fields to lie fallow in order to gain nutrients.
+- Whether it's from the biggest, most powerful city, or from the dinkiest little podunk town, there is a certain attachment and connection, and yes, pride about where you came from.
+- Born in St. Petersburg, Russia, my wife speaks five languages: Russian, English, French, Italian and, out of self-defense, Spanish. I watched her learn Spanish in three months.
+- Every kid that goes to Catholic school believes he's going to be a priest one day.
+- It is surprising how many professional athletes, along with their families and friends, are gaga over movie and music stars, and the reverse is true with entertainers and sports stars.
+- I drive an S80 Volvo; it's one of those real flashy cars. No, I just like it because I like a nice, cush ride; the Volvo is really cush, and it's powerful and fast.
+- I'm the go-to guy for Mexican priests. I'm the new Barry Fitzgerald, except with a Mexican accent.
+- In the end, the great leveler in any sport is performance on the field or on the court. Kids don't care what language players speak or if they eat tacos, rice, or sauerkraut. They don't care if they're white, black, or brown.
+- The word 'Chicano' was originally a derisive term from Mexicans to other Mexicans living in the United States.
+- Hey, I was raised in the church.
+- Growing up in Southern California, it's all car culture. When I was a kid, I knew every single model of every single car dealer; I knew every style of every year.
+- The very first time I got to drive by myself, I took a bunch of my friends to school and was caught by a motorcycle cop going 90 miles an hour on a back street.
+- Hey, I was raised in the church. I was an altar boy and a choir member. I almost became a priest - until common sense grabbed hold of me.
+- I was interested in a lot of subjects from very early on. And that's uniquely Chicano because every Chicano I knew always had three jobs.
+- I was part of the draft resistance movement in LA where we did demonstrations at the draft centre and burned our cards and made a lot of trouble on campus.
+- Just about every Latin American country has sent players to the big leagues, from the Dominican Republic to Costa Rica.
+- I've never seen a NASCAR race; I've seen an Indianapolis 500 race.
+- What I look for when I see a piece of art for the first time is some kind of emotional, intellectual experience, that's a combination of both of those things and is informed by my knowledge and something new that I see the artist doing.
+- By the time I discovered Chicano painters in the mid-'80s, I recognized that these guys were really world-class painters, but they weren't getting any attention, which was good in one sense in that I could get their work for cheaper!
+- The reason we're so dangerous is because we're totally harmless.
+- Being a third-generation Mexican-American and speaking English exclusively, I heard Spanish spoken by my relatives all my life, especially when they didn't want me to understand what they were talking about.
+- My first car was a '56 Ford station wagon - cost 100 bucks.
+- As a kid, I used to go to the library and take out all the art books.
+- My marriage was breaking up, and my marriage with Chong was breaking up. I had to come back and kind of start on my own again.
+- So what's really behind the 'English Only' Movement? Fear. Fear of being taken over and one day they will have to learn something different. Heaven forbid they would have to learn something new.
+- You have to want to be Chicano to be Chicano.
+- I lived in an all-black neighborhood, followed by an all-white one, and other kids in the always called me Mexican in both neighborhoods.
+- Our first gig was a battle of the bands. We did 45 minutes of comedy and never played a note - and we won!
+- I always wanted to work with Betty White, because she is one of my heroes of all time, and I just love her.
+- For the most part, people are proud of the place from which they come.
+- At the end of the day, it not only doesn't make logical sense to deny licenses to undocumented immigrants, it doesn't make financial sense.
+- To do a comedy team, it requires so much extracurricular stuff, so much compromise, so much intuitiveness to know what the other guy is doing. That's why it's so hard to do it.
+- Chicanos and running water are endlessly fascinating. I can watch them all day.
+- One of the great things about a celebrity pro-am is that you get to play along with the very best professional golfers in the world.
+- I liked Jackie Robinson because he was cool to watch, not because he was black. Every time you turned around, he was hitting a triple or making a great play in the field or, best of all, stealing home.
+- As much as I loved Jackie Robinson, Roy Campanella, Junior Gilliam, and Don Newcombe, I loved watching Willie Mays play more than all of them combined, even if he played for the 'bad guys!'
+- There are some Chicanos who don't want to be Chicanos - they want to be Mexican-American, Hispanic, or even Spanish.
+- Yeah, I'm the go-to guy for Mexican priests.
+- I grew up half in South Central and half in the San Fernando valley.
+- Don't ever insult a Chicano about being a Chicano because then all the other Chicanos will be on you with a vengeance. They will even fight each to be first in line to support you.
+- My interest in art must have started with my Catholic upbringing. Art was everywhere: churches with its paintings, sculptures, stained glass, textiles, and fine metalwork.
+- If there is one phrase or action that every person on the planet would like to erase from his or her memory or have the chance to undo, it would be, 'Let's do it again.'
+- Loyalty and communication are always rewarded in sports.
+- I was an altar boy and a choir member.
+- I love voice work.
+- To me, you have to declare yourself a Chicano in order to be a Chicano. That makes a Chicano a Mexican-American with a defiant political attitude that centers on his or her right to self-definition. I'm a Chicano because I say I am.
+- Of all the plays in baseball, stealing home is by far the most exciting.

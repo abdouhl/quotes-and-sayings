@@ -1,0 +1,63 @@
++++
+author = "Kirby Smart"
+title = "Kirby Smart Quotes"
+quotes_len = "57"
+description = "the best 57 Kirby Smart Quotes"
++++
+- It's hard to say that it gets any better to be at your alma mater and run a major college football program.
+- I always felt like, one of the niches is if you can recruit the SEC, you can be a head coach in the SEC.
+- The amount of pressure that I've put on myself as a defensive coordinator for the last 10, 11 years, I really believe there's a lot more decisions that go into that position than the head coach.
+- To be honest, it makes you a lot better coach when your boss is in the meeting room. You're a lot more driven every day.
+- A team is a group of young men playing together. The program is the entirety of that.
+- It's very important that we don't make the same mistakes twice. That's a big part of improvement.
+- I've got recruits that will text and call and do everything in the middle of the night. And I'm thinking, 'I'm with my family.' But you've got to dedicate time to that, or you can't do it.
+- Change is uncomfortable.
+- I could finish my career being a defensive coordinator and say, 'Hey, he's Mickey Andrews.'
+- I felt like I was selling a product of the University of Georgia that's really special and really special to me as far as the education you can get, the development you can get, and the league we play in. That's what I've sold.
+- At the end of the day, if you're not beating the teams on the road recruiting that you have to beat on the field, then you're probably not going to win many championships.
+- You've got to be diversified enough. That's the truth in the SEC and in college football.
+- Every young man that we want to bring here to the University of Georgia, we want them to graduate from this place.
+- We've got to recruit at the same level of the people who are winning titles and playing for titles, and to do that, we've got to have great facilities.
+- I think it's what's best for that kid. Are you going to teach that kid a lesson for 10 years down the road by suspending him a game?
+- When you talk about the SEC, you never get a chance to rest.
+- There's nothing worse than recruiting a player and then leaving the player.
+- The ultimate deal is: Are you winning and are you successful? The guys who've done that have had opportunities.
+- There's a lot of people who think in order to be a good head coach, you've got to be a head coach at a smaller school.
+- I'm a big believer in your offensive limitations come from your quarterback.
+- It's a lot more important to get quality young men and good student-athletes that can be successful at the University of Georgia. That's my No. 1 goal.
+- My family's so happy in Tuscaloosa. My wife loves it.
+- Let's be honest. Georgia, if you get the best players in this state, you should be winning championships.
+- Coach Richt is a good friend of mine. I respect Coach Richt and worked for him for a year and respect the man he is and respect what he stands for.
+- I think the growth you get from working at a place like Alabama and with a program under Nick Saban, it helps me immensely.
+- I don't think I've worked a day in my life.
+- It's very rare that Georgia and Alabama are the only two teams recruiting a kid.
+- I don't recruit against Nick Saban. I recruit for the University of Georgia.
+- My goal is to outwork everybody in recruiting, sign the best players in the state, and turn these guys into the best team we can.
+- When you step out there on the field as a corner in our system, you have to be ready to play because humility is one week away.
+- I think you never leave what you learn.
+- How do you play well? You practice well. You prepare well.
+- Every day I pull into that parking spot that says 'Head Football Coach,' I get out of my car and pinch myself sometimes, just to make sure it's real, sort of like, 'Is this really happening?'
+- I think, as a coach, you have to be willing to do what's best for the player. And you say what's best for the player: is it better to give him a game suspension, three-game suspension, no suspension. I think each case may be different in that.
+- Our personalities are the not the same, Coach Saban and I. And I have the utmost respect for what he's done and what he's done for me and my family.
+- Coach Saban's a great coach; he does it his way, and I have to do it my way. I have to cut my own cloth.
+- A lot of people have said, 'Why not take a smaller school head job?' I honestly feel my growth was better being in a large program, being around Coach Saban, and learning how to manage a lot of the tough situations you deal with in the media.
+- What you have success with, you feel comfortable with, you always rely on that a little bit.
+- Welcome to the world we live in as coaches. You've got to figure out what you can do best and better to get these kids a chance to be successful. I think that comes through a lot of things - confidence, improvement, recruiting.
+- It's never me against Saban, and I have too much respect for him to say that anyway. I never felt that way.
+- When your mom and dad read the paper, they like to know their sons are on the roster.
+- Every kid I've been around as a football player, they want their coaches to make them better as men and as players.
+- At the end of the day, you have to go out on the grass and perform.
+- It's always a danger when you've got a great quarterback that throws the ball well, that scrambles well. You may push him into his asset. You may force him to do what he does best. So you've got to be able to throw curveballs and stop the pass as much as stop the run.
+- I don't believe in the coach-in-waiting thing. I don't think that works.
+- I might not have a conference championship or a national championship as a head coach, but I had the recruiting factor.
+- To me, personally, my development to become a head coach will be much better working for Coach Saban than necessarily going somewhere else because you learn every day that you're in there.
+- The only thing that matters with my kids are them graduating and playing well, and I try to do my dangedest to get them to play well.
+- What I'm worried about is our team and our players developing and getting better. That's the most important thing.
+- If you chart SEC champions over a 20-year period, the one consistent thing to me is you're not going to win if you don't have a quarterback. It's too critical of a position. He decides something every play.
+- Every college coach I talk to won't say it on record, but everyone's thinking, 'Should I go to the league?' Because you don't have the same requirements. It's different. The hours are different.
+- A lot of people think our standard is to be first in the SEC, be first in the country, first in our red zone, and run defense. We really don't go by that motto. We go by, 'Be the best Alabama defense there's been.'
+- I've seen Coach Saban over the years have to make a lot of tough decisions, and there's not one decision he doesn't make that he doesn't bounce ideas off the staff. To me, that's invaluable.
+- It never stops. It's 365 recruiting. That cell phone you've got, these smartphones are the death of college coaching.
+- I think in order to push kids and coach kids the way we want to coach them, we've got to have their trust.
+- I've been very fortunate to be with Coach Saban this long, learned a lot of football from him. It's been kind of the key to my personal success out of the places that I've coached.
+- I moved seven times the first seven years I coached.

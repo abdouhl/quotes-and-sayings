@@ -1,0 +1,72 @@
++++
+author = "Alia Bhatt"
+title = "Alia Bhatt Quotes"
+quotes_len = "66"
+description = "the best 66 Alia Bhatt Quotes"
++++
+- I am so stressed that my dentist told me I am grinding my teeth due to stress. So, every evening, I get shooting pain from my jaw to my head.
+- You just have to ensure that you make good films because audiences today have become picky and smart, and rightfully so.
+- I am a very private person. I don't like to talk about things till someone asks about them.
+- I am very happy to be working with so many talented directors and writers, who are penning scripts that are interesting for me.
+- Every month, every week, something new excites me. I'm finding my niche as to what suits me the best. I am a young girl, and if I am just running around in a jeans and a T-shirt, that's a lot of life lost.
+- Whenever I like a new song, I play it on loop and dance to it. That's my therapy.
+- Even at 30 or 40, if something doesn't do well, it still hurts. If I pinch someone, the pain is going to be the same whether the person is young or old.
+- I grew up thinking that it's okay to be sad, angry, and express your emotions. I have also banged doors and fought, as I have seen my mom do that when she would fight with my dad. Everything that I've learnt is from them, so I've never struggled to express myself.
+- I come from a protected environment of a Juhu house, and I wasn't exposed to life as shown in 'Highway'. It's not that I'm a snob, but I was cocooned from the reality of life. The film made me aware of life and myself.
+- I didn't have any fixed goals when I joined the film industry. I don't particularly feel 'successful,' but I am grateful that my career is going well.
+- Why should I crowd the world with my opinions? Live and let live. That's it. Let people have their own opinions, and you just keep yours to yourself. There are too many opinions - some unnecessary, some great, some ridiculously stupid - so I think I rather not say anything and keep my opinions to myself.
+- My dad is too cute. Every morning, he sends me one motivational quote. I have a folder full of all his quotes.
+- I totally have the ability to laugh at myself. I don't think one should take oneself seriously, ever. As long as you are not hurting my sentiments by revealing personal details or talking badly about my family, I'm absolutely fine.
+- I'm almost a feminist and believe if a girl wants to do something, she should be able to do it in the same way that a man is able to, which is sometimes a problem in our country.
+- I may get married later or may never get married. But I want babies, so I'll have to get married. I want fat, cute babies. Every girl has to think about it at some point. For me, marriage is about family, and that's why I find it necessary. Till then, it's normal to have a partner and do your own thing.
+- The photographers are always around. Wherever I go, they start clicking incessantly. I am always like, 'At least give me a heads-up, as, many times, I look so disheveled. What will people think?'
+- Failure worries me; nobody wants to fail. There is a fear that one day, films will not come my way, or if someone doesn't watch your film, that is a worrying point. It is unpredictable in the industry.
+- I think the success that I have is due to hard work and destiny. It is important to stay grounded and not take things for granted.
+- I prefer 'cooling foods' for the summer - lots of fruits like watermelons, a few strands of kesar with raisins that have been soaked overnight, and lots of coconut water. Dinner is usually dahi chawal. I am a big foodie, so depending on my cravings, I indulge - maybe pasta or risotto.
+- When life partner happens, I hope he is not a youth icon then because I doubt even I would be youthful then. Whether life partner is hot or not, that doesn't matter. He has to be a nice man. He should be funny, responsible, and he should be sweet, and he should love me a lot.
+- For me, changing my physical appearance for a character is never a problem. If I have to look a certain way for a role, I just do it.
+- One day, I would like to be a part of a stage production, preferably a musical.
+- Whatever you do, do with determination. You have one life to live; do your work with passion and give your best. Whether you want to be a chef, doctor, actor, or a mother, be passionate to get the best result.
+- I will tell my best friends who I'm attracted to, but I'm not going to talk about it in a newspaper... It has nothing to do with my work.
+- I think my confidence stems from my honesty. I'm brutally honest - about everything and even myself. I tell it as I think it. I'm not politically correct. I'm definitely not diplomatic. I get bashed up for what I say, but I don't know any other way.
+- Competitive feeling means you want do do good work. You can't lie about wanting to be on top. There is no reason for me to be insecure at this time. I would be insecure if I was sitting at home doing nothing, but I am in films now, and that's where I always wanted to be.
+- I don't find these technical things like flowers and chocolates romantic at all. I think Valentine's Day makes no sense.
+- I'm here to be an actor who wants to be remembered for her roles and her films rather than her looks.
+- Whenever you do a film for the wrong reasons, it may or it may not pan out. Sometimes people do it because it is a good move or the right move. I don't know; maybe one day I will do a film for the wrong reasons, and it will work for me.
+- It's not that we go around the set thinking, 'Oh, today we are going to kiss, so let's enjoy'. It's not that. It's acting. If it's important for the script, so be it.
+- I will never wear something I'm not comfortable in, and if I do, you'll see it in my face, and it'll be a complete faux pas.
+- Everyone's films have done well of late. So when your film doesn't do well, you ask yourself, 'Oh, did I make a wrong choice?' And I strongly feel that it's your choices that make a good career. The track record has to be good.
+- I believe when things are going well, there's pressure, and when things are going bad, there's pressure. The pressure is more on the outside than inside.
+- A role needs a certain tone, so your own tone also changes. It's not like I lock myself up in a room to get into the zone. It is based on what I am feeling, because the minute you try too much, weird things happen. Of course, for an intense role you need some silence, and you need to do a lot of thinking.
+- As actors, we are always playing other characters. It's so exhausting and time consuming to figure them out, so when you get the time to be yourself, you should take it.
+- I don't mind sitting at home for six months if there's no film that I want to do.
+- I think your first gut feeling is the correct feeling.
+- Our films are changing so people across the world can see them - when 'Highway' premiered at the Berlin Film Festival, a Polish lady said to me, 'It has a strong message for women.' So it's good to know our films are connecting universally.
+- Smell is something that attracts me instantly. So if the guy smells nice, there is an instant attraction.
+- I need to be bad. I don't want to burn out. I also don't want to be a person who is always performance-oriented. I also want to have some fun.
+- Whenever I see a mirror, I just look at myself, or when I see my own reflection, I quickly take a look; I won't lie about that. But when I am in front of the camera, it's just the character, not me.
+- My parents keep telling me to be thick-skinned in the industry. They tell me how people will put you up on a high platform and then bring you down. They also tell me to not believe in the image created by the hype.
+- After 'Student Of The Year,' when I played that baby-doll, diva character, I knew I would be stereotyped, and I wanted to break that image of me. I loved that role, but I don't want to be attached to one particular genre, so 'Highway' was a blessing in disguise.
+- My whole being and approach to work is shaped by Karan Johar. From him, I have learned that people should love to work with you, and you should give out warmth and energy to them.
+- I use only men's perfumes. I change my perfumes every month.
+- It's important that the director and actor have good chemistry, and not just the actors.
+- We are not a typical family that goes for a movie on Sunday or has dinner together every night. But we are strong as the Great Wall of China. Nothing can stop us from supporting one another and enduring each other's pain as well.
+- I think each character is different for me, but I am a director's actor. So if I get the right vision and right guidance from my director, I think sky is the limit for me.
+- In reality, I'm very restless, and I get bored very easily. It's the same with my career: I need to outperform myself with every film.
+- I am excited to work with Vikas. Whenever I tell people that I am doing a film with director of 'Queen,' they are like, 'Wow, good for you.' That makes me feel really good, and I feel fortunate to be the chosen one.
+- I have my way of dealing with lows in my career: I just go on a holiday. Coping with a failure of a film is like coping with a break-up. It's sad and heart-breaking, and it's not like I got over it right after my holiday; it took me some time.
+- It took me a while to get over 'Highway'. I started living the character of 'Veera' very closely. I don't think I would be able to give so much to a character the way I did with her.
+- I cry when I don't get food on time. I am not cranky but have the heart of a child. I cry and laugh at most times. I have the sensitivity of a child.
+- I am expressive but secretive about my emotions.
+- I always wanted to act, but it was not because of the influence of my family. I just wanted to act since I was four! I used to watch a lot of movies. One of the things that attracted me were the songs picturised on 'Govinda' and Karisma Kapoor, who would dance in the middle of the street!
+- I don't know how to measure success. I have been fortunate that I got exciting films to do and work with talented directors who brought out the best in me.
+- A romantic date for me is sitting in pajamas and being with a guy with whom I can be myself.
+- Even though I try not to overthink and dress the way I want to, I admit that there's way too much pressure on female actors to look good. I'm well aware that I don't have the perfect body type. I'm constantly struggling with myself to achieve the perfect body.
+- I only think about the choices I want to make and act responsibly - not say or do stupid things, like break the law or get caught doing stupid things.
+- There should be an app or service that comes and packs your bag for you so you don't have to do it. A real-life Siri.
+- I get a lot of advice from my dad about how I should be as a human being, but as an actor, I think he'll give me advice once I'm doing a film for him.
+- I work out with Pilates - it's a great workout for body alignment. I work out every day with once a week break. I mix it with weight training and cardio.
+- There are many people who probably don't agree with my acting, and it should be that way: they don't have to agree with me in general. I'm not here to be loved by everybody. I want to be. But I don't think it's humanly possible to be unanimously loved. But I think I've voiced it clearly that I'm not here to be a baby doll.
+- I do weight training and follow strict diet. It is very important to look a certain way. I don't think being extra skinny and thin is desirable, but you have to be fit.
+- My favourite movie of all-time is 'Eternal Sunshine of the Spotless Mind.' I love Kate Winslet.
+- There are times I try to look older. And then there are times I look too young.

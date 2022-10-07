@@ -1,0 +1,99 @@
++++
+author = "Cesaro"
+title = "Cesaro Quotes"
+quotes_len = "93"
+description = "the best 93 Cesaro Quotes"
++++
+- I can beat anybody on any given day, and I don't compromise.
+- The Giant Swing is a throwback. I used it prior to WWE quite a bit. One of the days, I thought about bringing it back. It connected with the crowd. I've been doing it ever since.
+- UFC, definitely not - I do not think that is a fit for me. I am looking forward to seeing CM Punk's UFC debut, and I hope he does really well. But it is not something that I want to do.
+- In the '90s, there was a big wrestling boom in Switzerland with Hulk Hogan, the Ultimate Warrior, and all those guys. It was on television in Switzerland on a German TV station for a year or so. That's when I saw wrestling for the first time. I was in the fifth or sixth grade and was a fan of it right away.
+- I have a lot of maneuvers in my back pocket, so to speak. And to me, the thing is to always surprise the audience so they're always seeing something new, and not just get stuck in the same rut.
+- I'm the living proof that the WWE Universe wants to see wrestling. They want to see in-ring action.
+- I guess I'm just a tough cookie.
+- To me, it's not all about how much weight you can lift in the weight room. It's how you can manipulate weight in the ring.
+- Being a single has different challenges, and being a tag team has different challenges. I welcome them both.
+- I was lucky enough to have many different tag partners.
+- I try to work out whenever I can.
+- I tend to have great chemistry with whomever I step in the ring with because of the way I train and came up in this business.
+- I was a big fan of wrestling growing up and of WWE.
+- The Royal Rumble is very difficult because, obviously, there are 30 people, and there are many superstars in it.
+- Hard work pays off if you stay true to yourself and dedicated.
+- I grew up with WWE and New Japan, but when I started traveling to Germany, I had the chance to train with people like Christian Eckstein and Tony St. Clair. They were two of the cornerstones of the German 'beer tent' wrestling era, when they'd have 30-day tournaments in the same town.
+- To some people, being in the business only starts when you're in the WWE. So I guess for those people, I'm kind of an overnight sensation.
+- I was always a very athletic kid, and I always played as many sports as possible and always tried to do new things.
+- I just think we need to have a little sense of humor about yourself and just live and learn, take some chances.
+- I made a little name for myself in Europe, but when I moved to the United States, I had to start all over again.
+- I used to live in Philly, so I was in Baltimore a lot wrestling before I got to WWE, wrestling for different promotions.
+- 'SmackDown,' I feel, has more excitement than 'Raw,' even though 'Raw' is always branded as the flagship show.
+- If I had to name a few, I would say people like Sheamus, Kevin Owens, and John Cena are all great guys to be in the ring with.
+- I think every person that brings a beach ball into a WWE arena should get ejected for life.
+- When I started, I learned the European style because that's what I wrestled the most.
+- I am not that big of a fantasy person. I prefer myself to think of living in the real world.
+- You can't just copy someone. There are so many different styles that you can just kind of pick and choose whatever it is you'd like to do.
+- I produce the most exciting matches with pretty much any person on the roster. Pick any guy on the roster, and I can tell you a match I had with them that people can still remember.
+- I think, over my career, if you look at it in WWE, Sheamus has always been one of my biggest adversaries and one of the ones I would like to say I had some very memorable bouts with. It's definitely fun to be in the ring with him.
+- The Hardys have such a huge following.
+- I'm a really big fan of the history of wrestling.
+- Hard work doesn't guarantee success, but it does enhance its chances.
+- People hide behind fake names to tweet negative comments, and I hate that. If you have something to say, own up to it.
+- I still believe in old school values, I still believe in hard work, I still believe in wrestling, and people have showed that's what they want to see.
+- I think I have faced pretty much everyone that is in the WWE.
+- I like to try new stuff and experiment. That's why I think it's entertaining to watch my matches, because you never know what I'm going to do, and you see things that you've never seen before.
+- I let my actions do the talking, and that might take a little bit longer for people to see.
+- I didn't come over with a comfy sponsor that took care of my visa and paid me a good amount of money right away. I came over here with nothing, the little bit of money that I had saved up, and it was struggle and plight to get some recognition and then finally make it to the WWE.
+- I think Raw, going forward, needs to be about the Superstars. It needs to be about the performers in the ring and not about how Stephanie McMahon and Mick Foley co-exist.
+- Of course, to be WWE world champion is definitely on my list. Anybody who is not reaching for that proverbial brass ring is doing something wrong if they're in the WWE.
+- If the audience likes and appreciates a move, it gives the wrestlers in a ring a little bit of extra energy, and you can always use that.
+- In my opinion, tag team wrestling is absolutely fantastic. It's very exciting, and I just wish it would be given a bigger chance and platform, especially at 'SmackDown.'
+- Austin's a great wrestling town. There's a lot of WWE fans when we get there, and they're always really loud.
+- I was told I have to work 10 years to get a doctorate. Well, I have worked all that time to become a doctor in professional wrestling. So to speak, I have a Ph.D. in professional wrestling.
+- If you're teaming with someone like Sheamus, it's obviously a lot of fun.
+- I'm the first one to always criticize myself, and I'm trying to find ways to get better.
+- When I go to different countries, I want to know how to at least say hello and thank you. Language is a great hobby.
+- There is nothing like WWE live.
+- Rugby and wrestling are sports for real athletes.
+- My brain can form thoughts that come out through my mouth. The problem is sometimes I stumble the words because I speak five different languages - we know all that - so the thing is, I like to speak the language that everybody speaks all around the world, that the WWE Universe loves... that's the language of wrestling that I do in the ring.
+- Wrestling is about evolving, and you always want to evolve and develop yourself.
+- I learned a lot from Paul Heyman, and I thought we had a great time. I've now gone out on my own, but he is somebody whose advice I trust.
+- I was a big fan of Kurt Angle when I was growing up. Actually, his book is a big part of the reason that I work out so hard.
+- I'm a huge fan of Don Leo Jonathan. I love that era of wrestling.
+- You have to be a professional in every single thing you do.
+- Growing up in Switzerland, you learn German pretty much from day one in school. You learn French and Italian as well. I took English as an extra language because I figured that was the language of the world.
+- I feel like everything in WWE I earn the hard way.
+- If you look at the Intercontinental Champion, historically, that has always belonged to the best of the best in-ring talent, the best wrestler, whatever you want to call it, that came out night after night, produced night after night - and that will be me.
+- I just want to do as good as I can. What that is, I don't know.
+- You shouldn't say things on social media that you wouldn't say to someone's face.
+- The last time I was in Abu Dhabi, I had a blast. I went jet-skiing in the Arabian Gulf, I went to Ferrari World, and went to Sheikh Zayed Mosque. I just enjoyed the city and the life. It was just amazing, and I am really looking forward to coming back.
+- I think the best things are the ones that happen organically and take a while because nothing really happens overnight if you think about it.
+- There are many Superstars - past and present - I would love to get in the Swing.
+- The moment I found out I was teaming with Sheamus was the moment the fans did.
+- In the ring, I'm probably the strongest WWE superstar.
+- Safety is always paramount at WWE.
+- I don't mind listening to some yodel music. I don't think I'm particularly good at it, but that's the point, I guess.
+- Sheamus and I did have a rivalry and then became a team, and we went from being work acquaintances to becoming best friends.
+- There's definitely some stuff that I wear or used to wear, or I used to do in the ring, that I look back, and I'm like, 'Oh, what was I thinking?'
+- I care nothing about American football.
+- We take care of each other. I took care of Sheamus when he had a hole in his head - and he took care of me when I had no teeth.
+- I always have to prove people wrong, and I'll continue exactly that.
+- I always bring a post-workout protein shake with me and some cereal for the mornings.
+- I know the WWE is popular, but it is extremely popular here in the Middle East and the U.A.E.
+- There's always a transition if you go to a new territory or a new company or a new country or wherever because there's different styles and different crowds that you perform in front of. Of course, it always takes a little bit of time to find your groove.
+- We pretty much have barnburners with every team. There's always new teams, there's always great teams, and you always want to be in the ring with the best.
+- I was trained to be more technical in Europe because that's the audience. They enjoy a more technical style.
+- I think you can learn from pretty much everybody if you just open your eyes.
+- I'm not just cookie-cutter. You always see something different.
+- I started at the bottom and worked my way up. I think that shows hard work pays off. A good thing takes a while.
+- Chikara is very fun-oriented. It's its own universe, but the fans are all in on it.
+- You only get one chance to make the first impression. And I made the biggest first impression ever by throwing the Big Show over the top rope.
+- I'm sick of seeing John Cena against Randy Orton for the 500th time.
+- You have to be extremely fit. It is a professional sport. We have five shows a week. In 2014, I had 220 matches; in 2015, I was on the way to a similar amount before I got hurt. It is a full-time lifestyle. It is very demanding.
+- My style is different from everybody else's because I've traveled so much and wrestled in so many places. I took something from everywhere I went, and I think that WWE's most accomplished superstars have also done that in the past.
+- To me, the Cesaro Section is the WWE Universe, and I really appreciate all the support.
+- I feel 'SmackDown' has the absolute best tag teams in the world: we have us; we have The New Day. We have the Usos. We have The Club. We have Sanity. We have the Hardys. We have Rusev and Nakamura.
+- My dream would be fighting against whoever the WWE World Heavyweight Champion was at WrestleMania.
+- As long as you work hard, good things will come. I firmly believe that.
+- I'm extremely competitive, extremely ambitious, and always looking for ways to improve and move up, to do things better.
+- To me, if people think about wrestling, they think about elbow drops, body slams, and stringing somebody in the circle.
+- To me, I don't like to look back; I just like to look forward.
+- There's a place called Chipotle in the U.S. It's Mexican food where everything is made to order; you can get some rice, black beans, and meat. That's what I eat three times a day.

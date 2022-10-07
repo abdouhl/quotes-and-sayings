@@ -1,0 +1,37 @@
++++
+author = "Kathleen Troia Mcfarland"
+title = "Kathleen Troia Mcfarland Quotes"
+quotes_len = "31"
+description = "the best 31 Kathleen Troia Mcfarland Quotes"
++++
+- Empty threats are often worse than saying nothing at all. It's like leading from behind. Eventually, no one thinks you're leading at all. And after a while, no one is even listening.
+- Al Qaeda attacked the U.S.S. Cole and bombed several U.S. embassies in East Africa in the late 1990s. We knew who did it, but we didn't go after them. Instead, we beefed up security at our embassies and changed the Navy's rules of engagement. It only served to embolden Al Qaeda.
+- The president doesn't order the military to seize political opponents. He doesn't order his intelligence community to lie about national security for political purposes. He uses the military or intelligence communities to protect the United States and our citizens, not to help him win elections.
+- Whatever the final outcome in Iraq, our men and women in uniform should stand tall with pride for a job well done. It was our political leaders - of both parties and both presidencies - who failed us.
+- Reagan won the Cold War by first restoring America's economy and military and then staring down an economically weakened Soviet Union. He knew defeating Russia couldn't be accomplished without laying the groundwork.
+- One of the lessons of Vietnam, which we failed to heed in the Iraq war and the Afghanistan surge, is that before you commit U.S. military forces to aid or assist, it is essential to know what you want them to achieve.
+- As long as the United States - and the world - gets its oil from the Middle East, we will be drawn into the endless crises that seem endemic to the region. American energy independence would not only liberate us, it would also drive down the worldwide price of oil.
+- Don't worry, America. We survived Jimmy Carter, and we will survive Barack Obama. Only one questions remains... who is the next Ronald Reagan?
+- We realize too late that President Bush shouldn't have taken us into Iraq, and President Obama shouldn't have taken us out.
+- Despite spending trillions of dollars and spilling the blood of thousands of Americans, we remain in servitude to Arab oil.
+- Every president, as he nears the end of his final term in office, thinks about his place in history.
+- In the Reagan administration, a great speech was just the first step in a long process. In the Obama administration, it's the only step.
+- It's the libertarians who want to reclaim decision-making for themselves. It's the small government folks who see government as a great Leviathan gobbling up more and more of their treasure and freedoms.
+- We in the West think of peace as society's default position. War is a temporary state of affairs that happens when peace fails. For us, war is something that has a beginning, a middle, and an end. When it is over, win or lose, the warring factions lay down their arms and resume their normal lives.
+- While President Putin is busy redrawing the map of Europe, President Obama is busy filling out his brackets.
+- In foreign policy, the only thing worse than not doing something is doing something that fails or makes the situation worse.
+- Russia does not have a modern economy: it's a petro-power. The only thing it sells that the world wants to buy is oil and natural gas. When was the last time anyone bought a Russian computer? A Russian car? A Russian cell phone? Russia is so dependent on high energy prices that if oil falls below $100 a barrel, the Kremlin can't meet payroll.
+- Krispy Kreme claims the 'batter is the best part.' Same with an Obama speech. It's all about what's on the outside, not what's inside.
+- Emotions may win arguments, but they don't win wars.
+- In politics, a picture is worth a thousand words.
+- Americans don't like to stand by while innocent people are killed and watch a human disaster unfold. It goes against our very fiber. We feel compelled to do something.
+- There is a growing sense among Americans outside the Beltway that while President Obama may be a good talker, he is a lousy manager.
+- You don't need a foreign policy expert to tell you empty threats and hollow promises don't work. Ask any parent of a rebellious teenager. If you don't make good on the threats, you're asking for worse behavior next time.
+- The majority of people think their children's lives will not be as good as theirs. Nearly half of all Americans are no longer proud of their country. Politicians have become a despised breed.
+- Americans are slow to anger, but once they do get angry, they are impossible to stop.
+- Egypt is the oldest, largest and most important Arab country in the region. What happens there affects them all.
+- Foreign policy is something Americans care about when the economy is good, and when it isn't, they hardly notice it. It's hard to worry about what happens in the Mideast when you don't have a job in the Midwest.
+- Our military leaders don't seize power in coups; our soldiers and sailors don't go on strike for higher pay or benefits; our armed forces don't weigh in on the political process. In return, Americans have a sacred duty to treat them honorably.
+- When the commander-in-chief sends Americans to fight and die, it should be only to protect our vital national interests, not for his own personal, political gain.
+- The problem with people who live in a world of speeches and books and theories is they don't know how to fix things in the real world when they go wrong. They feign ignorance, blame others, and make another eloquent speech.
+- In the real world, words don't automatically translate into deeds.

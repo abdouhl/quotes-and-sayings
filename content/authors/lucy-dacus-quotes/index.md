@@ -1,0 +1,100 @@
++++
+author = "Lucy Dacus"
+title = "Lucy Dacus Quotes"
+quotes_len = "94"
+description = "the best 94 Lucy Dacus Quotes"
++++
+- I can't imagine being in a tour bus. It would be nice, but I think it costs $30,000 a week to rent. And I can't imagine spending what many people make in a year on a vehicle for one week.
+- I will say it is funny that writing a song about not wanting to entertain people is what got me a career in entertainment.
+- My dad plays guitar in the church band, so it's like music as a service. He plays at old-people homes, so that's like music as a gift.
+- I feel like the expectations have gone up. It's not a complaint, but it's a little intimidating. People are like, 'Oh, you're on Matador. It's kind of a legendary label - you're going to have to live up to all those other bands.' I guess it's not that explicit.
+- Writing has never been an intentional endeavor to me. I know a lot of people have experiences and then sit down and try to sort them out through song, but whenever I sit down to write, it comes out hackneyed or overly saccharine.
+- The phrase 'no burden' largely captured what I wish people believed about themselves.
+- I called it 'Historian' because I feel like most of my creative efforts are efforts to capture something or to document it.
+- I love Led Zeppelin!
+- It seems like there's a real world for new ideas in Philly.
+- It's weird to get asked questions that I don't know the answers to... But I like getting questions I don't know the answer to because maybe it's the first time I've been asked to articulate these things.
+- Being on tour, it's really easy to stop knowing people that you want to know, because you're not sharing experiences; you're not existing in the minor moments of somebody's life.
+- It's true that no child is born knowing there's an evil thing. You learn what is ugly.
+- My mom is an elementary school music teacher, a pianist, and a singer, and my dad plays guitar - he's a huge Bruce Springsteen fan. My mom does musical theater, too. All of those influences were around.
+- My favorite music is when the sound is supplementing the message. I don't think it's dramatic; it's cinematic.
+- That's my main complaint with Murakami: that he writes these complex males and then really static women.
+- There's a lot of art that's about loss and sadness, but I would love it if hopefulness were more of a cliche. That's the work that always sticks with me and emboldens me in life.
+- I don't retain facts very well when it comes to music history.
+- For a while, I called myself an agnostic, which was me wanting to maintain a connection to the culture I was raised in while also undercutting a lot of the beliefs I had.
+- I was always taught to be grateful, and so the question came early: What is there to be grateful for? Why is life supposed to be so good? That's still a question I try to answer all the time.
+- Headliners, no matter the genre, usually are a person or band who has an ethos.
+- It's one thing to make something, and then it's another thing to put it in front of other people.
+- I would not say that my relationships are becoming shallow; if anything, some of them are really being tested in a way that I'm so thankful for my friends that call me and still want to talk.
+- People actually tell me that I'm living my dream. And I'm like, 'It's a little more nuanced than that.'
+- When I'm on a stage, it's just me, singing a song with words that I wrote and I believe in. And if I don't believe in them anymore, I'll stop singing that song.
+- Every breakup is preceded by a bad relationship. So breakups should be cause for celebration and triumph.
+- 'No Burden' is not necessarily ferocious.
+- Questions don't easily die within me until they're answered, and so being able to write a song and put words to complex feelings is part of my process of understanding and letting go of things.
+- I always wrote songs. Elementary school, middle school. It didn't feel more creative than speaking. It was just normal to do that.
+- What's cool about Matador is that everyone I've met there is just so chill and really into what they're doing. Everyone that works there, there's just such a lack of ego, and there's such a commitment to what they're doing. They all like each other.
+- A journal is your completely unaltered voice - it's just for you. And if you know that voice, and you like it, you can bring it out to everyone else, and that's the most honest and vulnerable thing you can do.
+- I hear a lot of artists become kinda self-referential, and a lot of people that tour a lot tend to write about the perils of being on the road later in their careers.
+- I was adopted, and so was my mom. And so I just was in tune with how life can be intentional. I feel like maybe that helped me to not feel super entitled to a lot of things as a kid.
+- There is no 'stop' - there's always 'go' on both sides: always keep writing, always keep recording. I don't find them to be segmented processes.
+- I like to think of hope as a fact and something that wins out always. Whether you're hopeful or not, actually, you do get through what you're in the middle of. When you're in it, you don't feel like that's possible. But time and time again, we're proven wrong.
+- I've talked with friends about this: when you write about yourself, that's what people connect to. When you write a sermon or a lesson, that may not reach people. I've learned a lot from people who have been writing about themselves.
+- It's important for me to write songs that feel good to sing every night and remind me of my core, truest beliefs.
+- You don't have to make something in order to retain your identity as an artist or a writer or a creative person. A lot of people think they have to be producing in order to maintain that identity.
+- Even if somebody wanted to tell me what one of my songs meant to him or her, I can't do it - I would be probably put to tears every time.
+- I was the funny one in my group; there was a lot pressure to be responsible for everyone's happiness. I didn't like watching other friends of mine be called the 'pretty one' or the 'smart one.' That had no depth, and it didn't match how I knew them.
+- From the very beginning, I had a lot of female role models in music. I would go to shows, and there were always women fronting bands and playing guitar or backing up and playing drums or bass in a band. That probably contributed to my belief in myself to go out and perform for people.
+- Even people that are close to me or people that are acquaintances... The only question I get now is, 'How is music going?' It's an overpowering quality of my life now, the fact that I write songs. It's weird to navigate what that means socially.
+- Yo La Tengo were a major inspiration for me because they're one of the first bands that I got into on my own, separate from my parents, when I was in high school. I have all their albums. That's the place we'd like be in someday.
+- Speaking and singing were equally common in my house. I started songwriting about the time that I started forming sentences.
+- I'm not a big risk-taker - being bad just wasn't worth my time or the risk of having the consequences for it. So maybe I'm a little bit lame for that.
+- I haven't studied history - I couldn't give a discourse in medieval literature - but I am a personal historian, and I do a lot to take in the histories of the people around me.
+- There have been a couple specific instances where I've felt like I couldn't survive without interacting with a certain person. I've been involved with some pretty manipulative people who have told me the same thought: that I can't live without them.
+- I really enjoy navigating the business aspect of having a band, and there is a great amount of instinct. You don't wanna work with people who make you feel weird, even if they're super qualified.
+- Music was always encouraged as a passion and a hobby, but I was never told, 'This should be your job. You write music and record for a living.' It doesn't happen for people.
+- Really unfiltered personal writing is cool to me. I'm like, 'How did you show that to everyone?'
+- I heard during our label-searching that some labels hire statisticians instead of A&R people. They'll reach out to the bands that will statistically perform best monetarily instead of going out to shows and having an opinion on which music is good or bad.
+- I think 'Historian' is ultimately a positive record, but I was a little bit worried about taking people into a dark world. I tried to do it with as much care as possible, but it's not easy to ask people to think about death or loss or confusion.
+- I've written in the middle of a conversation or the grocery store or at another band's concert or in the last moments before falling asleep. It's pretty unpredictable. I think it's always flowing, and sometimes I'm not listening. There's no formula for when I'm going to be able to be a good listener to myself.
+- Joan Didion's 'The Year of Magical Thinking' comes to mind as an example of a piece of media that I really respect and would hope to emulate: just her courage in looking at her husband's death and the attentiveness that she has in how she looks at it, and the unflinching gaze that she communicates from looking into death.
+- If there are people who treat me wrong, I either talk to them about it, or I don't talk to them anymore. It's been the most thoughtful and considerate thing I could do for myself and other people. I am going to try to do that forever.
+- Whenever I'm trying to understand people that I don't understand, or things in people or even in myself, I'll say, 'When did this negativity get here?' I try to think back to how I was raised to deal with things, and then consider how the person that I'm dealing with grew up.
+- I think in 'No Burden' there was a lot of positivity on the record.
+- In film school, you get skills, but then you get lackey jobs, working on projects that you probably don't care about. And there's something in me where I just couldn't bring myself to edit some misogynistic rom-com or movies that I would have hated to be a part of. So I knew I just wouldn't get any work because of that.
+- I just feel like you're being realistic if you can laugh at yourself.
+- There was never an 'a-ha' moment when a spider bit me and I knew I could write songs. For that reason, I don't know if I'm always going to be able to. I want to write songs forever, but it's an elusive thing.
+- I think a lot about my obsessive need to document things and what it's going to mean in the future.
+- I value the people who are willing to make themselves vulnerable and share work that is sensitive and maybe even hard to sing sometimes. Because that's the music that provides the most solace and solidarity to the world.
+- I'm going to name my daughter Emily.
+- Film is like sculpture, writing, acting, technical arts, all sorts of arts. And that's why I wanted to do it for so long, because it would include so many places for attention.
+- Humans are fascinated with communication. I was always drawn to words and stories, staying in touch with your feelings and being open to what's around you.
+- I think I've had extremes of being unable to exist outside of my own head, and then I only am existing for other people... There's a middle ground where I should take care of myself and other people.
+- I couldn't have imagined working on a film I didn't believe in.
+- When you're a kid, you learn whatever your parents think until you start taking in media. Because all your friends are your age as well, media is the third parent that you ever have. So I think about that a lot, what visual imagery is teaching us, and media in general having a huge impact.
+- You have to laugh at things in order to let them be what they truly are. Because nothing is only sad. Nothing is only funny. There's context to all of those things.
+- We were so limited on time for 'No Burden' that we didn't get to overthink anything. There was no going for the perfect take, or even going for three takes. It was kind of nice because what you're hearing is our first impulse.
+- When I finished reading '100 Years of Solitude,' by Gabriel Garcia Marquez, I got really sad. I thought, 'This will never happen for me, for the first time, ever again.' Then I opened 'Beauty Is a Wound.' It's a completely different story and writing style, but it has a similar place in my heart now.
+- I've been journaling longer than I've been a musician, longer than I've been an artist, longer than I've been a writer in general.
+- The media, and how we're taught to read it, has a huge impact on who we become as people.
+- I don't have any weird gimmicks. I do put on lipstick for the show. That's what separates it. 'Cause I don't wear makeup at all... That's probably the closest thing I have to a routine.
+- Usually, I'll just be walking from my house to somewhere else, and melodies and words will start coming up, and I'll have to run home to write it all down.
+- I was always writing. I've always been attracted to words and stories, communication.
+- I'm never writing as a character.
+- The main way that being adopted has shaped my songwriting is that I was asked at an early age to consider the circumstances that led to my life, and in a way, I was introduced to how fragile and unlikely life is from the beginning.
+- My mom is an elementary-school music teacher. For her, music is an educational tool.
+- I never considered a career in music because it was too unattainable. I just didn't believe it was possible.
+- I really believe in hopefulness and respect people that are hopeful. I think I'm at my best when I think hopefully.
+- 'Night Shift' is the only breakup song I've ever written.
+- If you can come out from under pain, why wouldn't you? You definitely can. There's no question.
+- I take photos, I used to make films, I journal incessantly, and I really value the documentation of life. Because it's almost like you are making something special by wanting to make it exist in an object - on paper or even just in the computer - making these recordings, making this music.
+- I guess the point of that song 'Troublemaker, Doppelganger' is trying to navigate the worth of beauty and if it's hurtful or helpful to value beauty. If it's a curse or a blessing. Is that something really negative and morbid, like the hearse, or is it the limousine - a glamorous symbol of enjoying life?
+- Negativity, in general, is one of the things that holds people back, and you have to see what's holding you back to get away from it.
+- Four months after we released 'I Don't Want to Be Funny Anymore,' the album came out on EggHunt. Three months after that, we officially signed with Matador. That's not a very long time: half a year between the first flood and the final signing.
+- I have a huge note on my phone where things just start popping up. It doesn't make that much sense to me at the time, but once a song is finished, I can read into it and figure out who the characters are in my life.
+- I don't even drink coffee. I try to avoid becoming reliant on any substance.
+- Hopefully when you listen to a song, you can say, 'That's me,' or 'That's someone I know' - you relate to it in a way that's cathartic.
+- I've been adjusting to what it means to be a songwriter, figuring out what I like about it and what I don't like about it and what it means to me as opposed to other people.
+- A breakup is a state of mind that needs encouragement and needs hopeful, forward thinking.
+- Before I even pick up a guitar, usually the words are done. So I'm not first and foremost a musician. I'm first and foremost a writer.
+- I don't end up writing songs in my journals, but I'm sure that my ability to write songs has been helped by how consistently and impulsively I try to get my life into words through the journals.
+- In middle school, you're figuring out how you're affecting people, and sometimes you're affecting people negatively. And what sucks is that it can affect people for their whole lives. I didn't realize I was a part of that.

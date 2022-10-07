@@ -1,0 +1,33 @@
++++
+author = "Thabo Mbeki"
+title = "Thabo Mbeki Quotes"
+quotes_len = "27"
+description = "the best 27 Thabo Mbeki Quotes"
++++
+- The people of Zimbabwe have a responsibility to ensure that the government that they elected behaves properly.
+- I think the Internet is absolutely extraordinary. It's very, very useful and I think one of the things we've got to do is make sure that the African continent gets on to that information super highway.
+- We've had a long wrangle with the pharmaceutical industry about parallel imports, and what we were saying is we want to make medicines and drugs as affordable as a possible to what is largely a poor population.
+- We will continue to count on your unwavering support and commitment to working with leaders of our continent in bringing about the desired renaissance of Africa.
+- Together we have travelled a long road to be where we are today. This has been a road of struggle against colonial and apartheid oppression.
+- Science is always inquiring.
+- The concern around probable questions, which in a sense have been hidden, will grow around the world and the matter is critical, the reason we are doing all this is so we can respond correctly to what is reported to be a major catastrophe on the African continent.
+- I get a sense that we've all been educated into one school of thought. I'm not surprised at all to find among the overwhelming majority of scientists, are people who would hold one particular view because that's all they're exposed to.
+- That surely must be a concern to anyone who decides this drug must be given to stop transmissions, again from mother to child, which is extremely costly and must be taken into account.
+- Those who oppressed us described us as the Dark Continent!
+- We are not being arrogant or complacent when we are said that our country, as a united nation, has never in its entire history, enjoyed such a confluence of encouraging possibilities.
+- It's very worrying at this time in the world that any point of view should be prohibited, that's banned, there are heretics that should be burned at the stake.
+- When will the day come that our dignity will be fully restored, when the purpose of our lives will no longer be merely to survive until the sun rises tomorrow!
+- I don't imagine Heads of Government would ever be able to say I'm not an economist therefore I can't take decisions on matters of the economy; I'm not a soldier I can't take decisions on matters of defence; I'm not an educationist so I can't take decisions about education.
+- A matter that seems to be very clear in terms of the alternative view, is what do you expect to happen in Africa with regard to immune systems, where people are poor, subject to repeat infections and all of that. Surely you would expect their immune systems to collapse.
+- I think that probably the most important thing about our education was that it taught us to question even those things we thought we knew. To say you've got to inquire, you've got to be testing your knowledge all the time in order to be more effective in what you're doing.
+- One of the things that became clear, and which was actually rather disturbing, was the fact that there was a view which was being expressed by people whose scientific credentials you can't question.
+- South Africa was to evolve into the most pernicious example of the criminal practise of colonial and white minority domination.
+- The poor prey on one another because their lives offer no hope and communicate the tragic message to these human beings that they have no possibility to attain a decent standard of living.
+- One of the matters that must be addressed is that Rwanda and Uganda have to leave the Democratic Republic of the Congo. We're also supporting processes to ensure that the political dialogue among the Congolese themselves takes place so that the people there can decide their future.
+- Many of our own people here in this country do not ask about computers, telephones and television sets. They ask - when will we get a road to our village.
+- Well, because lots of questions had been raised about the toxicity of the drug, which is very serious.
+- I say that why don't we bring all points of view. Sit around a table and discuss this evidence, and produce evidence as it may be, and let's see what the outcome is, which is why we are having this International panel which we are all talking about.
+- It wouldn't sit easily on one's conscience that you had been warned and there could be danger, but nevertheless you went ahead and said let's dispense these drugs.
+- South Africa belongs to all who live in it, black and white.
+- If you sit in a position where decisions that you take would have a serious effect on people, you can't ignore a lot of experience around the world which says this drug has these negative effects.
+- As a consequence of the victories we have registered during our first ten years of freedom, we have laid a firm foundation for the new advances we must and will make during the next decade.

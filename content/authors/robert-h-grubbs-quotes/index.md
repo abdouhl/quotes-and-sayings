@@ -1,0 +1,16 @@
++++
+author = "Robert H. Grubbs"
+title = "Robert H. Grubbs Quotes"
+quotes_len = "10"
+description = "the best 10 Robert H. Grubbs Quotes"
++++
+- Polymer chemistry provides an excellent means of studying metathesis catalysts: miniscule catalyst loadings have the capacity to generate large amounts of polymeric material, the structure of which can provide a historical record of catalyst activity.
+- Catalysts are the conductors who choreograph the chemical dance that results in the formation of new structures.
+- I was born at home in rural Kentucky, in 1942, in a house that my father Howard had built. He did most of the construction himself and built it on land that his father had given him when he married my mother Faye.
+- My interest in science started in junior high school where an outstanding science teacher, Mrs. Baumgardner, introduced me to the joys of science.
+- One of the most rewarding aspects of my research has been the opportunity to study the potential applications of a new catalyst.
+- Most commercial products that contain organic molecules possess at least one carbon-carbon double bond, or if one is not present, it is likely that an olefin was used in its preparation. This being the case, the potential applications of olefin metathesis are endless.
+- As a child, I was always interested in building things. Instead of buying candy, I would purchase nails, which I used to construct things out of scrap wood. My mother always claimed that my spending my money on nails instead of on candy was why I was so skinny as a kid.
+- As I grew older, farms in Kentucky provided me with many jobs in hauling hay and in cutting tobacco. In addition to helping fund my college years, these jobs helped me to meet an array of very interesting and amazing men and women.
+- Catalysts offer the promise of making chemical transformations far less polluting.
+- Like the Tebbe complex, ruthenium olefin metathesis catalysts can be used for the production of living polymers.

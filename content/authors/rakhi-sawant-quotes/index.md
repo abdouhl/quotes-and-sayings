@@ -1,0 +1,106 @@
++++
+author = "Rakhi Sawant"
+title = "Rakhi Sawant Quotes"
+quotes_len = "100"
+description = "the best 100 Rakhi Sawant Quotes"
++++
+- I am a director's baby.
+- I have undergone plastic surgery. I got my breasts done. Big deal.
+- I will make breast implants passe and butt implants hip and chic.
+- No one realizes how much pain is hidden behind my smile.
+- I am not Salman Khan, I am Rakhi Sawant. You won't get anything by putting charges on me.
+- I am as fearless as the Rani of Jhansi and I will fight against all those people who are dragging me in controversy.
+- Ramdev Baba had once said mean things about item girls and heroines. So I want to marry him to prove that even item girls are like any other woman, who can be a very good daughter, sister, wife and mother.
+- I think people are forcefully dragging me under bad light to ruin my career.
+- My brother and I have been working in the industry for around 12 to 15 years. We have struggled a lot. We have seen many ups and downs in life but we never lost hope.
+- Even if I sneeze, it would make headlines.
+- I am scared of nobody.
+- My husband works with Donald Trump's company as an employee.
+- I'm the daughter of the media.
+- I don't consider myself to be less than Jhansi ki Rani. In the Panipat war, she was a lone woman while she had thousands of enemies. Same way, even I have a thousand enemies in my fight. That was the war of Panipat, mine is the war of Ludhiana.
+- When people make fun of me in their shows, I don't say anything.
+- If you start collecting the plastic that has gone into our Bollywood bodies, I can fill three trucks outside this very building. At least I'm honest enough to admit to it.
+- I am more popular than many politicians, and even superstars like Shah Rukh Khan and Salman Khan.
+- I'm not chasing reality shows. Viewers want to see me and producers want me on their shows.
+- I do not think education is necessary to give justice to the poor.
+- I am no police, I don't even have any educational degree, but I have a degree in life management.
+- I have built a very good reputation in India and a lot of Indians respect me.
+- Tanushree Dutta is spoiling my image with her fake 'me too' propaganda which she imported from America. She hates India and is bringing shame to the country with her antics. She loves America instead.
+- I had several offers to act in films. But I rejected all of them and decided to plunge into politics.
+- I am happy in Bollywood, but I am contesting elections to solve problems of people, as they have trust in me.
+- I can't be happy if I want to because the media won't let me be. They keep propagating a tacky image of mine. They even make my charity work look like a publicity stunt.
+- My family was poor. My father was in the police force and was drawing a small salary. Because of that I could not study.
+- I am learning Bengali because I want to dub for myself.
+- I belong to a highly religious family. Both my mother and father perform fasting, do shrads and completely believe in Ganpati. This has influenced me and that is why even I am so religious.
+- I am happy that Uddhav Thackeray has become chief minister of Maharashtra, and I would like to congratulate him.
+- Honestly speaking, after seeing my parents' marriage, I have lost all faith in marriage.
+- Now I've become classy, else I would not have been on 'Koffee with Karan.'
+- I am a big believer in Gandhi-ji. I really like him.
+- Why is it assumed that if I dance around wearing skimpy costumes, I cannot properly worship my Jesus? I am a born again Christian.
+- I feel sex is a common topic everyone see in content of any television shows be it a fiction or live comedy or a chat show.
+- All the credit goes to Jesus Christ, Mother Mary, Shani Bhagwan and Ganpati. These are the four pillars of my destiny.
+- My only wish is to find a person who will always be my support system and will respect me for what I am.
+- Am I the only one who exposes? Just because I don't have a godfather, or I'm not a star kid, I'm told that I expose. I don't care.
+- My father disowned me and my mother left me. It was difficult but I took Lord Ganesha's and Jesus's name and could pass through it.
+- My husband is an NRI. Well, his name is Ritesh and he is in the U.K.
+- I am the original item girl and will always be so.
+- I have been through so many grave situations. For my family and to be where I am, I have had to go through many hurdles and difficulties. But I did not lose my courage.
+- Why would I need to have sex on TV for my living? No Indian should do this; I can't do such things.
+- Everyone in the film industry does a lot of drama to get the limelight.
+- Sex is a must topic. Even every Bollywood movies has such highlighted content.
+- I don't think Indian parents will accept Veena Malik as their bahu. After all, she's a Pakistani national!
+- I thought of only getting engaged with Elesh instead of marrying him so that I could get more time to decide. But as time passed, I started feeling that he was not the right person for me. He just wanted to marry me because he wanted be part of my glamorous life.
+- I have no problems exposing to any extent. However when I gave my first bikini shot, it was quite tough facing the public out there.
+- I have my work and my Jesus!
+- I met with an accident while performing for a show in Colombo. I couldn't see because of artificial fog that was on the sets; I tripped and hurt my head. I had to undergo surgery, and shave my head because of the stitches.
+- I don't think like Raj Thackeray... that anyone from Uttar Pradesh or Bihar or anywhere who comes to Mumbai is an outsider.
+- I don't have anybody to weep for me, except my mother.
+- I have got lots of offers from networks for more reality shows.
+- I wanted to have a quiet, hidden wedding.
+- I'm not the first girl to get into controversy.
+- Osama Bin Laden was found hiding in a house compound in Pakistan by American forces. Muammar Gaddafi was captured by rebel militia while hiding in a drain underneath a road in Libya. And Pakistani starlet Veena Malik was found by the Indian media hiding in a suburban hotel in Mumbai.
+- I do glamorous photoshoots but I don't like nudity and I am against it.
+- I don't believe in differentiating between Hindu, Muslim, Sikh or Christian - we are all one, and Mumbai is for everyone.
+- I am ready to do any kind of role.
+- When we used to live in a chawl during our childhood, we would play Holi with water balloons.
+- I can't afford to wait for big films. So I take up small films as they provide maximum exposure.
+- I am not joking when I state that I remained uneducated because I could not afford education.
+- I want men to see that women aren't only good in the kitchen, but can play cricket too.
+- As a politician, I felt like a servant, but in the film industry, I feel like a queen.
+- I don't do things which are wrong according to Jesus. Like don't make 'bad' relations with anyone except your husband.
+- I went into the surgery room as my former self Neeru Bheda but came out as a new and improved version of my own self - Rakhi Sawant.
+- I like Arvind Kejriwal and his work that he is doing for India, but I don't know why he is after Congress party and Gandhi family, why can't he see other leaders and parties which are also involved in corruption.
+- One should be brave. It's life, there will be ups and downs. It's only when you are down, that you get the strength to get back up.
+- If I am depressed, I do not like to talk to my parents or friends, instead I go and sit in a church or a temple which relaxes me immediately.
+- So far my career in movies didn't take off because I don't have a lobby to support and sign me. That's the only explanation I have. But people love Rakhi Sawant.
+- I am a simple girl who does social work and work in movies.
+- People say that I do things for publicity. But I will do the things I do as long as I have media support.
+- I faced innumerable rejections and resorted to surgery to improve my looks and appearance.
+- If I do any kind of charity work, it catches attention immediately.
+- I've been slogging ever since I was 10. Yet, when I come home there's not a kind word I get to hear from my family.
+- I believe anything can be achieved by hard work.
+- Politics isn't my cup of tea. I can't lie all the time, beg for votes or put down other politicians.
+- I am too big to copy anyone.
+- A person comes home with all the tension of his life, he or she is totally drained due to all the stress they had faced in a days time. So what I think is whenever viewers watch me they should not be more burdened with tension but they should be relaxed.
+- My film 'Ek Kahaani Julie Ki' is based on Indrani Mukerjea's life. It is inspired from it. I am so lucky because she's my best friend.
+- He is a Hindu NRI and I am a Christian, so I did a court marriage and had a Catholic wedding. The wedding was intimate with just family members.
+- Nowadays heroines are doing everything from acting to item songs. They are jumping into the territory of item girls.
+- Political leaders are sucking blood of the people.
+- Despite being through 100 hurdles, I have stood up for myself.
+- The era we live in we see child are more advanced then us. And that is why they need knowledge even on sex before they involve themselves in crime because of curiosity to know about sex.
+- Being a woman it's my responsibility to be with needy people.
+- I feel filmmaking is not an easy task. People make films but sometimes they are not able to release it.
+- I thank Jesus for giving me such a wonderful husband. He was my fan ever since he first saw my first interview with Prabhu Chawla. He Whatsapped me. Messaging and then talking to him, we became friends with the passage of time.
+- I want to launch my own line of C-strings and even be a brand ambassador for them. For that, I wouldn't mind getting butt implants done from Dubai.
+- Tanushree Dutta is the real pig and not me. She is the sewer and not me. Just look at her face, she has become like a fat ugly buffalo.
+- I first decided to file a defamation case of Rs 50 Crore against Tanushree Dutta, but then I realized her value is nothing in the country so I chose 25 paisa as the defamation amount. That's all is her worth.
+- I have immense faith in God and I am spiritual too.
+- It is a materialistic world full of mean people and not a place for people like me who value emotions.
+- There is only one Rakhi Sawant in India and there can never be another Rakhi Sawant. No one can steal my tag.
+- I am as spicy as a green chili.
+- Women should let go their responsibilities of kitchen and should take coaching classes of how to give pleasure.
+- I am even okay doing a pole dance, but not smooching scenes.
+- If I meet Ashok Chavan, I will ask him - when the rains come, why do the roads get flooded? Despite spending so much money and taking so much tax from the citizens, why?
+- I am a stress buster. Because I knew what people react or think after watching me on screen and I love it.
+- Tanushree Dutta became Miss India as she slept her way to the top.
+- See, I am straight woman, but Tanushree Dutta made me a lesbian. She used me thinking I will not become a big star and reveal what she did to the public. She is wrong.

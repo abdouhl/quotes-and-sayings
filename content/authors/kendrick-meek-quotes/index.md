@@ -1,0 +1,25 @@
++++
+author = "Kendrick Meek"
+title = "Kendrick Meek Quotes"
+quotes_len = "19"
+description = "the best 19 Kendrick Meek Quotes"
++++
+- We have an immigration system in this country that not only doesn't work, in many cases it doesn't even make any sense.
+- Studies have consistently shown that financial hardship is the biggest obstacle to heterosexual marriage, yet the Republican leadership has done precious little to help address the financial hardship faced by American families.
+- Tens of thousands of South Florida jobs are dependent on the trade and commerce that our ports provide, and we have to make sure that we spend our security dollars wisely.
+- In all, dozens upon dozens of groups and organizations have prioritized stopping the killing in Darfur before there is no one left to be killed. It is high time that we, the U.S. Congress, join our name to that list.
+- We can make a difference. We can save lives. We can stop the genocide.
+- I think it is important also to recognize that our Customs border protection officers who secure our borders and conduct inspections of people in vehicles and cargo are also facing staffing shortages.
+- The people of Florida in 2002 voted and approved class size limits in Florida to make sure that the State pays for smaller class sizes and not local districts.
+- I'm not going sell out on the people of state of Florida.
+- It is sad that the Republican leadership is not as interested as they say they are in protecting the institution of marriage as they are in waging a campaign to divide and distract the American people from the real issues that need to be addressed.
+- We need to begin an all-out diplomatic offensive on Darfur in order to prepare the way for a peacekeeping force that can ensure protection for the people of Darfur.
+- Americans simply ask for, not just Democrats in the House but also the Senate has asked the President for a clear plan as it relates to dealing with the issue of Iraq and our troops and making sure that we can bring families together in the very near future.
+- Mrs. Parks' act of brave defiance rocked the foundation of American society and inspired generations of civil rights leaders and created a sense of hope for every American facing legal discrimination in this country.
+- Looking at affordable health care, I think it is important that we look not only at prescription drugs, but also make sure that there is a major focus on health care.
+- For Members of Congress, we are saying here on the Democratic side of the aisle we are not going to vote for another pay increase for Members of Congress until the American people get an increase.
+- The Coalition for International Justice estimated that 450,000 people in Darfur have died since the deadly genocide began some three years ago.
+- This election marks a significant moment in Haiti; it not only serves as the basis of hope along the road to democracy, but also serves as a testament to the resolve and character of the Haitian people during their long struggle for peace, reconciliation, and prosperity.
+- Port Security is one of our weakest security links, and it must be one of our highest priorities.
+- Making sure that health care is affordable for every American. I think that is very, very important.
+- I want to share with the American people that President Bush and the Republican majority in just 4 years have borrowed $1.05 trillion from foreign nations. That is selling our country to other nations because of the spending that is going on.

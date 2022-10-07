@@ -1,0 +1,14 @@
++++
+author = "Thora Birch"
+title = "Thora Birch Quotes"
+quotes_len = "8"
+description = "the best 8 Thora Birch Quotes"
++++
+- My dad is my support, and he is the best support that I could ever have.
+- I just felt like I was making people angry because I wouldn't wear the frilly bows.
+- When you're making a film, you become incredibly close. It's not like you're filing away papers all day. You're creating with human emotions, so you do become very connected, so it is familial and romantic.
+- When you home study, you get a better education. I basically got to teach myself. Being naturally able to make my own opinions about the schoolwork I had to deal with, instead of being instructed under the tutelage of the teacher, was really nice academically.
+- I was always working; it's just that no one was paying attention.
+- For me, romance isn't an over-the-top act. It's someone offering to help and to support me. Or if that person thinks I'm making the wrong decision, he'll tell me. I want him to be honest, because being that honest takes a lot of guts.
+- I'm really lucky! I'm just cognisant that I wanna move forward, and people will let me or not; who knows.
+- I admire Jodie Foster. Her head is screwed on really well. It's not loose at all.

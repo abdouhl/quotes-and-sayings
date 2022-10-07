@@ -1,0 +1,68 @@
++++
+author = "Alison Sweeney"
+title = "Alison Sweeney Quotes"
+quotes_len = "62"
+description = "the best 62 Alison Sweeney Quotes"
++++
+- I'm so busy and there's so much going on, that the gym or a workout can't be a last minute thought, like, 'I have nothing to do today I'm going to go to the gym.' Now it's, 'When am I going to find time to work out tomorrow?'
+- What's wrong with extreme dieting and hard-core fitness plans is that they don't take into account the rest of your life.
+- I was recently asked about the business side of 'Biggest Loser,' but as long as we entertain people, we can keep coming back and making a difference. It's a delicate balance, but one feeds off the other. I feel so good about the show - it's uplifting and inspiring and entertaining at the same time.
+- I'm addicted to a really tough workout. I like to be drenched in sweat when I'm done because I feel accomplished.
+- The number one mistake is giving pets table scraps. I made the mistake thinking I was showing my dog love by giving her food and treats. You see a tiny 4 oz. piece of cheese, but for a Boston Terrier like mine, that's like one and a half hamburgers. That's unhealthy.
+- I was definitely one of those people who fell for the fat-free cookies and chips that are loaded with sugar and calories.
+- I'll do strength training in my dressing room between shoots, and I've been known to make business calls while out jogging. I try to mute myself on Bluetooth so they can't hear me huffing and puffing, but I usually end up getting caught.
+- I like to watch 'Grey's Anatomy' when I'd doing cardio. But, sometimes I do need good music to get me moving. I like high energy songs by artists like Justin Timberlake and Rihanna.
+- One of the things I like best about 'Biggest Loser' is being around people who are trying to make the right choices. When you feel defeated about your weight and your health, like there's no hope, and you still make the choice to fight for it, to make the change happen no matter what people say or think, that's inspiring to me.
+- People think, 'Oh, I'm loving myself by sitting on this sofa for four hours.' Love yourself enough to get up!
+- I was never obese, but I felt 'less than' because I wasn't as thin as other actresses. I totally fell for that low-fat craze. My goal was to be X jeans size or a specific number on the scale.
+- I take issue with those who criticize 'The Biggest Loser' for pushing contestants too hard. The whole point is to push them hard. Otherwise, there's no change.
+- I like Burt's Bees Tinted Lip Balm because I don't need a mirror to reapply. But I definitely treat myself with face lotion - I use La Mer.
+- Thank God my life is normal. I work hard to make it normal. My husband and I don't want Hollywood drama. I go to the market and do the dishes. I'm not treated differently because I work on TV.
+- I take Sudafed to combat my congestion, so I always carry some with me because I like to be prepared and make sure I'm ready whenever symptoms strike. It's also a really good idea to figure out what your triggers are.
+- Sally Field looks amazing in general, never mind her age! She's a phenomenally talented actress and has had a career spanning so many decades.
+- I've been on 'Days' since I was 16, and being surrounded by such thin, gorgeous actresses made me so insecure and self-conscious.
+- It's not weird to look at yourself in the mirror at the gym - that's why they're there! You have to make sure that you're doing things right.
+- I save every Christmas card. I keep them all.
+- Spinning has been such an amazing part of my exercise. I love the music, the energy, and the sweat. It's a tough class, which makes me feel like I've really accomplished something. It's a great way to burn fat and lean out the body. An all-around win!
+- My DVR says that I watch a lot of TV my husband likes.
+- Humans should always exercise and watch what they eat. So with your pet, make sure they get enough exercise, make sure they're getting fed at the same time every day and getting the nutrition they need. And make sure they get a lot of love and attention you both need. That's why you have them!
+- Sunscreen is my number 1, 2, 3, 4, and 5 tip. I'm a fanatic, partially because I live in L.A. and have fair skin and freckles, and partially because of my kids. My mom always made me wear sunscreen and I'm trying to be that mom for them.
+- Our pets rely on us entirely for their nutrition. So if you're making your own judgments, that could lead to a mistake. At the same time, we have more control over our pet's diet than we do with our children or with ourselves, so your vet can tell you what is appropriate for your dog and you can assign them that.
+- I started running outside when I was at 'Biggest Loser.' Then I got runner's knee, and thought I was never going to be able to shake it. When I overcame that and ran the L.A. Marathon, it was such an amazing thing, and now running is such a part of my routine.
+- Yoga is my luxury workout. If I'm on vacation or I have a day off, I love a 90-minute yoga class. It's a really strong workout, but it takes a little bit longer.
+- As soon as I made it about being healthy and shifted my focus away from the scale, the weight started to come off. I keep track of my body by how my jeans fit - and how I feel.
+- We talk a lot on 'Biggest Loser' about how fitness is a natural antidepressant, how it burns off stress. What I like about running is that it gives me time alone. I'm always busy, with people at work, with my kids. I love getting out for a run by myself and just listening to my music.
+- There are times, like after a long day of work, when the thought of an easy drive-through is enticing. But then I remember how crappy I felt when I ate fast food in the past, and it inspires me to head to the grocery store or my local farmer's market and whip up an easy but healthier option.
+- Can you believe approximately 17 percent of American children ages 2 to 19 years are obese? How about this fact: approximately 60 percent of overweight children ages 5 to 10 already have at least one risk factor for heart disease? We are all to blame for this - parents, schools, kids - all of us.
+- My husband and I have known each other since kindergarten. I had a crush on him in school, but we never dated. Then we saw each other again after high school, and there was something instantly familiar about him. I'm a very shy person and was very closed off. But he allowed me to be myself. And there's a safety in that.
+- When I saw contestants fighting for their lives on 'The Biggest Loser,' I realized I just wanted to be healthy - to have fun playing soccer with my son or teaching my daughter to shoot hoops. Then it was so much easier to say no to carbs, soda, or dessert, and the weight just came off.
+- I'll have wine or a piece of cake once in a while, but I don't look at it as sliding backwards, even if I go a whole week without working out. I don't dwell on it and beat myself up - I just try to have a healthier day tomorrow.
+- I know most Americans don't have this luxury, but we are in Los Angeles and are lucky enough to be able to grill outside almost all year long. It's my favorite way of preparation because it's so clean and it gives it such a great flavor. You need very little oil and the protein can be really cleanly prepared and perfectly cooked.
+- I do a lot of cardio. I think it's super important, especially for women. I don't have a tremendous amount of time to work out, so I find myself cramming in a cardio because that's all I can fit in. I think that if you don't have a lot of time, that it's the cleanest way to burn a few calories.
+- I've actually suffered from allergies my entire life. My mom had allergies, so I was aware of what an issue they can be. Many people allow their allergies to affect their lives. As a mom with two kids and two jobs, I just can't let allergies slow me down. It's a day to day thing that can really be remedied by finding the right medication.
+- I maintain by going to spin four or five days a week. I love that I can get a solid butt-kicking in 40 minutes. I also strength train two or three times a week.
+- With reality TV, sometimes it's amazing chemistry and you get these gems that turn out to be everything you hoped, and the camera loves them and they just blossom on the show. And then sometimes it's not all you envision.
+- Fitness is not an option. It's part of my job.
+- 'Days' has always been strong as an icon in TV history, and it's still going on strong and represents the genre of daytime drama so well. I'm proud to be a part of it.
+- When I was a kid, there was teasing in school. Then when I was a teenager on 'Days of Our Lives,' I certainly experienced hurtful comments from 'fans' of the show.
+- I'm a fan of daytime drama; I totally get it. When we are doing scenes that are romantic or will get the audience riled up, I feel like I'm a fan in the room going, 'People are going to be so mad right now!'
+- I save my dreams and hopes for my kids. When I'm making a wish under a bridge or tunnel, it's always for them.
+- I battled with my weight as a teenager, partly because there wasn't the information or conversation about how to live a healthy lifestyle.
+- I recommend that people try new stuff or take new fitness classes all the time. It's important to mix up your routine, not only for your body, but also for your mental state.
+- I have encouraged my kids to eat well from day one. I add flavor - herbs and spices - to everything because I don't want them getting used to starchy, bland food. I also want them to experiment - they don't have to love everything, but they do have to try it.
+- It's funny because I'm a sucker for glitz and glitter when it comes to clothes and nail polish, but with my makeup, I'm more comfortable with a natural look. It feels more like me.
+- Hey 'Bachelor,' take notes! Trusting one another and sharing a journey to health leads to lasting relationships!
+- Kids don't eat fast. They take their time; they talk and laugh. Sometimes it's really annoying, because you're like, 'Come on, it's bedtime!' But try it: You'll fill up before you know it, because it takes 20 minutes for your brain to know your stomach is full.
+- I've met so many fans of daytime television who've watched the shows with their moms and grandmas and feel like they've known the characters their whole lives. It's sad for them to have to say goodbye to their favorite soaps and characters. We don't want that to happen to the 'Days' fans.
+- We watch a lot of Discovery Channel, shows like 'The Biggest Loser' and even 'Amazing Race.' You learn a lot about the world, it's fun and nobody's interested in beating anybody down. And then the opposite: I'm a huge fan of 'Survivor.'
+- I wasn't eating the right kinds of calories. I didn't know about healthy carbs such as brown rice and lentils. Now I eat small meals throughout the day: oatmeal with cinnamon to start, fruit and yogurt as a snack, and vegetables or with chicken or tuna, and a healthy carb, like a yam, for lunch.
+- We have stay-in date nights where we make a plan to watch certain TV shows together. 'Survivor,' for example, is our favorite show. And I make a healthy dinner and we sit down and it's our date. I love it.
+- I eat a lot of fruit after I run. I find that hydrates me better than just drinking water. I have fruit already cut up for after a run, so when I'm done I can chow on cantaloupe or watermelon. It's so satisfying, and that probably keeps me from being too hungry for other things.
+- Working towards something you're excited about - as opposed to something that makes you feel badly about yourself - is what will keep you going back to the gym.
+- I have two beautiful children and my husband. The perfect day for me is just to be with them and have fun. We like simple things, you know.
+- I always cringe when people tell me they don't eat breakfast, as though that's a good thing. Eek! You have to start the day off with something in your stomach to get your metabolism active. Also, the mental game of 'holding out,' not eating for as long as possible, at least for me, was a really unhealthy mental place.
+- My husband and I both have our bucket lists. Running a marathon was on mine.
+- If you're sitting in front of the TV, you can't have ice cream. But if you're running around all day, then yeah, you can.
+- I love fresh vegetables and we always include them in our meals. I don't force my kids to eat asparagus, but they do eat peas, broccoli, and carrots.
+- If you're going to saute something, lightly spray olive oil in the pan or on veggies before you serve them. It adds a nice flavor. We grill a lot, so I'll use a little on my corn or my shrimp.
+- I like to keep almonds in my pantry. I also like to keep fruit on hand, just different types depending on the season. And string cheese - that's a really good one.

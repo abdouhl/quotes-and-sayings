@@ -1,0 +1,106 @@
++++
+author = "Tomi Lahren"
+title = "Tomi Lahren Quotes"
+quotes_len = "100"
+description = "the best 100 Tomi Lahren Quotes"
++++
+- People like me because I'm real.
+- I think there are a lot of circumstances that surround the Clinton family that aren't explainable, and I will let people go on and research it for themselves. And if they think there is something fishy going on, leave it to them.
+- My family is patriotic.
+- The only way to cover up a lie? Keep lying.
+- I'm going to stand in my truth no matter what.
+- People tell me all the time that my 15 minutes are up.
+- We're segregating ourselves because we're afraid we're going to offend each other.
+- People expect me to be angry, bitter. They expect to me be abrasive, aggressive. I'm not.
+- The hard left labels anyone who challenges it 'divisive.' The leftists live in a world where everyone is free to look different but must think the same. I don't play their game. I threaten them and their narrative. That's why they slap the 'divisive' label and attempt to dismiss me. It's not going to work - not on me.
+- How else are we going to get anywhere if we can't talk to each other?
+- Yeah, you can disagree with someone and still be cool - that's a thing!
+- What matters is that I'm making a connection with people and getting a reaction.
+- President Obama, under your leadership, we do need guns to keep us safe.
+- American democracy is greater with free speech and open dialogue.
+- Those who have a knowledge of One America would know that there were several models and actresses working there just as anchors. And they didn't get their own political talk shows.
+- If you're not ruffling feathers at CPAC, I don't think you're doing a very good job.
+- When young ladies approach me and thank me for providing a conservative role model, it's all worth it. When the family members of law enforcement officers approach me and thank me for being a voice for their community, it is all worth it.
+- Same sex marriage, it's not a big concern to me.
+- I find that when people are actually around me, it's impossible not to like me.
+- Those who feel threatened by you or your success will seek to tear you down.
+- The Hyde Amendment might prohibit federal dollars from directly funding abortion, but federal money is used elsewhere in Planned Parenthood, which allows other funds to be used for abortion.
+- I clearly have a point of view; I am very passionate about my point of view. I am a commentator.
+- At 21, right out of college, I had two producers, about my age, who had never produced a show before, and they wanted me to write and produce an hour-long show before I turned 22. Which is a whole lot of work for someone who's just an 'airhead.'
+- I'm for limited government, so stay out of my guns, and you can stay out of my body as well.
+- My Facebook fans have become my family in a lot of ways, so when that was taken away from me, it felt like a huge part of me was shut down.
+- My grandpa was a World War II paratrooper, my uncle a Vietnam Purple Heart recipient, my cousins both Marine Corps officers. I have some very close Navy SEAL connections as well.
+- I grew up in the Midwest. I grew up in South Dakota.
+- Robert Herring had enough trust in me to think I could carry my own show.
+- After the first trimester, I do think that there is some room for the government to intervene, because at that point, it is an unborn child that could be viable on its own.
+- It seems the feminists are all about female freedom of expression so long as the female is overweight or transgender. You can't pick and choose what type of women fit your agenda.
+- I'm not trying to be the younger, blonder version of anyone. I'm trying to be Tomi.
+- No single race has a monopoly on racism.
+- I don't consider myself a feminist, but boy, I won't lay down and play dead, ever.
+- Energy independence is very important to me.
+- I think sometimes you need a little more explanation than the characters that you're allowed on Twitter.
+- When we talk about more access to birth control, a lot of times that means more funding for Planned Parenthood, and we know that's a touchy subject, so I certainly see that perspective and agree with a lot of conservatives on it.
+- I've learned to laugh most of the negativity off.
+- There are too many conservatives who are terrified of being labelled. They're afraid of being labelled, and they're afraid of being not liked.
+- I have no problem with free speech, but free speech and then silencing your opposition - boy, I have a problem with that.
+- Our military members should be able to defend themselves here and abroad.
+- Hate is taught; victimhood is taught.
+- For me, reinstating the ban on transgenders in the military was a very positive step.
+- One thing my parents never raised me to be was a diva. I'm pretty low maintenance.
+- I can't speak for every woman, but my birth control is covered by my insurance, and if it weren't covered, it would cost $9 a month. I don't know a lot of women who can't afford $9 a month.
+- Middle America is dying for a voice.
+- I don't like to read long books.
+- What you say about me, my family, and on my social media says a lot more about your character than it does mine.
+- We live in a time of safe spaces, where micro-aggressions are monitored, where offending someone is the ultimate sin, where white people can't slip up, even once, even by accident.
+- Every now and then, I am reminded it's not always about politics. It's about people.
+- The BET definition of a humanitarian is someone who perpetuates a war on cops.
+- My message to women is it's okay not to toe the party line on every issue. You don't have to be a puppet or a mouthpiece for your party on every issue. You can be an independent thinker; you can take it issue by issue, and that's okay. You shouldn't be told, 'You can't sit with us.'
+- Sometimes we look at patterns, and we look at things that are happening, and sometimes you can't dismiss everything as a conspiracy.
+- Welcome to ABC News, the network that hires Clinton butt-kissers/donors and calls them 'chief political correspondents.'
+- I don't think most conservatives are against access to birth control, but they are wary of funding things like Planned Parenthood.
+- Most conservatives choose God. The tree huggers choose weather, or preventing weather.
+- This is the problem with modern-day feminism. It used to be about equality. Now, it's about bashing men, asking for free stuff, and tearing down other women for refusing to play victim to the trumped-up, B.S. 'War on Women.'
+- I know if I stay true to myself and stick to my guns, I will never fail myself.
+- I don't care what you label me or how many times you come for me. I am fearless, and I'm just getting started.
+- I just want to work and have the freedom to put my voice out there, and I want to interact with my fans and my followers.
+- Guess what, Beyonce? White people like your music, too. White people buy your songs on iTunes, memorize your lyrics, and admire your talent and beauty. Little white girls wanna be like you just as little black girls do, but instead of that, you'd rather perpetuate the great battle of the races.
+- 'Conservative,' to me, means someone that has an appreciation for the Constitution, that has an appreciation for a limited government and has an appreciation of our nation's founding and our history.
+- Terrorists don't heed 'gun-free' signs.
+- The notion that a black suspect can do no wrong and is always the victim is B.S.
+- I fully acknowledge that I am not a journalist.
+- I am fearless.
+- Doors have locks, citizens have guns, and countries have borders.
+- Instead of waking up every day saying, 'Poor me,' how about you get up and thank God you can get up!
+- When I bring people on my show, I'm not going to bring the right-wingers on that just reinforce what I have to say, and I'm not going to bring on the liberals so that I can talk over them or interrupt them because, to me, that doesn't educate anyone or inform anyone.
+- Truth is, some of you aren't interested in a real conversation about race - you'd rather go on the attack for anyone that dares question your aggressive, divisive, and damaging agenda.
+- In order for me to be hurt by you, I have to respect you. I don't respect these hateful Internet trolls who have nothing better to do than attack my looks or the way I speak.
+- I don't hate anyone. I just see the evil some pretend doesn't exist.
+- To exist in an echo chamber and only talk to people with whom we agree is fruitless.
+- I think race in America is a huge one. That's something that needs to be confronted, certainly.
+- Ya know what's fun? When Democrats start calling each other sexist.
+- We need to start talking, to each other, about the issues that matter most. Otherwise, we are just pawns in the game of politics.
+- A network did not make me, and therefore, a network cannot break me.
+- Win on your merit, not your skin color.
+- There's not a lot of young conservative women out there, and I provide that.
+- I can't sit here and be a hypocrite and say I'm for limited government, but I think the government should decide what women do with their bodies.
+- Ruining someone else's life for attention or revenge should also come with a price.
+- The military is no place for the left's latest social experiment.
+- Fort Hood, Chattanooga, and San Bernardino are not 'terrorist incidents.' They are attacks. Get that straight.
+- The institution of religion is important.
+- Don't expect liberals to weigh the costs of their sweet-sounding policies.
+- I'm not one to fall back into the corner and put my fate in someone else's hands. I tend to believe anyone in my position would do the same thing.
+- I get a lot of attacks from conservative women as well. Equal hate from all sides for me!
+- As conservatives, we know the media is stacked against us. We know popular culture is often stacked against us. We know the narrative has been written without our voice despite our best efforts.
+- Having done what I've done at 24 years old, I'm not the kind of person who likes to be out of work.
+- 'Spiritual' sounds like you worship the grass.
+- First and foremost, immigration is important to me. I think immigration has implications for everything else that is done. So securing the border, that would be priority one for me. That is, to me, most important.
+- People can love you, or they can hate you. It really doesn't matter.
+- Yes, I have benefited from the ObamaCare provision allowing young adults to stay on their parents' insurance plans until age 26.
+- When your outlet is taken away from you, when your catharsis is stripped from you and you don't understand why, and you're so disappointed, and you're so blindsided by it, it hurts.
+- I have a very short attention span, so sitting down with a book is very difficult for me.
+- I'm an everyday American.
+- My job is my life.
+- I have a voice, and I'm going to keep using it.
+- I'm the hardest worker you'll ever meet.
+- Yesterday's moderate is today's terrorist.
+- I would rather sit down with a Hollywood liberal any day than simply surround myself with fellow conservatives.

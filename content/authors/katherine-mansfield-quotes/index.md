@@ -1,0 +1,28 @@
++++
+author = "Katherine Mansfield"
+title = "Katherine Mansfield Quotes"
+quotes_len = "22"
+description = "the best 22 Katherine Mansfield Quotes"
++++
+- The pleasure of all reading is doubled when one lives with another who shares the same books.
+- It is of immense importance to learn to laugh at ourselves.
+- Whenever I prepare for a journey I prepare as though for death. Should I never return, all is in order.
+- Make it a rule of life never to regret and never to look back. Regret is an appalling waste of energy, you can't build on it it's only good for wallowing in.
+- When we can begin to take our failures seriously, it means we are ceasing to be afraid of them. It is of immense importance to learn to laugh at ourselves.
+- If only one could tell true love from false love as one can tell mushrooms from toadstools.
+- I want to be all that I am capable of becoming.
+- I always felt that the great high privilege, relief and comfort of friendship was that one had to explain nothing.
+- What do you want most to do? That's what I have to keep asking myself, in the face of difficulties.
+- I want, by understanding myself, to understand others. I want to be all that I am capable of becoming.
+- I love the rain. I want the feeling of it on my face.
+- Risk! Risk anything! Care no more for the opinions of others, for those voices. Do the hardest thing on earth for you. Act for yourself. Face the truth.
+- Could we change our attitude, we should not only see life differently, but life itself would come to be different.
+- I'm a writer first and a woman after.
+- Some couples go over their budgets very carefully every month. Others just go over them.
+- This is not a letter but my arms around you for a brief moment.
+- Once we have learned to read, meaning of words can somehow register without consciousness.
+- It's a terrible thing to be alone - yes it is - it is - but don't lower your mask until you have another mask prepared beneath - as terrible as you like - but a mask.
+- Would you not like to try all sorts of lives - one is so very small - but that is the satisfaction of writing - one can impersonate so many people.
+- Everything in life that we really accept undergoes a change.
+- Looking back, I imagine I was always writing. Twaddle it was too. But better far write twaddle or anything, anything, than nothing at all.
+- Life never becomes a habit to me. It's always a marvel.

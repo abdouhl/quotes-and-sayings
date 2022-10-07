@@ -1,0 +1,14 @@
++++
+author = "Tunde Adebimpe"
+title = "Tunde Adebimpe Quotes"
+quotes_len = "8"
+description = "the best 8 Tunde Adebimpe Quotes"
++++
+- I think that music and art and film, at their best, can connect with something that is eternal in human beings, that might not have so many labels on it, something that's ultimately universal and that may just be a feeling.
+- When I'm in the mode of feeling positive about love, I don't really feel the need to mark it down in song. In fact, I know what that song would sound like, and I would not subject anybody to that.
+- Also, painting and animation are really solitary pursuits, so the collaborative aspects of music making and acting are pretty welcome sometimes.
+- Regarding race or gender or sexuality, one of the great things about art and music is that they can provide people with very little else in common with a similar entry point for discussion, but the discussions still need to happen for life to get more interesting.
+- My mom worked as a pharmacist, but she is one of the best storytellers I know. My sister is a gospel and opera singer and my brother, who passed away, was a writer.
+- Playing shows is really fun. And writing music is really fun. But going on tour for a year is one of the more soul-crushing experiences you can have as a creative person.
+- I'm all for awkward, frank, sometimes painful conversations about things that give everyone a better perspective on who they are in the here and now, and how they want to proceed from there.
+- My father was a psychiatrist and a social worker but he was a very talented painter and musician and writer on the side.

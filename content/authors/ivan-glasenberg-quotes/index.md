@@ -1,0 +1,32 @@
++++
+author = "Ivan Glasenberg"
+title = "Ivan Glasenberg Quotes"
+quotes_len = "26"
+description = "the best 26 Ivan Glasenberg Quotes"
++++
+- You want to be a trader, come be a trader. The door's open. You want to travel six days a week, you want to travel the world, the door's open.
+- When the opportunities come, we may not want to buy another nickel asset, but if something comes cheap enough, we're all about return on equity.
+- When we first invested in Colombia, we were buying a lot of coal from Colombia. We were dealing with them daily. I knew their guys at the port, I knew their guys at the mine, I had a feel of the country.
+- I've never opened a glass of champagne on any acquisition. Bankers do that.
+- It's nice to do an IPO where your investors get value straightaway and the share price pops up; it proves you left something on the table for them.
+- I've said I will be CEO as long as my colleagues want me.
+- I observed a man sourcing candle wax from South America and selling it to Japan. I thought: 'That's unbelievable. Talking on the phone in his office, that man made money moving candle wax from one country to another.' It really interested me.
+- Africa is where commodities are found, so it is vital that Glencore and other miners are there to develop those resources, helping Africa itself to grow at the same time.
+- We're creating new supply for the world, which is key. If we didn't get more tonnes into the system, your next motorcar is going to cost more because the aluminum cost is going to be higher.
+- Over two billion people in China and India need commodities to grow their economies and improve their living standards.
+- I thought if we could put our hard-working culture as traders into the asset management, it will be a great combination, and we did do that.
+- We want people who work for us to be entrepreneurs. We like them to look at ideas. We like them to chase ideas. We like them to not be what I call a caretaker of an asset.
+- It's easy to buy. Prove that you bought at the right time and the right price.
+- You'll sacrifice a lot of things in the early part of your career to be successful, but to be ahead of your competitors, you have to work hard.
+- I'm a CEO of a public company. You have to show decorum.
+- What are we focused on? Return on equity. We don't need these great big tier one assets. I'm very happy with getting tier two, tier three assets; that's what Glencore has been good at.
+- We're talking to every third-party supplier every day of the week, and our traders are talking to them and buying products from them. When we're doing that, we see opportunities which no one else sees.
+- You're doing a major merger, you got to hope you didn't get it wrong. That's the view of any CEO.
+- The trading side of the business means a lot of travel, being out of the office a lot of time.
+- A lot of deals are done or not done because chief executives are not fully aligned to shareholders.
+- We always look at opportunities. We are not aggressively looking to buy something.
+- We're all shareholders. These guys below me, they see the CEO taking it easy, it's their money.
+- I stopped focusing on people being different, and I started treating everyone the same way.
+- Why should I build an asset when I can buy it more cheaply than you can build it?
+- Many people may say that luck is important, but I think you create your own luck by working hard to ensure you don't miss opportunities.
+- We work. You don't come here to take life easy. And we all got rich from it, so, you know, there's a benefit from it.

@@ -1,0 +1,97 @@
++++
+author = "Cody Bellinger"
+title = "Cody Bellinger Quotes"
+quotes_len = "91"
+description = "the best 91 Cody Bellinger Quotes"
++++
+- For me, I know the game is a humbling game, so I don't get too high or too low.
+- I could get better at baserunning.
+- I never really had problems with lefties.
+- All the in-depth scouting reports we have on the opposing pitchers - just kind of learning how to study that, it's huge.
+- I'm still learning about my swing more. I continue to learn, with the help of my hitting instructors.
+- I just say what comes to my mind and sometimes it's not the brightest.
+- I can't do anything with my hair. White guy hair.
+- When you don't get hits it's depressing.
+- I played right field in Minor Leagues a lot before I started playing centerfield.
+- I don't really miss pitching in games, and I don't think my arm could hold up. I would still love to try the radar gun, just not pitch on a consistent basis. I'd love to go and try to fire up the gun, though.
+- When I got called up, I kept telling myself I was going to take it day by day, and not worry about how long it would last.
+- During the season, you just grind, it's a cat-and-mouse game.
+- The more positions you can play, the more ways you can help the team.
+- I know what a full season is like in the big leagues. It's not going to be a surprise anymore.
+- I love going to San Diego.
+- I created a little thing with my hands, just to create a more consistent plane to backspin balls, and obviously growing into your body helps. It's kind of complicated, more about starting the barrel flat and then creating a movement - flat to up, I guess - going towards the pitcher.
+- I take great pride in my defense because the bat is not always going to be there.
+- I'm learning. Watching video. Understanding what I'm good at, what I'm not good at.
+- I don't really look at stats or whatever. You see them on the big screen. But other than that, I don't pay too much attention to it. I did know about my dad's home run total. Other than that, I don't like to know. It's pointless. Whether you know or don't know, you don't want to think about it. You just want to go out and play the game.
+- I love playing center.
+- I like Frappucinos. For their sugar.
+- I still think that rookie season was the most shocking to everyone, at least in my hometown here. I mean, it was insane. They couldn't believe I was doing this.
+- That's how baseball works. You put some good swings on the ball and it goes out of there.
+- The Met-Rx products... helped me take my workouts to the next level.
+- Just trying to keep going. Just try to stay in the present the best I can. Not get too big-headed or too down on myself.
+- I always felt defense was a big part of my game.
+- You never want to see a guy go on the DL.
+- I didn't really set any goals, just trying to go and play the game.
+- Anything can happen. That's why sports are so great, the unexpected.
+- I think when you have some success, you're living the dream, and you want to have more success.
+- I see myself as a line-drive hitter first.
+- It's hard being an everyday player.
+- I think about my dad and how tough he had it. They treated us a lot better in our minor league system, especially with the food. But the bus rides were no joke.
+- Baseball is just a game you go out every single day and try to win, go in the cage every day and stick to your routine and try not to be results-based, even though that's what the game is based on.
+- I'm just trying to stay within myself every day and keep going.
+- I grew up playing in the outfield and junior year of high school I went over to first base and got some tidbits from my dad, but it kind of came naturally to me.
+- Growing up, my favorite player was either Derek Jeter or Manny Ramirez.
+- I think growing into a frame is important, not being - in my case - 160-170 pounds.
+- Every day before the game, I know what I want to do. The days I feel off, it's knowing what it is I want to do and getting it back.
+- I think you just have extra adrenaline playing at home.
+- When you're not hitting and they're making good pitches, it's hard.
+- I guess sometimes when the game is on the line you kind of focus a little more.
+- I guess I make a lot of stupid comments that are, like, pretty irrelevant to a lot of things.
+- The offseason after the 2014 season, I worked with hitting coach Damon Mashore. I always had power in batting practice but couldn't take it into a game consistently. We made a little adjustment with my hands, lowered them a bit to get a consistent path to the ball, a natural uppercut to elevate the ball and backspin some balls.
+- I know I can hit. My defense has been there. I'm trying to show what I can do on the basepaths as well.
+- Respect the game on and off the field and if you do that, you're going to have the respect among your peers.
+- I'd played more right than left in Double-A, I think.
+- I'll be the first one to admit I had some bad at-bats. But I've had periods where I've struck out four times and then struck out four times again. It only takes one swing to get out of it.
+- I've played the outfield my whole life. It's like riding a bike.
+- It was really cool coming back here to Chase Field. I played here in high school and went to a lot of games as a kid.
+- My favorite postgame treat as a kid was the sliced oranges. We had those when I played soccer, too, at halftime.
+- Sometimes, there is not a lot of pressure, so you can relax.
+- I'm going to keep playing the way I do. I don't think anybody can tell me how to play; I always play hard.
+- I've said it before, every day in the cage, I'm trying to be consistent and keep my load and keep my body right and my mind right.
+- I don't really do it on the field, but off the field, I use it to my advantage. I'll talk a lot of smack.
+- I think everyone's favorite part of the game is hitting - especially when you're having success - considering it's so hard to do.
+- I was just getting away from my game plan. What I was doing really, I wasn't using it to my advantage in '18. And that was it.
+- It's just a grind every single day.
+- I have to go out and perform.
+- The pressure of the World Series and the playoffs, it gets to you. But I hope I feel like that every year. Because hopefully we're playing into November every year.
+- If I could help the pitcher as much as I can, or I could save three to five errors a year with my defense, then that's just a big help for my teammates.
+- It's a crazy game. And it's a beautiful game.
+- Being the guy that some kids look up to is pretty cool.
+- You take a couple of days off, and your swing is going to be off. I think it takes 15, 20 at-bats to really feel comfortable again.
+- You're going to have your struggles every now and then, but you've just got to always keep it in perspective and try to have a good time.
+- When I was drafted, I didn't know any better. I didn't think I had to hit for power.
+- I've been around clubhouses a long time, I know how to maneuver around the clubhouse.
+- In the pursuit of a championship and beyond, I'm determined to take my performance, on and off the field, to the next level. I'm confident that MET-Rx and their great lineup of sports nutrition products is the perfect partner to help me do just that.
+- I hate when pitchers get me out multiple times. It's probably an ego thing, but I don't like that.
+- I'm up here to help the team win every at-bat, offense, defense, baserunning.
+- When you're playing first base, you help the infielders a lot. They appreciate you when you pick their ball. It's fun to help that.
+- At the end of the day, that's why we're playing the games, for the postseason.
+- If I can't help the team offensively, I can help defensively.
+- There's definitely more pressure to get the first hit when you are 0-for-8 to start the year.
+- I know what I need to do to keep my body in shape to last 162 games.
+- I've seen my dad's three rings. I'd love to have one for myself.
+- I'm just trying to play a game. I don't think I should have to worry about who's gonna come on the field and whatnot.
+- Our hitting coaches have done a great job of understanding when I don't look right at the plate and getting me back on track.
+- I'm understanding how to use my swing and working in the cage every day to repeat what I'm doing. Just not trying to do too much.
+- I think any way you can help offensively or defensively, and if you can get both in one day, that's a huge confidence booster and everyone wants to do that.
+- As a hitter, I think if we wanted to change something, we should scoot the mound back. But that's never gonna happen.
+- I am pretty laid back, I think, and I don't so much want the spotlight on me. I just like to go to the field every day, do my routine, talk baseball, and have as much fun with it as you can.
+- It's weird coming into a game in the later innings, in a World Series game.
+- Your bat's not always going to be there.
+- We know how hard it is to make the World Series; to do it two years in a row is really special. I know how lucky I am to be a part of it two years in a row.
+- I respect the game, on and off the field.
+- It's a game to be enjoyed. For us, it's also a business - it's a job. But you play better when you're having fun.
+- I've always had trouble keeping weight on, or putting weight on as well.
+- I thought the Little League fields were big. You look back now, and its obviously the smallest field you can play on.
+- I didn't want to go to college. I went to Oregon two days to visit. And they were two sunny days. But me in college was not something I really wanted to do.
+- It's a game of adjustments. Your hands aren't going to be in the right spot 100 percent of the time.

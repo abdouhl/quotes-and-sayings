@@ -1,0 +1,66 @@
++++
+author = "Kristen Wiig"
+title = "Kristen Wiig Quotes"
+quotes_len = "60"
+description = "the best 60 Kristen Wiig Quotes"
++++
+- I do sort of gravitate towards smaller, indie-type movies.
+- I think it's an interesting thing to watch when a person is trying to keep it together and then ultimately when they do lose it a little bit.
+- I can relate to having those people in your life that you feel are moving on to this great, big, normal life and you're like, 'What's wrong with me?'
+- I just like to walk around New York, just put my iPod on and walk around.
+- I am shyer than most people think.
+- I probably lived more of a rock-star life when I was 15. I got in trouble a fair amount. I cared more about hanging out and skipping school than studying.
+- I would never wear fur.
+- I don't know if you can articulate an instinct.
+- When you go out of your comfort zone and it works there's nothing more satisfying.
+- I feel like women are asked their age more than men.
+- When you're on your deathbed, you probably aren't counting the movies you've made.
+- With improv, it's a combination of listening and not trying to be funny.
+- I'm not as much a history person as an art person, but I mean, you can read history through art.
+- For movies to get greenlit solely based on the success of other movies that have a lot of women in them? It's so ridiculous to me.
+- I really, really want to go to Paris. I've never been.
+- I like to write and draw and paint, and my mom's an artist, so I think I get caught up in thinking, 'I'm afraid it's gonna be bad,' and it's hard for me to start sometimes.
+- If I can be doing something in the arts till the day I die. I would be very, very happy.
+- I don't always just want to do the same thing.
+- My friends back home are very supportive.
+- I wish I had a lot of tattoos.
+- I don't know about the romantic comedy route, although never say never.
+- You have to leave things that you love.
+- I don't rehearse a lot. I try to keep it organic. Even in movies, the less I rehearse, the better I am.
+- I lived in Lancaster, Pennsylvania, until eighth grade, and then my high-school years were in Rochester, New York.
+- People always call me a comedian. And I don't really see myself like that. I guess I just consider myself an actor who does comedy. But who wants to do other things as well.
+- I'd make a terrible surgeon. The fear of blood? Very high on my list.
+- I never think if I do an impression of someone, I'm never making fun of them.
+- The good thing about 'SNL' is that it's the same people every week that you're working with, and we've all become so close and tight because we've worked together so long and so closely together.
+- I wish I had less fear about creating my own parts.
+- It's not like I have boxes of scripts arriving at my door.
+- Sometimes I need to blow off steam and go dance really hard.
+- There are so many funny women in the world, and there has been for so many years, so I'll be happy when people can just move on from that, and things can just be 'comedies' and not 'female' or 'male,' and everyone gets an equal opportunity.
+- A big part of being in a wedding is the financial obligation, and that's something that people don't really talk about, but if you're asked to be in a wedding, you're gonna have to fork over some cash.
+- People are always so surprised when I want to do dramatic stuff.
+- I roller skated when I was younger, but when you're on a track that's slanted and you're with other people all skating in a pack, it's a whole different sport.
+- At parties, I'll start talking and notice everyone is looking at me and feel dumb and say, 'Forget it,' and then start eating things.
+- It's a mystery to me what makes people laugh.
+- There's something about a Christmas sweater that will always make me laugh.
+- If you're creating anything at all, it's really dangerous to care about what people think.
+- I think people like to see the lives of artists that are legends. They always go through the dark periods and I think just as humans we like to see that and them coming out of it. I love those kinds of movies.
+- I enjoy being characters rather than myself.
+- Maybe studios don't want to see women acting in a way that isn't womanly. Maybe people don't.
+- I wasn't rich.
+- I always say I want to look haunted.
+- Mean comedy is not really something that I personally gravitate towards or something that I do.
+- Even in this day and age, if you're not married, there are people who are like, 'Awww! Don't worry, it'll happen for you someday.'
+- I'm a vegetarian; I eat a lot of tofu and soy.
+- I love the rain. It's my favorite weather.
+- I hated speaking in public. I would miss school just so I wouldn't have to do it.
+- I just always gravitate toward the kind of characters or people that maybe you don't want to talk to for a long time at a party, but you do like to watch what they're doing.
+- I know from my own experience and from other people in the business that when you come from a place where nobody knew who you were and then there is this sudden shift to where everybody now knows who you are, there's an adjustment that you have to make.
+- Why can't there be a lot of great women who are doing great things?
+- The public doesn't want to hear people complaining about having their picture taken.
+- I just want to try and be in projects that are exciting to me.
+- It's fun for me to play people that are just kind of odd.
+- It sounds so cheesy, but there's something very powerful about looking in the mirror and asking yourself a question. Because I think it's really hard to lie.
+- I would rather have a small part in a really great movie than a big one in one that I'm not too psyched about.
+- The weddings that I've been in have been pretty mellow.
+- I definitely ran with a pack of hoodlums, that's for sure.
+- People sometimes get a little extra criticism when they try something that they don't normally do, but I think that's just a natural thing for artists. It's like, 'Okay, I did that, and now I want to try this.'

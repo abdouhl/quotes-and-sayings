@@ -1,0 +1,100 @@
++++
+author = "Kriti Kharbanda"
+title = "Kriti Kharbanda Quotes"
+quotes_len = "94"
+description = "the best 94 Kriti Kharbanda Quotes"
++++
+- What matters to me as a creative artist is the credibility of the production house, the honesty in the script, and the way the filmmaker has conceived the characters in the narrative.
+- Ideally, as an actor, we all crave attention, appreciation, and to be recognised. What's the point of doing it yourself? It needs to come from someone else, and when that happens, I enjoy that moment.
+- Comedy is not an easy genre.
+- The only Bollywood dream I have is to meet Shah Rukh Khan once.
+- If there's garbage in one's head, that's what will come out.
+- 'Veerey Ki Wedding' is a comedy of errors in more ways than one. It's one of those basic, perky comedies. We're not trying to give out a message or anything.
+- Initially, I was scared of living alone in a big city like Mumbai, which is nothing like Bangalore. I'm more comfortable now; it feels like a home away from home.
+- I have always been dramatic, so I think being an actress comes naturally to me. I think I am pretty good at it.
+- When I started playing tennis in Class V, I used to be the only girl on the court along with 20-odd boys. So, I am used to being in the company of boys. In fact, I have very few girlfriends, and even my besties are boys; I find it much easier to get along with them.
+- I could have been insecure in 'Yamla Pagla'... if I wanted to be. With three actors who are amazing beyond belief and are a brand themselves, they don't even need me. They made sure that I was part of it. It's about the people whom you meet. They make you secure or insecure. It's their attitude. I have been very fortunate.
+- Doing comedy was liberating in a way.
+- I want to work with Sriram Raghavan, Imtiaz Ali, Karan Johar, and, of course, any other director who is offering a great role to play in a film.
+- I'm a loner, and I'm most comfortable living by myself, but Bengaluru is home for me, as my family is there. Having said that, once you come to Mumbai, you can't turn your back on it. I've grown close to Mumbai now.
+- I have become limitless and stronger. You don't need that attitude to survive in Bollywood, but when you are doing a film like 'Raaz,' you can't go on set with inhibitions.
+- I really like the way Deepika Padukone dresses up. I think she really carries herself very well.
+- I never expected 'Theen Maar' to have such a great opening. Pawan Kalyan is a huge star in Tollywood, but for me, it's just my second film.
+- After dubbing my lines for the first time, I'd say it's more difficult than performing in front of the camera.
+- Even if you sulk after a failure, you have to put on that exterior that you are fine. You could be going through a series of nonsense in your personal life or failure in your professional life, but you have to put on that exterior.
+- I've lost count of the number of saris I have. I can assure you that you will never catch me repeating a style of sari or a blouse ever. I love wearing them, and I have a sari for every occasion.
+- With time, I am getting to work with actors who are known for their work. I am liking that, enjoying every bit, and I want to soak it all in.
+- 'Shaadi... ' made people see me as an actor. A lot of filmmakers called and said I was really good in the film... People from the industry - who never spoke to me, didn't think I was a great actor because they hadn't seen my work - said I can act.
+- I think objectifying women is not wrong if only her beauty is captured in an aesthetic manner.
+- The longer you experience a scene, you tend to accept what's going on.
+- I've been travelling around moving from one movie set to another... it's been back-breaking, but am not complaining.
+- I'm a director's actor and go by what they say.
+- I think comedy is something I enjoy, so it comes effortlessly.
+- I have apparently become a sequel queen because of films 'Raaz: Reboot,' 'Guest-Iin-London,' 'Yamla Pagla Deewana Phir Se' and 'Housefull 4.'
+- I used to have panic and anxiety attacks.
+- I think, in the South, I can do it, especially in the Kannada film industry. I am popular enough to do a woman-centric film there.
+- I have been a big fan of Dulquer. I have watched a lot of his films... 'O Kadhal Kanmani' being my favourite.
+- Direction is always on my wish list.
+- I want people to take me seriously as an actor. I want to be a star; I won't deny that.
+- I am all for career, whether pre- or post-marriage.
+- It's a hugely popular franchise, and every 'Housefull' film has worked well at the box office.
+- I feel like, for an actor, eyes are the most important thing. So I'm a little obsessed with eye creams.
+- If you're not vulnerable, and you're too headstrong and clear about the path you want to take, it won't help you grow. Vulnerability doesn't have to be a negative thing. If you take the right spin on it, it can be extremely positive.
+- Today, there is not one Hindi movie which doesn't have a kissing scene.
+- My mom is my best friend. I tell her everything from what's going on in my life and my work to my love life.
+- I find it very hard to approach people. I take a very long time to open up and become friends with someone.
+- Even if someone were to take me out on a date, I have a 'touch me not' air about me. I don't like people who take things too fast nor the ones who take forever to open up to me.
+- Even if I do get stereotyped, I would like to think that it is more of a challenge because if you are given one character and asked to play in 10 different ways, it says more about me as an actor.
+- For someone like me who gets bored very easily, this life is perfect. I can't be at one place for too long. Travelling broadens your thinking as a person and as an actor.
+- I think my favourite beauty mantra would be getting a good night of sleep - it works wonders for your skin. And once you wake up, post your shower, ice your face. It really, really helps your skin.
+- One day, a photographer living in our building came up to my mom and asked her if I would like to model. After a few days, I was offered a Kannada film, 'Chiru,' which was a lot of fun. But I had to complete my studies, so I went back to college.
+- I used to be a conscious person in terms of dressing, and I wasn't comfortable with my body, so I wouldn't dress in a certain way. Now I am comfortable, and nothing bothers me. Once you are comfortable, everything starts looking good.
+- I would love to do more Hindi films, but I am very laid-back that way and wouldn't go looking for more films.
+- I am not going to do anything that embarrasses my parents.
+- While acting, you just go with the flow of what you are feeling, but dubbing requires recreating and reliving those emotions all over again. So it's very necessary to match up to the performance in front of the camera.
+- I want to be as healthy as I possibly can be. I just want to make sure that I do everything to take care of myself. Like they say, charity begins at home. Love begins at home, too. So I want to do the best for me. I want to pamper myself and do the best for my body.
+- There's no better feeling than being independent and doing for yourself.
+- In the South, there is a celebrated Telugu film director name Raghavendra Rao, who is known for shooting women's mid-riff in a certain manner. They are done in a very aesthetic manner and doesn't look vulgar. Now, it is up to the audience how they are going to watch it. As long as the girl is comfortable acting in it, I see nothing wrong.
+- I feel that bad people exist everywhere. I've always maintained that it is not the industry that is good or bad: it's the people.
+- Pole dancing is a great way to enhance your fitness level and also your dancing abilities.
+- People don't come to the theatres to watch a kiss. It's the story that appeals to them.
+- Let's make it clear: women are sexier than men. They are a prettier gender than their male counterparts. And then, if a woman is comfortable showing her mid-riff on-screen, what is the other's problem? Why does she face body shaming? Does a man face the same while going shirtless?
+- Pawan Wadeya's 'Googly' gave me a new lease of life in Kannada cinema. I feel blessed that way. There's been no looking back since.
+- My parents have been very supportive. To survive in this industry, you need a great support system, and I am really blessed to have one.
+- 'Raaz Reboot' doesn't have extreme boldness, but I was apprehensive about the kissing scenes.
+- I will not leave my South films for a Hindi film. I want to be sincere to my South film makers and commitments. Only if my dates are not clashing with any of my South films will I do Hindi films.
+- I don't think there's any space for any negativity or insecurity on the set of 'Housefull 4.' It feels like a big, crazy family.
+- I was always one of those people who thought my love life would be dramatic - a knight in shining armour would take me away on his horse. I was that girl; I'm still that girl. What better way to live that life than being an actor?
+- It was nothing less than a dream come true shooting with Farah Khan.
+- I think that Delhi Metro has made things convenient for people, and we must credit the government for that. The Metro network that they have built in the city without disturbing any infrastructure is amazing.
+- Never in my wildest dreams I thought I would work with Dharmendra sir. I remember the first selfie I took with him, I posted on our family WhatsApp group. My father couldn't stop beaming with joy. I could feel it. Everytime I see them proud, it makes everything so worth it.
+- 'Guest Iin London' didn't work, but it got me more work; it helped me grow as an actor.
+- The challenge is when you're offered similar roles, and you have to play them differently. I don't want people to say, 'She performs similarly in every film. There is no versatility.'
+- Don't be naive and allow a man to take advantage of you.
+- When I am practicing yoga, I try to avoid music. But if I really have to listen to something, I listen to the Om chant.
+- I don't know how any film can bother you. It doesn't have to do with multi-starrer films. If you are insecure, you can feel insecure being the only girl also.
+- I think the advantage I have with yoga is that it is something I can do on my own and can't make excuses that I don't have a place or the time. One can practice yoga anywhere, anytime. You don't have to worry about what you're wearing. For all of these reasons, yoga works for me.
+- I make sure I use, like, a hair mask, and I try not to spend too many days at a stretch with product in my hair, which is difficult 'cause then I have to wash it every alternate day - being an actor is not that easy, because everything you use has chemicals.
+- If you fall for someone and decide to get into a relationship, you need to accept each other with whatever traits they possess. Also, if you get married, never think that you will be able to change that person.
+- I have changed so much, post-'Raaz,' as a person.
+- It's unbelievable that I'm working in the same industry as Mr. Amitabh Bachchan and working with Mr. Dharmendra.
+- I heard people saying how, in a Rajkummar Rao film, people only watch him in the frame, and he could overshadow others. But I must say, he is such a good co-actor who always lets you act your best, because acting also has a lot depending on reacting.
+- I feel really honoured and happy to be part of the P. C. Chandra team. It's my first jewellery endorsement, and because I have also studied jewellery design, it's something very close to my heart, and I feel very happy being associated with the brand.
+- I think women - or human beings, for that matter - are vulnerable. It's your vulnerability that makes you beautiful and stronger in your own way. Because then you're more accepting to newer things.
+- I'm truly excited to be a part of two successful franchises - 'Yamla Pagla Deewana Phir Se' and now 'Housefull 4.'
+- Why do women have to face comments like, 'You are wearing short clothes; you are alluring and inviting men?'
+- I want to be famous. That's my ambition, and there is nothing wrong with it.
+- I miss Mumbai when I'm not here. The city does that to you, and it's exciting.
+- It took me a while to grasp Kannada and Telugu.
+- When I did a scene with Dharam sir for the first time, I actually cried!
+- When I am running, I like listening to typical Punjabi music. It is just who I am. It comes to me very naturally.
+- It's not, like, how long you are on the screen, 'Karwaan' being the biggest the example. I may have had a five-minute role, but I know the appreciation that I got was a lot more than a five-minute role deserved probably.
+- I make sure that, every morning, my skin is really well moisturised. I use my sunscreen; I make sure I wash my face at least once during the day. I try not to overdo it, just so if there's any dust on my face, it doesn't settle into my pores.
+- I believe equality in a relationship is very important, and for that, both partners should be equally capable to handle anything.
+- I am all for love marriage. I am not the kind of person who can be instructed to fall in love. I am not saying that it cannot happen. Most of my family members met the person and decided to get married. Their marriages have worked beautifully.
+- We need to live and let live. This applies to a couple in general.
+- As a kid, the only time I used to get out at night when I was in 9th and 10th standard. The only time I had permission to go out at night was during Navratri because we all used to go play dandiya and garba.
+- You discover who you truly are only when you live alone.
+- For a tiny person, I have a lot of confidence. No one messes with me!
+- As an actor, I have no limitation. I will do whatever excites me.
+- Farhan Akhtar is very talented, and I'd love to work with him because I feel like he is one person I can learn a lot from.

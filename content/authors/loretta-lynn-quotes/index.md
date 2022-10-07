@@ -1,0 +1,76 @@
++++
+author = "Loretta Lynn"
+title = "Loretta Lynn Quotes"
+quotes_len = "70"
+description = "the best 70 Loretta Lynn Quotes"
++++
+- The night I announced I was getting married, Daddy paced for hours on the porch.
+- You get used to sadness, growing up in the mountains, I guess.
+- We still lend our old house out to relatives. They keep a guest book for my fans to sign.
+- When something is bothering me, I write a song that tells my feelings.
+- I'd love to work more with the American Indians, my people.
+- My biggest hero, Gregory Peck, was my birthday present on April 14, 1973. I just sat and stared at him.
+- Doo never actually made moonshine, but he hauled about an ocean of it.
+- There's always been a man telling me what to do.
+- I won all the blue ribbons for canning at the state fair.
+- I refuse to be pushed around anymore.
+- I ain't got much education, but I got some sense.
+- You ain't supposed to get salmon when they're swimming upstream to spawn. But if you're hungry, you do.
+- I know there's some kind of history to mountain music-like it came from Ireland or England or Scotland and we kept up the tradition.
+- Who wants to be married to a grandfather?
+- Do the best you can with yourself and hope for the best.
+- Because Olivia Newton-John wasn't from Nashville, they didn't like her winning our awards. I've got no complaints.
+- I loved being outside. We'd hold lightning bugs in our fingers and pretend they were diamond rings.
+- I was married when I wasn't quite 14 and had four babies by the time I was 18.
+- I want more out of life than I've gotten.
+- You can't be halfway in this business. If you don't meet the fans, you lose all you've got.
+- I never knew any Jews until I got into show business. I've found them to be real smart and good workers.
+- I believe in horoscopes. I was born under the sign of the Ram, which means I'm headstrong, don't like people telling me what to do.
+- I think Charley Pride has been one of the best things to happen to country music, to prove it belongs to everybody.
+- I never rode in an automobile until I was 12.
+- I get along with all the women singers, but especially Dolly Parton. We talk the same hillbilly language.
+- Me and my partner, Conway Twitty, cleaned up at the 1972 Country Music Association Awards.
+- I've always been full of nervous energy, but I'm not really as happy as I seem.
+- There's more women stars in Nashville all the time. They're proving they can do the job the same as a man.
+- Some of my friends who know me best say they wouldn't trade places with me for $1 million because of the pace I lead.
+- When I first came to Nashville, people hardly gave country music any respect. We lived in old cars and dirty hotels, and we ate when we could.
+- In the long run, you make your own luck - good, bad, or indifferent.
+- A lot of people say I'd miss show business if I quit. I'd miss some of it. Now it's the only life I know.
+- I don't go to church regular. But I pray for answers to my problems.
+- I believe in education and wish I had a better one.
+- I wasn't for Vietnam. When I told that to the hippie newspaper, all my people got nervous.
+- When I'd tell people I like country music they'd get this look on their faces. People were kind of ashamed of country.
+- I wouldn't have dared ask God for all that He's given me. I couldn't have done it on my own. I thank God every day for what I have.
+- Really, I don't know what I'd do with myself if I retire. Wash dishes?
+- Growing up in eastern Kentucky like I did, I'm used to having a few guns around to protect me.
+- I've seen every highway in the United States, and they all look alike to me.
+- The country is making a big mistake not teaching kids to cook and raise a garden and build fires.
+- I try to visit people in hospitals when I can, smiling and joking while I'm there. But when I leave, I just start crying.
+- I'd love to travel to the Holy Land.
+- How do you measure your value?
+- Sometimes I think our problems are made worse by the kind of business we're in. Playing these road shows is a weird experience.
+- My life has run from misery to happiness.
+- I don't like to talk about things where you're going to gt one side or the other unhappy. My music has no politics.
+- I've been married to the same man for all this time. The way we fight sometimes, you can tell.
+- I'm trying to lead a good Christian life, so there ain't too much spicy to tell about me.
+- A woman's two cents worth is worth two cents in the music business.
+- I'm always making Butcher Holler sound like the most backward part of the United States-and I think maybe it is.
+- Being on stage is the best part of my career. I just say whatever comes into my head. It's the only time I feel grown-up and in control of things.
+- Nobody's perfect. The only one that ever was, was crucified.
+- I'm not a big fan of Women's Liberation, but maybe it will help women stand up for the respect they're due.
+- I avoid going through places where there's too much poverty.
+- I know what it's like to be pregnant and nervous and poor.
+- When all those city folks try to fix up my talking, all they do is mess me up.
+- Back then, we didn't know we were poor, and people were more proud then.
+- Once in a while I get inspired and finish my act with the hillbilly hoedown.
+- I didn't know how babies were made until I was pregnant with my fourth child.
+- I'm proud of being part Cherokee, and I think it's time all us Indians felt the same way.
+- Daddy was real gentle with kids. That's why I expected so much out of marriage, figuring that all men should be steady and pleasant.
+- I love people and I love to sing, and that's what keeps me going.
+- Doolittle looked just like a little toy soldier the first time I ever saw him.
+- Mommy smoked but she didn't want us to. She saw smoke coming out of the barn one time, so we got whipped.
+- I was the first woman ever named Entertainer of the Year in country music.
+- We used to go around tipping outhouses over, or turning over corn shocks on Halloween. Anything to be mean.
+- I've seen country music go uptown, like we say, and I'm proud I was there when it happened.
+- I've been around a long time, and life still has a whole lot of surprises for me.
+- My attitude toward men who mess around is simple: If you find 'em, kill 'em.

@@ -1,0 +1,106 @@
++++
+author = "Ilkay Gundogan"
+title = "Ilkay Gundogan Quotes"
+quotes_len = "100"
+description = "the best 100 Ilkay Gundogan Quotes"
++++
+- If we lose and someone is better than us then we accept it. Handshake after the game and well done and focus on the next game. But if we lose and don't play the style of football we want to play then we know it's our fault and we can do it better.
+- That's why I don't want to know the questions before, when I give interviews whether TV or print. I don't want to prepare myself for what I will answer.
+- Cristiano Ronaldo is the world class player after Messi, but for me he is not on this Galactico level of Messi.
+- Football has to keep being part of my daily routine!
+- The elite footballers of one country meet at the national team and it's an honour for me to be among them.
+- Believe me: Everyone at City knows about Timo Werner. Many of my team-mates asked what kind of guy he is. He deserves respect.
+- You shouldn't want to imitate people if it doesn't fit with your own style.
+- A player can have all the quality and everything it takes to play for a big-six team or to play for the best teams in the world but then sometimes it happens and it doesn't work out. It's not because of the player or the club, sometimes it's just the environment, it's the wrong timing.
+- I like to have the ball and play beautiful football. That's what the people want to see and what makes football so special.
+- I like to have the ball, to have possession and to play passes, to create chances for my team-mates. I think that is what makes me strong.
+- Pep Guardiola tactically brings a gift that is second to none in the world.
+- If I don't get out of my comfort zone, I will never change and never improve.
+- I have no problem with answering questions honestly or even looking outside the box and answering private questions.
+- From my own experience, the more you play, back-to-back games, the better you feel, with more self confidence and rhythm.
+- I think in the title race it's crucial to be defensively as solid as possible.
+- I think struggles are part of our profession. And it's always about overcoming these kind of moments.
+- I would be absolutely delighted if I were to have a career similar to that of Schweinsteiger, both at club and international level. We all know what he has done for German football. It is an honour to be likened to him.
+- I speak German, Turkish and English perfectly. And I can communicate in Russian.
+- When you have no concerns in your mind you are able to win a lot of times, that's how I felt when we were able to win at Dortmund.
+- You can't defend against Thomas Muller, it's extremely difficult for defenders. As an opposing player, you never know what he's going to do next.
+- You cannot just win every single game by three, four or five goals and then when you come into the last 16 playing a good team, 1-0 down, expect to turn it around easily. It's not always like that.
+- Even though we are at the top level, we all make mistakes. We play the game, and mistakes are part of the game.
+- I dream of winning the Champions League title with Manchester City and a title with Germany.
+- I feel privileged to have grown up in Germany so it was a heavy blow for me to be portrayed as somebody who isn't integrated and who doesn't live his life according to German values.
+- Jurgen Klopp and Pep Guardiola are the two best teachers in the world.
+- I have had almost only positive experiences in Germany. I want to be very clear about that.
+- My parents wanted me to have a good education, so I finished school, and at the same time I was able to play football.
+- In my opinion, Havertz is even better than Ballack in terms of his playing ability.
+- To be honest I think watching from the sidelines is one of the most difficult things.
+- I wish that sometimes there is a little more honesty and that you can discuss things openly. There should not be taboo subjects.
+- Of course, in the end it is all about what happens on the pitch, but it helps to have all the fans behind you.
+- Taffarel was also outstanding when Galatasaray won the UEFA Cup in 2000. I watched the games of 'Gala' a lot in my childhood.
+- Everyone told me the Premier League is the hardest. So I just wanted to try because I had nothing to lose.
+- If I'm needed, I'm ready to help the team wherever.
+- The Premier League is the best league in the world in my opinion.
+- I prefer to get my own picture of people and Pep was the main reason that I moved to City. I am very happy with how things have gone, both personally and in a sporting sense.
+- Because of our Turkish roots, we still have a very strong relationship with Turkey.
+- I think people always criticise Mesut because they think his attitude on the pitch is not a good one, that he doesn't care that much. But I think people just struggle to accept that you can have the more emotional kind of players, the more aggressive ones and you have players like him, you know, that need maybe this calmness for their game.
+- I do not want people to forget me.
+- There was a guy I found incredible in training. A player I thought 'What is he doing? Is he only 18 or 19?' That player was Mario Gotze. He did things in training that made me think 'Wow. If he doesn't make it all the way to the top then I don't know!'
+- I had four fantastic years with Jurgen. We won a lot of things together, we lived through many different experiences together, we had our lows, too.
+- I take care of who I am and what I do, treating people in the nicest way possible and everything comes back in life.
+- I grew up in a very multi-cultural society.
+- When I am 32, 33 and I realise that I can't keep my level or it is dropping, it will be a stop abroad where you might not play at the highest level and not keep up with Premier League.
+- I am convinced that you should always play the way you want to play and success will then come on its own - as long as it's a good philosophy.
+- If I have the space, I recognise the space, I like to take the ball and go straight to the goal, if there's a chance to create something then I'll do it.
+- In sporting terms, I'm very satisfied with City - there are less attractive jobs in Europe!
+- We always feel when we're able to score the first goal or an early goal, we feel like we are unstoppable.
+- Winning the Champions League is what you dream about when you are a small child.
+- If we are quite defensive and we lose the ball, we just try to get back into our positions and try to defend. That's something you have to do from time to time.
+- The Champions League is maybe the most prestigious competition in the game and if you don't win it, as much as we are a great team, you feel like there's always something missing.
+- I liked to watch Kaka very, very much. The way he played with tremendous pace with the ball at his feet, he just left opponents behind. Watching him was a feast for the eyes.
+- Pep's arrival at City was the biggest factor in me coming here. Every player wants to works with him. If you ask any player, they would be happy to do so even if it was just for a few months.
+- It's bad if you disguise yourself, I honestly cannot see it anymore when you're after the game, always asked the same questions and give pre-programmed answers. I do not know if there is a solution for that. I don't know if you can, want or should change it. But sometimes I just wish for a little more.
+- I am still a big fan of Jogi Low, and not just in terms of the sporting side of things. This applies to his character, his leadership qualities and his humanity.
+- I see myself as a mix between number six and number eight in central midfield - this is the best position for me, as a box-to-box midfielder.
+- Guardiola, Jurgen Klopp, Thomas Tuchel, Joachim Low... How many players can say they've had coaches like them?
+- You know it's part of football to lose, it belongs to it and its necessary because then you know what a feeling it is to win and you want to achieve that more and more. If you lose you appreciate winning a little bit more.
+- I believe in life's challenges and I always try to challenge myself.
+- The Champions League is, in terms of club football, the most prestigious one. And if you don't win it you will never be named one of the greatest teams, no chance.
+- We do not only have a Turkish side, inherited from our parents and our families, we were born and raised in Gelsenkirchen. It is a city with a high percentage of emigrants.
+- You have to learn how to behave in these kind of moments when you are not able to control the game 100 per cent.
+- Kun Aguero is an amazing player. He has scored so many goals and he does a great job.
+- In my opinion, he has very special abilities. He has talent and he always manages to show it on the pitch. He always has the instinct to make the right decision. He uses his speed well against the opponents he plays. He has a strong finish. All in all, no one else has as much quality as Lionel Messi.
+- Coach education in Germany is actually very good, but I do not understand why many coaches do not have the guts to push through an idea when they have lost two or three times.
+- I enjoy playing at Manchester City.
+- Everyone has his or her own opinion and I always welcome criticism. That's why we have freedom of expression and that's also what I stand for - but I won't stand for insults.
+- When you are in front and top of the table, it feels great to look at it.
+- Ballack had a certain level of aggression in his game, and a strong mentality.
+- I wanted to leave Dortmund in Dortmund and not think about spending time with Jurgen when I chose a new club. That was partly a reason for me not to go to Liverpool.
+- Klopp's philosophy? Getting the ball back, a quick switching game, combinations and then ice cold in front of goal.
+- I am always open-minded for challenges.
+- Iniesta makes the game look easy, but it's not. On the contrary, it's very difficult. I don't think people appreciate it enough when they watch him on TV. He played brutal passes and was always flawless - it felt like he was floating. For simplicity, there is no better player than Iniesta.
+- Pep has so much charisma that always makes you give more than 100 per cent, not only in matches, but in training too. His way of understanding the game also suits my style perfectly.
+- That is the most difficult thing: to feel that you are useless, not worth as much as before, not worth as much as the others.
+- I have noticed that, for fans in England, the Premier League stands above the rest.
+- I had four great years with Jurgen and I like him as a person and as a coach.
+- In a World Cup every single game is important; you are not allowed to make mistakes, not allowed to fail. If you want to win, you have to be there every game.
+- It's important in sport and life, if you do something with confidence you always do it better. That's the same in football and everything else.
+- I can imagine it's not attractive for the spectators when we play teams with 10 players around their own box, just defending and hoping for a set-piece or throw-in, anything.
+- I like to have the ball first of all and to pass, these short passes to create the space at the right moment.
+- The idea of my parents was to keep us away from the streets. Gelsenkirchen is not a rich city. The crime is above average so they always tried to keep us away from bad things, and I think they were successful.
+- In a team like Manchester City, Arsenal, and other big clubs, it's quite difficult just to have the same 11 players starting every week.
+- When it comes to the game they both focus on different things. Pep is maybe more about positions, dominating the ball while Jurgen is maybe more like winning the ball and trying to score goals as quick as possible with high intensity.
+- It would be the completely wrong thing to go into games with fear.
+- I try to do my best in training and to get in shape and be prepared.
+- Pep is at a very high tactical level. A teacher who wants to know every detail of the game.
+- Football is our life, not politics.
+- I came to Dortmund from a relatively small team and I struggled during my first six months to find my place there. I was a bit shy and, to be honest, I wasn't brave enough do certain things. But thanks to the help of my team-mates, and with the help of Jurgen and his staff, too, I managed to improve.
+- It's become the norm that a player who has another year on his contract period has a decision between separation or extension.
+- The Champions League is one of the biggest club stages you can reach and I think for players it is an honour to be part of it. It certainly is for me. You just enjoy being a part of it playing against the best clubs in Europe.
+- Jurgen Klopp is more the emotional one and someone who can motivate really well. Pep Guardiola is more tactical, who always takes care of details and wants to show you how to do everything. Both are world-class managers and both have their own qualities. Both are amazing personalities.
+- If you are a great manager you have to have a great personality.
+- We are used to the whistles of the opposing fans, but when we are booed by our own fans, it's hard to live with.
+- In football, you never know. There could be one or two injuries that crop up and you may be needed so I always try to prepare myself as though I will be playing in the next game or that I need to be available - that's my philosophy, even when I'm not 100 per cent.
+- When you are not able to score the first goal, maybe we get nervous and don't 100% feel the confidence is there and we have to be patient.
+- There are people who look up to me, but the young Muslim kids, especially in Germany, they also need those closest to them to show them a good path, give them targets in their life. I grew up with a lot of these kids and they didn't have the support I had from my family or friends. Not just in terms of football, but everything else.
+- To be honest, I'm not really into politics.
+- Playing for Pep has certainly lived up to the expectations. I knew him from the Bundesliga and saw him coaching Barcelona when everyone saw an excellent manager who is able to get players to improve. He is a great personality and a very nice guy.
+- Rehab is always up and down for the mind and for the body.

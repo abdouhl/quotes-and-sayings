@@ -1,0 +1,34 @@
++++
+author = "Tahar Rahim"
+title = "Tahar Rahim Quotes"
+quotes_len = "28"
+description = "the best 28 Tahar Rahim Quotes"
++++
+- I'd rather have one good scene in a movie by a great director than a small role in a mediocre movie.
+- When you agree to work with a filmmaker, it's important that you accept their world. It's an adventure. I like that. I throw myself into the director's arms, into their universe.
+- We need prisons because there are some hardcore criminals, but I never met a guy who has been in jail that came out with a smile on his face thinking, 'Right, that's it - now I am going to be good!'
+- Some kids go walking in the mountains, but I just went to the cinema. So when I told my parents I wanted to be an actor, even though this wasn't normal for Arab kids or anyone in the town, they were sort of expecting it and were very supportive.
+- I simply can't wear an outfit if I don't feel that is right for me.
+- I've always refused to play terrorists.
+- I'm looking for challenges, and as always, what matters is the script, the character and the director.
+- I don't want to say, 'I want to be in Hollywood,' like so many actors do, but I know that Hollywood is still making good movies, and I'd like to be part of that someday.
+- I like films to be pure cinema, but I also like them to provide a snapshot of a family, a society or a character - something that can nourish you as a human being as well as an actor.
+- I learned to walk on my own legs, to dive so deeply into a role to forget that I'm acting.
+- I sometimes feel that racism is getting worse.
+- We're seeing TV series that are as good as movies were in the '70s and '80s - shows like 'The Wire,' 'The Sopranos' and 'Breaking Bad.'
+- The mud is cold when you're in the north of Scotland!
+- I knew I'd have to go to Paris eventually, and I didn't want to be the provincial kid who just turns up and says, 'I want to act.'
+- Everybody is not completely traumatised by their life.
+- In my town, and especially in my area, there were people from everywhere: Algerians, Senegalese, French people, Asians, all kinds of immigrants and natives, and everyone circulated.
+- I'm an actor, full stop. Not an Arab actor. Not an actor of Algerian origin. Just an actor.
+- If I don't love my character, I can't do it.
+- Movies don't have borders.
+- What is art? Art talks about life; it's subversive.
+- With 'Eagle of the Ninth,' every shot was extremely planned and organized. The director was like, 'Do this!' And I say, 'How was it?' and he says, 'Good.' It was very odd. I would never know where he was headed, or even if he was shooting me at a close-up or from a distance.
+- Thanks to 'A Prophet,' I'm known in a lot of countries.
+- I don't know how to get bored. I need to learn to rest.
+- It's not about 'succeeding,' but sometimes on a film, you know you've captured something.
+- I love fashion as an art; I love fashion as costume, as a character. I don't like dictates and the phoniness of appearance.
+- I don't spend much time on Twitter. I joined because I found it funny.
+- At the end of the day, I remain a country boy inside.
+- I recall the first time my agent told me to wear clothes specifically chosen for me, I would try and find excuses not to do it.

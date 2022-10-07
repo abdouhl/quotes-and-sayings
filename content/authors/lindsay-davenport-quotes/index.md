@@ -1,0 +1,30 @@
++++
+author = "Lindsay Davenport"
+title = "Lindsay Davenport Quotes"
+quotes_len = "24"
+description = "the best 24 Lindsay Davenport Quotes"
++++
+- I've played too many tennis hours.
+- I don't think I should be underestimated.
+- I could never have gotten back into my career without the undying support of my husband, who works full time at a stressful job! We decided that we were going to do this as total partners and it is a 50/50 deal with us.
+- Some times you lose more than you win. It's about handling losses and trying to turn them into positives. You get out into the big leagues and there's a period of adjustment to be made. You've got to handle it.
+- We get criticized for showing no personality, then we get penalized when we do.
+- I wasn't a perfect thing at 17. I didn't have confidence. I was hunched over and real embarrassed, and I didn't want to be in the limelight. But it changed over time.
+- Nobody wants to go through divorce, especially when there's young children involved.
+- I was never a prodigy.
+- I'm not that interesting!
+- I always tried to hide the fact that I was an athlete. I just wanted to be normal.
+- The return is one of the hardest shots to make when you come back from injury.
+- I never had tons of friends on tour. I was quiet and went about my business.
+- You always see people coming back to the sport, and I've always thought, 'Gosh, when you're done playing, wouldn't you just want to stay at home?'
+- I did not grow up with people, you know, pounding in my head, 'This is what you've got to do, this is what you're going to do.'
+- While I was always successful... I never thought I'd be one in the world.
+- I couldn't imagine being from a country where all the pressure is on a particular player.
+- I TiVo 'CSI,' 'CSI: Miami,' 'Grey's Anatomy,' 'Young and The Restless' - my husband hates that one - and that's pretty much it.
+- I think I'm pretty down to earth.
+- I don't enjoy being in Europe for weeks on end, so I just skip it.
+- With my child, I hardly watch TV now.
+- In the history of women's tennis the great players have come back from long absences with no problems.
+- Tennis is more commercial these days.
+- I come from a family of working women, my mum went to work two weeks after I was born - my parents had no money, there was no choice.
+- While I still have more good days than bad days, I'm going to keep playing.

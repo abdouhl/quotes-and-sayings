@@ -1,0 +1,68 @@
++++
+author = "Kathleen Hanna"
+title = "Kathleen Hanna Quotes"
+quotes_len = "62"
+description = "the best 62 Kathleen Hanna Quotes"
++++
+- I know I love sexy surf guitars, I know I love loud snare. I love really simple repeating bass lines, and I love weird mad scientist keyboard sounds.
+- I feel so lucky that I met the love of my life. You know somebody's in it to win it when they're changing your IV bag or you're having a seizure and they're holding you. And helping you to the bathroom. You know that they love you.
+- You learn that the only way to get rock-star power as a girl is to be a groupie and bare your breasts and get chosen for the night. We learn that the only way to get anywhere is through men. And it's a lie.
+- I always tell girls who say they want to start a band but don't have any talent, 'Well, neither do I.' I mean, I can carry a tune, but anyone who picks up a bass can figure it out. You don't have to have magic unicorn powers.
+- I think music can definitely be art; I also think music can be crap and not be art.
+- While everyone's experience of oppression is different and complicated and often overlapping, I really believe that if you have privilege, you need to learn as much as you can about the world beyond yourself.
+- I have late-stage Lyme disease. I was misdiagnosed for many, many years and told I had lupus, MS, Crohn's disease, even degenerative arthritis. And finally in 2010, I got the correct diagnosis, because on the last Le Tigre tour, I was having several seizures a day and at times not being able to brush my own teeth.
+- To make riot grrrl move into the future in a new way with a bunch of new names and a bunch of new energy, younger people have to learn about it and apply it to their own lives and own modern conversation. And they are.
+- I wanna be a legend; I wanna be a cult hero. I do!
+- I can't constantly be trying to write the unwritten song, the song that the 15-year-old girl needs. I need to write the song that I need.
+- I'm really annoyed by the wave of country music that's just a list of stuff. It almost sounds like L.A. people writing country music, because it's just a list of stuff: 'My pickup truck and my cowboy boots and my Levi's jeans and my girlfriend with the short shorts.' It's so boring!
+- Women didn't want to be on the stage with other women because they didn't want their bodies to be compared. They didn't want another female act opening for them because of this weird competitive and tokenistic attitude.
+- I like loud snare, and I like really treble-y guitars, and that's just never going to change.
+- It's unexpected for women's issues to be brought up in places other than women's centers on college campuses or crisis places.
+- It's now taken for granted that women are in bands and you can say feminist things in your songs. But back in the early '90s, there was a lot of violence at Bikini Kill shows that people don't realize happened.
+- If I had to choose between the band or the friendships, I'd choose the friendships at this point.
+- Certain people are like 'Oh, here come the Feminazis!' You end up acting 10 times nicer than you even need to be, to be the opposite of the stereotype like 'You're the man haters!' We're always bending over backwards being extra nice. And I don't know if being nice is my legacy.
+- I especially don't want men coming up to me and asking if sexism still exists. It's like, I'm seriously gonna barf a McDonald's salad on the next person to do that.
+- I was in a band in the '90s called Bikini Kill, and we were so freaked out about documentation then, and there was the whole thing, not just about the male gaze, but that people were going to misrepresent you... a kind fear of the mainstream that a lot of us had.
+- I wanted to make something that I wanted to hear that I wasn't hearing.
+- Art revolves around creating something that isn't there.
+- If people are like, 'Oh, you're an icon,' then whatever. But who thinks of themselves like that? It's not like I have posters of myself on the wall.
+- I'm not a goddess, for crying out loud. I'm a regular person who took feminism - which I have a deep connection to - and mixed it with music, which I really love to do.
+- If I can't sing them myself, there's nothing better than writing songs for other people and watching them be performed. It's kind of more thrilling than doing it yourself.
+- I have chronic - well, I like to call it late-stage Lyme disease and not chronic, because I like to think someday I'll be all the way cured. It took me a really long time to get diagnosed, and I was misdiagnosed for a long, long time. I was very ill during the end of Le Tigre, which was kind of why that ended, amongst other things.
+- Singing is my life, and I have to do it, or I'm going to go totally bananas.
+- So many women have experienced horrific forms of male violence throughout their lives, and why isn't there a song about how you get depressed because of it?
+- It's really funny - when I'm depressed or I'm having a hard time, I'll write really fun stuff. And then when I'm really happy, I write really depressing stuff.
+- I really like to talk about my work in a way that is complicated.
+- Teachers are performers, just like I am.
+- I'm not that interested in female superheroes.
+- Popularity is totally overrated.
+- I was making stickers for guys' bands. I was in the front row photographing bands, booking bands, doing all of the kind of backstage stuff, and I didn't even think for a second I could do it, and then I saw Babes in Toyland, and all that changed.
+- I like art with a sense of humor. I don't have a huge art education to understand everything. I don't think that means that art has to be watered down to the lowest common denominator, though. I don't think you have to go to college to be able appreciate great art, but I like art that doesn't take itself too seriously.
+- I wanted to say to myself as much as anyone else that we made art.
+- In terms of men being feminist allies, it's just important to speak from your own place. I'd love to hear men singing about masculinity and the damage it does to them.
+- I'm totally into Taylor Swift. I think she has super-clever lyrics, and I love that she writes her own music. Some of the themes she writes about are stuff I wish was there for me when I was in high school, and I'm so happy she really cares about her female fans. She's not catering to a male audience and is writing music for other girls.
+- Sometimes, being a feminist artist, there are times where I'm in a position where I just want to feel like I'm saying all the right things politically, or I feel like I have to mention my own project over other people's projects. But I don't do that anymore. I just want to be off the cuff and honest.
+- I don't want to be a historical action figure or treated like I'm dead. Like one of those people where they go, 'Oh, isn't she dead?' And then I walk up, and they're like, 'Whoa.' I can't really complain... because I've made myself into a historical action figure. I was like, 'Yeah, come on in!'
+- Not to rag on myself, but when people say, 'What does it feel like to be an icon?' I'm like, 'My dog does not think I'm an icon, my cat does not think I am an icon, my cousin does not think I am an icon.' I have a really lovely group of friends, and I just don't think about it.
+- I would love to make a bunch of country demos and write country songs for really great country singers.
+- There's just as many different kinds of feminism as there are women in the world.
+- I think as a culture, we don't like conflict or looking at icky stuff - especially in our downtime.
+- When I watch myself on camera, in any capacity - being interviewed, performing, 20 years ago or yesterday - there's a part of me that really doesn't grasp that it's me.
+- I felt it was really, really important, not just in the vein of feminist erasure or whatever but also just as an artist that I honored my work.
+- I go to lectures and girls are finding out about Bikini Kill or Le Tigre for the first time and are like,' This is my jam!' It still feels fresh to them.
+- I'm just working and having a good time and seeing what develops, which is so awesome, because you don't know what's going to happen, and I'm letting myself do that a lot more than I ever have.
+- Defining art is huge; I feel like it's such a subjective thing. It's more like what's not art. You know what I mean? I think there can be an art in the way people live their lives, and art can be a gift someone gives to somebody.
+- Facing sexism and racism and classism and transphobia, there are ways to choose to act in those situations, and there shouldn't be a prescriptive list of things that you have to say.
+- There are so many great artists that are doing interesting things, that I don't want to focus on boring people.
+- What happens tomorrow is going to happen tomorrow.
+- Find something you really love doing and mix it with something you really care about. That's why I've had such longevity as an artist. I really, really care about ending violence against women, and I really, really love playing music. It's super enjoyable!
+- In 1985, I was living with my sister in Virginia, and since I was still in high school, I worked at McDonald's to save money to get an abortion. It sounds really terrible, but it was the best decision I ever made. It was the first time I took responsibility for my actions. I messed up, had sex without contraception, and got pregnant at 15.
+- I'm in a really lucky position where people will be interested in whatever I do, but what I do is sing.
+- I just write what I want to write.
+- I always thought that putting tons of reverb on my voice was kind of the equivalent of airbrushing. And I wanted other girls and women to hear a real female voice that wasn't completely manipulated.
+- You don't have to have magic unicorn powers. You work at it, and you get better. It's like anything: You sit there and do it every day, and eventually you get good at it.
+- People have always had these weird things about how you have to be really good looking to be a singer.
+- Feminism rotates between backlash and interest. And the cool thing about the Internet is that it's allowing women more access to their own history. Part of the problem before the Internet was that we didn't know which books to read. Someone had to tell you.
+- Since I loved underground music, I tried to carve a space for feminism within it. Those were my hopes.
+- That's the great thing about music. You can find some '60s pop record and feel completely invigorated by it, even though it's so old.
+- You feel like people are looking at you like, 'I wanted the old Kathleen. Where's the old Kathleen?' I felt that way in the beginning of Le Tigre. I felt people were like, 'You're not angry enough anymore.' People still ask me that. 'Are you still angry?' I'm like, 'About what? About that question? Yes.'

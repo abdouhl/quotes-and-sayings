@@ -1,0 +1,106 @@
++++
+author = "Kelela"
+title = "Kelela Quotes"
+quotes_len = "100"
+description = "the best 100 Kelela Quotes"
++++
+- Sometimes I learn by someone giving me warnings and giving me advice about what to do next. And other times, a lot of times, I have to put my hand into the fire.
+- A black woman's handbook in this industry is, 'Whoa.' The chapter on 'Don't go there.' The chapter on 'How to say that nicely,' how to express that you don't like something so that you don't lose the opportunity - which is what we're doing all day long.
+- Popular music was this abstraction - an abstraction that I was relating to immensely but was ultimately far away.
+- I was in school studying International Studies and Sociology. I was really into what was going on in school. I was affected by the ideas and engaged as a student, but not disciplined or motivated enough to do the work. That was a fear of mine for a while, that nothing was motivating.
+- The act of me just being robust in the world is so radical - it's so radical for a black woman to think she's going to be a star, because it takes so much to get there. It's still a battle every day, but I feel happy because I feel like I cracked the code and figured out how to work through it. Now I want to give the map to other women.
+- As a black person on the outside, because there's so much black art and so much of black people's work circulating, so many people imitating what black people do, you would think that there'd be more black people on the business side. It didn't cross my mind that every label head, for the most part, is a white guy.
+- We don't want it to be obscure music. We're not trying to be indie. We want to be popular.
+- I would say Tracy Chapman was the first time I obsessed over an entire record. I knew every song; I knew the exact amount of seconds between each song. That's the level of obsession that I had.
+- I guess the bottom line is I don't make music that is consumed en masse.
+- 'Seat at the Table' has expressed real adversity, struggle, and also triumph and joy.
+- It is very rare that I am just coming up with melodies off the top of my head. I usually am responding to something - it could be chains dragging on the floor - but I am usually responding to something.
+- I'm very into familiar things, popular things. I'm into things that no one seems to know about or be into. I'm trying to draw a line between those two things and make it clear... that it all makes sense to me. That it's not disparate. That it's all one thing inside me.
+- I don't write lyrics. I hear the track and sing in gibberish over it, then I try and fit words into the phrasing and melody that I already have set. Everything is left to chance.
+- I spent a lot of time in college. I was just being academic and discovering myself through reason and analysis.
+- Something that I think extends to a lot of African cultures is that the line between performer and audience is blurry. My mom would lead the wedding song regularly, and she isn't a professional singer. Even as an audience member, you're expected to clap and sing the response to the lead.
+- Growing up in an Ethiopian household allowed me to feel like I had an audience before I had an audience.
+- In Maryland, I didn't grow up around poor white people. Where I grew up, the white people were middle class or upper-middle class. It's interesting how screwed up it is in reality, because most people who receive assistance from the government are white, but not in my head or in my experience.
+- I am your homegirl, at the end of the day, but I also feel very... outside. So if you're finding solace in feeling outside with me, then we're good to go.
+- My queer black women peers are the ones who make me not feel crazy. The way we act is so instinctive.
+- I've always had this commitment to not being in one thing.
+- Music in the U.K. is not racialised in the same way as it is in the U.S. In the U.S.. it's more rigid and conservative. And white people in the U.K. have more close proximity with black people and people of colour in general.
+- It's gratifying to hear something familiar and challenging at the same time.
+- My music sounds like one synergised thing, one message.
+- I remember the day I first heard what Timbaland and Aaliyah did - that intersection of her pretty voice and his weird, resonant production. I remember where I was and what I was doing. It was a major situation. We're trying to continue that legacy.
+- I'm definitely seeking to challenge tropes.
+- I think the Internet is more layered and complex than just hating it or liking it. I find it to be more purposeful to talk about the way that it's conducive for relationships and making connections.
+- Innovating something that is familiar. That's the general approach, and that's what I want to do with the melody as well. It should ring true - you should like every melody sequence without knowing what's happening next.
+- There are no black women geniuses that are being named in canons. I could name a bunch, but it's not part of common knowledge. It's not how the world is taught to think about black women.
+- I'm quite scrutinous when it comes to who I put myself in the room with.
+- I've grown up feeling very American but being constantly bothered by people - there's internalized racism and feeling weird about being second-generation.
+- I want to empower.
+- It's such a challenging time, and in my small way, I will make it so that other younger women, and maybe older women, will be able to do the things they want to do, and accept themselves and their experience.
+- It means so much to be able to share myself with the world.
+- The goal is to blow the audience's mind.
+- Sounding like I have agency in a song is important to me. I want to feel empowered by the music.
+- I know deep down I'm a star.
+- Self-care is a requirement.
+- At the end of the day, I would like to have the farthest reach in terms of being able to communicate to as many people as possible. So it's not that I enjoy being obscure; it's that I sonically don't want to be situated here or there.
+- I would say there is a zone of R&B that hadn't been quite innovative.
+- I just want to live in a world where I can tell a guy, 'This is the deal: I really want this. I really want you. But it's also not that deep.'
+- I'm interested in bridging and filling in space that hasn't already been filled, so when it comes to making music, I've just always wanted to be able to reference things that producers in the big pop major label context do, without compromising the entire sound of the record.
+- I'm pushing back against the white, misogynistic, heterosexual establishment in the music industry. Like, literally, in all its forms.
+- I don't care about the underground, even if that's where I'm currently residing sonically.
+- How much closer can I get to the common ear, the mainstream, and how much it can still be from this other world, this other place? That's the line I keep trying to tread but have my wings extend more on both sides.
+- As a black woman, there's so much pride and communication through hair. It's naturally something that you are excited to embellish on and be creative about.
+- I have something stupid, like, 12 credits, to graduate.
+- A lot of white men in the music industry are promoting and participating in black culture in a way that is pretty careless. They want the currency of blackness, but they don't want the brunt that comes along with that.
+- I like smart rappers who aren't necessarily trying to be deeper than you, like Danny Brown.
+- Fog and one blue light is all I need in life at the club. Just a dark room and loud music. I'm into that.
+- As it pertains to my black womanhood, there's just a lot of ground to cover. There's a lot of stuff to say.
+- My first reaction to being pigeonholed or pushed into certain confines is to be like, 'No, I'm the opposite,' you know? Like, don't put me in a stereotypical black-girl category, because I'm not like that; I'm doing this thing over here.
+- I do like things the way that I like them. But I'm trying not to be - I don't wanna be that way. I'm not a control freak; I wanna protect my agency. It's a weird question as a black woman.
+- Before I collaborate, it's important that I have a conversation about what I care about before we make anything, so that it's very clear.
+- When I was growing up... I'm not going to say I listened to everything, but when it comes to vocals, I was really adamant about imitating all kinds of voices.
+- It definitely feels different to perform to people who know your music. Because people's feedback is not just, 'Oh my God, that was amazing. Who are you?'
+- There is this feeling among black artists that you have to be really careful. We're not inclined to talk about this stuff because, if we do, we put ourselves in a position where we're not marketable or where we can't win.
+- You can never have enough reinforcements, resources for black women to thrive in the world. The topic has been addressed a million times before, but it will never end because what we're up against keeps morphing, and we have to figure out how to beat it.
+- I would love to do an album of standards!
+- I am not carefree. I'm just not. I experience an immense amount of joy, a crazy amount of joy through sadness and so much struggle. There's something problematic about 'carefree black girl.'
+- After it became clear that I was not going to graduate, I had this moment where I was like, 'I need to not sulk. I need to pursue - at least try - to pursue music. But if I don't try, I'm going to be a really bitter middle-aged lady working in a cubicle.'
+- There's definitely a push and a pull to 'legitimize' electronic music live by playing the same way that a band would play.
+- I'm just tryna be honest about all the things that I dig in my music. It's not just this over here, it's also that over there.
+- I'm coming from the zone of Faith Evans, but with weird production.
+- When I was little, my parents would have these gatherings, and it was a common thing for me and my cousins to have to put on, like, shows.
+- That's pretty much how every song of mine works - I start with gibberish and melody and phrasing. I speak it naturally first. And then I think about lyrics that fit into that.
+- I try to make it a sonic experience so that when you put your earbuds in or when you're in your room, it sounds like an enveloping feeling. I think that is the most important thing, that wherever you are, it is wrapping you up and making you feel safe and comfortable.
+- Growing up, Missy Elliot and Janet Jackson were definitely major references.
+- When it comes to melodies, production, and sound in pop music, people try to be formulaic and solely concerned with what's resonant in a way that is so cheap and ugly. It actually just devolves culture, ultimately.
+- Most of my friends, growing up, were upper-middle-class white kids, so it was a different reality at home both culturally and linguistically. It created a lot of insecurities for me, but it also did a lot of amazing things that I didn't know were happening at the time.
+- We are - as artists, we are racialized through genre and called black - without being called black - through genre.
+- As much as we like to pretend we're just getting on stage and whatever, it's like, no, I practiced in front of the mirror my whole life.
+- When I called 'Cut 4 Me' a mixtape, I was thinking about a few elements: One is used instrumentals. The project is more centered around introducing you to an artist; it's not meant to be seminal. It's 'Hi,' 'Hello,' a thing that you first hear.
+- The whole thing about 'progressive R&B' blows my mind. Black music has always been progressive.
+- To me, the best writing points to something literal or common but is also nuanced: The moment when somebody is telling you they love you while simultaneously disappointing you. Everybody's experienced that.
+- In the music industry, you can't create success without having to engage a white man. It's just not possible. Whether it's executives, A&Rs, and the people that hold the key to your paper, inevitably, you'll be met with whiteness.
+- I think I'm taking risks and putting myself out there.
+- I just want to shed light, illuminate and turn the spotlight over to all of the black people who have been being futuristic and innovative since instruments were plugged into a wall. With computers, machines, and music, black people have been contributing to that a great deal for a long time.
+- I'd like to change what people expect. I want to evoke something that's not nameable, for people to go, 'Huh?'
+- I think my worst enemy was myself. It's like I've been in my own way more than anybody else has been.
+- I want to speak in the tradition of rhythm and blues and soul music, but also push how it's dressed and how it's delivered to the audience. And hopefully that gets embraced by as many people as possible, but the goal isn't necessarily to speak to everyone. The goal is to get it out as exact as it is in my head.
+- Often, I write to feel better and to heal - to cope with things that I'm dealing with. I'm either writing to get out of a feeling or to get into the feeling, to feel it more. Usually it's the perfect remedy, but if it isn't, I focus on other parts of what I'm making that don't involve writing. If neither are working, I simply forfeit the day.
+- I'm just trying to soundtrack your real life. I'm just trying to give you a place to feel safe in all the parts of your experience.
+- Anyone who understands anti-racist work, a white person specifically, understands that it is not black people's responsibility, or any person of color's responsibility, to dismantle the structures that keep white people in positions of power. We do our job to thrive, to survive. To protect ourselves, to sit together and feel better and to heal.
+- I really do like Solange, sincerely. I'm down for her, and I trust her judgment.
+- Most artists are going into the studio for a fixed period of time, and they say that's their album. I can't relate, because I've never made music in that way. I come from a culture of editing and remixing.
+- For those of us who make music together, I think it's important to realize that generosity on both sides is actually going to produce the biggest possibility.
+- I like to try out different methods to get to good songs.
+- I don't want you to feel defeated, like, 'Oh boy, why do you do this to me?' We have too many of those songs.
+- 'Take Me Apart' doesn't feel cohesive in a singular way but in a varied way. You can fixate on individual songs, and there are references from all over the place: Anita Baker to Bjork. I wanted to show all the facets of myself.
+- I'm finding out what part of punk culture or white indie culture I actually still want to hold onto - What are the values? What are the contributions that I actually like? - and it not coming from a place of desperation or wanting to be embraced or wanting approval, essentially.
+- Even on my most angry song, I'm also still saying, 'Thank you for helping me to learn.' I've always wanted to give voice to that complexity in our experience.
+- A lot of people of color in the music industry are still more interested in embracing things that are considered white canon, and looking radical. Like when people point to punk in the indie world: If you point to the history of punk as what you see as your legacy, that's more prized and praised.
+- I know my ticket is vulnerability. Most people point to some emotional experience, some hardship, some high or low when they talk about my music... a time when they need to feel those feelings more.
+- I've talked about that with friends, about what genre makes sense to choose for each record and the strategy around that... Sometimes it's more about the moment of time, and other times it's more about the sound of the song. Sometimes it's about what's going on in larger life, in politics.
+- It's been hard for me to nail visual language and personal style because I like so many different things.
+- When I started making songs, some of them read as mixtape-y, and some of them read as album-y.
+- I want to soundtrack people's layered feelings.
+- The assumption is simply that I hit on all the things I've hit on so far by accident, that my talent is just this raw thing that pours out of me, and then white people feel like they have to come in and contain it, refine it, and bring it to the place where it can been released.
+- The most rewarding thing for someone like me is for someone else to find solace through my music.
+- No one is making extraordinary things alone. They might be alone in their bedroom while they're recording or writing, but they didn't actually conjure that thing out of nothing - without influence - without assistance - without anything.

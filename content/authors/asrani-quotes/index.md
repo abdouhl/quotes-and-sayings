@@ -1,0 +1,62 @@
++++
+author = "Asrani"
+title = "Asrani Quotes"
+quotes_len = "56"
+description = "the best 56 Asrani Quotes"
++++
+- I had to work in 'Mastizaade,' I felt embarrassed.
+- Nobody is interested in how many claps and whistles he received for his performance. All they are bothered about is how much money they are getting.
+- I have seen Hollywood artistes like Al Pacino, Tom Cruise and Tim Burton doing theatre and Broadway shows. Cinema actors tend to go back to theatre because it gives them an opportunity to reinvent themselves.
+- I did odd plays, took up small roles. The good part was that the audience always remembered me. However, it used to be quite embarrassing when people used to ask why I was not coming in movies anymore.
+- In cinema, you can see an actor but he can't see you. On stage, there's a one-to-one and an eye-to-eye connection.
+- Every actor tries to come to Broadway be it Richard Burton, Marlon Brando or Liz Taylor or Shirley McClain.
+- In a play you can witness your audience live, understand how they feel. It lets you evaluate yourself and measure your growth.
+- You'd need to polish your skills as you only get one chance. In cinema, retakes are possible but in theatre, there are none.
+- Indoreans are not only welcoming, but very homely.
+- BJP's agenda was all wrong. They claimed that India was shining. Is it a utensil which will shine when rubbed? They fooled the people by these slogans and tried to divide them on the lines of religion.
+- If you publish Mahatma Gandhi's autobiography, no one will read it but if it's Madhuri Dixit's or Madhubala's autobiography people will come and read it.
+- I was among the first batch of the students to graduate from the Film and Television Institute of India (FTII) in Pune in 1966, but it wasn't my passport to Bollywood. At that time, no one understood that it is possible to learn acting in an institute.
+- Quality cinema is not changing anything, everything is the same. The artistes and other people involved in these films get some recognition at international film festivals and award shows only.
+- My grooming as an actor took place after working with top directors like Hrishikesh Mukherjee, Gulzar, BR Chopra and Shakti Samantha.
+- The magic in 'Sholay' was purely because of Salim-Javed. I didn't do anything.
+- In Bollywood even a dog at times is more popular than us. The bottomline is money and if a dog is making the moolah for the producer/director who cares whether you are an Asrani or someone else.
+- The stage is one place where you come face to face with your audience, unlike cinemas where you cannot see the applause or the booing by the audience.
+- Directors such as LV Prasad would enact the whole scene for the actors. He used to enact the scenes for Raj Kapoor too during the filming of 'Sharda.' But it was up to you to emulate the director's vision on the screen.
+- Jaya Prada was thrown out of TDP by Chandrababu Naidu which is why she came to Samajwadi Party. She knows even less of Rampur than she does of Andhra Pradesh.
+- Theatre contributes in the growth of an actor and lets one know the real worth of acting.
+- I had always thought that Gurgaon was some village, it was only when I came here that I realized that it is nothing less than a world-class city.
+- Even great actors have to polish their skills and rejuvenate.
+- One doesn't have to resort to cheap imitations of characters or people around you to make others laugh. At least, that is what I've always believed in.
+- Mumbai is more film based and cosmopolitan. It consists of a mixed community, but I personally feel that Delhi is more sophisticated and enjoys theatre more.
+- BJP only knows how to instigate to disintegrate.
+- It is important for an actor to learn how to face a live audience.
+- I think film promotion has become really important in today's time. PM Narendra Modi also felt the need to do campaigning. If he doesn't do that, then nobody will give vote to him.
+- I have toured with the likes of Laxmikant-Pyarelal and performed in places like U.S., Canada, and Europe.
+- My experience of performing in Gurgaon has been very satisfying.
+- There was never a conscious dream to enter films.
+- The Gujarat model laced with the Godhra stink is a model of hatred that has taken 2,000 lives, while the Congress model has given 83 flagship programmes and scores of people living below the poverty line have been brought under the Food Security Act.
+- When I was in film institute, stage plays were compulsory part of our training.
+- The other political parties are either in alliances or are formed with the collaborations of one or two different parties, but the Congress is different.
+- Those actors who took to politics are those who were not doing well in films.
+- I always fought against vulgarity, double meaning dialogues and wearing la'dies' clothes.
+- Comedy is very effortless.
+- I got busy with films and found it difficult to devote time to theatre.
+- I came to Bombay and got my first big break in Hrishikesh Mukherjee's 'Guddi.'
+- When I did a serious role in 'Koshish,' people said that I didn't look good.
+- Congress is a party whose both hands are with the common people.
+- I think time has changed a lot and you need to be presentable all the time. Social media has become really important and I feel some artistes must not be sleeping as they need to be visible all the time.
+- Politicians don't laugh very often. That is their problem. Humour is very important in politics and I think the politicians should laugh more to get better results.
+- I have never seen any BJP leader going to jail during the freedom struggle; it was only Congressmen who sacrificed for this country.
+- I am glad that actors like Akshay Kumar and Salman Khan are doing justice to comedy. But in our days, nobody could beat Sunil Dutt and Amitabh Bachchan.
+- If there is an all India party in the country, it is the Congress. This is a party of poor people which believes in unity in diversity and which does justice to all.
+- Like Dilip Kumar, I've never run after money but only after good roles and that's why have always rebelled against those directors who wanted me to do buffoonery in the name of comedy.
+- It is good that people are experimenting with cinema. They are trying to do serious and soulful cinema but such films don't stay in theatres for over a week. People ultimately go and watch Salman, Shah Rukh and Amir Khan films.
+- I feel rejuvenated every time I perform on stage.
+- Bimal Roy never kept comedy out of the story line.
+- My institute days were the most enriching days of my life.
+- I was studying in Jaipur when All India Radio was inaugurated. As a child artiste, I participated and was selected for a children's programme.
+- Theatre gives you an altogether different kind of thrill which every actor who wants to grow must try.
+- I might have done around 100 films but still I have to be successful.
+- Some people just come to a rally to see the stars. But some do take us seriously. They have been watching us on the screen and they know the conviction that goes into our acting.
+- The best of Johnny Lever's films are 'Baazigar,' 'Kareeb' and 'Love Ke Liye Kuch Bhi Karega.' I just love his work in 'Baazigar,' where he plays a servant and tries to hammer a nail on a wall and is unsuccessful.
+- It is the same actor in theatre and cinema, just the technique of acting changes.

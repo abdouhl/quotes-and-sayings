@@ -1,0 +1,106 @@
++++
+author = "Rosalia"
+title = "Rosalia Quotes"
+quotes_len = "100"
+description = "the best 100 Rosalia Quotes"
++++
+- I feel like the music I'm doing is very experimental and very radical.
+- I always think my job is like any other job. Every job has good and bad parts, and mine is to be a musician. I know why I started making music and I always knew there was no plan B. I'm passionate about it. I love being in the recording studio and researching sounds with the possibility of discovering something new. That motivates me.
+- The way I make music reflects the way I think.
+- The more people I can reach with my work, the happier I am, but I'm not going to stop making the music I want to, just because I'm looking for a specific response.
+- I can't control anything that happens after the creative process because after that it's not yours anymore, it's everyone else's.
+- Even though the public may perceive me differently, I always feel like I'm learning something new, and I like seeing myself this way. It keeps me focused on doing things with the love and care that comes from knowing you can always improve. I always have that in my head.
+- Hands have a major presence in flamenco, and when your hands are decorated, it adds power.
+- I started from zero. Nobody in my family is connected to the industry. Not a single contact in the music industry or in the entertainment industry.
+- I can't walk around like I used to, and there's always paparazzi waiting outside the studio.
+- My music pulls from flamenco plenty; it wouldn't make sense without that genre. I also have a lot of love for flamenco and I'm very happy if I can be an ambassador for it.
+- I'm increasingly conscious of the fact that, even when we know a lot, there's an element of blind faith. For things to work well, you have to surrender to the moment. This is especially true of writing, producing and truly giving it all in a performance.
+- I have big dreams, but if God would've told me that I had to sing in a local bar in Barcelona, and that that would be my life, that would be my life, I would've done it with the same passion.
+- To learn flamenco is to swallow your pride.
+- In the end I always think that making music is about sharing. That is the main goal.
+- I have no prejudice about which music is better. I listen to Vivaldi. I like Nick Cave. I love Travis Scott, James Blake, Lola Flores. Music can serve many functions. And so I listen to everything!
+- During isolation, one can bring a different approach to the creative process.
+- My mom I remember, she used to do so many things, I don't know how she did so many things at the same time, she was amazing.
+- My music is a reflection of my way of thinking, and I take risks because I know I must. If I win, I win, and if I don't, I still win.
+- I want every record I make to be different to the one before - even if I fail one day.
+- When I sang in bars and weddings, where you have to fight to be heard, you gain incredible humility.
+- I have always been very excited about red, it's one of my favorite colours. It represents strength and flamenco culture.
+- When I was a teen, I would draw a really, really long line around my eyes with eyeliner, like Lola Flores.
+- I have so many references in my head - flamenco, classical, Latin, too many. I come in and put it all on the table, with no prejudice, and just start working, working, working.
+- My mother always had flowers at home, they were always there. In the garden, on the table, fresh flowers. I think I relate flowers to the women in my life.
+- I always liked motorcycles and cars when I was a kid.
+- I see really long nails as a form of extreme, radical femininity. They make me feel strong.
+- We come from Spain, from Barcelona. We could perform in many places around the world, and it's been amazing to bring our music to so many people in so many different places. That's been amazing.
+- There is no one who makes decisions for me - never.
+- I understand that flamenco has very specific rules and codes, and there's the weight of tradition, so I can understand when people do not enjoy something that is more heterodox.
+- I don't force things. I can have a wish, and then I let God lead me on the path, bringing me what I need - and always trying to be alert to receive it.
+- There's never a sound that I think I can't use in my music.
+- I wanted to have absolute control over my music - from the chords and the voicings of the songs to the arrangements and the production.
+- There's a lot of magic in voices. I love voices that are very old, very gravelly, very deep. I like metallic voices; I like velvety voices. The voices of children.
+- I like to do things in my own way and have my own personal language, but I can't control how it's received.
+- Music is a language in itself and the songs have their own soul, every song has its soul.
+- Planes do not inspire me.
+- I wanted to establish my musical legacy and honor the classic sound of flamenco in the most traditional sense.
+- When I get my nails done, I usually go with my friends.
+- I'm going to have to keep fighting until I find the same number of women in the studio as there are men.
+- I feel like flamenco is part of this Latin music culture. It's from Spain, but flamenco has always been connected to Latinoamerica.
+- There's this kind of pressure to be creative or busy most of the time, with lots of activities and progress, and I'm trying to run from that.
+- I love flamenco. It's very difficult music to sing. But I think of any genre as a snow globe - you don't admire it for its stillness. You have to shake it up and see how it explodes.
+- Flamenco is connected with so many types of music. It has Jewish culture inside, Arabian culture inside, Russian culture inside, Spanish culture inside. It's linked to African music too, because African music has the 'amalgama' rhythms you can find in flamenco. You can find everything in flamenco. That's why it's so beautiful.
+- I understand that a lot of people can't connect with my music, because it's a radical proposal and a personal proposal. There will be people who can connect with it, and many that can't.
+- The only thing I admit I can't do with my long nails done is trying to get my card out of the ATM.
+- I think it's nice when people let themselves cry. I like to let it flow.
+- Clearly, there is an audience that doesn't enjoy what I am doing because it isn't traditional.
+- When I was 15, 16, I started going to a studio and my biggest inspiration were women, like Lola Flores from Spain or Janis Joplin or Patti Smith.
+- I know that when you take a risk, the consequence will never be a neutral response; it will either be very positive or very negative.
+- I'm trying to do things that help keep me mentally healthy, and if that includes making music, then great. But I won't lie - there are days when I just watch a show and eat a packet of cookies.
+- Music is beyond races, beyond territories.
+- Barcelona is an open and multicultural city. It's brimming with a very special creative energy. If you pay attention, you may be easily inspired by the places and people living there.
+- Flamenco is dark - it's about tragedy and intensity.
+- There are so many songwriters that people don't know about. There's so many producers that people don't know about.
+- No one in my family plays music. But since I was very little, I would go around the house singing and dancing. And when I was 8, my parents asked me to get up and sing something at a family meal. I had my eyes closed, singing - la la la la la - and when I opened them, the whole family was crying.
+- People who are perfectionists always want to control everything, but when you sing, you have to let go. And that's hard.
+- Everyone around me has maximum respect for my vision.
+- Honestly, I don't know what kind of artist I am.
+- Camaron has been one of my greatest inspirations.
+- It's a lot more interesting to dig into the popular music from where I'm from than adhere to some kind of standardized global pop.
+- I'm always excited to share my passion about flamenco, so other people can discover this music - which is amazing - and discover the culture.
+- I would say, for me, flamenco is so pure, so raw. I love pop culture but sometimes I miss the root, the rawness.
+- I grew up in Sant Esteve Sesrovires, a small village near Barcelona. My house was near the countryside, so there was a lot of nature, and at the same time my village is surrounded by factories. That conditioned me a little bit.
+- For years, I've been so passionate about nail art and about doing my nails constantly, with different nail artists from around the world.
+- Oh my God, my English is the worst!
+- When I began to record 'El Mal Querer,' I didn't have a label or a team. It was just my family - my mother and my sister - and my friends.
+- It's our roots that really give us our identity.
+- I want to keep growing as a musician. I want to keep making records. I want to keep improving as a songwriter. That's what it's all about - to learn, you know?
+- In my home there was a garden and many trees, and I remember growing up without fear. Everything was very steep amongst the trees and I remember running up and down always trying to go faster. I would go so fast that there would be a trail of my steps that I would leave behind.
+- I am rooted in flamenco. At 13, I fell in love with it, but I couldn't sing it. To sing flamenco is like being a kind of opera singer. You have to learn how.
+- Knowing how to dress is an art.
+- Working with Pharrell was a dream... Collaborations like that are where you come up with sounds that maybe you wouldn't have found otherwise.
+- There are times when your ego has to contract.
+- As a teenager, I remember Missy Elliot: seeing how she carried herself, made her music, and presented herself as an artist. That strength inspired me. If my work can do the same for others, I feel very grateful and proud of that.
+- As a musician, language is almost like another instrument. Every word has a sound.
+- Flowers are divine, they have divine qualities that I adore. And they also connect me with femininity.
+- I know that I will age making music, and I want to see how my music changes with the years.
+- When I make music I try to do something that people can relate to.
+- Everything is in flamenco. Spirituality, loyalty, humility, valor.
+- I think I have something special. I am confident that I am going to be an artist.
+- My music would make no sense without flamenco.
+- I'll always identify with the image of a strong woman. I believe that in what I do and in my sense of self, there's a vindication of women. There's power.
+- Guajira, colombiana, milonga, rumba - all these styles are flamenco. They're part of the musical tradition in my country, and they are in Latin America too.
+- I would always change my Barbies. I'd cut their hair, paint on tattoos, and create new clothes for them. I would invent elaborate stories: fights, dramas, successes. I would try out my ideas on them. And sometimes they would sing!
+- My sound has always evolved and I hope it continues to do so.
+- If something is too perfect, it doesn't speak your language. If it's imperfect, I understand it.
+- For me, music is about experimentation.
+- I always say, there's no music genre better than another.
+- I'm always loyal to how I understand music, how I want to present myself, how I understand my job.
+- Winning a Grammy is the best thing that can ever happen.
+- My favorite flamenco singers, they're not trying to look pretty. They're trying to put truth in what they do, in the way they express themselves. Sometimes that's not beauty, but it's beautiful.
+- Flamenco is the most honest and visceral music. You have to be sincere when you sing it. If you're not, it doesn't work.
+- I respect the flamenco tradition.
+- Milionaria' is the first song I've composed and I published in Catalan, it's also the first song I do inspired by Catalan rumba. I started it in Seville while I was waiting at the airport and I finished it in Barcelona.
+- When an artist becomes pop, it's because the people choose it. Yes, you can have that dream to be a big pop star, but it's the audience that puts you in that position. I never had a paid marketing campaign, it was never like that.
+- It is very important that people understand how important flamenco is to the Gypsy community. There have been some amazing Gypsy artists. It's important that we give visibility to that, but at the same time people have to be fair and recognise that Paco de Lucia was the biggest guitar player in this style of music in the world and he wasn't Gypsy.
+- I was never in a hurry to make my first album. I knew I wouldn't do it until I knew exactly what I wanted it to be.
+- Flamenco is the reflection of the street. It's that thing that's so beautiful, that comes directly from the people. It has so much truth, tragedy, falling in love, falling out of love, flamenco has it all. You can learn so much, that's why it's so incredible and so beautiful.
+- I compose, produce, arrange - I don't just perform. I'm playing keyboards, playing bass, doing everything.
+- When I was around ten, I decided I would devote myself and my life to music.

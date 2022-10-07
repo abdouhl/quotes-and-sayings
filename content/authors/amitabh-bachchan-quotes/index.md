@@ -1,0 +1,116 @@
++++
+author = "Amitabh Bachchan"
+title = "Amitabh Bachchan Quotes"
+quotes_len = "110"
+description = "the best 110 Amitabh Bachchan Quotes"
++++
+- I did not resign from politics because of Bofors. I resigned because I do not know how to play petty politics. I did not know back then and I don't know now either.
+- I would like to believe that I still am a shy person; I am very introverted. I have a problem communicating.
+- I like to feel the butterflies in the stomach, I like to go home and have a restless night and wonder how I'm going to be able to accomplish this feat, get jittery. That hunger and those butterflies in the stomach are very essential for all creative people.
+- I was born in fame. I was always recognised and known. Personally, I feel normal about it.
+- The amount of things I have been through and the remarkable ways in which the body has reacted is just phenomenal. No wonder I became religious, because you don't know why something's happening to you and you don't know how you bounced back.
+- I don't use any techniques; I'm not trained to be an actor. I just enjoy working in films.
+- Everybody wants to live. But sometimes the body just gives up.
+- We play many emotions in our careers, emotions that in real life we would perform just once. For example, my character has died in about 10 films, so you have to keep searching for different ways to do it!
+- Whether the work that I do shall succeed or achieve critical acclaim is for the audience to decide.
+- It's a huge change from when I started in the 1960s, but what is really impressive is that the number of ladies on set, the women working on set is a huge percentage. There used to be no women. It was just the leading lady's mother, perhaps the hairdresser and the makeup person.
+- I think that it's important that actors keep getting challenged every day. For every creative person, it's a terrible moment when they say they have done all they want to do.
+- We must have song and dance in our lives; we've had it ever since the inception of cinema in India. Our stories are very social-based, very human-based. We are a very emotional nation.
+- Whatever free time I get, I love to catch news and sports shows.
+- I guess I've been extremely keen on theatre, on getting on to the stage, taking on different roles, enacting vocations, personalities, people, situations, and I guess that's the interest that has driven me to work in movies.
+- No one is perfect, and criticism is always welcome and expected.
+- I like poems and keep sharing them online.
+- I miss the camera each moment and each day.
+- Obviously, you look for something that is commensurate with your age. You know that you can't be playing the young hero anymore, and you have to be relegated to something smaller and something elderly, and you just try and do your best.
+- I just lead my life as naturally, as normally as I possibly can. But I can't help it if controversy is hounding me day in and day out. I'm quite amazed sometimes by the way they go about it. I grow a beard and it lands up in the editorial in The Times of India.
+- I have never been a superstar and never believed in it.
+- The film industry is large enough and has many successful icons that have taken Indian cinema to shores beyond India. I think that Indian cinema itself needs to be applauded beyond one individual.
+- Kaizad Gustad is quite crazy, and he has weird ideas, and 'Boom' is one such idea. It's a crazy film by a crazy guy. It's almost a satire, a black comedy.
+- I write my own blog every day. I do the Twitter every day and the Facebook. Without a gap. I do everything myself: I load my own photographs; I sometimes take my own videos and post them.
+- I have fans across the globe.
+- It's a war zone, my body, and one which has been through a great deal.
+- I felt that for 20 years, I was wooing the people of my country and asking them to like me as an actor, and when they liked me as an actor, I told them, 'Now, you like my politics.'
+- I should only look back at moments that were disparaging, look down upon, negative for me - moments where I could learn something. And if I have been able to use that learning in future, then I am happy about it.
+- People ask me why it is that when I portray the 'angry young man' on screen, I really look angry. They reason that it is due to some suppression in my childhood. But, it's just that I can't help it; it's in my genes.
+- Ram Gopal Varma is a most noteworthy talent and has given us some very valuable iconic films. I enjoy working with him.
+- Indian films are like our food or our sense of dress or our languages: there's a great variety, and it changes every 100 miles, but there is something in common, a national Indian essence, that binds them all together.
+- I really felt good after working in a film like 'Piku,' as many people could relate to my character. I got letters from my fans telling me how my character resembles to their grandparents.
+- Dearest TV media and vans outside my home, please do not stress and work so hard.
+- People are fed up with seeing the same thing over and over. They want a qualitative change.
+- You don't see Indians in Hollywood films around which a story can revolve. As soon as we have a social presence in your society, I am sure there will be many actors from our part of the world that will be acting in Hollywood films.
+- India as a film-making nation has gained recognition, at last, at most important Western and Far Eastern forums.
+- I would rather be an aware citizen, and if an opportunity were to arise where I would have to make a statement, I would happily do that.
+- I am a not exactly a gadget freak and have the regular phones. But I keep multiple phones because if there's a network issue in one, then I can use another one.
+- I get up in the morning, have a job to do, go there, come home, be with the family, that's it.
+- Indian actors, because of the format of our stories, need to be good actors, and be able to perform emotional sequences, do a bit of comedy, dance and singing, action, because all of this forms just one film. In many ways I'd say there are greater demands on Indian actors than there are on Hollywood.
+- 'No' is an entire sentence in itself. No means no, and when somebody says it, you need to stop.
+- When I wrote my first blog, I got one response. Now, I sometimes get as many as 400 responses for my posts.
+- The body is an amazing system.
+- I have never really been confident about my career at any stage.
+- My opening words to anybody I hire are, 'I'm an extremely vulnerable person.'
+- I don't have anything in particular to achieve; I don't want to go any particular direction. I just want to take up the challenges of life as we go along.
+- What I do on film is part of my profession.
+- I'd love to romance Aishwarya Rai. But I'm 58 now. So I have to play her father.
+- Foreigners have no idea of the diversity of India and its culture. We hope to be able to give them a glimpse of that diversity.
+- I ended up in Parliament and soon discovered that emotion really doesn't have any place in politics. It's a much more intricate and complicated game, and I just didn't know how to play it.
+- I sometimes lament the fact that I do not have the benefit of a complete and ailment free body structure.
+- Basically I am just another actor who loves his work and this thing about age only exists in the media.
+- My father is a poet. He's a literary giant of this country - writes in Hindi - and also quite unique because he has a Ph.D. in English Literature. He taught at Harvard University, which is one of the most prominent universities in the country.
+- Don't let anyone make you believe the length of your skirt is a measure of your character.
+- Having no work would be terrible.
+- I want to keep working. I shall continue to do my best.
+- I just feel that sooner or later, the sheer potential of the demographics of India, which is 1.25 billion people, will eventually be very attractive to the entertainment industry.
+- Audiences change because life changes. Countries change geographically, climatically, socially and morally. Many things happen, and cinema, in a sense, reflects what's happening in the world.
+- Because you are women, people will force their thinking on you, their boundaries on you. They will tell you how to dress, how to behave, who you can meet and where you can go. Don't live in the shadows of people's judgement. Make your own choices in the light of your own wisdom.
+- Personally, when a controversy erupts, we decide first whether it requires clarification and, secondly, if it receives notice from authorities and the establishment, we submit responses to their queries.
+- Frankly I've never really subscribed to these adjectives tagging me as an 'icon', 'superstar', etc. I've always thought of myself as an actor doing his job to the best of his ability.
+- I'm very thankful to directors and filmmakers who consider me in their films, and I hope I'm able to do justice to their films.
+- I sometimes feel that I have been born to attract controversy.
+- You don't get time to meet your peers such as Dharmendra and Hema Malini very often. Award functions or other events are the only places you meet them, unless there is an emergency. Then we all come together.
+- I've accepted that I was a failure in politics. I was not qualified for the job.
+- I want to perform and be tested; I want the vibrant energy of the younger generation of directors and actors to rub off on me.
+- I feel that, particularly because of language, we are handicapped in getting a large world audience. But Hindi cinema has the same ingredients that appeal to the whole world.
+- Whatever I do becomes controversial.
+- Very rarely have I had the opportunity to say lines which I would have said even if I wasn't working in a film.
+- These are rare moments in an actor's life, where you're put in an environment which is so natural, and you get natural performances.
+- I ask you, as a citizen, is it a crime to go to the temple? And if I am propagating superstition by going to the temple, then the whole country is propagating superstition.
+- I sign a film based on the story, the role I play, and the maker.
+- Everyone must accept that we will age and age is not always flattering.
+- I don't agree that I have a lot of confidence.
+- I think no actor should be ever satisfied because there is always something new to do, something fresh to get challenged by.
+- There are large numbers of people in India below the poverty line; there are large numbers of people who lead a meager existence. They want to find a little escape from the hardships of life and come and watch something colorful and exciting and musical. Indian cinema provides that.
+- I'm very fortunate to have spent so much time in the industry and to have lived through several generations of filmmakers, actors and technicians. There's a huge volume of experience seeing people change and seeing content change.
+- A lot of my fighting qualities I inherited from my parents. They set tremendous examples right through my life.
+- Please explain to me what being an icon is. How do you define it? I haven't been given a script. I don't know what the dialogues of an icon are.
+- I think, in any profession, what you fear most is not being able to perform, about not being able to meet new challenges. The fear of non-acceptance, particularly if in creative art. What happens if the audiences do not like you anymore!
+- As a creative agency, the film industry is thinking great subjects, presenting them wonderfully well, and giving opportunity to new faces each day.
+- Life is a blur when one is essaying different roles; it is so fulfilling.
+- My mother came from a very affluent background, very Westernized, while my father was more Eastern. So I've had a very good blend of the East and the West. I guess this has been extremely helpful in making my career and the way I function.
+- I don't know how others think about me, but if I have to walk the streets, I will, and if I need to stand in a queue at the airport, that's OK.
+- I am insecure about tomorrow. Will I get another job? Will it be appreciated? I will pursue acting for as long as I have a face and body that is acceptable to the people, but I still worry that if I don't do better tomorrow, it will all go away.
+- I feel a burden if I don't write.
+- I think 'Crouching Tiger' is a genre of its own, and it's extremely well done, and God bless them for it.
+- The select group of people who do make realistic cinema, who do make cinema perhaps a little more acceptable to the Western audience, is a very small percentage.
+- I'd like to believe that tomorrow is another challenge for me. I'm sure there is lots more for me to do, because there is lots and lots of stuff still to be explored.
+- Coming together should be considered something positive for people and communities. When thoughts come together, that can be more positive than an individual thought.
+- I'm very lucky and very fortunate to have survived and to still be working after 45 years.
+- Yes, every venture is always filled with apprehensions. But if we were to conduct ourselves continuously on that aspect, then we would lose the most important reason to be in this profession: to challenge the art of and be part of what is commonly known as our creative instincts.
+- I would rather talk to a face than a camera.
+- I am not in the least eloquent or fluent with languages. My writing on social media is quite pedestrian. But even if it was near any acceptability, I would not be in a position to pen a script or a book.
+- If you represent a fantasy for the people who actually go to the cinema, they grab that and go with it; therefore, for the rest of their lives, they actually identify you with a certain thinking - a certain philosophy. There are many actors who want to pursue that same thought in real life as well, and that's perfectly acceptable.
+- It's frightening to be facing an audience. There is always the fear of what they think of you, what they are saying about you.
+- I am looking forward to going to Dubai because it gives us an opportunity to interact with each other. We can sit and enjoy each other's company. We can go out for a walk without worrying about shooting schedules.
+- Rajeev Gandhi was prime minister. We've had a long family relationship with them. He asked me to fight an election, and I went ahead and did it. But I was not qualified as a politician, and I am not going back there again.
+- I don't spend much time looking back at what happened. I do remember it, but I don't see any purpose of wanting to look back.
+- I had two surgeries during the early part of 2012, and I was advised to restrict my work load.
+- I like to rate myself as a performer upfront, both in films as well as in television.
+- 'What will people say?' is a feeling every Indian girl grows up with.
+- There are many things that I feel I have missed out on.
+- As a professional, I cannot afford to be complacent.
+- I am not conscious of the fact that something special should be done for me.
+- If the modes are changing, one goes along with it, I guess.
+- I went into politics on an emotional level and soon realised that emotion has nothing to do with politics.
+- No new projects at the moment. There are restrictions to how much I can take on. And I need to finish those that I am committed to do before thinking ahead. But I'd rather they take final shape before we talk of them.
+- I think every actor would wish there is some challenge that is left. I would consider to be creatively dead if I were to say that I am satisfied now.
+- I know I should have never got into politics. And I've learned my lesson. No more politics.
+- Mr. Leonardo DiCaprio - he be soo gorgeous, no wonder all the ladies flockin' to him - He be Gatsby.

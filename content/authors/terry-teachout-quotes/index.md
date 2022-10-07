@@ -1,0 +1,103 @@
++++
+author = "Terry Teachout"
+title = "Terry Teachout Quotes"
+quotes_len = "97"
+description = "the best 97 Terry Teachout Quotes"
++++
+- I learned more in the rehearsals for 'The Letter' than I have ever dreamed of know in the theater as a critic. If it doesn't make me a better critic, I'm an idiot.
+- A critic is not a creative artist, is a commenter, a midwife of creativity, but not creative himself.
+- The contemporary notion that it's somehow inherently bad for a film to be 'talky' has done grave damage to the culture of American movie-making, enough so that a growing number of people, myself among them, have all but given up on Hollywood.
+- All of the most popular music of the '30s and '40s were deeply informed by jazz.
+- Plays are not written but rewritten, and much of the rewriting takes place at the behest of the director, whose job it is to grapple with the myriad complexities of moving a play from the page to the stage.
+- I am, as it happens, a baby boomer, but not one who feels any broad-gauge nostalgia for the '60s and '70s. My attitude resembles that of my parents, who were born in the '20s and lived through the Great Depression and World War II.
+- Needless to say, anybody who can stumble through a C-major scale knows that Art Tatum always gave his audiences 10 times their money's worth.
+- I've always loved opera; it never occurred to me that I would write a proper libretto.
+- A play is not a play until it's performed, and unless it's a one-person play that is acted, directed and designed by the author, many other people will be deeply involved in the complicated process that leads to its performance.
+- Americans of all ages embraced TV unhesitatingly. They felt no loyalty to network radio, the medium that had entertained and informed them for a quarter-century. When something came along that they deemed superior, they switched off their radios without a second thought.
+- Limitations, be they practical or arbitrary, force artists to dig more deeply instead of settling for easy answers.
+- Not surprisingly, my parents' generation did everything they could to make life easier for their own children. Was that good for us? I wonder. It certainly didn't do us any good from a cultural point of view. I'm struck by how few boomers have embraced adult culture in middle age.
+- It's said that most Americans under the age of 30 reflexively dislike movies made before 1970, especially those that were shot in black and white. If this is so, I suspect it's because such films portray an America that no longer exists.
+- Few of us boggle - though we should - at the fact that Louis Armstrong sang and played trumpet with similar panache, or that Leonard Bernstein and Benjamin Britten were equally adept as composers, conductors and pianists.
+- I loved music from earliest childhood - from as long as I can remember.
+- A masterpiece doesn't push you around. It lets you make up your own mind about what it means - and change it as often as you like.
+- Instrumental music is nonverbal and thus radically ambiguous. It doesn't lend itself to what might be called content-oriented analysis, though plenty of intellectuals have tried to analyze it in precisely that way.
+- You've probably never thought about it before unless you happen to write for a living, but professional writers are doomed to spend most of their waking hours sitting by themselves at a desk, staring at a blank computer screen and waiting for lightning to strike.
+- I don't know of any American playwrights who earn the bulk of their living writing plays. Many of the older ones teach, while a growing number of younger ones write for series television.
+- I suspect that most playgoers don't understand how inexact a science literary translation is. Even the simplest of lines may lend itself to multiple renderings.
+- No, I don't know how to get young people to start listening to jazz again. But I do know this: Any symphony orchestra that thinks it can appeal to under-30 listeners by suggesting that they 'should' like Schubert and Stravinsky has already lost the battle.
+- The smaller newspapers probably won't have any critics at all. Maybe that's not such a bad thing because there's a certain level of seriousness that you can't get with a small newspaper for critics.
+- In a world without any criticism at all, although there are many actors who would think they would be delighted to see that happen, would in fact be a far more problematic world than they could ever imagine.
+- Most 'Monty Python' fans are, of course, baby boomers, who have long been a nostalgic lot and are growing more so as they totter toward old age.
+- The only thing that surprised me about 'Lincoln' is that most of the critics who reviewed the film seem not to have grasped what should have been apparent right from the start, which is that 'Lincoln' is at bottom a play with pictures, not a screenplay.
+- Not only are most of our citizens fathomlessly ignorant of the glories of American literature, a fast-growing percentage of our students are no longer taught much about any works of American art, be they novels, paintings, symphonies or ballets.
+- I'm not rigid about directorial changes: I judge them on a case-by-case basis. In the case of a play whose text is widely familiar, I'm open to drastic changes that may alter the author's meaning, perhaps even considerably. If the results don't work, then I say so.
+- For the critic, the word 'best' is like a grenade without a pin: Toss it around too freely, and you're likely to get your hand blown off.
+- If you're looking for light entertainment, you can't get much lighter than 'Bye Bye Birdie,' a flyweight farce about the coming of rock n' roll to small-town America.
+- I think that most of the best movies made in America in the 20th century were crime dramas, screwball comedies and westerns.
+- To me, an intellectual is a person who is primarily interested in ideas. What I am is an aesthete, a person who is primarily interested in beauty. That's why I write about art.
+- Century-old records are the closest thing we have to a time machine. To listen to the voice of Theodore Roosevelt or the piano playing of Claude Debussy is to feel the years falling away like autumn leaves from a maple tree.
+- I became a professional musician and played all kinds of music. I played bluegrass, I played classical music, and for many years, I played jazz.
+- 'Man and Superman,' first performed in 1905, is by common consent one of George Bernard Shaw's greatest and most significant plays, yet hardly anybody performs it today, for the understandable reason that an uncut performance runs for about five hours.
+- Nobody reads a reference book to be amused, much less charmed.
+- Ai Weiwei, who is both a widely admired conceptual artist and a fearless human-rights activist, has been on the bad side of the Chinese government for years.
+- Copland was one of the first American composers to forge a truly modern style of American classical music while also making use of American popular music - including jazz.
+- Critics at their best are independent voices; people take seriously their responsibility to see as many things as they can see, put them in the widest possible perspective, educate their readers. I really do think of myself as a teacher.
+- There's a playwright named S.M. Berryman, Sam Berryman, who wrote these kinds of social comedies. They are actually extremely sharp and still quite provocative.
+- One reason why Shakespeare's plays remain so popular is that they're now regularly presented in updated stagings with a contemporary flavor.
+- As late as the early '50s, jazz was still, for the most part, a genuinely popular music, a utilitarian, song-based idiom to which ordinary people could dance if they felt like it.
+- Maine likes to call itself 'America's Vacationland.' For many artists, though, it's the office. Since the 19th century, painters from all over the country - including Edward Hopper, Alex Katz, John Marin, Fairfield Porter, Neil Welliver and Andrew Wyeth - have spent large chunks of time there.
+- You don't have to know anything about the Shakers to appreciate Mr. Copland's score for 'Appalachian Spring' any more than you have to know who William Randolph Hearst was to understand 'Citizen Kane.'
+- No cowboy songs, no hoedowns. It's a more serious piece. Yet every bar of 'Appalachian Spring' is clear, clean, tonal, intelligible - great music that anyone can grasp at first hearing.
+- I can remember - barely - when Elton John was still a good songwriter, or at least capable of writing good songs.
+- All history, and most especially the history of the 20th century, argues against placing ideas in the saddle and allowing them to ride mankind. Too often, they end up riding individual men and women into mass graves.
+- Samuel Beckett's estate will not license productions of his plays that are not performed as written.
+- For my part, I like live theater best when it's taut, concentrated and intimate.
+- What's the funniest play ever written? I used to think it was 'Noises Off,' but now that I've seen 'The Liar,' I'm not so sure.
+- Aesthetes have it all over intellectuals in one very important respect: You'll rarely catch us hustling anyone off to the nearest guillotine. We're too busy trying to make the world more beautiful. Our hands are stained with ink and paint, not blood.
+- Fred Astaire never let you see him sweat, but he sweetened his deceptively casual virtuosity with just enough charm to make it irresistible.
+- Unlike film, live theater is an anti-naturalistic medium in which character is mainly illuminated through speech and movement.
+- Just as most of us prefer to watch a trapeze artist work without a net, we like to be absolutely sure that a virtuoso is giving us our money's worth, and a seemingly effortless performance, no matter how spectacular it may be, deprives us of that slightly sadistic thrill.
+- The setting of 'Billy Elliot' is the British miners' strike of 1984-85, about which the average American playgoer knows absolutely nothing.
+- At its best, no art form is more thrilling than grand opera, yet none is at greater risk of following the dinosaurs down the cold road to extinction.
+- Nowadays, most educated people would just as soon stay home and watch 'Breaking Bad' as shell out a hundred bucks to see a Broadway play - assuming that there are any plays on Broadway worth seeing, which long ago ceased to be a safe bet.
+- If I ever see another Shakespeare production where somebody drives a Jeep on stage, I'm going to run screaming up the aisle.
+- David Cromer, from Chicago, I think is the most gifted young director in America.
+- Only the tone-deaf doubt the power of music, though some feel it more strongly than others.
+- The good news is that 'High School Musical' seems to be getting a lot of youngsters excited about theater.
+- I feel quite confident that audiences on both sides of the Atlantic are growing 'dumber,' if what you really mean to say is 'less culturally literate.'
+- In the early days of jazz, it was ensemble music: everybody playing all together. Nobody really stood out.
+- In 2004, the iPod was a novelty, and tablet computers were a dream. Now we take for granted that we can see whatever we want whenever and wherever we want to see it, be it 'Grand Illusion' or 'Duck Dynasty.'
+- In addition to giving comfort and joy, art also has the miraculous ability to let us live in other men's skins, to test our perceptions and beliefs against theirs, and perhaps to be changed as a result. It does this by portraying the world creatively, heightening our perception and enriching our understanding of things as they are.
+- There wasn't a lot of live music that you could hear where I came from, which was a small town in southeast Missouri.
+- Charles Ives was writing radically innovative music, but nobody performed it, and nobody knew about it.
+- The script of a play is not a finished product: It's a set of instructions.
+- Unlike film and TV, theater is a luxury object, but one that ordinary middle-class people can still afford. Above all, it isn't a mass medium: Live theater is a small-scale, handmade art form. Intimacy is what makes it special.
+- Tom Stoppard, the English-speaking world's brainiest playwright, thinks that British audiences have grown too dumb to understand his plays.
+- Whether they know it or not, most American playgoers owe an incalculably great debt to translators. Were it not for their work, comparatively few of us would be able to enjoy the plays of Chekhov, Ibsen or Moliere.
+- Useful though they are, the vast majority of dictionaries and encyclopedias are poker-faced pieces of work that stick to the facts and present them as soberly - and unstylishly - as possible.
+- Everybody in America was talking about TV early in 1949, though comparatively few Americans owned a set of their own.
+- The wonderful thing about theater as an art form is it's a purely empirical art form. It's all about what works. And every show, every production, is created anew right from the moment you go into the rehearsal hall.
+- Even if I could, I wouldn't want to undo the transformation of jazz into a sophisticated art music.
+- Were I to be appointed Secretary of Education, I'd issue a prospectus for a compulsory nationwide high school course called 'The American Experience in Art.'
+- Direction is the most invisible part of the theatrical art. You don't see it.
+- Anna Deavere Smith's new one-woman show bills itself as being about health care, but the truth is that 'Let Me Down Easy' is mostly about the grimmer subject of death and dying.
+- Yes, translation is by definition an inadequate substitute for being able to read a masterpiece in the original.
+- Life usually tells the best stories - but sometimes it takes an artist to show us what they mean.
+- The first play I ever saw - I was in junior high school - was a high school production of Noel Coward's 'Blithe Spirit,' which seemed to me absolutely magical.
+- What do you see when you look at a representational painting? Most of the time, the first thing I see is a flat piece of canvas covered with colored patterns.
+- Even the Impressionists, the most innovative artists of their time, sought to paint realistically. They believed that their freer way of portraying the visible world was truer to life than the literal realism of the 'salon painters' who dominated French art throughout the 19th century.
+- A playwright who limits himself - or is limited - to a handful of characters is forced to concentrate on the essentials of the situation that he has chosen to portray.
+- Does film music really matter to the average moviegoer? A great score, after all, can't save a bad film, and a bad score - so it's said - can't sink a good one.
+- I believe deeply that jazz is still a very vital music that has much to say, not just to eggheads, or whatever the musical equivalent of an egghead is, but to ordinary people.
+- There is still a lot to be said for the well-made, witty, clever, three-act comedy.
+- What is true of ballet is no less true of the other lively arts. Change is built into their natures. You watch a performance, and then... it's gone.
+- The backstage play, in which the private lives of theater people are put onstage for the world to see, is one of the diciest of dramatic genres.
+- I don't know anybody in the opera business who isn't worried sick about how best to reach out to underpaid millennials who were suckled on the new on-demand pop culture, which supplies them with cheap, unchallenging amusement around the clock.
+- Most of us remember Nat King Cole as a vocalist. His warm, grainy baritone is still so closely identified with such familiar ballads as 'Stardust' and 'The Christmas Song' that it's hard to imagine anyone else performing them.
+- The digital apocalypse continues to blight the lives of television producers, music-industry executives and newspaper publishers, all of whom are scrambling to figure out how to reconfigure their business models in such a way as to allow them to make an honest buck.
+- It's certainly no secret that American students are taught less and less about the canonical literary masterpieces of the past, and there is no shortage of people who believe that what little they're required to learn in school is still too much.
+- No translation can possibly be perfect. Every production and every performance is a different path up the mountain, and nobody ever makes it all the way to the summit.
+- The 'Podunk Times' is not going to have a good dance critic, I absolutely promise you that. There's just not enough dance there.
+- It may well be, of course, that America's pop culture is on balance better than our high art. I don't think so, but you can certainly make a case that the best of it aspires to a degree of aesthetic and emotional seriousness that is directly comparable to all but the very greatest works of high art.
+- Copland was the first important American classical composer to go to work for Hollywood.
+- Well into the '40s, it wasn't uncommon for big-budget Hollywood movies to contain little or no underscoring, and many of today's directors, following the lead of Martin Scorsese in 'GoodFellas,' accompany their films with pop records, not original music.

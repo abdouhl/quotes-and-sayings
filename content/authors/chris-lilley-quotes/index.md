@@ -1,0 +1,65 @@
++++
+author = "Chris Lilley"
+title = "Chris Lilley Quotes"
+quotes_len = "59"
+description = "the best 59 Chris Lilley Quotes"
++++
+- I think surprises make TV entertaining.
+- People are always nice; I never get anything mean said to me on the street.
+- I just do what I think is funny and what's exciting to me.
+- I'm definitely attracted to the idea of people that have these big aspirations that the audience know might never happen, but they're lost in them.
+- I was sure 'Summer Heights High' would be a cult ABC thing; I had no idea it would be such a big hit.
+- I think after doing a few shows now, people are ready to put me down.
+- Australia has a thing where apparently it's fine for me to dress up as an Asian woman. No one has questioned that.
+- I think my parents had a hard time dealing with me.
+- I'm not interested in being one of those comedians who wants to look good and be this 'cool' funny person. I don't care how weird or ugly I look.
+- I'm not a big fan of 'Jersey Shore' and those kinds of shows where people are really playing up to the cameras.
+- If you over-think, it affects things too much; I work instinctively, like painting in a way. Think too much, and you ruin everything.
+- I find myself believing everything that journalists tell me.
+- When I wrote 'We Can Be Heroes,' I was just so excited about the concept of playing loads of characters, and a television series allows you to do that.
+- People were making fun of redheads before I came along.
+- I don't just want to upset people and shock people by saying something really outrageous.
+- I really like Jeff Lewis and 'Flipping Out' and 'Interior Therapy.' I don't know why I'm obsessed with American real estate and renovation.
+- I'm totally not media shy and do interviews all the time and go to events and totally play along and actually enjoy talking to journalists most of the time.
+- I have a massive guilt thing about money.
+- It's pretty awful being told you're a racist.
+- I feel like I'm so normal. So normal it's boring.
+- I never like to think of any character as being over. I'm always thinking of different ways of bringing them back.
+- I've done signings where elderly people will line up to get photos with me and ask me to sign things. They don't even pretend it's for their grandkids. They're like, 'No, it's for me.'
+- To be honest, after all the crap that happened with 'Summer Heights High,' I was like, 'I'm not going to write anything controversial or edgy ever again; I just can't handle the blame.'
+- I would love to play a British character one day. My accent wavers between Scottish and Irish very easily, though.
+- I've met big-name actors doing Hollywood films, and they've said that all they want is an in at HBO and their own show.
+- Playing girls is cool, but its a lot more fun playing boys.
+- In Australia, I'm built up as this comedy hero, which was never my intention.
+- I find teenage girls endlessly funny.
+- I don't like to analyze what I do too much, but I certainly never meet a single person and say, 'You're the next character.' People think that's what I do. They also think that I sit down and observe and try to imitate random people. I've never done that at all.
+- Like, Australians definitely don't walk around dressed up in blackface going, 'Ha-ha.'
+- I'm not really a management-type person. It doesn't suit my personality to be bossing people around.
+- I'm not a big comedy show-watcher, but I love Ricky Gervais' stuff and Sacha Baron Cohen's things. But I'm not an expert on them. I've seen them once.
+- I didn't do very well academically; I was always in the bottom class.
+- I'm so independent in writing stuff and controlling what I do. Sometimes I get calls from people asking to be in their movie, but I'm always writing or editing, and I can never get around to doing it. I'm so much more interested in my own stuff. I think I drive my agent crazy.
+- I like playing all sorts of ages and genders.
+- I get bored with the constant probing for the cliched tears of the clown, the dark side of the comic.
+- I went to a private boys' school, and we had girls in the last two years.
+- When I was in school, I was always writing scripts and dressing up as characters. I'd constantly be that guy who'd get up on stage. I used to write imaginary TV shows, like soap operas, for fun.
+- You feel the pressure of going to university because you need a back-up plan, which is why I enrolled.
+- I'm pretty lucky. I don't get too many haters.
+- I feel really qualified to write about Australia.
+- I met Kim Kardashian in a nightclub once, and she was really nice. Kanye was with her, but he didn't speak. He just looked at me.
+- There are bits of me in all my characters.
+- Mostly, what I watch are reality shows and documentaries.
+- Fans feel they know me, so they want me to be on-the-spot funny, and it's hard to fulfil their expectations.
+- It's barely OK for me to be dressed up as a black guy. But part of me kind of enjoys provoking people.
+- I've never been a 16-year-old girl.
+- I'm interested in youth culture - when your parents are running your life, but you think you're the big man - but I'm not trying to make a statement.
+- You can't get any better than TV on HBO, ABC and BBC3.
+- People think that I'm some kind of genius who's got these statements to say, and... I'm not really.
+- Religious humor is not really my area, so I probably wouldn't do anything about that, or politics or something.
+- I get asked to do stupid things like panel shows and talk shows and things.
+- British comedy fans go crazy.
+- I find actors a little bit too self-conscious.
+- It takes me ages to write stuff.
+- I'll probably be still playing a school girl when I'm 60.
+- I like the boundaries, the kinds of conventions of a documentary and having to work within that.
+- When no one knows you, and you're just trying to break into stuff, it's so good because you can write whatever you want and just say it; it's just between you and the audience. There's no process or worrying about anyone else interfering with what you're doing.
+- Films do seem prestigious and glamorous, but when you create something, you want people to see it. TV still reaches so many more people; it still really appeals to me.

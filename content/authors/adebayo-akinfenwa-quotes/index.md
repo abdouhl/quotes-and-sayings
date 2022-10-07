@@ -1,0 +1,106 @@
++++
+author = "Adebayo Akinfenwa"
+title = "Adebayo Akinfenwa Quotes"
+quotes_len = "100"
+description = "the best 100 Adebayo Akinfenwa Quotes"
++++
+- As you get older, you know what you're good at and you know what you're not so good at. Your ego comes out of it, and then you realise you can't play every game, there'll be certain games where you won't be so affected... so you've just got to concentrate on what you are.
+- I'm an eclectic individual when it comes to film. I love my Disney: 'Aladdin,' 'The Lion King.' Also, 'Romeo+Juliet,' the Leonardo DiCaprio version.
+- My arms are probably the same size as John Terry's legs.
+- I want to be playing competitive first-team football every week and not reserve team football.
+- As long as I am feeling good I will play football. As long as I am feeling fit, strong and being affective on and off the pitch, I will play the game I love.
+- I've always liked to keep myself busy so I don't get sucked in by temptations and that was part of the reason why I set up my BMO brand - to keep me occupied during my career, but also for when I finish football.
+- Playing on Sky Sports doesn't really make a difference to me.
+- I do think there is a responsibility for myself as being a senior professional footballer to be able to pass on my experiences to the younger generation.
+- My size works against me as well, as some players I would just touch and they would fall over to get a free kick.
+- People said I'm too big to play football.
+- Even though I am getting my coaching badges, I am more into mentoring.
+- Everyday I'm just going to continue defying limitations.
+- I like being the biggest on the pitch, I don't want to look at the other guys and think his arms are bigger than mine.
+- Boredom does get you into trouble and we footballers have a lot of time on our hands, and sometimes we fill up that time with stuff that isn't always positive.
+- I've been in football a long time now and I've seen plenty of managers and players come and go. It is part and parcel of the game.
+- I was asked to go in a banana suit once or eat as many doughnuts as possible. I would not do those things. I don't eat doughnuts so why would I eat 20.
+- When I look back at my career it is nice to know that I've been appreciated on and off the pitch because not everyone is.
+- I went to bikram yoga once, it was fun, but boy was it tough.
+- I've had three or four Scottish Premier League clubs contact me about going there and doing something. A couple of those clubs couldn't be further away from London so I'd have to seriously think about it, but it's nice to be sought after and nice to be wanted.
+- Everyone has got a perception of what a footballer is and, because I am a certain size, that I can only play one way - as a battering ram.
+- Gym sessions will always consist of 40 minutes to one-hour cardio. I try to stay off the treadmill because of the pounding, so it's the rower or the cross-trainer.
+- In my younger days, sometimes family and personal life came second to my ambition.
+- A player's mind, body and soul have to be right to get the best out of them, and if a player no longer wants to be at a club then the club should try and get the best deal they can and let the player move on.
+- If you want to gamble, so be it, but when it gets to the stage where gambling is the only thing you are thinking of and it is affecting your life, that's when you need to put a hold on it.
+- Football players value job security and stability as much anybody else.
+- I enjoy watching England but I won't rearrange my schedule just to make sure I'm in to see the game.
+- If I'm destined to play in the MLS, I will.
+- My Christian faith has guided me.
+- To be recognised as the best in the whole world at something is an achievement.
+- I'm not one of those players who always gets to games or watches every game on TV. If a game is on and I'm free, I'll watch it but I won't make my schedule around a football match.
+- There ain't nobody going to run me out of nowhere.
+- John Barnes was my idol growing up and he's the reason I've supported Liverpool. I play nothing like him, though!
+- People said: 'You're too big to play football,' but I kept playing and it just happened that people have caught on to me and taken to me. The nicest thing I get from it is that I can be myself and people seem to like it.
+- A footballer who says they don't want to start games is in the wrong job.
+- It's about sticking to your strengths - I'm not trying to run away from nobody or do any double stopovers or anything like that, have you seen how big these legs are? Though i'm sure people would love to see it.
+- As a player on the bench, you become like a fan really. You're sitting there shouting 'why did he do that?' or 'no don't pass it there' and I can see why fans get so frustrated. But then I remember what it is like being out there on the pitch and how players can't see everything that fans can see.
+- People have tried to push me into other sports, but it's always been football.
+- Sometimes it is tough and frustrating to sit on the bench.
+- As you go through your career you learn what works for you and what doesn't and you pick things up with experience.
+- I'm a footballer first and foremost and I want to be remembered for what I do on the pitch.
+- People only see what they want to see and sometimes you can't do anything about that, so you just pick up the baton and you just run with it.
+- When you've only got two days between games the recovery process is key.
+- My stats speak for themselves; I've got a good touch for a big man, I know I can find the back of the net.
+- I think I would have held my own in the NFL.
+- Training to be a tough tackler isn't easy - you don't want to injure yourself or team-mates so it's crucial that you have self-belief in your abilities and strength.
+- People may laugh or whatever, but my strength is something that I have to work on. It's not something that just happens overnight, it takes dedication and hard work and it has a purpose as it helps me every week on the pitch.
+- People think that football is all glamour and money but trust me all footballers go through the same boring and annoying things as everybody else.
+- During my career I've come back to clubs after the summer break to see one of my team-mates not really at it because he's been denied a move to a bigger club for whatever reason, and you can see in his body language that he doesn't want to be there and that kind of thing is massively disruptive and negative.
+- As I've said before, I'm a big fan of social media because it allows players and fans to interactive but it can have its pitfalls.
+- I'm not a gambler and I never have been.
+- For me posting videos on YouTube and interacting with people on Twitter is a great release from the stresses of football.
+- Football was my saving grace so I want to let people know that you can achieve whatever you want. People like to concentrate on what you can't do, so let's preach what you can. Why would I want to talk about not being quick when I'm strong? That's what I want to get across.
+- It may sound cliched, but it just shows that when you don't let people put you in a box then anything can happen.
+- My old boss Aidy Boothroyd is a great man and I've got no malice or anything toward him.
+- I am not a small guy - I will be the first to say it.
+- Sometimes you're not blessed with the materialistic stuff but you're blessed with a work ethic.
+- As players we have to be careful what we put out there and make sure everything we do is appropriate. And it is not always easy.
+- I'm a massive fan of Didier Drogba, I love the way he plays. He's not as stacked as me but he's strong and he's still scoring goals. I'm a fan of Diego Costa as well. I think he crosses the line at times but I like the fact he doesn't allow himself to be bullied.
+- I've always been big, my brothers are my size, we come from good stock.
+- Let me clear something up: I don't like KFC. Or McDonald's.
+- I would never lie about another professional.
+- Players build up friendships with each other, so when a team-mate wants out, part of you understands that he is torn and you know you can't begrudge him a move. But the other part of you wants him to stay because you want to win games.
+- Don't try to kid yourself that your game is about pace if it isn't. If you're a big guy like me you need to look at how similarly built players use that physical presence to influence a game. Accept that your build may have some limitations - but plenty of plus points too.
+- I know that I don't look like a footballer but I've always enjoyed working out and I've always been bigger than most people out there. I come from big stock. If you see my brothers and me together, we look like a wrestling tag team trio.
+- People concentrate on 'oh you can't do that,' or 'you're a bit too big for that' or whatever, rather than just concentrating on what you're good at. It's about being comfortable with the skin you're in, being comfortable within your own mind.
+- If you have a love for something, you persevere.
+- Defy the limitations people put on you.
+- Like individuals in all walks of life, footballers want stability and we have families to look after.
+- With hard work comes rewards and I want to make youngsters who could have gone left but went right find the right path.
+- Sometimes it's nice to be a bit different.
+- Look, nobody can begrudge Steven Gerrard doing what he wants to do. He has just been a legend.
+- I was raised on an estate in an inner city school where people had a go about my size, people saying I am too big to play football - which still happens today - and I used that to inspire me.
+- I'm going to say it out loud: I'm available for England selection if they serve chicken for pre-match.
+- When you hear Beast Mode, you automatically go to my size, but I always say the strongest thing I own is not my chest, my legs, not my arms. It's my mind. It's that mindset that says: Look, you're not always going to succeed but don't take it as a loss, take it as a lesson. That's the mindset of Beast Mode.
+- Sometimes I think it would be nice to be in a warm office every day. Don't get me wrong, I'm not complaining because I know how lucky I am to be playing football for a living. The positives by far outweigh the negatives.
+- You see it all the time, in all divisions, that teams raise themselves and apply themselves that little bit more when they play a 'bigger team.'
+- The time you are happy to sit on the bench, is the time you should retire in my opinion.
+- I was always a big guy. You see my family - my brothers are the same size.
+- Everyone likes to be praised for their work and footballers are no different but the key thing is staying level-headed.
+- Liverpool are not used to playing a 16-and-a-half stone striker.
+- I'm a big believer in not getting too high when you are winning and not getting too low when things aren't going well.
+- My career and my stats, they all speak for itself so to say that I've got anything to prove to people, to say 'well, look, I can play, I'm not just a big guy,' that really is not my driving force in life.
+- I'd always been one of the strongest players in the game, but officially in 'Fifa 14' I was the strongest in the world. If they say so, I must be. I like that.
+- As a big man you may struggle to get much height when jumping for a ball - but by training with your defender team-mates you can develop a technique for making strong challenges in the air, making defenders uncomfortable and work on taking the ball down.
+- Beast Mode On is a state of mind. Beast Mode is about applying yourself and defying the limitations people put on you.
+- As a footballer I know what I'm good at and I've now embraced it.
+- I think if you score lots of goals but nobody likes you as a person then it stands for nothing.
+- My favourite chant is 'you're just a fat Eddie Murphy.' When I heard that I could not stop laughing. I would prefer a 'muscular Eddie Murphy.'
+- You play football to go out there and win - that's the bottom line.
+- That's one reason fans take to me. They like the battle side of it. They look at me and think this guy shouldn't be on the pitch, he's just bulldozing his way through.
+- I'm human just like everyone.
+- To have the support of your team-mates is massive.
+- It used to get my back up because people would only say 'he does well for his size' and it's like, forget the size, I do well because I do well.
+- Obviously you know match-fixing is out there but you don't really associate it with the English game.
+- Of course I know I am not the average footballer. But I'd be lying if I said I set out to be different, I didn't set out to go against the grain.
+- Kids are a product of their environment.
+- There was a long period when I was younger where people always talked about my size and I was going 'but look, I can play, though, I can play' but you look at it, to have a career, 12-13 years, you've got to be more than just a brute.
+- I'm aware that there are a lot of guys playing at amateur level with a build like mine and I say stick at it, use what you've got to make an impact on the game.
+- I'd like to be a Marvel character and get in one of those films.
+- More than anything I prefer the ball on the floor. I think I play my best football on the floor. There is a delicacy to this big giant.

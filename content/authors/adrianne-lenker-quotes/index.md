@@ -1,0 +1,60 @@
++++
+author = "Adrianne Lenker"
+title = "Adrianne Lenker Quotes"
+quotes_len = "54"
+description = "the best 54 Adrianne Lenker Quotes"
++++
+- It's like, the more you zoom in and focus on the details, the closer to the invisible and immeasurable qualities - like consciousness and energies - you get. And expanding outwards, into the cosmos, you learn more about the invisible or perceptible things.
+- We lived in 14 different houses until I was 8, renting here and there.
+- I had a band and I didn't go to high school, all my friends were older than me. It was pretty cool to have such a focus at that age, but also it alienated me from a lot of people my age. So I felt pretty lonely and I didn't really have many friends when I was a kid.
+- Well, whenever I visit New York it feels pretty romantic, so I sometimes think about coming back here. But then I wonder if it's just 'cause I'm visiting that it feels so good. But also, Minnesota. I could imagine myself finding a place in Minneapolis.
+- I grew up in the suburbs, sometimes country-like suburbs because we moved around, but mostly suburbs.
+- I am always thinking about records I want to make.
+- It's about surrendering to this feeling of utter fragility, and singing through the volatility of it all. The earth is unstable, and I'm part of the earth. I can feel it coursing through my own body. I feel the energy of everything, flickering. Let's just sing together.
+- We're in transit so often and when we're moving from one place to the next and I have to be very alert and present and aware of where we are. You know, just like protecting our gear and making sure we get from one place to the next safely, being around so many people's energies. It's not just like a totally open and relaxed state to be in.
+- That's the way I started playing music: just playing guitar by myself in my room when I was a kid, and exploring the guitar and exploring the space I was in, with no project in mind.
+- I feel like there's such ancient pain in us as humans. For instance, we come from this patriarchal lineage where women have been oppressed, and we're feeling, I think, collective pain from these energies being so out of balance.
+- We pop into existence and we know that we die and we know that we lose everyone that we love and we know we even lose our own bodies. And what a paradigm. What a mystery.
+- My parents divorced when I was 12, and leading up to that it was... not without turbulence.
+- We all need ways of processing things. I think I was called to music because it was this thing that was always there for me that I could pour my heart into safely.
+- When I first started out in the band, I had so many walls up.
+- I was born into a religious cult in Indianapolis, straight up. They had an apartment complex in this one area, and there were all these rules. My parents met through church and got married really shortly after, when they were both searching for connection and meaning, just like everyone is when they're 20.
+- There's a fullness that happens when someone is focussed on you. For me, if I'm being fully looked at and paid attention to and seen, I'm filled up by that.
+- I think I'm learning how to release every day. Recognizing that everything you encounter, touch, or love can become part of you, and in essence never disappears, as long as you can recall it to memory or heart. It's all so connected that we lose everything, but also, we never lose anything.
+- I don't really think of Minnesota when I think of home.
+- I always said I got my music from my dad, but my mom had these cassettes - Bjoerk and the Cocteau Twins and the Talking Heads. That was her music, and she would just get so wild and free when she listened to it.
+- I feel that performing is its own art form, and recording is its own art form, and writing is its own art form, and that they all can happen simultaneously but at different paces.
+- I'll get a few words and then go back to the music and then back to words, and play them off each other - and then I'll bring the song to the band.
+- I've felt since I was a kid this desperate longing to be closer to - I don't know what. Just to something bigger, to be in conversation with the mystery of everything.
+- I don't like it when religions take it to the point where they discredit all other religions, because how could one sector of people have figured it out and know that that's it? But I do think that there's so much beauty in a lot of the stories or scriptures.
+- I hadn't gone to high school. I left Minnesota, I left home, I was on my own. I was seventeen.
+- I never went through a wave of hating Christianity, even though my parents were born-again Christians, and there were a lot of ideas that were being practiced that I think were misguided.
+- I want everyone to feel very welcomed in the space of our music and our songs, it doesn't matter what you believe or think, I just want to cultivate a space of peace and to touch on these things that bind us as humans.
+- I'd gotten used to recording background vocals perfectly, doing 18 takes of them until they line up. Not recognizing the inherent beauty in each performance, but just making something good.
+- I'm committed to an honest expression, not necessarily a performance.
+- I'm attracted to wilderness in any sense. Which is why I'm attracted to New York in a way, because I feel like it's a wilderness of people and textures. Just like, there's so much life and richness here. And you can get lost in it.
+- There's something special in music about the repetition of playing something where it becomes a home and a fortress and a space that you inhabit, like maybe we could move this little thing here, or rearrange the furniture. You're so acquainted with every part of it.
+- Some people operate in complete fear that they're gonna lose their stuff and their money. That sounds like hell to me. And then I guess some people operate with hands open, and maybe empty, but at least striving for a deeper understanding of what it means to care.
+- The acoustic guitar is my first love, I've been playing since I was a kid, and I feel the most at home when I'm sitting with an acoustic, I just love it so much. It changes my heart. I love the vibration and frequencies and the resonance.
+- I like leaving a space hollowed out, where as I change I can inject new meaning in the shell of the songs all of the time. Where anyone who listens can hopefully inhabit them in their own way.
+- When I was born, my dad was playing music, so I'm pretty sure he was singing to me in the womb. I was born into music, in a way, because he was playing acoustic guitar. I was around an instrument growing up.
+- When you're playing music and you're starting to expose yourself for the first time, there's nothing more powerful than being listened to and being actually heard.
+- So we're in this process of letting go of our own attachments to our physical forms and to the people we love, and... basically everything. Life is like this one big process of letting go.
+- There's a natural separation that kids have to go through with their parents, but then when you put that on top of actually having a career, it gets even more painful.
+- It's rare for me to sit in a room with my guitar and feel like I can't stop playing, because it just sounds so good.
+- Everything is fleeting and passing and impermanent in life. Relationships, people, our finite physical forms... We let go of our childhoods, we let go of different parts of our body, we lose elasticity in our skin, and we lose hair and we lose teeth.
+- It's kind've a cliche but I like when it's raining. I like the feeling of staying in and not being told I should be outside.
+- A lot of our creative flow comes from a place of curiosity and exploration. It often feels like we're excavating and asking questions and not just giving answers but really just exploring.
+- Like, I'd rather tour maybe six months out of the year, instead of nine.
+- I really love crafting albums and thinking of albums as a whole, not just individual songs or singles or just tracks, but a whole entire album.
+- Yeah it's mostly driving and taking airplanes but I like the trains - they're probably my favorite mode of transportation. They're smooth, steady, and you've got a lot of room and can walk around.
+- With music, when you finish a record, you are entwined with it throughout your existence in a way which is both interesting and challenging because it's a living form, you have to come back to it.
+- We were still quite religious until I was about eight or nine. Then I watched my parents take a dramatic turn and discard all religion.
+- I think that being alive is intense for most beings in some way. Even the process of being born is an intense one, and coming to see and understand and experience the physical world, and all that goes along with being a physical being, and experiencing all of these different forms of loss throughout life.
+- Ingydar was the name of my great-aunt Becky's horse, who passed away when I was a kid.
+- When an audience takes to a song and it becomes older, in a way it changes it entirely. And then the journey just begins.
+- My mother was really beautiful, and I had to deal with her being objectified my entire childhood. But she also had this depth and purity that was almost otherworldly.
+- My dad was basically my manager from ages 13 to 16. I was on this train towards becoming a child pop star. Not that I would have necessarily become a star, but that was the goal.
+- Mostly I've just been stealing little moments for myself in order to write - in the bathroom at a hotel, or just slipping away for a half an hour. Amidst all of the touring, life has been happening.
+- The first song I wrote, when I was 8, was about feeling really angry - like the weight of everything on my shoulders.
+- I can't really choose how I'm going to connect to music. I find it just has to hit a wave, and just wash over me and take me completely to some other space.

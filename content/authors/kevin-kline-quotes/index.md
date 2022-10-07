@@ -1,0 +1,28 @@
++++
+author = "Kevin Kline"
+title = "Kevin Kline Quotes"
+quotes_len = "22"
+description = "the best 22 Kevin Kline Quotes"
++++
+- But, I do think, on a very simplistic level, that we can project onto dogs because they are so innocent. They don't come with a lot of baggage.
+- Some of my favorite characters that I've played have been very pompous because I love making fun of pompous people.
+- It was all completely incomprehensible to me. I was fearful of the language. You had to look up every third word.
+- You know, actors are fans, too. And talent is very attractive to me.
+- I don't like talking about myself. I don't like talking about my personal life.
+- I'm a real pushover for animals.
+- Most of the comedies I've done have been rather farcical and extravagant.
+- I just don't think I'm a very good singer.
+- I vowed I would never do a commercial, or a soap opera - both of which I did as soon as I left the Acting Company and was starving.
+- I totally related to Cole Porter's magnetic pull to any piano that was in the room, which he was famous for doing, as was Gershwin. You couldn't drag them away from a piano.
+- Lots of people fantasize about what it would be like if they were president... Most think they'd be decent and wouldn't be corrupted at all, that they'd remain true to themselves.
+- Nothing makes an actor feel freer and more inventive and more creative than being trusted.
+- We're all animals, but we're a different sort of animal. Maybe they're better than us. They're more loyal. They're more pure. They're more simple. They're not neurotic. Well, there are some neurotic dogs.
+- I can play characters who sing, but I don't like singing in a nightclub or something. It's not my metier.
+- It never ceases to surprise me, the people I get to work with. I'm in a French film with Sandrine Bonnaire? I adore Sandrine Bonnaire. I'm doing a picture for Robert Redford? The Sundance Kid? I have to pinch myself sometimes.
+- Dogs do have feelings, I gather.
+- I've got the Jewish guilt and the Irish shame and it's a hell of a job distinguishing which is which.
+- I think every American actor wants to be a movie star. But I never wanted to do stupid movies, I wanted to do films.
+- I never went to class. That the university graduated me at all is an indictment of our educational system.
+- When you have satire, it has to be real. No matter how outrageous the comedy becomes, you have to believe in the characters.
+- I had studied piano since I was 13, but I was surrounded by students who'd been playing since they were 5. I realized I was never going to be anything but mediocre.
+- I've never felt completely satisfied with what I've done. I tend to see things too critically. I'm trying to get over that.

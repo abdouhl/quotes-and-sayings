@@ -1,0 +1,106 @@
++++
+author = "Lenny Henry"
+title = "Lenny Henry Quotes"
+quotes_len = "100"
+description = "the best 100 Lenny Henry Quotes"
++++
+- You don't get to be a good screenwriter unless you do 20, 30 drafts: fact.
+- My mum was very, very tough.
+- I didn't want to be a 16-year-old kid being beaten up by a bunch of people who didn't like me 'cause of the colour of my skin.
+- People want to be represented on television.
+- Samuel Coleridge-Taylor has opened my eyes in many ways.
+- With every task you think, 'What did I do wrong there? What could I do better?' That's why I've spent my life gravitating towards people who can show me how to improve.
+- Wouldn't it be great, if there was a one-stop shop where funny people could take their ideas and have them made?
+- With standup, I was thrown into the deep end at a very early age, without being able to swim. Acting was the same.
+- I'm not sure I like the idea of polar bears under a palm tree.
+- I think I'm trying to - I'm trying to make a career, rather than just doing jobs for the sake of doing jobs.
+- It is wrong if how we see women on TV is largely determined by male directors.
+- My upbringing gave me a lot of backbone and prepared me well for showbiz. It could throw anything at me and I could take it.
+- Depending on who's directing you, sometime it's heightened or more naturalistic, but generally you're trying to represent something truthful.
+- It's nice to get home and do normal stuff. Put the rubbish out, do the school run - it means you stay grounded. I knew a horn player who was so used to being on the road that he became institutionalised; he could never adjust to being at home. I'm really glad I didn't let it get that far.
+- We used to live in a one-room bedsit in Dudley with an Indian family.
+- I've written songs since the beginning of the 80s.
+- It is wrong if nearly every time we hear a black or Asian actor portraying their lives they are actually speaking the words of someone who has never experienced their reality. And to effectively silence disabled people from telling their own truth on film or TV is close to criminal and will not help wider society understand their reality.
+- I worked at the BBC for 35 years before I had a meeting with anyone who looks like me. The only people like me were cleaning the corridors, and that is not right.
+- My dad, Winston, didn't say much. He was a very reluctant man. He came home from working at the foundry every day and then he'd go to the bookies, watch cricket on TV or go to the pub. He was like a Victorian dad, really. He didn't have much to do with us kids.
+- I never let myself forget that I'm really lucky in my work to be able to discover so many people and places, and to have the opportunity to bring some of their stories to new audiences.
+- I was in church every Sunday till I was 14 or 15. A van used to come and get us, whether we wanted to go or not. I saw people getting the spirit, talking in tongues, juddering, foaming at the mouth - to be honest, I was a bit frightened of it. The minute I could, I stopped going.
+- My family is from Jamaica, it's why I don't do 'Who Do You Think You Are' because within two or three generations is slavery, and I'd be there two minutes in crying, they're all slaves! So I don't want to do 'Who Do You Think You Are.' It's in my family.
+- I wish I'd seen Bob Marley and the Wailers at the Rainbow in 1977.
+- I lament the passing of 'Play for Today,' 'Armchair Theatre,' 'Screen One and Two' and 'Comedy Playhouse' - because these shows gave a platform to new talent and new writing on primetime television.
+- I read 'Fences' when I was about 30 and I thought: This is too sad.' But you get older and you start to go, 'Yeah, yeah, this is like life, why wouldn't I want to do it?'
+- I got into lots of fights at school: I'd get racially abused, then lash out. One day, this kid said something and instead of putting my fists up, I said something back: people laughed, and he walked away.
+- I have a CBE - which I accepted because I knew how much my mum, who made it all possible, would have loved it.
+- BAME kids get discouraged - too many glass ceilings to break through.
+- My mum came to Britain from Clarendon, in the south of Jamaica, to make a better life for her family.
+- I fell asleep during some ballet once.
+- I did a TV show called 'Lenny Henry Dot TV' a couple of years ago and I hated it. These things always happen when you don't have time to reflect. And I didn't do anything on the telly for three years.
+- When you've lived in a country for 50 years and you pay your tax, you have a pension and insurance, you've raised a family and sent your kids to uni. To get to an age and be told you don't belong here and you have to go back to where you come from is really saddening and infuriating.
+- It's not just about showbusiness - everywhere you go people are discriminated against. And if by having an organised voice against inequality and a lack of diversity we might be able to push that down - how brilliant would it be?
+- At school I wasn't particularly engaged. I was sort of a look-out-the-window guy.
+- My dad never hugged me, never said he was proud of me.
+- I never asked to be compared to Richard Pryor. I just realised he was one of the greatest humorists we'd ever had on earth, I knew I wanted to be like that.
+- If you don't know your history, you can't know your future.
+- The Anansi stories were in my life because they're not just 'Br'er Rabbit and the Tar-Baby in the Briar Patch,' they're stories from Jamaica and Africa that my mum used to tell us when we were kids. So I learned about Anansi being not just a spider, but also a weird god-like figure since I was little.
+- It was never on the cards for me to go to uni, going to a sink secondary modern in the Midlands. The threat was that if you didn't get your exams, you would end up in a factory. Which I did, but actually that was a great experience, and I would have even got an engineering diploma if I had stuck my three years out.
+- I'm a black person and when I was growing up I went to a school with no other black people and walked past signs that said 'Keep Britain White.'
+- Black people didn't start coming to see me until 1982. I'd just started doing Delbert, and suddenly my world changed. I started doing black-centred characters that were about people I knew in the community.
+- If you work all the time, you don't have many life experiences to feed back into your work.
+- My mum was a fixed point in my universe who was never going to grow old or die; she was always going to be there. And when she got sick, I was on the road all the time, I wasn't at home much, there was a lot of pressure. It was an awful time, and when she died, it was like your world falls apart.
+- I love the BBC but I just want this thing of BAME inclusion in the demographic of the people who make the decisions about what we do and how we do it, to change.
+- If I'm going to do comedy I sort of want to do my own.
+- My parents had this massive record player in the living room, a 'blue spot grand' they called it... it used up an entire rainforest to make this thing, and it had all these records in it. Some were rock, some were reggae, but a lot was blues - Ray Charles, Chuck Berry and all that stuff.
+- Shakespeare is for everybody, not just for toffs with a cauliflower down their tights.
+- I like to play characters who are flawed - the big man brought down.
+- When you're working class and you feel like you're a bit of a toerag, you think Shakespeare's not for you, you know?
+- Comedy is a way of hiding - especially character comedy.
+- From 13, I knew my family was different to anybody else's. You weren't allowed to talk back at your parents or look at them funny. You weren't allowed to leave food on your plate, you weren't allowed to keep the change when you went shopping. There were a lot of rules growing up; but I don't see anything wrong with that.
+- That's what all of us, as writers, actors and comedians, set out to do - shine a light on new perspectives.
+- I was always uncool. I was always from variety - big bow ties, flared trousers. Never cool.
+- It was weird being a kid in the Midlands where outside everybody is white and speaks in a certain way but when you go home nobody speaks that way and everybody looks like you. Every day was this weird threshold crossing.
+- Britain is multicultural and it will become more multicultural, not less, and you have to think about who is on your team.
+- I want people to be safe, I don't want people to die or end up in hospital because of Covid-19.
+- Corden's a comedy powerhouse.
+- When my older and younger brother came to live in this country, they were attacked on numerous occasions and had to defend themselves. This was a country where it was hard to assimilate, it was difficult because a lot of people didn't want you here.
+- I failed my 11-plus and ended up working in a factory after I left school. But then I passed my audition on 'New Faces' and I was on the telly. Suddenly, I was living in London, and sending my parents money that they could never have imagined. It was a massive thing for me; I was a 17-year-old kid who was able to support his family!
+- When I was young we had a collection for the Welsh disaster at Aberfan and we also had a school campaign for Biafra. It is a wake-up call for kids - a way of understanding that it's not all 'Blue Peter' for everyone and that maybe they can help.
+- As a performer, you get your 'thing.' You're the deadpan comedian, or the mad one, or the sexy one, and then you rely on that and mine that seam for years and years and you kind of forget who you were. There's this mask that you hold up between you and the audience that means they never get to see who you really are.
+- The blues has been in my life since I was little.
+- I am the ultimately chippy person, and I am glad I am. I have a chip on each shoulder, so I am well-balanced.
+- Mum would hit us with anything. You'd see her looking for something to hit you with, and you'd think, please let it be something reasonably soft. She threw a chair at me once. It was like being in a western.
+- Perfection isn't everything, some mistakes are pretty groovy.
+- I listen to lots of blues records and some of them are funny. BB King's 'How Blue Can You Get' is hilarious.
+- In our house, my mum was the funny one.
+- I think it's possible for anybody to write what they want to write - superheroes, historical, period drama, 'Game Of Thrones' - it's just how you chuck yourself into it that counts. And do your research.
+- My story is an immigrant story. My story is of people moving from one country thousands of miles away to another and forming new links, new family and new relationships.
+- There are comics who choose to be controversial, and people have to make a judgment call. You either watch it or you don't. It's possible to be funny about anything, it just depends on how you approach it and if you've got good self-editing skills.
+- It's about challenging yourself; wanting to do things that push you.
+- I got accused of misrepresenting all people of colour in Great Britain. I would get told off a lot. 'How can you do African characters when you're not African?' But I gave it a go. Maybe if there had been more of us I could have just been Lenny Henry from the Black Country with Jamaican parents.
+- Quotas are often about quantity and not quality. I think people should get jobs because they are qualified and they can prove they are good at the job.
+- When I was eight my mum said, 'You must integrate otherwise you won't fit it in. You must talk like de Dudley people dem.' Suddenly this thing of having a Jamaican attitude got knocked out of us.
+- What a gift it would be if every child in the country could hear a professional orchestra at least once.
+- I think it is important that the public record of anyone being considered for key public appointments is scrutinised. That is the role of the media and key public institutions.
+- I believe that if we want to change our industry we must look beyond what we see on our TV screens and fix the bigger problems lying beneath. When it comes to racial diversity that means looking at who commissions and makes the programmes.
+- Sadness has a horrible way of lingering in your subconscious.
+- Life is about overcoming self-doubt. But you don't grow if you don't question yourself.
+- I wish my dad or somebody had taught me how to fight and defend myself. Because you're very vulnerable if you can't stick up for yourself.
+- No, people don't heckle me. I think it's because there's this big, black guy on stage and it's slightly daunting.
+- I listen to a lot of Sade.
+- I think tax breaks for diversity is a good thing. In film now, what happens is you get huge tax breaks if you can prove via your hiring practices and via casting, that the film is British, you get a tax break. Wouldn't it be great if you got a tax break because the film was properly diverse?
+- Stand-up's a lottery - you think it's funny but the audience can disagree.
+- When I was younger, I was very thick-skinned - my skin is actually getting thinner as I get older.
+- You walk into the Beeb and it is very, very white. That is not anybody's fault. You can be in an oppressive institution and not be an oppressor.
+- The idea of giving your talent for free in order to save lives seemed like the most sensible thing anyone's ever suggested.
+- I do like a well-written sketch with a bunch of jokes in it, and I like stand-up with good jokes in it it.
+- I want diversity to be at the very heart of the BBC and not delivered by some other party with increased government interference, bureaucracy and unforeseen consequences.
+- A relationship can only work if you work at it. Marriage is the most difficult thing you will do - you've got to really love each other to enjoy the same jokes, the same odours, the same behaviours every day.
+- Now, although I'm a mimic and I've got a reasonable ear, being a character isn't about an ear. It's about the whole person.
+- In 21st-century storytelling all bets are off: anybody can do anything. We're all storytellers.
+- Nothing surprises me as far as racism is concerned in this country.
+- In the 1970s in black and Asian households up and down the country, there's a familiar story that when we saw a non-white person on TV we would call the rest of the family to the sitting room to have a look. The story that is less well known is what it was like to be that one black person on TV.
+- I haven't got an exact number for my carbon footprint although if it's anywhere near my normal footprint it'll be size 13 wide.
+- Huge props to Brian Michael Bendis for sort of shaking up the Marvel universe and just saying 'there need to be people of colour in these comics otherwise it's not representing the true world the way it should be.'
+- My family recycles paper and bottles, but I reckon a proper wormery for the garden compost would be the way to go.
+- I'm a big fan of the blues, and a lot of those guys travelled all over America on Greyhound buses, listening to music and ending up in some juke joint, late at night, rootless and with no responsibilities - one of those gamblers who risk it all on seven is romantic and exciting.
+- If you can't see, you can't be. If we don't see BAME people on the TV, or in film, we become invisible.
+- I try to make my daughter laugh often. I try to do lots of playdates and be part of her life. It's something I've learnt, because I think I saw my father laugh three times.

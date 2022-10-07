@@ -1,0 +1,85 @@
++++
+author = "Terri Irwin"
+title = "Terri Irwin Quotes"
+quotes_len = "79"
+description = "the best 79 Terri Irwin Quotes"
++++
+- Steve worked tirelessly to promote conservation, wildlife, and the environment, and his work enabled the plight of endangered species to reach a whole new audience.
+- Just like Steve did, Bindi's got that strange communication with wildlife. It's beautiful to watch, and it instills an empathy with all of us about just how important the animal kingdom is.
+- None of us are immune to grief, and everyone who has suffered loss understands that grief changes, but you never wake up one morning and you've moved on. It stays with you, and, you know, you ebb and flow.
+- I couldn't hold a candle to how adventurous Steve was. He found life intoxicating, and he was just in awe of every living creature.
+- I've grown up with an active outdoor lifestyle. Before I lived in Australia, I ran a construction company in Oregon, U.S.A. I also owned horses and would spend several weeks a year exploring Oregon's beautiful wilderness areas on horseback.
+- For us, conservation work isn't just what we do. It's who we are. It's really defined us that this is what we've dedicated our lives to.
+- You can't just go and collect animals from the wild. It's totally illegal.
+- I'm Mrs. Steve Irwin. I've got a lot to live up to.
+- Australia and New Zealand have traditionally shared very close links, yet there are things that set us apart and make us unique - Australia's wildlife experience being one of them.
+- To me, Steve was my Prince Charming. He was my happily ever after, and we got that. We got 14 years of marriage; we had the best, most fantastic, adventurous, wonderful life that you could imagine. And I was very happy with that.
+- For me, it was two years before I fed a big croc when I came to Australia.
+- Steve was such an example as one man doing what he could to change the world.
+- Steve said to me how excited he was when Bindi was born. He said, 'Do you think we could have a boy?' And then Robert was born, and they're perfect. They're easy kids. They're wonderful to me; they're such a help.
+- I think being in a car is far more dangerous. I feel much more in control with a 16 foot croc, 3,000 pounds jaw pressure trying to have a go at me.
+- We've got that family opportunity of always filming together, so we can look back on good times anytime we want.
+- I'm real adamant that, when we have family time scheduled, that we stick to it.
+- I have friends who have lost husbands and have gone off and tried different things. Nothing wrong with that.
+- I have tremendous faith in God that all things happen for a reason, even if we don't understand.
+- I haven't dated anyone in the ten years since we lost Steve just because I feel a connection still with Steve.
+- I went into this little reptile park, and Steve was doing the crocodile show, coincidentally... I was absolutely floored. That was it. This man was a real-life hero. I fell then and there, love at first sight.
+- To get someone who is sensitive yet strong... Steve was that.
+- I'll never leave. I love Australia, and I'm doing my best to be a fair dinkum Aussie sheila and honour all of Steve's work, and yeah, I'll be here the rest of my life.
+- When it comes to managing crocodiles, we are learning that it is actually more important to manage people. Learning how to keep people safe from crocodiles will ultimately protect visitors to croc territory as well as the crocodilians themselves.
+- Steve had a broad, easy smile and the biggest hands I had ever seen. I could tell by his stature and stride that he was accustomed to hard work.
+- Your grief path is yours alone, and no one else can walk it, and no one else can understand it.
+- Steve hadn't been to acting school. He had no preconceived notions. His background was exactly what you see on television; he's done that all his life. We thought we'd do one show. What happened was, it did really well, so we did a part two. And from then on, we found that Steve's natural behavior in the wild happens to be fascinating!
+- The thing is, Steve's a great role model, and he won't sit there and tell you that.
+- Grief is never something you get over. You don't wake up one morning and say, 'I've conquered that; now I'm moving on.' It's something that walks beside you every day. And if you can learn how to manage it and honour the person that you miss, you can take something that is incredibly sad and have some form of positivity.
+- I think it's wonderful when people who have lost someone find love again, but I'm not personally looking, and I haven't been on a date in 27 years. In fact, it's been so long, I've had a couple of lovely women ask me out because they figured that's the case.
+- Bindi went in with the crocodiles when she was one month old and grew up with the crocodiles.
+- Never walk past a problem with an animal - fix it.
+- Steve took my counsel on everything. He appreciated that I loved business and let me do that end of it. We complemented each other and had a natural, fun competitiveness.
+- Steve had a real sixth sense about so many things. He had an odd connection with wildlife. He was extraordinarily intuitive with people. I found it all very - I don't know if 'eerie' is the word, but remarkable, certainly.
+- I have two beautiful children. And they really are my strength.
+- After losing Steve, it does kind of feel like I'm free-falling.
+- Steve was such an immense person in so many ways. I never realized how much I depended on him until he was gone.
+- I found that Steve's passion for wildlife and willingness to lay his life on the line so exciting.
+- Steve always said that he didn't care if anyone remembered him, as long as they remembered his message.
+- It does seem like, in the world today, we've moved further and further away from wildlife. There's that sense of whatever you're scared of, you just want it to go away. Here in Australia Zoo, part of our ongoing plan is that re-connection.
+- I still feel immense love and loyalty to Steve. And I've got great kids, I've got a very full life, and while I'm lonely for Steve, I'm not a lonely person.
+- I think, for other people who have lost someone and have loved again, it's a beautiful thing. But it's just not really on my horizon.
+- We need to stand as a nation, a state, a community to protect wildlife and wild places for our children.
+- Bindi's been filming with us since she first hatched.
+- When we lost Steve, the grief was understandable, but I wasn't prepared for how scary everything became - that fear factor of 'Now I'm doing this on my own.'
+- When Bindi and Robert have grown, there will probably be another life for me, and I can't anticipate exactly what that will be, but it will involve continuing Steve's work, conservation, being there for my kids, Australia Zoo.
+- No matter the circumstances are that you lose someone, nobody's truly prepared. Steve's accident was so unexpected - it was extremely challenging.
+- I find it wonderful when people live, love, and laugh again.
+- Crocs are apex predators, and as with all apex predators, they are critical to the environment: if you lose the crocs, you'll lose the barramundi, you'll lose the crabs - a catfish can eat 30,000 barramundi fingerlings, and who do you think eats the catfish? Crocs.
+- When you take those vows and say, 'We'll be together as long as we both shall live,' I really don't think I would've married if I hadn't met Steve. And he's very special to me and continues to be.
+- I discovered on my own that I could cope better with the crippling effects of grief by taking care of myself, eating right, and working out.
+- I've already had my happily ever after.
+- No matter how many shows or how much work we do, we are not going to make a difference. It's only the masses that will make a difference.
+- Parenthood is a great equalizer. It doesn't matter how famous you are - once you become a parent, you are just like everyone else.
+- I think that kids who grow up in an environment where they are constantly told that they're wonderful... that is going to change you.
+- Steve was every woman's fantasy: macho but not a jerk, sensitive but not a wuss.
+- It's a dynamic of grief within any family, and I found, after we lost Steve, his dad just began distancing himself. And I think it's a coping mechanism. I found it very confusing.
+- Good nutrition and regular exercise definitely help you cope with life's dramas.
+- I don't know a single surfer who would say, 'Gee, I wish there were no sharks in the ocean.'
+- Our message, without preaching, is how to treat wildlife and to have empathy for all animals.
+- I live in Australia Zoo. I have a very private home. We've got three bedrooms, one bathroom... The carpets are rose-coloured, which grossed Steve out, but I love it. He let me do everything the way I wanted. The house is just warm and cozy and small.
+- When we lost Steve, it was a real crossroads of deciding if you're just going to curl up in the corner or try to do something even bigger and better.
+- I've always told Bindi, 'If anything ever happened to me, I will always watch over you from Heaven.' But she always understood because, living at a zoo, animals die; she's seen death. She knows what death is.
+- She's born and raised with wildlife, living with a zoo. What would be strange for Bindi is if she were in an apartment in suburbia with a goldfish.
+- If you can reach out and touch and love and be with wildlife, you will forever be changed, and you will want to make the world a better place.
+- Steve was so wonderful to bring wildlife into our living rooms and let us see that animals we used to be afraid of are so important.
+- I think, some days, you wonder how you're going to get through, and other days, you find reason to be inspired again.
+- My future is about the joy of loving those around me, of being with the people who are still here and not just mourning my loss.
+- Bindi's really, you know, got her own goals and aspirations, and if I can nurture what Bindi loves, then I think I'm being a good parent. Because Bindi's got a natural love for wildlife, I think that will be part of what we're nurturing.
+- The only way to honor Steve and his legacy and everything he lived for was to try to continue his work and expand on it.
+- It pays to be in the best shape possible when you're wrangling the largest reptiles on Earth!
+- When I first met Steve, as an American tourist coming into the zoo, I fell desperately in love with him and married him immediately.
+- I am someone who tunes into more ethical journalism, and I'm not someone who dwells a lot on the negative, so I think I'd rather focus on the positive and forge ahead.
+- There never has been before and never will be again another Steve Irwin.
+- The determination I have to try to continue Steve's work and make the world a better place is so important.
+- Crocodiles are an apex predator and crucial to the ecosystem, keeping waterways and wetlands healthy. Crocodiles eradicate the weak, sick, and injured wildlife, leaving only the healthy to prosper.
+- Living with Steve was like standing in a cyclone. Then we lost him. It was like the wind stopped.
+- I always am astounded at how willing Steve was to share all about himself. And sometimes he got criticized for it. But he was so open and yet so private about some things.
+- You might not think of 'conservation' immediately when you think of Russell Crowe, but he is a great conservationist in his own right.
+- You can't focus on yourself. You need to focus on what you're doing for others, and then you can start to heal.

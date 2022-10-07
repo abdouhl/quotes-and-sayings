@@ -1,0 +1,120 @@
++++
+author = "Anne Lamott"
+title = "Anne Lamott Quotes"
+quotes_len = "114"
+description = "the best 114 Anne Lamott Quotes"
++++
+- There is nothing as sweet as a comeback, when you are down and out, about to lose, and out of time.
+- I don't want something special. I want something beautifully plain.
+- My coming to faith did not start with a leap but rather a series of staggers from what seemed like one safe place to another. Like lily pads, round and green, these places summoned and then held me up while I grew. Each prepared me for the next leaf on which I would land, and in this way I moved across the swamp of doubt and fear.
+- I try to write the books I would love to come upon that are honest, concerned with real lives, human hearts, spiritual transformation, families, secrets, wonder, craziness - and that can make me laugh.
+- Left to my own devices, my first inclination is to mess in other people's lives. I secretly believe my whole family, and really the whole world, is my responsibility.
+- I used to tell my writing students that they must write the books they wished they could come upon - because then the books they hungered and thirsted for would exist.
+- It was simple reality - most competitive tennis players in my day were privileged, spoiled, entitled and white. Also, many of them were beautiful, fit, tan and of good stock - great big hair and white teeth and long legs. Then there were the rest of us.
+- I've heard people say that God is the gift of desperation, and there's a lot to be said for having really reached a bottom where you've run out of any more good ideas or plans for everybody else's behavior; or how to save and fix and rescue; or just get out of a huge mess, possibly of your own creation.
+- I've written six novels and four pieces of nonfiction, so I don't really have a genre these days.
+- You want to give me chocolate and flowers? That would be great. I love them both. I just don't want them out of guilt, and I don't want them if you're not going to give them to all the people who helped mother our children.
+- Some people seem to understand this - that life and change take time - but I am not one of those people.
+- I think Jesus is divine love manifest on Earth, as it comes through the community of Christians.
+- I write because writing is the gift God has given me to help people in the world.
+- I did not raise my son, Sam, to celebrate Mother's Day. I didn't want him to feel some obligation to buy me pricey lunches or flowers, some annual display of gratitude that you have to grit your teeth and endure.
+- I was the angriest daughter on earth, and also, one of the most devoted.
+- Your experiences will be yours alone. But truth and best friendship will rarely if ever disappoint you.
+- I do not at all understand the mystery of grace - only that it meets us where we are but does not leave us where it found us.
+- Seeing yourself in print is such an amazing concept: you can get so much attention without having to actually show up somewhere... You don't have to dress up, for instance, and you can't hear them boo you right away.
+- I do not have deep theological understanding or opinion, but I do not read the Bible as the literal word of God.
+- The first holy truth in God 101 is that men and women of true faith have always had to accept the mystery of God's identity and love and ways. I hate that, but it's the truth.
+- Summer nearly does me in every year. It's too hot and the light is unforgiving and the days go on way too long.
+- For me, Jesus is my cleft in the rock. He is my safest friend, my safe totally loving accepting big brother.
+- I just try to love and serve everyone, and bring everyone water, and lend an ear; that's what Jesus said to do.
+- I spent my whole life helping my mother carry around her psychic trunks like a bitter bellhop. So a great load was lifted when she died, and my life was much easier.
+- I quit my last real job, as a writer at a magazine, when I was twenty-one. That was the moment when I lost my place of prestige on the fast track, and slowly, millimeter by millimeter, I started to get found, to discover who I had been born to be, instead of the impossibly small package, all tied up tightly in myself, that I had agreed to be.
+- Age has given me the gift of me; it just gave me what I was always longing for, which was to get to be the woman I've already dreamt of being. Which is somebody who can do rest and do hard work and be a really constant companion, a constant, tender-hearted wife to myself.
+- I used to love to untangle chains when I was a child. I had thin, busy fingers, and I never gave up. Perhaps there was a psychiatric component to my concentration but like much of my psychic damage, this worked to everyone's advantage.
+- Most marriages are a mess, and the children get caught between two bitter, antagonistic parents. My parents stayed married for 27 unhappy years, till their kids were grown, and this was a catastrophe for us.
+- My parents, and librarians along the way, taught me about the space between words; about the margins, where so many juicy moments of life and spirit and friendship could be found. In a library, you could find miracles and truth and you might find something that would make you laugh so hard that you get shushed, in the friendliest way.
+- When hope is not pinned wriggling onto a shiny image or expectation, it sometimes floats forth and opens.
+- I accidentally forgot to graduate from college.
+- The whistle is always waiting to be blown, and in some ways, it gets me to do better work.
+- I feel incredibly successful. I make a living as a writer and am able to help support a big family, my church, my bleeding-heart causes.
+- Nothing heals us like letting people know our scariest parts: When people listen to you cry and lament, and look at you with love, it's like they are holding the baby of you.
+- Everyone is flailing through this life without an owner's manual, with whatever modicum of grace and good humor we can manage.
+- No one tells you that your life is effectively over when you have a child: that you're never going to draw another complacent breath again... or that whatever level of hypochondria and rage you'd learned to repress and live with is going to seem like the good old days.
+- Evangelical Christians and I can sit down and talk one on one about how much we love Jesus, and yet I'm not carried in Christian bookstores.
+- I am an Aries. Although I do not believe in astrology, I think this is exactly the right sign to have been born under.
+- I don't have very sophisticated taste in music. I listen to a lot of folk music. I like reggae.
+- Bananas are great, as I believe them to be the only known cure for existential dread. Also, Mother Teresa said that in India, a woman dying in the street will share her banana with anyone who needs it, whereas in America, people amass and hoard as many bananas as they can to sell for an exorbitant profit. So half of them go bad, anyway.
+- If you asked me, parents were supposed to affect the life of their child in such a way that the child grows up to be responsible, able to participate in life and in community.
+- I would seriously rather be in a long line at the DMV than eat with people I don't know.
+- When I was a kid, our family used to watch 'Bonanza.' I really liked having a Sunday night TV ritual.
+- My mother's eyes were large and brown, like my son's, but unlike Sam's, they were always frantic, like a hummingbird who can't quite find the flower but keeps jabbing around.
+- I have a very dark sense of humor. I swear. I have a very playful relationship with Jesus.
+- I am not writing to try and convert people to fundamental Christianity. I am just trying to share my experience, strength and hope, that someone who is as messed up and neurotic and scarred and scared can be fully accepted by our dear Lord, no questions asked.
+- I see that children fill the existential hollowness many people feel; that when we have children, we know they will need us, and maybe love us, but we don't have a clue how hard it is going to be.
+- I read the same amount of nonfiction and fiction.
+- I've known for years that resentments don't hurt the person we resent, but they do hurt us.
+- I am the woman I grew to be partly in spite of my mother, and partly because of the extraordinary love of her best friends, and my own best friends' mothers, and from surrogates, many of whom were not women at all but gay men. I have loved them my entire life, even after their passing.
+- I got a lot of things that society had promised would make me whole and fulfilled - all the things that the culture tells you from preschool on will quiet the throbbing anxiety inside you - stature, the respect of colleagues, maybe even a kind of low-grade fame.
+- A whole lot of us believers, of all different religions, are ready to turn back the tide of madness by walking together, in both the dark and the light - in other words, through life - registering voters as we go, and keeping the faith.
+- Pay attention to the beauty surrounding you.
+- I wish I had thrown out the bathroom scale at age 16. Weighing yourself every morning is like waking up and asking Dick Cheney to validate your sense of inner worth.
+- I woke up full of hate and fear the day before the most recent peace march in San Francisco. This was disappointing: I'd hoped to wake up feeling somewhere between Virginia Woolf and Wavy Gravy.
+- The Giants are usually described as rag tag, kind of a great garage sale team, and the Democrats are described as the Mommies to the Republican Daddies; and everyone hates the mommies, but wait, wait - I didn't intend to get into the pathos and thrill of being a Democratic Giants fan.
+- Mothering has been the richest experience of my life, but I am still opposed to Mother's Day. It perpetuates the dangerous idea that all parents are somehow superior to non-parents.
+- Being on a book tour is like being on the seesaw when you're a little kid. The excitement is in having someone to play with, and in rising up in the air, but then you're at the mercy of those holding you down, and if it's your older brother, or Paul Wolfowitz, they leap up, so that you crash down and get hurt.
+- E-books are great for instant gratification - you see a review somewhere of a book that interests you, and you can start reading it five minutes later.
+- We must not inflict life on children who will be resented; we must not inflict unwanted children on society.
+- I was raised by my parents to believe that you had a moral obligation to try and help save the world.
+- We can't understand when we're pregnant, or when our siblings are expecting, how profound it is to have a shared history with a younger generation: blood, genes, humor. It means we were actually here, on Earth, for a time - like the Egyptians with their pyramids, only with children.
+- The American way is to not need help, but to help.
+- The reason I never give up hope is because everything is so basically hopeless.
+- Perfectionism is the voice of the oppressor.
+- Alice Adams wrote a sweet note to me after my first novel came out when I was 26, and I was so blown away that I sent her a bunch of stamps by return mail. I have no idea what I was thinking. It was a star-struck impulse.
+- The earth is rocky and full of roots; it's clay, and it seems doomed and polluted, but you dig little holes for the ugly shriveled bulbs, throw in a handful of poppy seeds, and cover it all over, and you know you'll never see it again - it's death and clay and shrivel, and your hands are nicked from the rocks, your nails black with soil.
+- Every woman's path is difficult, and many mothers were as equipped to raise children as wire monkey mothers. I say that without judgment: It is, sadly, true. An unhealthy mother's love is withering.
+- All parents are an embarrassment to their kids. Often, grandparents are the relief. Kids don't have to resist you.
+- We're often ashamed of asking for so much help because it seems selfish or petty or narcissistic, but I think, if there's a God - and I believe there is - that God is there to help. That's what God's job is.
+- I'm drawn to almost any piece of writing with the words 'divine love' and 'impeachment' in the first sentence. But I know the word 'divine' makes many progressive people run screaming for their cute little lives, and so one hesitates to use it.
+- If our lives are made up of a string of a thousand moments, at some of those moments we look a lot more spiritually evolved than at others.
+- My idea of absolute happiness is to be in bed on a rainy day, with my blankie, my cat, and my dog.
+- The women's movement burst forth when I was fifteen. That was when I began to believe that life might semi-work out after all. The cavalry had arrived. Women were starting to say that you got to tell the truth now, that you had to tell the truth if you were going to heal and have an authentic life.
+- I'd like to learn to meditate with more enthusiasm. I can sit down and get quiet for 20 minutes, but it just has not been a part of my Christianity at all.
+- I am skittish about relationships, as most of the marriages I've seen up close have been ruinous for one or both parties.
+- Mothers are supposed to listen and, afterward, to respond with some wisdom and perspective, but these things were not my mother's strong suit.
+- Hope begins in the dark, the stubborn hope that if you just show up and try to do the right thing, the dawn will come. You wait and watch and work: you don't give up.
+- I like the desert for short periods of time, from inside a car, with the windows rolled up, and the doors locked. I prefer beach resorts with room service.
+- Most of me was glad when my mother died. She was a handful, but not in a cute, festive way. More in a life-threatening way, that had caused me a long time ago to give up all hope of ever feeling good about having had her as a mother.
+- Life is really pretty tricky, and there's a lot of loss, and the longer you stay alive, the more people you lose whom you actually couldn't live without.
+- When we're dealing with the people in our family - no matter how annoying or gross they may be, no matter how self-inflicted their suffering may appear, no matter how afflicted they are with ignorance, prejudice or nose hairs - we give from the deepest parts of ourselves.
+- I loved every second of Catholic church. I loved the sickly sweet rotting-pomegranate smells of the incense. I loved the overwrought altar, the birdbath of holy water, the votive candles; I loved that there was a poor box, the stations of the cross rendered in stained glass on the windows.
+- I went to church with my grandparents sometimes and I loved it.
+- Mother's Day celebrates a huge lie about the value of women: that mothers are superior beings, that they have done more with their lives and chosen a more difficult path.
+- My mother was a not-too-devoted atheist. She went to Episcopal church on Christmas Eve every year, and that was mostly it.
+- These days cry out, as never before, for us to pay attention, so we can move through them and get our joy and pride back.
+- I was raised in a family where none of us ever raised a voice, so there was no room to express feelings of rage or even unabashed joy - a little bashed joy, here or there, or being mildly disgruntled.
+- I go to church every Sunday, which is like going to the gas station once a week and really, really filling up.
+- I am going to try to pay attention to the spring. I am going to look around at all the flowers, and look up at the hectic trees. I am going to close my eyes and listen.
+- The opposite of faith is not doubt: It is certainty. It is madness. You can tell you have created God in your own image when it turns out that he or she hates all the same people you do.
+- I've heard that our greatest cross to carry is ourselves - how gravely we fall short.
+- I was raised with no religious training or influence. Except the influence was to be a moral and ethical person at the secular level. And to be a peace marcher, an activist for civil rights, peace and justice.
+- Presents can make up for some of the disappointments that life doles out, such as it makes almost no sense and is coming to an end more quickly than ever.
+- I hate the summer.
+- The worst part about celebrating another birthday is the shock that you're only as well as you are.
+- If you don't die of thirst, there are blessings in the desert. You can be pulled into limitlessness, which we all yearn for, or you can do the beauty of minutiae, the scrimshaw of tiny and precise. The sky is your ocean, and the crystal silence will uplift you like great gospel music, or Neil Young.
+- Some people won't go the extra mile, and then on their birthday, when no one makes a fuss, they feel neglected and bitter.
+- Sometimes I think God loves the ones who most desperately ache and are most desperately lost - his or her wildest, most messed-up children - the way you'd ache and love a screwed-up rebel daughter in juvenile hall.
+- You can safely assume that you've created God in your own image when it turns out that God hates all the same people you do.
+- I happen to be a Christian, but I know that there is one God. People worshipping goodness and love and kindness and truth are worshipping the same God.
+- No one is more sentimentalized in America than mothers on Mother's Day, but no one is more often blamed for the culture's bad people and behavior.
+- No one can appropriate God, goodness, the Bible or Jesus. It just seems that way.
+- I am going to notice the lights of the earth, the sun and the moon and the stars, the lights of our candles as we march, the lights with which spring teases us, the light that is already present.
+- I like to read away as much of the afternoon as possible, until real life rears its ugly head.
+- I'm kind of a gossip hound, but watching the media whip the small fires into giant forest fires so that they can cover the result is infuriating.
+- I didn't write about my mother much in the third year after she died. I was still trying to get my argument straight: When her friends or our relatives wondered why I was still so hard on her, I could really lay out the case for what it had been like to be raised by someone who had loathed herself, her husband, even her own name.
+- I'm much calmer as I get older, but I'm still just as capable of getting that strung-out stressed-out feeling of mental and spiritual unwellness.
+- I love readings and my readers, but the din of voices of the audience gives me stage fright, and the din of voices inside whisper that I am a fraud, and that the jig is up. Surely someone will rise up from the audience and say out loud that not only am I not funny and helpful, but I'm annoying, and a phony.
+- If the present is really all we have, then the present lasts forever.
+- My mother might find a thin gold chain at the back of a drawer, wadded into an impossibly tight knot, and give it to me to untangle. It would have a shiny, sweaty smell, and excite me: Gold chains linked you to the great fairy tales and myths, to Arabia, and India; to the great weight of the world, but lighter than a feather.
+- Your problem is how you are going to spend this one odd and precious life you have been issued. Whether you're going to spend it trying to look good and creating the illusion that you have power over people and circumstances, or whether you are going to taste it, enjoy it and find out the truth about who you are.
+- It's a great time to be alive.
+- I went to Goucher College in Maryland for the best possible reasons - to learn - but then I dropped out at 19 for the best possible reasons - to become a writer.

@@ -1,0 +1,106 @@
++++
+author = "Tate Reeves"
+title = "Tate Reeves Quotes"
+quotes_len = "100"
+description = "the best 100 Tate Reeves Quotes"
++++
+- $100 million, while a lot of money, is nowhere near what's going to be needed to respond to COVID-19.
+- We need a governor focused on job creation, bringing better and higher paying jobs to Mississippi.
+- I want to compete with the best - Florida, Georgia, Tennessee and Texas. Because I know that not only can we compete, I know that we can win.
+- I'd still rather be in the SEC with no tailgates than in the PAC-12 of Big 10 with no football.
+- We should invest in healthcare... We can and we should do all of this without succumbing to the siren song of big government.
+- I know that our state has what it takes to be exceptional. And I know that with God's continued providence and our unconquerable spirit, together, we can get there.
+- The reason I'm opposed to raising the gas tax is I believe it would hurt working Mississippi families more so than anybody else in the state.
+- The people of Mississippi can't just go home, shut down their small business, shut down their restaurants, shut down their gyms... and just think that you can come back six weeks from now, flip a switch and everything's gonna be fine. That's not the way the economy works.
+- We're gonna run this state like Donald J. Trump is running America.
+- I don't know how many ways I can explain this to y'all but I'm opposed to Obamacare expansion in Mississippi because it is not in the best interest of taxpayers.
+- We are a people of great faith.
+- I was attacked for being stingy and not spreading money around to popular programs. Ahead of my 2019 run for governor, those stances cost me politically.
+- I am not threatening, I am promising the full force of our state will be ready and willing to defend our communities.
+- When you are making mandates on individuals to do things like wear masks and you're making mandates on individual business owners to put guidelines in place... they need a little bit of lead time to build up and get that done.
+- I want all Mississippians to know that every man and woman of every region, every background, every race, every class, and every home in our state has my admiration and my respect.
+- Battles in the Legislature can be tough.
+- A government program helps for a month, but a good-paying career helps a family for generations.
+- President Biden is the duly-elected president and we will do everything we can to work with him to help the citizens of Mississippi.
+- I do not think it's good public policy to put 300,000 more Mississippians on government health care.
+- I'm the only candidate running for governor that opposes Obamacare expansion in Mississippi.
+- I don't see the relevance in a teacher becoming a member of the Rotary Club, how that is going to improve student achievement.
+- Many of my friends and allies - not to mention my critics - lobbied me to spend on worthy causes. Who cares about a rainy-day fund when times are good? There are raises to give and projects to fund!
+- I'm opposed to Obamacare expansion in Mississippi. I'm opposed to Obamacare expansion in Mississippi. I'm opposed to Obamacare expansion in Mississippi.
+- We can let the east coast have their ivory towers. We can let the west coast have a generation of gender studies majors. We will take more jobs and higher pay!
+- Do we have hospital capacity issues? We do. But the reality is in our state and virtually ever other rural state across America, we have ICU bed issues and hospital capacity issues even when there's not COVID-19.
+- It is my mission to spend every single day creating a climate where good careers are plentiful - with every Mississippian prepared to pursue them.
+- When we talk about public education, we don't worry about a district. We don't focus on an individual school or a building when we talk about education. We talk about kids and what's best for kids. It doesn't matter what's best for the adults; what matters is what's best for the individual kids.
+- We need a governor strong enough to take us to our full potential. Jim Hood won't, but I will.
+- We are taking the steps to transform education in Mississippi with every dollar invested in the classroom and every initiative expanding educational opportunities for students.
+- We all know that campaigns are necessarily tough.
+- We think one of the priorities in Mississippi is not to do what some would suggest, which is to defund the police. Rather, we want to have an initiative to actually fund the police.
+- I was just 29 years old when I first took an oath in this Capitol to serve the people of this great state.
+- The state does not run the water system in the city of Jackson. Perhaps we should.
+- Our commitment to our pro-life values must never waver.
+- A growing, vibrant economy solves more problems than any government giveaway ever could.
+- I'm not afraid to tell people, 'No.'
+- I don't believe there is any constitutional or statutory authority for any president to shut down Mississippi's economy.
+- Mississippi is a beautiful, powerful state. We have many natural resources: from the fertile soil that produces our crops to the beautiful coastline that draws visitors from around the world. But Mississippi's greatest resource has always been and will always be our people.
+- We don't pay our teachers what they're worth.
+- There is no doubt in my mind that we need to spend more money on roads and bridges in Mississippi.
+- I certainly wouldn't want to be a Republican who votes to significantly increase taxes for certain segments of the general public.
+- Eliminating the franchise tax is really about economic growth on Main Street.
+- I don't support vaccine passports. I don't think it's necessary and I don't think it's a good thing to do in America.
+- There are some people in our state who may choose a different public school because they have the private means to move from one district to the other. But why should we limit choice just to those who can financially afford it?
+- Conservative policies work.
+- Mississippi's never going to be China.
+- I don't think revenue in any one day, week, month or year should determine long-term tax policy.
+- Panic moves you to hoard essentials and prevent others from getting what they need.
+- If Mississippians ever decide we should change our flag, and at some point they might, it should only be done by a vote of the people.
+- We have to be willing to make sacrifices.
+- We can transform our economy.
+- Now, I can admit that as a young boy growing up in Florence, I couldn't have understood the pain that some of our neighbors felt when they looked at our flag - a pain that made many feel unwelcome and unwanted.
+- Joe Biden is the duly-elected president of the United States. He was certified by all 50 states either having won or lost, and he lost my state by 20 points, but he was certified in each of the individual states and certified by the U.S. Congress and he is the duly-elected president.
+- Trust with risk is better than unchecked government power.
+- A culture of love and kinship has knitted Mississippi families together, and tied them to each other, for ages. It is what makes us special in a fast-paced and transient world. I will defend that culture against the erosion that frays societies.
+- I like to look at the good things that are happening.
+- The people of Mississippi overwhelmingly voted to keep our flag in 2001. I oppose unilateral action by the governor or the Legislature or any other backroom deal by politicians in Jackson to change it.
+- We will right the wrongs of the past, and we will do everything in our power to protect the dignity of every Mississippi life.
+- It should not matter what a kid's zip code is nor should it matter what their mom and dad do or in some instance don't do for a living.
+- I reject the mobs tearing down statues of our history - north and south, Union and Confederate, founding fathers and veterans.
+- We can't have career criminals walking around with no records. The law enforcement community that I spoke with agreed.
+- I am committed to elevating our public schools.
+- Big government intervention creates as many problems as it solves - that was the lesson of Obamacare.
+- The great thing about living in America is anybody can run for anything they want to run for. And I think that's a great thing.
+- We think that - that our elections process, which has been in place for many, many years, is a - ensures that we have a fair process in which we have the opportunity to limit fraud. We still have fraudulent claims every single election.
+- We've been tested by every force of nature, disease, and human frailty.
+- We have a very transient population. We have a lot of people that live here and work or play in New Orleans.
+- When we stand united we will emerge stronger as a state.
+- We should not use the heavy hand of government more than it is justified.
+- It is fashionable in some quarters to say our ancestors were all evil. I reject that notion. I also reject the elitist worldview that these United States are anything but the greatest nation in the history of mankind.
+- We, as a state, need to think big. What can we do to make a splash? What can we to do to say to the world, 'Not only do we want you to invest capital here, we want you to move here?'
+- If you live in Tishomingo County and there's a statewide mask mandate you can't help but say, 'Well, that's probably for those folks in Hancock County.' If you put a statewide mandate, the folks in Hancock County are going to say, 'That's for the folks up in Tishomingo County, they can't possibly be talking about me.'
+- No one likes high school and college sports more than I do.
+- If you are being held back by some unnecessary government rule or process, we will provide an easy way for you to let us know. And whenever we can take action, we will do so quickly.
+- Mississippi's never going to be North Korea.
+- No business is non-essential to those who rely on its paycheck for food, for supplies and for shelter.
+- There is a difference between caution and panic.
+- I don't believe some arbitrary line should preclude parents getting the best education possible for that child.
+- I'm not a great patient, and so I don't love shots.
+- Let's eliminate the income tax, which is one huge speed bump to long-term economic growth and recovery.
+- Caution leads you to stock up on essentials and prepare your family for time in the home together.
+- I strongly support anyone's right to peacefully protest.
+- I want to make sure everybody in this state understands that I am going to prioritize the education of our young people first and foremost.
+- We don't need union bosses to tell us how to take care of our people. We never have, and we never will in Mississippi.
+- If people want to wear a mask into a Walmart or into a restaurant or into any other business - not only should they be allowed to do so; in many instances, they ought to be credited for doing so.
+- Personal responsibility is better than any government order.
+- Every kid in our state deserves an opportunity for success.
+- There's public health risks to doing large political gatherings, but in this country - and we do still live in America - we protect the right to free speech and we protect the right to political discourse and political events.
+- Guidelines are better than lockdowns.
+- Panic moves you to despair and fear your neighbors.
+- We deliberately filled our rainy-day fund to its statutory capacity over my time leading the Mississippi Senate as lieutenant governor.
+- The approach I take to legislation a lot of times is that Mississippi has been a state for 198 years, and if we have made it this long without a particular law being on the books, we can probably make it another year without it.
+- We are a resilient people defined by our hospitality.
+- Our state, we do not allow mail-in voting and the reason we don't allow mail-in voting is we don't think that - we think it allows for lots of opportunities for fraud and other things. And I don't think mail-in voting should be allowed in other states around the nation.
+- Mississippi is an imperfect state, and I can predict with certainty that I will reflect that imperfection. Mississippians also strive for excellence, and I swear to reflect that as well.
+- At some point we have to let Americans make the decision that they think is best for them and their family.
+- I'm committed to spending more money on public education.
+- I fully support everyone's individual right to protest their government.
+- The people of Mississippi, black and white, and young and old, can be proud of a banner that puts our faith front and center. We can unite under it. We can move forward together.
+- We've made great progress in educating and informing the public on the importance of getting more rigorous computer science education in all of our schools so that students have the knowledge, skills and abilities to compete for the best jobs in the new 21st century digital economy.

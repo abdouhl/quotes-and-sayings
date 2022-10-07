@@ -1,0 +1,71 @@
++++
+author = "Leighton Meester"
+title = "Leighton Meester Quotes"
+quotes_len = "65"
+description = "the best 65 Leighton Meester Quotes"
++++
+- I remember looking through magazines or watching movies even just a couple of years ago and being like, 'I really want to be part of that,' but not realizing what that was.
+- When I'm singing a song, I picture somebody in particular. A lot of it is to a guy.
+- I'm a grown woman and sometimes, I might be a little fat, you know? Am I alone there? Not really.
+- I just go at my own pace and I like control of the TV and I like to decide when I take a shower and wash the dishes and stuff like that. So I don't know who would want to live with me to be honest!
+- Honestly, all I ever do is work.
+- I want a family someday and I know that I have to let love in to create that and I think there is someone out there for me, but I'm not on some crazy hunt for that right now.
+- I couldn't relate to kid stuff. 'Jimmy doesn't like me!' Who cares? I was worried we didn't have gas money or food. Those were my concerns.
+- I love Edith Wharton. And I love old New York. Anything to do with New York.
+- If you get a wrinkle, I don't feel that's indicative of your losing ground. That's ridiculous.
+- I couldn't be happier.
+- It's wonderful to be in love. And it's definitely wonderful to cuddle and have sex and get to experience life with somebody. But it's OK if you don't find him and you're 24. You can find it someday.
+- I look up to my mom. She's a beautiful woman.
+- In this world, everyone wants to know everything about you, and I think that's funny.
+- I think guys who are rebels and make their own rules are appealing.
+- In real life I've learned to love not wearing any makeup whatsoever, and I'm super low-maintenance when it comes to my hair.
+- I like to be judged by my family and friends because they know me.
+- I've never been crazy. I'm a very good girl, to be honest. I don't do anything to hurt anybody.
+- I don't want to have a friend unless I can call them one of my best friends.
+- A nutritionist helps me eat healthily at home.
+- I want an identity outside of my work.
+- I never wear makeup when I'm not at work. It can make you forget what you look like, and I've grown to really love the way I look without it.
+- When I don't have to be at work, I want to be the real me - the comfortable me!
+- I've been through a lot as far as love.
+- When I do get free time, I spend a lot of it at home with my family and my close friends and I think that's what keeps me happy, healthy, grounded, and totally in check.
+- I've been so blessed to work with the people I have.
+- Any fear of aging, I think, is simply vanity.
+- I don't even think about fame at all.
+- I feel more mature than most people my age.
+- Even when people are so judgmental about what you wear or your weight you just have to step away and be like, 'I'm a normal, fine human being.'
+- People are pretty respectful for the most part.
+- I never played sports. I wasn't any good at them.
+- I've gotten to wear such beautiful clothes and had such a variety and it's just been so nice because I feel like I've grown so much with my style and everything because I've been able to have fun with it. It's really fun for me.
+- You can take what is handed to you and use it as an excuse to mess up. But I've always handled what was given to me by life. I consider myself lucky. I was never lied to. And I was loved.
+- I really like to be able to have variety and to try different things - that's the beauty of fashion.
+- I love live music and I love to see people's faces when I'm performing.
+- I had a bunch of different hair colors. I was experimenting to see what I liked. It started off brown, then I did red, then I got really, really blonde!
+- I'm so accustomed to being alone.
+- When you see how you react when you suffer that's when you know what you are made of.
+- It's hard to have any kind of luck in this business.
+- I feel like my friends are in a cult because we're like, 'No outsiders!
+- Everyone has this universal understanding of roommate drama.
+- I think you have to know how you feel when you're sad and it's healthy to mourn if a relationship ends.
+- Daily life shouldn't be a fashion show all the time.
+- I've learned to let things roll off my back.
+- I didn't really like modeling; it was fun but I always wanted acting.
+- I believe in love, children and being a good person.
+- Guys who are unavailable are actually a dream come true for me because I'm unavailable all the time. It's great they're not down your throat.
+- I love my parents very much, but people either continue or break the patterns of what their life should be and I just want to completely break whatever patterns would lead me to the same life choices that they made.
+- I don't know if it'd be any time soon but I'd really like to work on a collaboration with somebody - I always have ideas for stuff like that.
+- Singing really is acting. In a lot of ways, it's much more personal. I love music, and being able to work on that is amazing.
+- The only time a relationship is good is when you really love them.
+- I'm not really a partier, in general. I've definitely learned that that's probably the least interesting thing you can do with your time.
+- I do so much work that I don't have a lot of time for my life!
+- You know how you're supposed to choose between playing up your eyes or your lips? I always choose lips. I love the drama.
+- Sometimes you're a little too close for comfort, and I think anybody can relate to that, whether you're in college or just moving out on your own.
+- I watched a lot of TV, and it clicked one day that these people were acting. It sounded like the most fun thing ever.
+- I'm not sure I ever want to get married.
+- I grew up reading 'Sense and Sensibility' and 'Pride and Prejudice' - girly kind of books.
+- I don't want to hang out with some guy I just like.
+- I always change my hair, but I don't like haircuts!
+- I haven't ever really relied on relationships with guys. They come around and it's cool, but it's never been a big thing. I guess I've just been really distracted by work.
+- High school for me was not all that fun. I think it's a lot more fun after when you realize that high school ends, and everything that's important at that time is sort of not important if people don't like your jeans or whatever. It doesn't matter.
+- The way I become friends with somebody is a slow process. You can't just spill your guts and tell them everything about yourself and expect them to listen and understand you because you don't know them. It's the same thing with a relationship.
+- I've never fallen in love right off the bat. I get scared to say I love you too soon because it means so much. It means you're not seeing an end to things.
+- I used to drink tons of caffeine. Now I make smoothies with frozen berries and Green Vibrance health powder.

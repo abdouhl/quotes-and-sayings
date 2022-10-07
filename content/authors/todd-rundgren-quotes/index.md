@@ -1,0 +1,90 @@
++++
+author = "Todd Rundgren"
+title = "Todd Rundgren Quotes"
+quotes_len = "84"
+description = "the best 84 Todd Rundgren Quotes"
++++
+- My guitar heroes are Eric Clapton and Jeff Beck and people like that - so I've tried to make an album of Robert Johnson covers that, well, while not totally faithful for blues purists, is faithful for people like me that grew up with the '60s and the electric blues-rock versions of Johnson's songs.
+- It was always remarkable to me how ignorant the labels were of the listening habits of their own customers, and how obstinate they were in denying those habits and then trying to essentially alter those habits instead of retooling their business to adapt to them.
+- Most people didn't have the bandwidth to download whole albums. And so it brought back this cherry picking idea that the audience would focus on certain songs and possibly be the impetus behind what eventually got on AM radio: the single or whatever.
+- There's only one band that could ever even pretend to assume the mantle of what the Beatles did, who have been so pre-eminent and world-dominating that they could effect a paradigm shift in the culture, who have been willing to leverage their success into musical change, and that is U2 - regardless of what the result of that is.
+- People have always said that I could have been a highly successful pop artist, if only that were my intention. It never was. My original intention was to be a kind of behind-the-scenes participant in music, to just be a record producer and engineer. And I made a record for myself just so I could have an outlet for my musical ideas.
+- I was lucky enough to grow up in an era when radio was less formatted. It was really special. You could hear a jazz song then a pop song then a show tune then some jazz. Basically, whatever the DJ felt like playing, he would play. He was educating you and exposing you to things you would never hear otherwise.
+- I think there are always people who, when they get the bug to play an instrument, they want to get as good as they can with it rather than just be simply adequate at it. You run into them every once in a while - some kid who wants to be the next Stevie Ray Vaughan, for whatever reason, and plays exactly like him.
+- One Long Year was just a song here and there, and it was meant to reflect the mood that I was in but unfortunately it also reflected too little of any particular thing rather than hanging together as a whole album.
+- If all you have is faith, then you never actually know anything.
+- Sometimes you could tell what it was about - it was interesting - and sometimes it was quite obvious that someone had lost it and it was on an endless loop.
+- When the Beatles first came out, you had to go to a certain amount of trouble to have long hair. You just couldn't have it immediately. Anything you can just go out and get - like platform shoes - is not going to inspire people as much as something they have to go through a little bit of hell to have.
+- I'm a guitar player, really - I mean, first and foremost - I grew up with all that great 1960s music, in terms of growing up, becoming a musician, so it's like first-love stuff; I'm always going to go back to it.
+- We bought property after Iniki in '92. I figured we'd never find better bargains. As it turned out, we didn't get a bargain, but we did find the spot we wanted to live on. It actually took a couple years to secure that spot. Then, after we moved, it took over 10 years to start construction on the house. It's still a work in progress.
+- I never look for music by genre. I look for an artist who puts a dependable trademark on things. Like Elvis Costello - he's a great songwriter who presents his songs in a number of contexts. I feel the same about my own music.
+- I don't use any real vintage hardware any longer. That's always been the object as far as gaining control of the studio environment, going back to when I built my first studio, Secret Sound, in New York City. The whole point was to not have to pay studio bills anymore and not be looking at the clock.
+- Sometimes being a musician has little to do with viability and everything to do with survivability. Many musicians start out great, and they wind up out of the business in 10 years.
+- It would be really great if someone would invent a new Internet with the specific purpose of not making money off of it, but making it what it originally was, a free marketplace of ideas, and there are still aspects of the Internet that are that. Wikipedia, essentially, is still the bastion of the original ideals of the Internet.
+- If bearing a reputation as a weirdo is all it takes to be a genius, I'm a shoo-in. Come to think of it, half the people I know are geniuses - the other half, peculiarly enough, idiots.
+- It may not necessarily reflect my current frame of mind. Sometimes I have to put myself at the point in time of the voice that I'm trying to sing with.
+- It's hard for me to say that what I'm doing isn't even really music, because deep inside of me, what I want to do is much greater than music.
+- In a way, I created Utopia as a platform for me to become more of a guitar player and less of the kind of balladeer that people were taking me for.
+- Every once in a while, we have some sort of movement in music that everyone suddenly wants to work in, like grunge or rap or disco or some other musical phase, and then suddenly, that'll be the thing to do.
+- I got it into my head that I had somewhat neglected the guitar, and then I did a record called 'Arena,' and it was not a particularly bad record - it wasn't a bad record at all, but it was built around a certain concept, which is a guitar quartet, with a little bit of augmentation here and there.
+- The Toddstock thing is the closest thing, I have to say, a Grateful Dead sort of thing where it all lapses over from the formality of a concert into more of a lifestyle thing.
+- My very first records, I was very interested in how you get the particular quality you want out of it, and I began to learn about the engineering and aspects of production and things very early on. I got hands-on with the process and taught myself how to engineer, as opposed to just being a producer who asked the engineer to make it sound nice.
+- Most people outside of America won't get it. It's the Easter bunny. It's another lie and I don't understand why we had to invent this character.
+- I'm not a one-hit wonder as some suggest. I've had a couple of hits, but still, all of my hits were in the '70s. There was pretty much nothing in the '80s, '90s, or in the first full decade into the next millennium.
+- When you come to a place like Kauai, you don't go for a high tech world.
+- I figure it could become a self-fulfilling prophecy; if I make a successful arena rock record, I'll wind up playing arenas! I wouldn't mind being back in that kind of venue because of the kinds of things you can do with production. You can make your shows more interesting, which would be fun to do.
+- I used to have sort of mixed feelings about a producer whose only skills seemed to be going into the studio, schmoozing the artists and making them feel good. I can see now that in some cases, that's what you have to do because that's the only way you're going to get them to produce.
+- People get comfort from music. They get joy from it and understanding from it, and most of all, the average person can't do without it in some sense.
+- Once I go on stage, the atmosphere is totally theatrical. The greater the illusion, the greater the intensity of the excitement it creates.
+- There are still people who believe in that and wake up every day believing it's possible, and invest their whole selves in that.
+- The Nazz survived for 18 months - that was my first taste of fame on some level and of the overall experience of being in a band. There are good and bad aspects, and I got to taste some of both, and, well, it's not as much fun as what you see in 'A Hard Day's Night,' let me just say that.
+- That's what I like about Frank Ocean or Bon Iver - they try to capture a feeling in the most sincere way.
+- It seems like a totally gratuitous myth to tell people a giant rabbit comes round at night leaving candy in a haphazard way around the house... and the cover shows the bunny caught in the act.
+- I didn't expect to become an artist. I was not comfortable going out on the road.
+- My father was not really into popular music; I had to learn about that for myself.
+- It's no longer necessary to slave over the vocals. I don't sing the lyrics until I write them, and singing is the very last thing I do. I record the entire track, and then I worry about lyrics and vocals. The music will suggest where the words are going to a certain extent.
+- On occasion, I hear a rearrangement of a song that really makes me reevaluate it in a way.
+- So I don't think I'm gonna pull my head into my shell just because a bunch of people start acting like idiots.
+- Music is the way I understand how to communicate now, the way that I've learned how to communicate... but it will eventually have to go beyond that. You see, I've realised that music is not what keeps people involved - it's the attitude behind the music.
+- It seems like there are two worlds out there - one that has revolved around 'Breaking Bad,' and then the one that I've been in, which just kind of observes it from afar.
+- The God that can only love something like this man. And from then on it was all downhill.
+- There are some things that we know are just not as pleasant as the lies that we tell ourselves, and in that sense in order to endure existence everyone endures a certain amount of dishonesty in their everyday lives.
+- When I got out of the Nazz, I had it in my mind that simply to be eclectic was an important aspect of making music. It was something that I derived from The Beatles.
+- Because of the way the record business has kind of stumbled and disintegrated, in a way, you're as likely to sell records at your merch table at your gigs as you are to sell them in a regular record outlet or even online.
+- It's the only way that YOUR life is gonna have any value to you. If you're just living the same life that everybody else is living what's the point?
+- Exploitation was rampant before statehood, and various factions actively tried to eradicate the roots of Hawaiian culture in the process of converting the natives to European religious beliefs. Some of the results can never be undone. We try to honor what is left.
+- So there was a way for you to get promoted and survive as an artist without worrying about AM radio hits.
+- I can't stand Beyonce. The way she sells it so hard, constantly. Everything is shoved right in your face. Like, you don't have the sense to make a judgment of your own.
+- I've become kind of a haven for people who like pop music, but that's not the only thing they like. They also like music in general and want to be able to expand their own horizons. They haven't completely given up on music and are willing to have somebody mediate new things that are happening in music to them.
+- When I got out of high school, I was in a blues band. It was the kind of music I was interested in, and listening to, mostly because it was becoming a vehicle for a generation of guitarists - like Jeff Beck and Eric Clapton. Mike Bloomfield. And that's what I wanted to be, principally: a guitar player.
+- Singles needed to come back. And what I tried to do in my online experiment was to change the rules for myself and make available at a more regular pace the fruits of my labour, for people who decided they wanted to support my recordings.
+- The problem turned out to be that I never was that kind of an artist.
+- I want to be known as a professional weirdo. There aren't many Salvador Dalis or Buckminster Fullers left. If I become popular enough, I can establish the next step for records.
+- By the time my first solo record came out, I was making a handsome living as a record producer. I had worked with the Band, Janis Joplin and all of these other artists in the Albert Grossman organization. So as my so-called solo career evolved, I never felt pressure that I had to come back and top when I might've done before.
+- I decided early on that I wanted to be Michael Bloomfield, Jeff Beck and Eric Clapton - not George Harrison.
+- It's nearly redundant to enumerate the reasons The Beatles are important. There are probably different reasons why The Beatles are important to a musician like myself and to the millions of Beatles fans who just enjoy listening to the music.
+- I don't know what the inspiration for most of songs really mean until I finish them. For the most part, I'm going for a visceral impression, and I write the words last.
+- I really consider myself fortunate to have been of age during the musical revolution that came in the form of the Beatles. People don't realize that previous to the Beatles, there really was no such thing as an album artist. People made singles. Then they would put a bunch of those singles together and call it an album. And that was it.
+- Celebrities are the fodder of much of the media business, so they're always interested in making you seem provocative when you're not, or trying to bring you some sort of embarrassment by revealing something you'd rather not have revealed. That's the downside of celebrity.
+- And so it's inescapable and people who proclaim scrupulous honesty can only proclaim that if they don't examine closely the things they believe.
+- I first started doing some somewhat technology-based shows in the '80s. If you wanted to get real technical about it, back in the '70s I used to open up with Utopia with just me on the stage with a four-track tape recorder. So, technically, I've been using the help of various devices pretty much throughout my career.
+- 'State' can be a word that is a noun or a verb or an adverb - it's kind of why I chose that title. It's not to confound the audience but to keep me from painting myself into a cul-de-sac in the early stages of making a record by having too high concept or having some really strict set of rules I have to adhere to.
+- 'Something/Anything?' was kind of a different record, since I'm playing everything myself. A lot of the songs on there have a particular kind of instrumentation that is much like a guitar quartet, and in some ways, it's an exceptional song on that record because so much of the writing on 'Something/Anything?' is piano-oriented.
+- It's great if you can afford to carry a string section on the road with you, but most people are used to the idea of just a keyboard player creating those string sounds.
+- Kids don't want to dye their whole head another color; that's what their mothers do.
+- I write in a very strange way. Things are very fragmentary for a very long time, and then they come together very quickly near the end of the process.
+- I never thought a Rock and Roll Hall of Fame in Cleveland or anywhere else was a good idea.
+- I am a laptop boy. People say: 'Where's your studio?' I say: 'It's in my laptop, in my rucksack.'
+- You do have a modicum of peace of mind here, but it's as unsettled as any other place.
+- People write me letters and say I should answer them. But I don't like to answer letters. I don't write letters. I've never written my mother one.
+- If I have an opportunity to do something safe or something challenging, I'll often choose the latter. Sometimes, the objective is to submerge my viewpoint with the artist.
+- I certainly have a fascination with pop music as a musical form, not necessarily as a lifelong commitment. I guess you could say I'm like a Casanova of music. I can't seem to settle down with one musical form.
+- While I used to make my living principally as a record producer, as time went on, I had to depend more and more on my live performances because of the evolution of the record industry, which has de-emphasized what made it possible to make a living.
+- I've always done very 'composed' music and worked-out solos. But sometimes it's fun not knowing where you're going.
+- Behind every tree there's a new monster.
+- All it takes to become president is money and a certain kind of power. Being president is the first thing I can shoot for, not the highest. It may come to a point where people take rock and roll musicians more seriously than they take politicians. It may eventually turn out that musicians have more credibility.
+- The New York Dolls did not think of themselves as punk rock. There was no such term at the time. They were just another band in what was called the New York scene.
+- Before there were any sort of 'recordings' there was performance. If we are devolved back to the Stone Age tomorrow, there will be performance.
+- I don't have a long history of hit singles of my own. I had a few, and I had a little hot streak in the '70s, but I've had a lot of success producing other people.
+- When I got out of high school, I joined a local blues band in Philadelphia - Woody's Truck Stop.
+- I've got billions of sparrows to worry about as well as everything else'. So there's the whole idea that whatever it is that you believe, it can never be valid unless you have some consensus reality demonstration.

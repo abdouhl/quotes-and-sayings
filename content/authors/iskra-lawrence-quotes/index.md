@@ -1,0 +1,105 @@
++++
+author = "Iskra Lawrence"
+title = "Iskra Lawrence Quotes"
+quotes_len = "99"
+description = "the best 99 Iskra Lawrence Quotes"
++++
+- I'm very aware I have very young people following me - 11- and 12-year-olds. I want to do things that are aspirational, so I'm not going to pick a picture that's unattractive - even in the sense of lighting and angles - but I make sure that it's realistic. It is me, and it is my body. I wouldn't put anything out there that isn't real.
+- We need to see real women's bodies.
+- I'm very much a positive person - I put good energy out there - so I don't feel like anyone would want to do anything nasty to me.
+- We need to realize that we can do anything with our lives because of who we are.
+- My dad always has the best advice!
+- For me, health starts from the mind, and it really does start from the inside out.
+- I remember I took an editorial, and I was so excited. I got the pictures back, and I looked in the magazine, and I was like, 'Oh my gosh!' My arms were half their size, and I had a thigh gap magically, and all these crazy things. My family went out and tried to find my pictures in the magazines, but no one could recognize me.
+- Labels make us feel worse about ourselves, and I would love for all models, no matter what their size, to be treated equally and called the same thing.
+- I've been trying to be the model that I wanted to see when I was a teenager, looking through magazines and not seeing myself, looking at pictures that were so edited.
+- The more time I invested in myself and finding out what made me unique and special, the more jobs and campaigns I booked.
+- When I was a teenager, a mean comment would have hurt me deeply, I've made it my mission to be a role model for young girls and boys and help show them that other people's words or opinions have nothing to do with how beautiful they actually are.
+- You're always 'too' something.
+- Social media has been both damaging and beneficial in terms of how we view our bodies.
+- I was called 'fat' 200 times on shoots and had serious trouble fitting in the clothes at fashion shows. All these things break you down to a point where you look in the mirror and don't like what you see.
+- When I joined Instagram, I began sharing my raw photos along with my raw and honest thoughts and feelings.
+- It's easy to forget how powerful our bodies actually are.
+- I love McDonald's now and again - not every day.
+- For me, I feel empowered when I use my body to exercise, play sports, and explore the world. My body allows me to sing, dance, talk, feel - and eat a damn good piece of cheesecake.
+- I'm happy with myself. I respect myself. And I know that no man, no jeans, no scale, and no booker is in control of my future - I am.
+- On a night out, I can feel unstoppable with an eyeliner wing and a bold lip. But I also love that I can still feel beautiful and confident without any of that.
+- I refuse to let something as insignificant as a size or number on a scale determine how I feel about myself. I am grateful for my body, my health, and the life that I have, and no arbitrary number should have any impact on that.
+- The focus for me is always about health. That's why I talk about self-care rather than size or anything like that, because that's something we can all do that's relatable - this discussion of being healthy form the inside-out.
+- I had a turbulent relationship with my calves, but I love them now because I realize that they were never the problem.
+- I just spent five, six years sacrificing so much to try and fit into that one ideal, that one small standard, and I was never good enough. And it was just frustration that turned into motivation... That became my ammunition, all the people that told me I couldn't.
+- I tried the maple syrup diet. I tried the protein-only Atkins diet.
+- A brand is only going to want to be more inclusive if they feel like it's going to be good for business as well as making the consumer feel good - so we have to encourage people to do that. Consumers have to stand up and say, 'I have power: my pound or dollar is how I vote.'
+- I remember doing a commercial one time where I stepped on a shard of glass, and I was hobbling around in swimwear. It was raining and in the commercial, when I saw it, I didn't look like I had a messed up foot.
+- If your girlfriend is saying, 'Ugh, look at my stretch marks, look at my rolls,' don't say, 'Yeah, I hate my thighs, too.' Say, 'No, you look really cute today - and I feel good, too!'
+- I never could have dreamt that I would be able to help girls feel better about themselves. But now I know I can. I want to do everything in my power to do more.
+- I started when I was 13 years old by entering 'Elle Girl''s search for the next supermodel in the U.K. I got to the finals and was signed by Storm.
+- Clothing for larger sizes doesn't have to look frumpy and old; it should seamlessly integrate fashion - like Universal Standard.
+- If you are trying to achieve the 'perfect body' or aspiring to be like someone else, you are only going to feel like you failed.
+- No matter what age you are, your voice should be heard, and you can develop a passion for something and be an activist in your own right, in your own field, for something you feel strongly about.
+- I have heard every negative thing under the sun about my body.
+- Words and images deeply impact the way we view our bodies, and the consequences can be very damaging.
+- The first time I learned about Aerie, I was blown away by how beautiful and confident the models appeared in their ads - and more so that they were un-retouched.
+- We don't need to be categorized - we are all individual and beautifully unique.
+- There is a way to disagree with someone, but it doesn't have to be threatening.
+- Be you. Everyone else is already taken.
+- Hateful words stand no chance against self-worth and a little of humor.
+- I never want to shame anyone. I love going to the gym, and I feel proud and fit. That, for me, is aspirational. There are things you can do in a very healthy, natural way. This is how I work with my body to make it the best I can be. That's the shape that I have, just toned and tight. That's my preference.
+- Change the conversation you're having in the mirror with yourself... if you hear someone who is saying something that is bringing them down, stop it. Don't be passive. Actually, take action and say, 'I wouldn't speak to my best friend like that.'
+- My story is one of ups and downs. It's made up of tastes of success and a lot more rejection.
+- Obviously, breast cancer is very much out there but cervical cancer isn't talked about as much because there's a bit more of a stigma around it. Certainly that's something I want to make sure that young girls know.
+- When we think about our bodies, we often think about the way they look as opposed to what they accomplish for us every day.
+- Invest in brands that make you feel good and that you believe in.
+- Like virtually all of the women I know, I spent my teenage years battling with my body and feeling I wasn't good enough. A lot of that negativity is because I was pursuing a career in modeling and was told countless times that my body was too big. My hips and thighs were too wide.
+- Instead of waking up and worrying about your thigh gap, wake up and worry about what you're going to achieve today. What can you do, and how can you give back?
+- I always encourage other people to share a story and voices. That is so important.
+- My thighs are great!
+- Girls shouldn't be worried about their cellulite or their rolls. Or anything that makes us real.
+- Aerie builds you up, and it makes you feel positive. Why don't more companies do that?
+- I got told I wasn't good enough and that I could never make it. And then Aerie told me I was beautiful because I was me.
+- Because I was a swimmer, I felt like sports did help me to realize that my body was more than what it just looked like... and if didn't eat, then I couldn't swim fast.
+- I need to just be Iskra, and I've got to believe in me, or else no one will.
+- My confidence comes from the realisation that, actually, the best you can be is you, learning to accept who I was, what I wanted, and that I was more than my body.
+- I think unretouched images are even more beautiful.
+- I had had my own trials and tribulations with body image. I had gone through a lot starting from my teenage years.
+- My long-term dream is to have self-education in schools for mental, physical, and emotional health because we need to learn how to speak to ourselves in a loving way and to each other.
+- Any images that I've had retouched, I look at them, and I think, 'Oh I actually don't want that.' That's why I don't share them on Instagram.
+- Social media should be a true sense of who you are.
+- I feel like I deserve to be loved because I've learned to love myself.
+- As a model, I feel a great responsibility, and I understand how an image can make a young woman feel.
+- You don't always need to be this flawless female with amazing skin and done hair. Perfect doesn't exist.
+- When you're happy and at one with yourself and have come to peace with who you are, that radiates.
+- I live by 'Everything in moderation.'
+- I was a 'straight-size' model from 13 to 16, but I was eventually dropped by the agency because my hips were too big.
+- I didn't always have a lot of self confidence growing up.
+- I treat health and fitness as looking after myself.
+- When you get to that point where you don't have to worry and you don't have to think about it... I'm pretty sure that's the best diet you can be on.
+- I don't ever wanna blame my body for not being right.
+- There's nothing wrong with having a bad day. Let yourself feel those emotions because every emotion is validated.
+- Everyone has to realize that body-shaming can happen at any size.
+- If you start talking to yourself in a loving way you're going to feel so much better, and your life is going to be so much happier.
+- Never think your life isn't good enough. You only have one, so enjoy every minute.
+- Everybody can rock a bikini, swimsuit, unicorn onesie... whatever floats your boat. If you wear it with confidence, you will look hot.
+- I did not label myself 'plus size.' The fashion industry did.
+- The most important relationship we have in our lives is the relationship we have with ourselves, and we're not taught about it.
+- I had a taste for this fashion industry that I loved and wanted to be a part of.
+- I dreamt of being an Aerie model before I came to New York. That was one of the main reasons I came to New York and wanted to get signed.
+- You don't need to be retouched - because the real you is beautiful.
+- I felt like the sample size was right, and my body was wrong. I basically ended up going into battle with my body, and that's a daily battle every time you look in the mirror. Every time you see an image of a successful model or someone who you look up to who doesn't look like you, you think you're not good enough.
+- I spent so many years being repeatedly rejected and told I wasn't good enough. It took a huge toll on my self-esteem until I realized I am more than my body and that, actually, our beauty comes from diversity.
+- I remember Googling operations to make my calves slimmer, and I ate only ham for a week to try and become skinny.
+- Every agency would mention my hips. I remember looking at the other models and thinking, 'I do not look like these girls.'
+- People often ask me, 'Who is your role model?' and it sounds a bit cliche, but I've been trying to be my own model.
+- You should be waking up and being excited about what you're going to do today, and your friends and your family, and what you're going to achieve in life.
+- If you want to wear something and you feel confident, you are going to rock it. That's what I love about fashion: it's your choice and your chance to express yourself.
+- I know, when I was younger, I would look in the mirror every single day and hate what I saw.
+- Oh my goodness - Zac Efron has great abs.
+- I want to be the girl that's real and show other girls that you don't have to have flawless skin or the 'perfect' body - because that's just not real.
+- There's a direct correlation between media and how we feel about our bodies.
+- For so many years, I thought I wasn't good enough.
+- You are good enough as you, so delete that Facetune app and step away from that really weird filter that makes you look smoother than Craig David.
+- After so many years of being rejected and having my body scrutinized... for Aerie to come along and basically say, 'We accept you. We don't care about your size.' To see those pictures on a Times Square billboard, and they were completely unretouched, I just was like, 'Wow. I finally feel good enough!'
+- Phones are interesting objects. Sometimes you wish they just didn't exist.
+- I think everyone who shares a piece of themselves and is open and honest - I think that helps us all.
+- You can't compare yourself to anyone else. I try and use this advice daily. I didn't actually fully believe that until I was maybe 21 or 22.
+- Throughout my whole teenage years, I had zero confidence and had to build it from the bottom up.

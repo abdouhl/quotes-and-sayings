@@ -1,0 +1,41 @@
++++
+author = "Carrie Nugent"
+title = "Carrie Nugent Quotes"
+quotes_len = "35"
+description = "the best 35 Carrie Nugent Quotes"
++++
+- The best thing to do is to study these asteroids so we know the range of parameters we would have to deal with and also to find them so we have as much time as possible to prepare.
+- Changing the asteroid's velocity changes the time when the asteroid crosses Earth's orbit. After all, just because it crosses Earth's path doesn't mean there is necessarily going to be a collision. It has to cross Earth's path when the Earth is right there.
+- Most astronomical work has to do with things that are very, very far away and don't affect our lives very much.
+- There are physical bodies, physical worlds that astronauts could visit, that we haven't found yet. Especially, there's these close approaches of asteroids. They pass within geosynchronous orbit sometimes, and they pass within the Earth and the moon.
+- Asteroids are our oldest and most numerous cosmic neighbors.
+- The basic method to find asteroids hasn't changed much in hundreds of years. So asteroids in a telescope look just like stars with one exception: They move with time.
+- There's been a lot of really great intensive research into earthquakes, but we can't predict an earthquake down to the day. We can't predict where a hurricane is going to be a month in advance.
+- An asteroid impact in the worst case scenario is a terrifying thing. It seems very uncontrollable: in popular culture, it's often a metaphor for human powerlessness over the world.
+- NASA has hit a comet with an impactor, during the Deep Impact mission. The goal of that mission was to study the surface by making a crater and stirring up the surface material so it could be studied.
+- We have a telescope that takes images, and we use a very nice computer program to isolate the moving images. And then, every potentially new asteroid is vetted by eye, so we take a look at each one, and then we send our observations to the Minor Planet Center.
+- People have discovered asteroids in the Main Belt that outgas like comets, and things on cometary orbits that no longer outgas - that don't have tails. We're finding all of these unique cases.
+- If I go and buy a coffee, and somebody asks me what I do, I'll say, 'I find asteroids.' And the first thing they always do is make a Bruce Willis joke, or they are going to bring up Armageddon.
+- I think that, a lot of times, people have this idea that the solar system is entirely explored, that we have sent spacecraft to every planet, we've taken beautiful pictures of everything, and that it's kind of done.
+- NEOCam wouldn't need cryogen, and it would also be able to see entirely new areas of space. It can scan the sky in a new way.
+- If you were to stand on an asteroid in the main belt of asteroids between Mars and Jupiter in our solar system, you might be able to see one or two asteroids in the sky, but they would be very far away and very, very small. So you wouldn't have this 'dodging through tons of rocks' business you get in the movies.
+- Our solar system is actually a wild frontier, teeming with different, diverse places: planets and moons, millions of objects of ice and rock.
+- When I tell people I'm a space scientist studying asteroids, they sometimes assume I'm a super-smart math whiz. The kind of person who skipped a bunch of grades and went to college when they were sixteen. Although I am good at math, school was difficult for me, and I didn't get straight A's.
+- On the whole, asteroids tend to leave Earth alone. And day to day, there really isn't cause for most people to give them any thought. But despite being remote objects that most people have never seen, asteroids, and the threat they pose, come up an awful lot in popular culture.
+- An asteroid impact is a preventable natural disaster. It's in part preventable because we have the technology, and it's in part preventable because it's predictable.
+- By searching the sky now, me and other asteroid hunters hope to give us the early warning - ideally decades - that we need. But that strategy of focused searching hasn't stopped people from thinking about what we might do if an asteroid was on its way toward us.
+- NEOWISE needed a cryogen coolant to keep its sensors cool, and that ran out.
+- Back in the day, I've heard, particularly with the near-Earth asteroids, there were some asteroid hunters that knew the names of every one.
+- Certainly what happened to the dinosaurs was not good - that was a terrible day for the dinosaurs, very sad. But I have to say, there are a lot of threats we face as people and, as someone who lives in Los Angeles, I'm personally more likely to die from driving on the freeway than I am from an asteroid, so you have to put that risk in perspective.
+- I think Dawn has done an amazing job showing that asteroids aren't just hunks of rock. They're worlds - they're places an astronaut can explore. I think the Rosetta mission also did an amazing job of that.
+- Becoming a scientist is a long journey, and at every step, I found projects that were exciting, motivating me to continue. My path was not straightforward - when I began studying physics in college, I had no idea I would end up studying asteroids; in fact, I never took an astronomy class.
+- Astronomers are using every technique at their disposal to discover and study asteroids.
+- If we found a hazardous asteroid, we could nudge it out of the way.
+- NEOWISE has two goals: One is to characterize asteroids, figure out how big and how bright they are, really basic information about these bodies; and we also find asteroids.
+- There are all these interesting rules about asteroid nomenclature. Once you discover it, you have the right to name it, but there's a catch.
+- I think every time we send a spacecraft to an asteroid or comet, we learn more.
+- I love studying asteroids because they are relatively simple, just rocks in space. They can be understood with physics and described with elegant equations. For the most part, they are serene celestial bodies.
+- I think the public perception about asteroids is that they're kind of metaphors for acts of God, the fact that we have no control over the universe. They're always seen as these uncontrollable events. But when you look at the science, they're actually the exact opposite.
+- We've actually named asteroids for other famous women in history, like Rosa Parks, Harriet Tubman, and Sojourner Truth. But it's really this Malala one that's catching people's attention.
+- It has only been within my lifetime that asteroids have been considered a credible threat to our planet. And since then, there's been a focused effort underway to discover and catalog these objects. I am lucky enough to be part of this effort. I'm part of a team of scientists that use NASA's NEOWISE telescope.
+- One of the reasons NEOWISE is so valuable is that it sees the sky in the thermal infrared. That means that instead of seeing the sunlight that asteroids reflect, NEOWISE sees the heat that they emit. This is a vital capability, since some asteroids are as dark as coal and can be difficult or impossible to spot with other telescopes.

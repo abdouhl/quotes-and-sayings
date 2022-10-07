@@ -1,0 +1,15 @@
++++
+author = "Thomas Hoving"
+title = "Thomas Hoving Quotes"
+quotes_len = "9"
+description = "the best 9 Thomas Hoving Quotes"
++++
+- The 'Artful Tommy' will never change - and perhaps shouldn't.
+- My address book of dealers and private collectors, smugglers and fixers, agents, runners and the peculiar assortment of art hangers-on was longer than anyone else's in the field.
+- No matter how hard I tried to popularize, I never cheapened a great work of art.
+- If you don't work yourself up into a fever of greed and covetousness in an art museum, you're just not doing the job.
+- Utopia would mean a park - some large, some small - every four or five blocks.
+- My heavily-cleverly disguised low self-regard manifested itself in my constant showing off, my addiction for publicity, and my intolerable 'me-me-me' attitudes and actions. But it's done, isn't it? And no one can really change, can they? And, hey, it has been a lot of fun being the life-long irresponsible, snarky, nasty art scamp.
+- When I became director of the Metropolitan Museum of Art, it was stodgy, gray, run by elitists. I said, 'Hey, let's kick the thing around.' I wanted to attract young people to the museum. I said, 'Make it hospitable. I want them to come. I want them to make dates, pick up girls, pick up boys - either way; I don't care.'
+- Parks are works of art just as a painting or sculpture is.
+- Great art should be shown with great excitement.

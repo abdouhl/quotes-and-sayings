@@ -1,0 +1,25 @@
++++
+author = "Tricia Helfer"
+title = "Tricia Helfer Quotes"
+quotes_len = "19"
+description = "the best 19 Tricia Helfer Quotes"
++++
+- I find that the hot yoga is sort of a false thing, so your body temperature goes up and you can stretch and you can injure yourself a little bit easier than if you work yourself into... if you heat yourself up.
+- I've started getting into quite a bit of voice work, definitely from 'Battlestar.'
+- I definitely have to admit that I am fairly ignorant, not just to 'Tron,' but almost any pop culture thing that I should know, at my age. I grew up without a television and rarely got to see a movie, so I didn't really see any of that stuff, and I haven't been able to catch up since.
+- When I was in high school I thought I was going to university into psychology.
+- It's not hard to draw from within yourself to play someone protective of her daughter. I have animals and I'm a daughter, sister, wife, aunt and friend, and I can be fiercely protective.
+- I've been living, I've lived in New York since I was 18 years old and traveled pretty much all over the world.
+- I've always had a desire to play a cop or FBI agent.
+- Ten episodes goes by really quickly, especially when you've got a really tough shooting schedule of seven-day episodes.
+- I just want to be challenged. I want to be proud of what I do, and I want to learn new things and keep growing.
+- 'Burn Notice' is a show that definitely has some levity to it and it's a fun show, but it's also, you fully believe, you're fully invested that Michael Westen does this stuff. You want Michael Westen on your team.
+- My husband says I like animals more than I like people. I take that as the compliment he means it as.
+- I've never gone for the smooth, suave Latin or French lover. That usually makes me think they're trying to pull one over on me.
+- Chemistry is a hard thing. I don't think you can force it, and it doesn't necessarily mean that you have to have great chemistry outside of work. It's just something that sparks on screen or doesn't.
+- Sometimes, if you don't have kids yourself, it's assumed you won't understand or know how to play a mom, which is kind of silly if you think about it.
+- As an actor, if I just did sci-fi, I think it would get limiting, like if you just play lawyers or doctors, over and over. It's a lot more fun, if you get to play lots of different types of characters.
+- I think I sort of blossomed, so to speak, around 17. I started to get hips and put on weight, which I was very happy about. And that's when I met this agent, who told me I had to lose 10 pounds. I said, 'You've got to be kidding me. I finally got it on - I'm not losing it!'
+- I lump Canada and the States together. I like good old North American boys.
+- I'm happy that I have agents and managers that believe in me.
+- Sitcom hours are silly easy compared to drama. Whenever an actor on a sitcom complains, I feel like smacking them!

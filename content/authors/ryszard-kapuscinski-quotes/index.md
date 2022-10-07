@@ -1,0 +1,41 @@
++++
+author = "Ryszard Kapuscinski"
+title = "Ryszard Kapuscinski Quotes"
+quotes_len = "35"
+description = "the best 35 Ryszard Kapuscinski Quotes"
++++
+- In the Russian experience, although the Russian state is oppressive, it is their state, it is part of their fabric, and so the relation between Russian citizens and their state is complicated.
+- I remember that during the period leading up to independence in Angola in 1975, I was the only correspondent there at all for three months.
+- Our salvation is in striving to achieve what we know we'll never achieve.
+- Amin managed to invite both the US and Soviet ambassadors to his palace at the very same time and then deliberately kept them together in his waiting room.
+- When is a crisis reached? When questions arise that can't be answered.
+- The Cold War was waged in a particularly brutal and cynical way in Africa, and Africa seemed powerless to do anything to stop it.
+- Money changes all the iron rules into rubber bands.
+- I'll tell you what colonial experience is.
+- There are several reasons why Russians view the oppressive state positively. First, in the Russian Orthodox religion, there is an understanding of authority as something sent by God.
+- Be careful: they have arms, and no alternatives.
+- My writing is a combination of three elements. The first is travel: not travel like a tourist, but travel as exploration. The second is reading literature on the subject. The third is reflection.
+- Do not be misled by the fact that you are at liberty and relatively free; that for the moment you are not under lock and key: you have simply been granted a reprieve.
+- The extent of one man's guilt may be defined by how much of it is experienced by the party he injured.
+- This is the most intimate relationship between literature and its readers: they treat the text as a part of themselves, as a possession.
+- There is a fundamental difference between the Polish experience of the state and the Russian experience. In the Polish experience, the state was always a foreign power. So, to hate the state was a patriotic act.
+- Amin hid nothing. Everybody knew everything. Yet the American Senate only introduced a resolution breaking off trade with Amin three months before his overthrow.
+- Most correspondents came from the former colonial powers - there were British, French, and a lot of Italians, because there were a lot of Italian communities there. And of course there were a lot of Russians.
+- When man meets an obstacle he can't destroy, he destroys himself.
+- In order to feel contempt, you generally need to cherish some kind of feelings.
+- Amin is the shame of the whole world. The fact that he managed to rule so long and commit so many crimes was only possible thanks to the hypocrisy of the East and the West who were waging the Cold War for world domination.
+- People were really interested in what was going on because of the international context of the Cold War.
+- The official independence celebration was going to be held over four or five days, and a group of journalists from all over the world was allowed to fly in, because Angola was closed otherwise.
+- Underground literature only began in the '70s, when technical developments made it possible. Before that, we were involved in a game with the censors. That was our struggle.
+- In modern Russia, you have no official, formal assessment of this past. Nobody in any Russian document has said that the policy of the Soviet government was criminal, that it was terrible. No one has ever said this.
+- I'm trying to put more elements of the essay into my writing.
+- We have such a mixture now, such a fusion of different genres.
+- I remember in 1978 meeting two Ugandan captains in the hotel talking Russian. They had been educated in Moscow and since they came from different Ugandan peoples, it was the only way they could understand one another.
+- Conditions were so hard. To send the news out, telex was the only means, but telex was very rare in Africa. So if somebody was flying to Europe, we gave him correspondence to send after he arrived.
+- Readership was high, and very attentive. It was people's only source of knowledge about the world.
+- The tradition of Russian literature is also an eastern tradition of learning poetry and prose by heart.
+- In the First World War, there was the sudden passion of nationalism, and the killing took place because of these emotions. But the Soviet case is different, because you had systematic murder, like the Holocaust.
+- The Cold War in Africa is one of the darkest, most disgraceful pages in contemporary history, and everybody ought to be ashamed.
+- There is a lack of critical assessment of the past. But you have to understand that the current ruling elite is actually the old ruling elite. So they are incapable of a self-critical approach to the past.
+- He killed his enemies because he was afraid they would kill him. Amin ordered entire tribes to be put to death, because he feared they would rebel.
+- Amin knew that neither West nor East would criticize him for fear that he would support the other side. He felt he was untouchable and he said so openly.

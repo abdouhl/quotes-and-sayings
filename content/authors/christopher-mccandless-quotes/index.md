@@ -1,0 +1,19 @@
++++
+author = "Christopher Mccandless"
+title = "Christopher Mccandless Quotes"
+quotes_len = "13"
+description = "the best 13 Christopher Mccandless Quotes"
++++
+- Circumstance has no value. It is how one relates to a situation that has value. All true meaning resides in the personal relationship to a phenomenon... what it means to you.
+- I now walk into the wild.
+- Tramping is too easy with all this money. My days were more exciting when I was penniless and had to forage around for my next meal... I've decided that I'm going to live this life for some time to come. The freedom and simple beauty of it is just too good to pass up.
+- I don't want to know what time it is. I don't want to know what day it is or where I am. None of that matters.
+- So many people live within unhappy circumstances and yet will not take the initiative to change their situation because they are conditioned to a life of security, conformity, and conservation, all of which may appear to give one peace of mind, but in reality, nothing is more damaging to the adventurous spirit.
+- The very basic core of a man's living spirit is his passion for adventure.
+- No phone. No pool. No pets. No cigarettes. Ultimate freedom... No longer to be poisoned by civilization, he flees, and walks alone upon the land to become Lost in the Wild.
+- It is the experiences, the great triumphant joy of living to the fullest extent in which real meaning is found. God it's great to be alive!
+- Happiness is only real when shared.
+- I have had a happy life and thank the Lord. Goodbye and may God bless all!
+- All true meaning resides in the personal relationship to a phenomenon, what it means to you.
+- I need your help. I am injured, near death, and too weak to hike out of here. I am all alone. This is no joke. In the name of God, please remain to save me. I am out collecting berries close by and shall return this evening. Thank you, Chris McCandless.
+- The joy of life comes from our encounters with new experiences, and hence there is no greater joy than to have an endlessly changing horizon, for each day to have a new and different sun.

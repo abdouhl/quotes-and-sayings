@@ -1,0 +1,69 @@
++++
+author = "Thomas Gibson"
+title = "Thomas Gibson Quotes"
+quotes_len = "63"
+description = "the best 63 Thomas Gibson Quotes"
++++
+- I still want to find some place to play 'Hamlet,' and if 'Far and Away' helps me do that, that would be nice.
+- People think that human beings have gotten worse, that because of the pressures that modern society puts on us, we've gotten worse, and we've gotten capable of doing more terrible things. I don't know if I necessarily think that that's true.
+- I love 'Criminal Minds' and have put my heart and soul into it for the last 12 years. I had hoped to see it through to the end, but that won't be possible now. I would just like to say thank you to the writers, producers, actors, our amazing crew, and, most importantly, the best fans that a show could ever hope to have.
+- I always had a lot of respect for the hard work and the hours and the dedication it takes to do these jobs but even more now, yes. The fact that we've gotten the opportunity to go to the FBI and meet the people who do this for real and also have consultations with them.
+- I almost ran into a construction worker driving the other day. He may have planned to scream at me or something, but he saw me and said, 'Hey, you're that guy on 'Dharma & Greg.'
+- It's very nice to do a little bit of the darkness after a little bit of the lightness. Variety is the spice of life. I enjoy both, and hopefully, I will be able to do as big a variety as I possibly can.
+- Single-camera is more relentless because it's eight 14-hour days no matter how you slice it.
+- My father wasn't around much. He made mistakes, but he had a very tough road.
+- Unfortunately, I only have time to play 15 to 20 rounds a year. I'm a 6-handicap but can play to a 16, no problem.
+- I joke that, 'Give us forty-two minutes, and we'll get your bad guy for you.'
+- There's nothing better for kids than a bucket and shovel at the beach. I grew up across the marsh from The Citadel. We loved buying chicken necks at the Piggly Wiggly, tying them to a string on a stick and catching blue crabs.
+- Prague is not rife in Asian culture.
+- When I'm home, I've got the kind of time that other dads who live there full time don't have. I can go and have lunch with my kids at school and that sort of thing.
+- I think it'd be a lot of fun to jump back into the comedy world.
+- I don't really believe in closure. That's something that writers talk about or people wished that they had.
+- One of the things that I'd like to get back to that I did as a younger actor was to work on, you know, a rep season for a summer where you did two or three Shakespeares, and you'd do a couple of either new plays or classic plays, and you did a different one almost every night.
+- I do love golf.
+- When my sister and I were kids, swimming down in Charleston, there was this pizza parlor that had this old Dixieland band play, and I just loved Louis Armstrong and the sound of his voice, and I got up there with the band and started singing Louis Armstrong songs when I was a kid. I have no idea why, but I did it and I loved it.
+- I never envy the guys who get attention for partying too much or behaving badly.
+- People see me, and they think they went to college with me; there's no immediate identification.
+- You can't substitute the act of making people laugh. It's definitely something that actors like to do.
+- By the fourth or fifth take, I had gotten over the 'Oh my God, it's a Stanley Kubrick movie' and got around to doing a little bit of acting.
+- In a way, as an actor, you do all the preparation and then you want to forget it and just play the scene. As a director, you can't forget it because somebody will remind you that you forgot something. But you can know your plan well enough that you still have a certain amount of freedom.
+- I work in show business - there's nothing that shocks me anymore!
+- Charleston has something for everyone, rain or shine. Its architecture is unparalleled. Carriage rides are great for seeing the city and hearing the history behind certain houses and the area.
+- When I was in New York, I took my bike everywhere for transportation. I didn't have a fixed-gear bicycle, like a lot of the messengers do, but I had a stripped-down deal - having lost a few good ones in New York - and I did 10 to 15 miles a day just getting around the city.
+- Summer I was 13, my grandfather and my father taught me how to play golf. I took lessons that summer, and I played every day that summer. I probably would've kept playing, except I realized that girls don't watch golf; they watch tennis. So I let my golf game go dormant and started playing tennis.
+- People always mention that they'd love to see me in a comedy again. Maybe it's time - laughter being the best medicine.
+- Hollywood is a strange place.
+- I know there's a CSI game. I've never seen it, though, so I'm not really sure. I hope it's interesting. I hope that they've done a good job making it, but because I've never seen it, the jury is still out on whether it's interesting or not. But it is funny to imagine that it's been turned into a game.
+- My parents were divorced when I was really young.
+- When expectations are really high, you're doomed.
+- I'm not quiet, nor am I the class clown. I pick my moments.
+- Now my son Travis wants to finish all of his schooling online and be a full-time actor. I said, 'Hey, it's not all riding bicycles and egging cars and houses. Why don't you go finish the seventh grade, and we'll talk about it later.'
+- I remember driving home from a movie - it wasn't 'Halloween' but another one, maybe the original 'Omen' - and I dropped my friends off, and it was also broad daylight, and yet I was sure that, like, Damien was in the backseat or something like that.
+- I work out religiously. It's great for my back. It's great for my core. I've been exposed to lots of exercise regimens and movement classes as an actor, so I understand the importance of stretching and staying limber, but Pilates is what's really spoken to me. It works everything out.
+- I never was able to be a Lakers fan - I'm more of a Spurs fan.
+- The only way I know how to do something, as cheesy as it sounds, is to become that character, and it affects me in a not so healthy way.
+- I grew up across the marsh from The Citadel.
+- I definitely try to profile people at the grocery store based on what they're buying.
+- There's nothing better for kids than a bucket and shovel at the beach.
+- I've tried my very best to keep all the balls in the air and be home.
+- I've always said that 'Dharma and Greg' is 'Romeo and Juliet' meets 'The Odd Couple.'
+- I've had probably way too many acting classes, and you try to sort of shed - I think over a period of time, you'll shed what doesn't stick with you, and you'll hang onto those things that do.
+- You might want to be able to close a chapter of your life, but I don't believe that you ever do completely.
+- People are fascinated by the darker sides of human nature, and I think they're also interested in seeing the ability that a particular detective or group of detectives might have to solve the crime and put the world right again.
+- If you actually saw your favorite movie star who is also a great classical actor doing 'Romeo and Juliet,' 'Macbeth' or 'Taming of the Shrew,' it would be a great thing and a great thing for kids to get interested in language.
+- There is a fine line between something that's gratuitous, that's unnecessary.
+- I look forward to working with Ken Olin, whose work as an actor and director I have always admired.
+- Sitcoms are more like stage drama than anything else on film - more than a one-hour and certainly more than a movie. You get a script on Monday. You rehearse all week. And on Friday, you're on.
+- You know, it's nice on a sitcom to have an audience there, but there's still a wall of cameras between you and them.
+- I am an optimist, and I try to think that the light will always prevail in any situation, so it doesn't really make me sad about humanity because I think, deep down, everybody is full of love and light.
+- Charleston is an amazing place. I probably didn't appreciate it enough when I was growing up.
+- Moving on is not closure. It's not neat, and it's not about turning the page. It is about moving on, but it doesn't mean that you've left something behind.
+- I've been a Mac guy for 20 years. Even if I'm having trouble with the latest MacBook Pro, I'm still a Mac guy.
+- People's imaginations are sort of there for the taking, I guess. If you tell the story right, you're going to hook them.
+- I think that people are fascinated with the stories, with human nature and the dark turns it can take.
+- The pilot is the wedding, and the series is the relationship.
+- I was raised as a real worker: you know, you get out and get a real job.
+- I played a doctor on 'Chicago Hope' 15 years or so ago, and I did go and watch an open heart surgery.
+- My wife, Cristina, is an amazing mother, and I know by the time I get back home, she's ready for a break. Cristina will say, 'Enjoy your nap on the plane.' That's the most sleep I'll get after I hear those voices railing, 'Let's play Daddy Monster!'
+- I will talk to people who say they loved 'Tales of the City' or 'Far and Away' or 'Love and Human Remains' or 'Barcelona.'
+- My two boys have each done a play. They've done school plays as well, but one of them did a local production of 'Waiting For Godot,' and he played the boy.

@@ -1,0 +1,23 @@
++++
+author = "Craig Thompson"
+title = "Craig Thompson Quotes"
+quotes_len = "17"
+description = "the best 17 Craig Thompson Quotes"
++++
+- My dad was a plumber, and my mom was on and off again, either a stay-at-home mom or working with the disabled as a visiting-nurse assistant.
+- I think you can still look to Jesus' word for guidance in your life. It's just not the guidance that it seems like most Christians are applying to their own lives.
+- I grew up in a very working-class family and also a very fundamentalist Christian family. So, we didn't have access to the arts in the house in any form other than the Sunday funnies.
+- Most of my Muslim friends are politically liberal in a lot of senses. They are far more open-minded than the Christian circles I grew up in, which are, you know, actually scarier. That said, too, I still identify with the teachings of Jesus. I don't think they resemble or relate to modern-day Christianity.
+- I don't know Arabic. I can't speak or write it.
+- Foreign-language books are sometimes more beautiful when you can't tell what's being said. It's like you ruin it by reading.
+- Christianity and Islam, they have the same morals, same lifestyle, some of the same stories that shaped them.
+- It's actually easier to do autobiographical stories. The story is already there. It's a matter of carving away what doesn't fit rather than building up from nothing.
+- I'm really interested in making a mark on a paper and letting that be cursive shorthand for an idea - that's the origin of cartooning.
+- The state of your psyche is reflected in your body.
+- After 'Blankets,' I was sick of drawing myself and doing this autobiographical, mundane, Midwestern sort of comics. I wanted to create something bigger than myself and outside myself.
+- I think with 'Chunky Rice,' it felt novel to me to give this emo twist on these funny animals.
+- I think there is some overlap in terms of artistic desires and Christian desires.
+- I had this desire to understand Islam better and then focus on the beauty of Arabic and Islamic cultures. And one of the first things to emerge was Arabic calligraphy, which was instantly inspiring.
+- In 2005, I did a lot on 'Habibi' and a lot of business stuff. I got an agent that year.
+- I'm still down with Jesus. I like to think of him mostly as a social revolutionary who mixed with bad crowds and hated the rich.
+- I grew up in a very fundamentalist, evangelical Christian household. Both my parents were born-again - their faith infused every aspect of my childhood. I'll probably spend most of my life working through that.

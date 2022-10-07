@@ -1,0 +1,37 @@
++++
+author = "Anthony Anderson"
+title = "Anthony Anderson Quotes"
+quotes_len = "31"
+description = "the best 31 Anthony Anderson Quotes"
++++
+- I ain't got nothing. I've got this watch, and these shoes, and that's about it.
+- If you respect the art and you have some talent about you, I'm on your team.
+- Glenn Close is a living icon. You look at the work, and I think it's wild, because she thinks some of her best work was in Dangerous Liaisons and that's what I believe as well.
+- Romeo Must Die was the first film that I did where I was able to just be free as an actor.
+- Leo couldn't deliver Mr. Martin Scorsese his Oscar with 'The Aviator', but I will go on record to say I will do so in 'The Departed'.
+- I realized my family was funny, because nobody ever wanted to leave our house.
+- My choices were never wrong.
+- I went to the High School for Performing Arts, and to Howard University on a talent scholarship.
+- It's a remake of a film called Inferno Affairs. It's a Hong Kong film, and if we come anywhere close to what they did in the original, we're going to have a hot property on our hands, because Inferno Affairs is a great piece.
+- Be ready for when your time comes, you will have that window of opportunity, so seize the moment and capitalise on it.
+- Independent films are where you really get to cut your teeth and have some fun and do the things that mainstream Hollywood doesn't want to do.
+- Tom Arnold and I, we have a huge firefight scene on top of a German tank. I get to shoot 50 caliber rounds. We shoot a helicopter out of the sky. That's the only fight I'm in.
+- Everyone realized I was the innocent victim of a shakedown.
+- Comedy is second nature for me.
+- My wife and I have always trusted each other, and I have to thank her strength.
+- There isn't a switch that I turn on. I'm an actor. This is what I do.
+- Set your heights more than what you see around you, see beyond.
+- More oftentimes than not, you're automatically guilty before innocent.
+- It's just a matter of me opening up the page and whatever is written on the page, that's what I'm here to do.
+- Some of these guys... I've worked with Ice Cube, I think he's an immensely talented rapper and actor.
+- I've worked with some actors who can't act.
+- You take the quote from Sam Jackson about how he'll never work with a rapper, and I can understand where he's coming from because he says rappers can't act.
+- I provide a little comic relief.
+- I've gotten my butt kicked by the best. Jet Li beat me up the best, but Steven Segal can still kick a good butt. It's a different kind of kicking, though.
+- If they respect the craft and what we're doing and they bring something to the table and they work hard, I don't care what you do as your side job or as your day job.
+- You say you're a comedian, you always have to be on guard.
+- They gave us the freedom just to play and have fun.
+- You can say what you want to about a rapper in a movie, but look at what Ice Cube has done. Ice Cube has created more opportunities for other actors to get jobs in this business than some actors have.
+- Things are changing. I've been training since I was 9 years old to stretch my wings as an actor dramatically, but have never really been afforded the opportunity to show that.
+- I'm not a comedian. I'm an actor who just happens to be funny on occasion.
+- It's sort of an action flick. You can't be that funny trying to steal diamonds.

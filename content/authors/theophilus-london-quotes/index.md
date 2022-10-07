@@ -1,0 +1,139 @@
++++
+author = "Theophilus London"
+title = "Theophilus London Quotes"
+quotes_len = "133"
+description = "the best 133 Theophilus London Quotes"
++++
+- Karl Lagerfeld is the hardest-working man in showbiz!
+- I'm kind of brandless. I don't like big logos or whatever.
+- I'm on the sockless and un-sockless teams. I'm on both sides.
+- The second album is the hardest to write. It's nothing like the first album.
+- There were times when I was just listening to albums for the hype of it. Some albums, I would just put it on in my car, and me and my friends would just drive, that we'd wild out to, get arrested to.
+- I have a personal barber, Mister C. He lives in Brooklyn, but he travels with me. He used to cut Lady Gaga's hair, but he fired her to work for me.
+- I want to wear something that's not perfectly matching; there has to be something unorthodox about it. I want to create this mystery.
+- I started getting emails from Anna Wintour inviting me to her dinners. It was just surreal.
+- When I say 'rare,' it's my own term. It's like you're doing something with a photo that is dominant that no one has ever seen before. #Rare means that it can only be seen here. It's just a rare moment that I'm sharing with the world.
+- I focus a lot on my voice because I want it to be an instrument as well. I want my voice to add color.
+- I have a few friends that have inspired me since I was a young kid. When I watch old films or modern movies - particularly 'Gladiator,' 'New Jack City' and 'The Skin I Live In' - I'll also get ideas.
+- Image plays a huge part in my music and in my lifestyle.
+- I want to change the color of Starbucks from green to red. Whose job was it to say, 'This is going to be green?' I want that to be my job.
+- Shopping at any level is a bit of therapy for my medulla oblongata.
+- I'm listening to early Cash Money, I'm listening to Juvenile, I'm listening to Waka Flocka, I'm listening to Lil B, I'm listening to Brandy, Kanye - that's my home playlist.
+- When you're a kid, you're only exposed to what's going on in your mind. The mind is like a bigger-than-outer-space type of thing.
+- While my cousins were gang-banging, I was trying to learn what the Internet was about.
+- When I was younger, I wasn't thinking about fit. Clothes are measured just for me now. I know that's not what the average person does, but I've gotten smart about what fits my body the right way and what makes me feel comfortable.
+- I find it soothing, the thought of a movie theater.
+- We're a fast-moving, needy species.
+- I'm not a beach person.
+- Shout-out to my dad - he influenced my style when I was 17.
+- I love an art-school girl. I mean... don't we all?
+- Brooklyn for twenty years, I've learned that there is always someone better than you at what you do.
+- I don't want to be easily defined.
+- I can pull off anything; I have the height and the attitude. The only thing I can't wear is a leotard, but I can wear anything else.
+- I like to wear a lot of one-tone color outfits - same color trousers, same color shirt.
+- Growing up as a city kid is a joyous time!
+- I like to revamp things; like, I make to make things better in my eye, but I don't put out own lines... I just collab with my favorite brands.
+- What I sell is the higher knowledge of knowing what's next and not following the trend of what's now.
+- I started performing music about the age of 16. I lived in Brooklyn, New York, and this thing called the Flatbush Fair comes once a year. That was my first time on stage.
+- I like vintage shopping, but I also like to mix in high-end.
+- I admire traveling; I appreciate it a lot.
+- I like to go to the airport looking stylish - you never know who you'll run into. Sometimes I have fans at the airports. I never want to be bummy looking.
+- I like Jeremy Scott, and he has some really dope sneakers.
+- In high school, I always dressed to impress the girls.
+- I take references from the past and flip them.
+- The first time I really listened to an album and thought, 'This album is mine,' was Kanye's 'Late Registration.'
+- I went to school for marketing for one year before I dropped out of college to make music.
+- I wanted to only collab with women for 'Lovers Holiday.'
+- A lot of young kids like myself use Instagram because it has swag - it's more personal, and your friends generate it.
+- I always tell myself, 'When I'm working on my record, I won't cut my hair.' I get so focused on the music that I'm not really going to the hair shop and getting cut up. I just have one thing to focus on.
+- I think it's more interesting to play a place where no one really knows you, but I think touring is also great.
+- If you show you're human and have something to say, people will connect with you.
+- I love N.Y.C.! I can't think of any individual that hates New York.
+- I like connecting with people through technology.
+- When I want to choose to work with someone, you know, I definitely have to do some research on their background and how they were raised as people.
+- Hip-hop is like underground. I don't know if hip-hop exists anymore. I don't know if it does.
+- Whatever I receive from a higher power gets me pumped, which gets the crowd pumped, which gets me more pumped, and then we're just pumped up.
+- My favorite brand I have ever artistically collaborated, entertained, and supported over the years is the huge house that Coco Chanel built: Chanel.
+- I moved my studio to Palm Springs 'cause I don't like the idea of going to a studio every day like a job... I need to make a personal record, so I need to be in a house... I don't want to be in a studio where people can hear the music 'cause I don't know what it is yet.
+- The most time I spent home in 2009 was about a month.
+- I admire natural, untouched beauty.
+- I collect a lot of clothes when I travel around the world.
+- Your voice is like a very serious instrument that you have to tame if you want to be an amazing singer - Marvin Gaye or Michael Jackson.
+- I am more into guys' fashion, but I'm inspired by women's fashion in a weird way.
+- I never go black tie. I never grew up wearing ties or bow ties or anything.
+- New York feels vibrant... It feels electric to walk the streets at night.
+- I remember in the fifth grade my dad would take me to Manhattan to shop for clothes.
+- I love to hear a cool ambient sound at runway shows. It creates a good energy.
+- Brooklyn, where I grew up, is a competitive burg - there's always a pretty boy around the corner there, and you gotta look better than him.
+- Thirty-five percent of all my dates were at the movies from 2013 to 2014.
+- My mind moves very fast. I go through a lot of moods and emotions.
+- Creating the album 'VIBES' has been the biggest life lesson I have ever learned.
+- I'm not on a record like some rapper trying to boast about my clothes or where I'm from. I'm creating stories, experiences, the way places make me feel, the way a person makes me feel.
+- I might want to open a hotel and design all the rooms. Or maybe a museum that lets me curate all the events.
+- I'm gonna walk super, super slow to when I turn 40 or something. To me, walking and floating slow represents how wealthy you are!
+- As snap-backs became more popular, I started to search and expand my hat game.
+- I'm a big fan of Caribbean food, Spanish food, Dominican food - like rice and beans. Hot sauce just adds a different layer of boom to the food, you feel me?
+- I like to keep a uniform - wear a blazer, try to keep the same colour pants; very tailored, very fitted but still edgy.
+- I didn't grow up drawing runway models and deciding what they should wear.
+- I want to produce the best popular music I can.
+- I went to Texas a few times for gigs and adopted the cowboy look. Every man, at some point in his life, goes through a cowboy stage - everyone! Well, at least everyone that I look up to!
+- Dressing up, for me, is looking like an idiot.
+- I can't really change for a climate. I've got to be Theophilus London in any weather.
+- DMX wasn't checking what his fans were saying to him on Twitter or Facebook. Jay-Z is on a boat in Saint-Tropez. I'm hands-on. Girls write to me like I'm their diary. That's a huge responsibility. I don't take it for granted.
+- If I walk into a store, I'm going to buy the best jacket or the best item in the store, hands down.
+- When you're a new person and a new idea, you get invited to all these different things, and everybody wants a piece of you. And you want to be polite and say yes to everything, but it gets dangerous.
+- A lot of my friends inspire my style, and they don't even know it.
+- Go to American Apparel; they have all of the colors of socks.
+- I love fashion week. It has great energy and vibe.
+- I need to travel, of course, with my laptop, so I can do my business on the road.
+- I am international. When I put out my second mixtape, we did four tours and a tour overseas.
+- On my early trips to London and Paris, in 2009, I started to shift to more wide-brimmed felt hats similar to Borsalinos and Stetsons.
+- Twitter is essential to me because I wake up and check it religiously. It's a way I communicate with my fan base.
+- To me, my style is comfortable.
+- Colby Jordan is one of the most fashion-forward and passionate girls I know. She gives me these young Anna Wintour vibes when I'm around her!
+- I keep a creative group around me.
+- I'll buy an old jacket and attach gold buttons and a couple royal patches. Or I'll find an old busted sweatshirt, tear out the zipper, and replace it with a $700 zipper. I make things my own.
+- Mixtapes are very personal, and they describe who you are better than an album sometimes.
+- It leaves a good legacy to have five records.
+- Some people thought Theophilus was a fake name. Whatever.
+- I don't want no mail. Send me a Facebook message.
+- I don't have a license, but I do drive.
+- I'm trying to fuse popular and commercial music and just make very creative music. It's popular music: it's everything for everybody.
+- I'm a big fan of pop music - I think Marvin Gaye was pop music; things like that.
+- Let's see: I'm into a whole bunch of different people - Alexander Wang... that's my dude.
+- It's not only about the rap lyric. Today, people are buying you as a person.
+- I went to Brazil in 2010 and pretty much did songs about that trip. I was there just to hang out, chill with the people, and feel the vibe. It was great - tons of great women, great skin, good beaches. Can't complain; the food is great.
+- I feel I have so much more to deliver than music.
+- The Royal Family doesn't go out shopping for their uniforms: they've got some guy sewing on all the ornaments in-house. You could say I've got my own in-house team as well.
+- I always imagined how cool it would be to be the face of a Gap campaign!
+- Some people have style without even knowing it!
+- Punk music is rebellious.
+- Gold looks good on my skin, and gold looks good on black people, I think.
+- I understand demographics.
+- I'm not really good at skiing or snowboarding, or swimming, per se.
+- Style is a form of expression! It's what makes your character your character, to put it in laymen's term.
+- I wore my same look for six years. My hat and glasses - people recognize me now.
+- To me, my brand is luxury, it's art, it's women, it's raw, it's urban.
+- I collect different game hats, like Syracuse Women's Volleyball; I have a Navy Basketball hat. They're all vintage but in new condition.
+- I listen to a lot of really old western and country music. There's a lot of cool stuff in there... all the heartbreak of the country darkness.
+- People are always looking at their phones and computer. It's the first place people turn in the morning and where everyone's keeping in touch and getting their news.
+- A lot of my favorite artists are fashion icons.
+- You should treat your body like a canvas.
+- I've got to get my real skills up; like, I got to get my skills up, 'cause in case of a crazy catastrophe, I might have to learn how to swim.
+- The Internet is a very powerful tool; unfortunately it's starting to get a little saturated.
+- You gotta learn your body, how clothes fit on you.
+- Brands are in your face 24/7; I'm sure you've consumed a couple brands today. So it's fun working with them. People recognize brands, and people are starting to recognize my brand.
+- To wake up in the morning and just know what I'm going to wear, it helps me get out of the house faster.
+- Europe were kind of the first ones to embrace my music; the kids from around the way would come out to my shows and really enjoy it.
+- Becoming a walking, dancing, fire-breathing lifestyle dragon is not something you can pursue overnight! It takes years of studying, living, and understanding the modern culture!
+- I hate writing texts to girlfriends because you can't really see emotions in texts. You can get confused on what she says.
+- I own over ninety-five different hats and, over the years, have lost or given away 120 hats. You gain to lose... you lose to gain.
+- I love to see the rarest movies, the most talked-about movies and documentaries. I read all the reviews and compare them to see if it's worth going! I have a secret movie critic blog I have shown no one or promoted, and I intend to keep it that way.
+- The Gap has always been an iconic, go-to brand that reminds me of my childhood.
+- I've made sure to always update my web properties constantly - Twitter, Facebook, Tumblr, my Hypebeast blog... making sure I divided content across all of them to keep each outlet fresh to keep people coming back.
+- I connect to SpongeBob in a way; like, that's the homie. He can chill on the corner with me.
+- I believe your atmosphere and your surroundings create a mind state for you.
+- 'Billie Jean' was a negative dance song, and that was one of the best dance songs ever.
+- Just because 50,000 people on the Internet know me, I'm not patting myself on the back at the end of the night.
+- Believe in yourself and believe in magic.
+- After Andy Warhol died, it left a dark cloud over N.Y.C. nightlife.

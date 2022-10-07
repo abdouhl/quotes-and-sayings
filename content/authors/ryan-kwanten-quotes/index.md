@@ -1,0 +1,54 @@
++++
+author = "Ryan Kwanten"
+title = "Ryan Kwanten Quotes"
+quotes_len = "48"
+description = "the best 48 Ryan Kwanten Quotes"
++++
+- There's a certain addiction to sweat, for sure. I'm not the same person without it. If I don't get my hour of exercise in every day, then I'm not the person that I want to be.
+- Sleep has never been a priority in my life.
+- In order to be able to give a girlfriend the amount of time she deserves, you would need time, and I just can't give her that. So, rather than being selfish or stupid enough to go into a relationship, it's just been easier to be single.
+- I'm drawn to a good story, really, as I hope most people are. For me, it's the story that's going to stay with you eventually, not necessarily the genre. I go to watch a film because of the story, not because it was a Western or a comedy.
+- As actors, we deal with rejection so much more than any other business. So I don't care how much of a genius you are, if you don't have the propensity to be able to get back up every time you get knocked down, then you're not going to survive.
+- I work very, very hard, so when I do get the chance to go out socially, it's a relatively big night. I also have hobbies on the side, and quite often, one runs into the other.
+- Australian women tend to tell it like it is - even if it's the brutal, honest truth. I think American women usually break it to you a little easier. There's a softer side to them.
+- That's something lacking in a lot of modern-day families - just talking. It's almost a lost art form.
+- I'm not the kind of guy that inspires madness in people.
+- There was a time when I wanted to be a lawyer, or even a professional triathlete... But nothing could come close to the passion I have for acting.
+- I'm not really comfortable with who I am to be honest. I feel more free to step into the shoes of somebody else. There's always an element of me in there but, you know, if you give me a script and some clothes I can do anything. But, as Ryan, I'm a bit of a recluse.
+- I pride myself on breaking any box that anyone wants to put me in.
+- Ambition is a very good quality to have. Ambition and the competitive spirit go hand in hand.
+- Whether I fall on my feet or fall on my arse, I dunno. You've got to take those risks.
+- Even on a $100 million film, people will complain that they haven't got enough money and enough time, so that's always going to be an element in filmmaking.
+- I've always been relatively reserved with my social encounters.
+- I don't necessarily find superheroes in general, for me, that appealing. I'd much prefer to play, if I was to be cast in a superhero film, I'd prefer to play the villain because there's a reason, there's a motive behind their madness.
+- I like to have a hectic schedule.
+- I've been acting for a long time now, but as narcissistic as this sounds - and I don't mean it to sound - every time I see my name up there, there is real sense of pride.
+- I'm not one of those actors who gets physically fit for a role and then loses it all again.
+- The fact that 'True Blood' affects people in this way is incredible to me - the fact we have to go to such great lengths to hide storylines just proves the cache our show has.
+- I'm undefeated in Scrabble. I can figure out an opponent's strategy and mold mine to offset theirs. I play a couple times a week, and I'll often play a game on my bed by myself against myself, which I realize sounds completely mad.
+- One of my favorite actors is Paul Newman. He could tell so much with a single look, whereas some actors would need an entire five page monologue to give off the feeling of what he could say with just a single look.
+- I still take losing out very seriously. But it inspires me that much more to move on. Quite often in my business, it's not the most talented people that succeed. Because they don't necessarily have the tenacity to deal with rejection.
+- Money has never been a huge inspiration for me.
+- I really do feel like Los Angeles is my home now and, as cliche as this sounds, I felt like I found myself here and I really know who I am now. There was a long period like I was drifting or floating through life, and now I feel like I have a definitive target - and future.
+- I'm fortunate enough with the surfing to be very much at home at the water - my pulse and heart rate are slower in the water than they are on land.
+- I'm very much a masochist at heart.
+- My mum is about five foot with her hair done. Without it she's about four foot 10.
+- I love acting, so it's easy when you have a passion for it. I've always found the harder you work, the luckier you get.
+- I'm glad acting sunk its teeth into me, because now I can't imagine doing anything else.
+- I never want to be that guy at a dinner table saying, 'I wish I could have dessert.' I actually went through a stage when I would order dessert first.
+- I'm definitely an elbow-room guy.
+- My life is very much consumed with work.
+- My first five or six years in L.A., I was just trying to get two cents together to stay here. Playing Jason Stackhouse on 'True Blood' put me in a position, financially, to make decisions based on creativity, to choose roles based on whether I connected with them. I love the Jason Stackhouse character... But I also love stepping out of his shoes.
+- I don't know if my sense of humor goes over Americans' heads.
+- I've been known to turn up drunk at triathlons and do very well. I'm more of a heat-of-the-moment type of guy. A friend will tell me about something coming up, maybe that weekend, and usually not an abundance of thought goes into my doing it.
+- I moved to L.A., and people said that I would never find work, that I would never find good friends, and I feel like I was fortunate enough to find the work, but it wouldn't mean anything unless I had a group of people who could appreciate it.
+- I'm somewhat of a masochist at heart. I like to sweat. I come from a very competitive sporting background - my dad was a world-champion surfer - so it's always been a part of my DNA. I do a lot of soft-sand running, hiking, yoga, and boxing, and I compete in triathlons.
+- I like exploring the mystery of a relationship instead of laying it all out on the table at the beginning.
+- I was a terrible loser growing up. I took it far too seriously. There were water works if I lost. I would go home and break it down in angry detail: How did I lose? What could I do next time?
+- Everyone is being told by society to talk this way, to dress that way, to be this person or to be that person, and it's so important to just maintain a sense of self.
+- I used to get a sort of sociophobia, and I still get it sometimes these days when I'm in a confined space with too many people. It's not like I freak out or anything, it's just that I'm far more comfortable in my own company sometimes than being surrounded by one thousand strangers.
+- Fortunately, now I've got myself in a position where things are about story and not money. In my earlier career, it was more about getting my foot in the door and to get enough money to live, to be perfectly honest.
+- I'm very rarely in the gym. My workouts are predominantly outside, in nature.
+- I make about two movies a year outside the 'True Blood' schedule. I work on a great show six months a year, then outside that I get to satisfy whatever creative urges I have. It's a great position, especially for a single guy like me.
+- I'm not a big fan of the gym, I do lots of outdoor aerobics - yoga, swimming, running - but I kinda hate talking about it. We have a term in Australia, it makes you sound like a wanker.
+- I'm not one of those actors who asks for too many favours. So when I do, people tend to listen.

@@ -1,0 +1,105 @@
++++
+author = "Amy Purdy"
+title = "Amy Purdy Quotes"
+quotes_len = "99"
+description = "the best 99 Amy Purdy Quotes"
++++
+- My spleen burst. I remember feeling my heart beating really fast. Beating right out of my chest.
+- I love the smell of rain, and I love the sound of the ocean waves.
+- We all have things that limit us and that challenge us. But really, our real limitations are the ones we believe.
+- If we can see past preconceived limitations, then the possibilities are endless.
+- For me, a bad day is when I have nothing going on.
+- To be able to walk down the street and have people stop you, not just because they recognize you, but because you somehow personally touched them, it's amazing.
+- I was in kidney failure. I ended up having a kidney transplant on my 21st birthday.
+- I tried snowboarding at 14, and I absolutely fell in love with it. I snowboarded every day off I had, every weekend I had off of school, every holiday we had off from school, and it became a huge part of my life, not just what I love to do, but really just kind of who I was.
+- I always felt really lucky that I only lost my legs, because it could've been so much worse.
+- Just the thought of being on Oprah's radar at all is humbling, but to actually have her take time get on the phone with me kind of blows my mind.
+- I was on my death bed, and I remember hanging on to these words, 'Don't be scared. You are going to live an amazing life,' and I have.
+- I'm one of those people who doesn't want to miss out on anything.
+- You don't always have to have the most amazing story. It's learning to share the story you have that counts.
+- In snowboarding, I've always looked at really strong competitors through a lens of gratitude rather than envy in the sense that the better my competition is, the more it forces me to work hard, focus, and be better myself if I want to succeed, which I do.
+- All through high school, I was incredibly healthy. I loved the outdoors, and I loved snowboarding because of the freedom.
+- I feel that losing both my legs was a blessing. It was meant to happen to me: I wouldn't have had the opportunity to touch so many lives in such a positive way.
+- When I turned 16 and got my license, the Chevy Blazer was passed down from my sister, so it was very much a starter car.
+- I want to live a fulfilling life.
+- Road trips to me are just such an escape. You listen to your music, and you roll the windows down. You're usually going to somewhere fun.
+- We did everything we could to save my legs, and it just came to a point where if we didn't amputate my legs, I wouldn't survive. In that situation, you kind of go into survival mode, and you find strength.
+- If you believe that you can't do something, then you're not going to do it. If you believe you can, and you're willing to put in the effort and figure out a way to do it, then the majority of the time, you can.
+- Oprah has been a true inspiration to me, so I'm truly grateful both to her for taking the time to speak with me, and to the folks at 'DWTS' who set it all up.
+- You can't even imagine the feeling you get when someone tells you that you are about to lose your legs.
+- I guess I'm always up for a challenge.
+- I want to go to dinner with Oprah! Who doesn't?
+- My dad gave me one of his kidneys.
+- Taking off your clothes is one thing. Taking off your clothes and your legs is an entirely different matter.
+- Of course, there are benefits to having prosthetics. I can make myself as tall as I want. I can wear flip-flops in the snow if I wanted to. There's benefits.
+- We all have challenges. You can let them be obstacles or roadblocks, or you can use them.
+- When you are truly you and share who you are with the world and be confident in who you are, it doesn't matter what size you are. It doesn't matter what your different body parts look like.
+- I was 19 years old, and I felt like I had the flu one day. Within 24 hours, I was in the hospital on life support, and I was given less than a 2 percent chance of living. It took five days for the doctors to find out that I had contracted bacterial meningitis.
+- There are no rules in snowboarding.
+- I simply do the things that inspire me, be that snowboarding, designing clothing, or dancing.
+- I'm really motivated by music, and I love dancing, even if it's just by myself in my room or if it's going out with my friends.
+- My legs haven't disabled me. If anything, they've enabled me.
+- My motivation is not to try to inspire, but rather to do things that inspire me and hopefully that will spread to others.
+- I made a choice before I lost my legs that I was going to live the best life possible and that I wasn't going to let this slow me down - and that choice has kept me moving forward.
+- I have a very good sense of my body and where it's at. Although I don't feel the ground in the same way that somebody else would, I'm very aware... I can feel pressure, and I know exactly where my toes are and exactly where my heel is.
+- For me, I just began, eventually, to embrace what I had. This is what I have to deal with and, not just deal with, but this is what I have to share, and how can I do that the best way.
+- I believe inspiration is contagious.
+- In my dreams, whatever I am doing, I look down to see if I have prosthetics. It sets my time frame in my dream, I think. I'd have these dreams that I am running and launching myself, and I look down and see that I have prosthetics. I have a lot of those, where I do great, amazing things with my prosthetics.
+- If you want something bad enough and you work hard enough, anything's possible.
+- It was challenging. It was never easy for me. My life changed suddenly, and I lost my health. I lost the body that I knew.
+- You don't have to be positive all the time.
+- I think the designs and creativity are limitless with 3-D-printed clothing.
+- Of course, I was 19 years old, and I suddenly lost my legs. It was extremely traumatic at the time, but I'm so beyond that. I've done so much with my life.
+- After I lost my legs, all I wanted to do was snowboard again. I remember spending an entire year on the computer, looking for 'adaptive snowboarders' or 'snowboard legs' or 'adaptive snowboard schools' or just something that I could connect to. I already knew how to snowboard - I just needed to find the right legs.
+- I like moving, challenging myself.
+- I got this second chance at life, and I live it.
+- My dad had given my sister and I our starter car, a red, old 1985 Chevy Blazer. It was so beat up, the taillights would fall off, and we would use red duct tape.
+- As humans, we need to reach out for support.
+- Since losing my legs, I've found out that I am able to help other people by sharing how I've overcome my obstacles.
+- Growing up in the hot Last Vegas desert, all I wanted was to be free. I would daydream about traveling the world, living in a place where it snowed, and I would picture all of the stories that I would go on to tell.
+- We've all seen that every challenge we've gone through, we've learned something from. It's not getting hung up on the challenges but figuring out how to get ahead.
+- Dancers know how to move their arms and their hands. But I don't know the first thing about how to move my arms and hands gracefully.
+- As for how do I respond to those who want to throw stones, well, I don't.
+- I'm learning how strong I am, how resilient I am. I'm learning my weaknesses.
+- After I lost my legs, I got invited to my old high school, and I shared my stories with all the classes. I remember I was so nervous and didn't know where to start, but I knew I had information they could take away.
+- I'm an athlete, yes, but I'm also a woman. I'm someone who kind of, in a way, lost touch with that part of myself after I lost my legs, because there are certain feminine traits you lose when you have prosthetic legs.
+- If somebody would've told me that I was going to lose my legs at the age of 19, I would've thought there's absolutely no way I'd be able to handle that. But then it happened, and I realized that there's so much more to live for, that my life isn't about my legs.
+- I've learned that borders are where the actual ends, but also where the imagination and the story begins.
+- I kind of had to figure stuff out on my own and get myself snowboarding competitively again. I went through all types of different legs to try to learn which were going to work for me. Luckily, I was able to figure it out.
+- There are plenty of people who have legs who are way more disabled than me.
+- I'm not trying to be an inspiration, but I'm flattered to be considered one.
+- I'm a big oatmeal fan. For my every-morning breakfast, I will do oatmeal with cinnamon, goat's milk or even butter, with apples and raisins, and then I'll maybe do some eggs, say two poached eggs with that.
+- I've never wanted sympathy votes in anything I do in my life.
+- I've always made the choice to do everything to my fullest potential.
+- What's cool is that Oprah is the same person on stage and in front of a camera as she is off stage and behind the scenes. She speaks the same way on camera as she does off camera.
+- At the age of 19, the day after I graduated high school, I moved to a place where it snowed, and I became a massage therapist. With this job, all I needed were my hands and my massage table by my side and I could go anywhere. For the first time in my life, I felt free, independent, and completely in control of my life.
+- The way I look at it is, we all have disabilities.
+- I knew what I didn't want. I didn't want people to feel sorry for me. I didn't want people to see me as disabled. I wanted to live a life of adventure and stories.
+- Every day that I am healthy, I want to use that day to its fullest now.
+- I grew up born and raised in Las Vegas and actually grew up skiing. You know, we've got some ski resorts close to Las Vegas, up in Mount Charleston or Brian Head, so I grew up skiing and snowboarding.
+- Dancing is about expressing yourself, and the more walls you let down, the better.
+- I knew I loved music, and I knew that I could feel music. So, I knew I had rhythm.
+- I don't want to see myself as this sad, disabled girl. I know that. I don't want other people to see me as that, either.
+- My dad gave me life twice. I thank him by using the strong body I now have.
+- If your life were a book and you were the author, how would you want your story to go? That's the question that changed my life forever.
+- Pfizer's actually teamed up with my nonprofit organization, which is called Adaptive Action Sports. I cofounded this organization in 2005 to help people with physical disabilities get involved in action sports, go snowboarding, skateboarding.
+- I can't really say I miss my toes.
+- The thing with prosthetic feet is you can't have all this crazy motion, or you'd be all over the place - because it's mechanical, and it's outside your body.
+- A lot of times, people think 'para' as far as 'paralyzed.' 'Para' means 'alongside,' so the Paralympics are alongside the Olympics on the same courses, the same hills.
+- I lost my spleen, I lost the hearing in my left ear, so I had a lot of internal organ damage.
+- I'm so comfortable on my snowboard that I don't have to think about it very much; it's somewhat second nature.
+- Yes, there are things that I can't change, but the things I can, I'm going to do everything in my power to work very hard through them and come out stronger on the other side.
+- I always say snowboarding saved my life. It gave me a reason to focus on the future; it gave me something to be passionate about.
+- I am not an over-the-top kind of person.
+- I have two prosthetic legs. This is my life; what am I going to do with it? And it's put me on this amazing journey. I can look back and be completely grateful and say I would never want to change anything.
+- I didn't think about money or cars or anything like that.
+- I knew I loved dancing with my friends.
+- The human foot has bones and muscles and can balance back and forth. If you step and you maybe make a little mistake, your foot can compensate. But if I step in the wrong spot, my foot isn't going to compensate because it's just one piece of carbon fiber.
+- That's really what the Paralympics is about: these amazing athletes and this technology that's allowing them to reach their full potential.
+- I lost the life that I knew, and I really had to rethink my future and think about my core values and the things that I love, and my passion, and that's really what helped me move forward. Also, for me just being grateful for what I had in my life versus on focusing on what I was losing, that really helped as well.
+- I've always been driven, and I like the creative aspect of figuring things out.
+- Just because I've got two prosthetic legs, yeah, I had to adapt in ways, but I've also become a lot stronger. It doesn't mean I'm at any disadvantage, really.
+- It's when I compare myself to what other people are able to do that I run into trouble. It is a bummer. I just constantly try to put things into perspective.
+- That's the problem with bacterial meningitis: it progresses really fast. You think you have the flu, and they say within 15 hours it's severely deadly - for sure within the first 24 hours - but even the first 15 hours.
+- I'm very grateful that I've had the opportunities I've had.
+- When disease took my legs, I eventually realized I didn't need them to lead a full, empowering life.

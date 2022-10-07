@@ -1,0 +1,67 @@
++++
+author = "Kazuo Ishiguro"
+title = "Kazuo Ishiguro Quotes"
+quotes_len = "61"
+description = "the best 61 Kazuo Ishiguro Quotes"
++++
+- I started as a songwriter and wanted to be like Leonard Cohen. I've always seen my stories as enlarged songs.
+- As a writer, I'm more interested in what people tell themselves happened rather than what actually happened.
+- There's something very misleading about the literary culture that looks at writers in their 30s and calls them 'budding' or 'promising', when in fact they're peaking.
+- I felt slightly superior to student politics, for instance. I had no reason to think this, but I thought of myself as slightly more seasoned. I became quite cynical talking to my student friends.
+- Even though I spent the first five years of my life in Nagasaki, going to Japan can be really difficult. Even if they know I've been brought up in the West, they still expect me to understand all the subtleties of their culture, and if I get it wrong, it matters much more than if a British person gets it wrong. I find it intimidating.
+- I had been plunged into a different world. I found myself spending half my time answering weird questions on book tours in the Midwest. People would stand up and explain to me the situation in their office and ask me whether they should resign or not.
+- The book was at a reasonably high position on the New York Times... before I was in the country. I thought it would be an interesting experiment to see if my presence here would push it up or down.
+- There's a practical problem about time and energy, and a more subtle problem of what it does to a writer's head, to continually analyze why they write, where it all comes from, where it's going to.
+- I think I had actually served my apprenticeship as a writer of fiction by writing all those songs. I had already been through phases of autobiographical or experimental stuff.
+- People aren't quite sure what it means when a book is a Booker Prize winner. They're not quite sure what is being recommended, what literary values it stands for, because every year it stands for something different.
+- When you're lucky enough to have a good film made of your novel - and 'Never Let Me Go' is, believe me, a heartbreakingly good film indeed - you get wonderfully talented individuals each focusing on their special area.
+- We all live inside bodies that will deteriorate. But when you look at human beings, they're capable of very decent things: love, loyalty. When time is running out, they don't care about possessions or status. They want to put things right if they've done wrong.
+- I'm always trying to make something that is impossible to film. Why would somebody just read a novel when they can see it on TV or in the cinema? I really have to think of the things fiction can do that film can't and play to the strengths of the novel. With a novel, you can get right inside somebody's head.
+- Memory is quite central for me. Part of it is that I like the actual texture of writing through memory. I like the atmospheres that result if episodes are narrated through the haze of memory.
+- When I write a novel, I want it to be completely different from a screenplay. I'm very conscious of the difference, and I want novels to work purely as novels. Otherwise I don't see how they'll survive - why don't we just all go to the movies or watch television.
+- I wouldn't want to try to adapt something of my own. It would be like going back to school and doing all my exams again.
+- When you become a parent, or a teacher, you turn into a manager of this whole system. You become the person controlling the bubble of innocence around a child, regulating it.
+- I was a little concerned that a lot of people thought I wrote Merchant Ivory movies. I also thought if I was ever going to write something strange and difficult, that was the time.
+- What interests me is the surprising enormous extent to which most people accept the fate that's been given to them, and find some dignity.
+- When I see films made from books, I make a huge effort not to remember the book. It's important to see the film as a film.
+- I'm interested in memory because it's a filter through which we see our lives, and because it's foggy and obscure, the opportunities for self-deception are there. In the end, as a writer, I'm more interested in what people tell themselves happened rather than what actually happened.
+- I've always had a great fondness for English detective fiction such as Agatha Christie and Dorothy Sayers.
+- Why would somebody just read a novel when they can see it on TV or in the cinema? I really have to think of the things fiction can do that film can't and play to the strengths of the novel. With a novel, you can get right inside somebody's head.
+- Our family arrived in England in 1960. At that time I thought the war was ancient history. But if I think of 15 years ago from now, that's 1990, and that seems like yesterday to me.
+- I spent ages figuring out things like viewpoint, how you tell the story, and so on.
+- I want my words to survive translation.
+- There was another life that I might have had, but I am having this one.
+- Screenplays I didn't really care about, journalism, travel books, getting my writer friends to write about their dreams or something. I just determined to write the books I had to write.
+- I want my words to survive translation. I know when I write a book now I will have to go and spend three days being intensely interrogated by journalists in Denmark or wherever. That fact, I believe, informs the way I write - with those Danish journalists leaning over my shoulder.
+- I'm not at all interested in the brave who fight against the odds and win. I am interested in those who accept their lot, as that is what many people in the world are doing. They do their best in ghastly conditions.
+- Now when I look back to the Guildford of that time, it seems far more exotic to me than Nagasaki.
+- I'm very fortunate in that I don't have money problems. I have lunch with my wife at home. I don't have to commute, so I have much more time with my family.
+- I try to always go for something... very interior, following thoughts and memories, something that I think is difficult to do on the screen, which is essentially a third-person medium.
+- There's something peculiar about writing fiction. It requires an interesting balance between seeing the world as a child and having the wisdom of a middle-aged person. The further you get from childhood and the experience of the teenage years, the greater the danger of losing that wellspring.
+- I couldn't speak Japanese very well, passport regulations were changing, I felt British, and my future was in Britain. And it would also make me eligible for literary awards. But I still think I'm regarded as one of their own in Japan.
+- I don't have a deep link with England like, say, Jonathan Coe or Hanif Kureishi might demonstrate. For me, it is like a mythical place.
+- I like the fact that by mimicking the way memory works, a writer can actually write in a fluid way - one solid scene doesn't have to fall on another solid scene, you can just have a fragment that then dovetails into another one that took place 30 years apart from it.
+- I loved cowboy films and TV series, and I learned bits of English from them. My favorite was 'Laramie', with Robert Fuller and John Smith. I used to watch 'The Lone Ranger', which had been famous in Japan as well. I idolized these cowboys.
+- I don't hang out with the glitteringly successful people; I hang out with people who've been friends for many years, and to some extent I feel my worldly success is a bit uncomfortable for them.
+- All children have to be deceived if they are to grow up without trauma.
+- When I got to 40 or so... I had the sense when I looked back over my life I would actually see a mess of decisions, a few of which I had thought about, some of which I had sort of stumbled on, and many that I had no control over whatsoever.
+- I like novelists who can create other interesting worlds.
+- I do feel part of that generation of people who were rather idealistic in the '70s and became disillusioned in the '80s. Not just about social services issues, but the world.
+- When I was younger, I didn't read that much. I was more interested in film and music. Now I'm curious. I want to know what it's all about.
+- People were incredibly kind to our family and went out of their way to help.
+- I work very regular hours, roughly 9 to 5:30. I think I have it much easier than a lot of parents. I just sit at home, I have a very flexible timetable, and I'm very fortunate in that I don't have money problems. I have lunch with my wife at home. I don't have to commute, so I have much more time with my family.
+- I think jogging is bad for your health. All that pressure on the knees and back cannot be good for you.
+- Many of our deepest motives come, not from an adult logic of how things work in the world, but out of something that is frozen from childhood.
+- There are things I am more interested in than the clone thing. How are they trying to find their place in the world and make sense of their lives? To what extent can they transcend their fate? As time starts to run out, what are the things that really matter?
+- What is difficult is the promotion, balancing the public side of a writer's life with the writing. I think that's something a lot of writers are having to face. Writers have become much more public now.
+- The world is crawling with authors touring now. They're like performance artists.
+- I discovered that my imagination came alive when I moved away from the immediate world around me.
+- Memory is quite central for me. Part of it is that I like the actual texture of writing through memory.
+- I had the sense when I looked back over my life I would actually see a mess of decisions, a few of which I had thought about, some of which I had sort of stumbled on and many that I had no control over whatsoever.
+- My friends and I took songwriting very, very seriously. My hero was and still is Bob Dylan, but also people like Leonard Cohen and Joni Mitchell and that whole generation.
+- There comes a point when you can more or less count the number of books you're going to write before you die.
+- We always like to keep our children in a kind of bubble and censor the bad news about the world. We like to tell them the world is full of benevolent, nice people.
+- To some extent, at least, you have to shield children from what you know and drip-feed information to them. Sometimes that is kindly meant, and sometimes not.
+- If you look at my last songs and first short stories, there is a real connection between them.
+- My wife is the most savage critic. She doesn't feel intimidated by my reputation. As far as she's concerned, she's just criticising a boyfriend who'd recently had a go at fiction. She can tell me to abandon whole novels.
+- This is the big question that we all have about our children: How much, how soon, do we tell our children the less comfortable facts about the world they're going to inherit?

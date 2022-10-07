@@ -1,0 +1,62 @@
++++
+author = "Alexander Skarsgard"
+title = "Alexander Skarsgard Quotes"
+quotes_len = "56"
+description = "the best 56 Alexander Skarsgard Quotes"
++++
+- I don't really have any plans in terms of what I want to do - movies, television, theater - but I'd love to do a play in New York.
+- In some people's eyes, nudity is so much more dangerous than violence. I never really understood that.
+- I spent two months in Fredericksburg, Texas, when I was 8, while my father shot a movie, and I loved it. I just embraced the whole cowboy culture. I got myself a pair of awesome boots and a cowboy hat.
+- Routines, or lack thereof, are a pretty good way to get to know someone.
+- Being followed is weird, that people want to discuss where I ate lunch or what I wear when I go to lunch... the private life is just gone.
+- The last book I read was Noam Chomsky on anarchism; maybe I will become an anarchist.
+- There was this sausage factory a block away from my childhood apartment. It didn't smell nice, like chorizo or something; it was pretty foul. Just nasty. But that smell reminds me so much of my childhood because every morning when I was going to school, I would smell that.
+- I'm tall in Sweden, but I'm huge in Hollywood.
+- I have to be careful because there is something destructive within me, I think, and I can have a tendency to just search for the kicks. I can't really get too close to someone who's too destructive, or too dark, because then I might go down the rabbit hole myself.
+- We are civilized human beings, but we're all animals deep down, and that creates a certain friction in all of us.
+- When you're in the public eye, we all feel like we're constantly observed, so we don't let things out. Anger, sadness, happiness - when does that come out? Maybe when you're in traffic, because you're in the safety of your little metallic bubble.
+- It was always chaos with Mom, Dad, uncles, you know; we all lived in the same building. Dinner parties with 25 people every night.
+- There's something I love about how stark the contrast is between January and June in Sweden. In a way, I feel that time doesn't exist in LA. Sometimes I don't know if it's February or April or October, because you're always sitting outside on the same patio, and it's 70 degrees.
+- Sweden is a good country to raise a family in because there is an equality there I don't feel in the States.
+- As an actor, what's interesting is what's hidden away beneath the surface. You want to be like a duck on a pond - very calm on the surface but paddling away like crazy underneath.
+- I grew up in a very urban, bohemian family where everyone was a hippie or a pacifist. It was artistically and intellectually stimulating, but they were definitely not into outdoor sports or activities.
+- It's all about trying to find those projects where you get to enjoy yourself, because I think that's when you create as well: when you're genuinely excited about something. Then you're not just doing it because it's your job.
+- My plan was never to be an actor like my father.
+- I saw 'Tootsie' with Jessica Lange when I was eight or nine. I remember feeling something in my stomach. I didn't know what it was, but I wanted to watch that movie over and over again.
+- All the characters I play are all inside of me in a way, and they're all different, the darkness, the lightness, whatever that is.
+- There are a lot of Swedes in Hollywood in general. We have a tendency to know each other and help each other out.
+- I'm really into 'Veep.' I think that the showrunner Armando Iannucci is a genius.
+- We don't have paparazzi following you in Sweden.
+- I don't like those artificial air fresheners. They just smell so fake. It's too much.
+- Life isn't one-dimensional. The world isn't simply divided into good versus evil. I think we're all capable of both.
+- I like to dress up and put on a nice suit for a party or a special event; I do enjoy it, but on a daily basis, I wear stuff that I feel comfortable in, you know?
+- I'm from Sweden. We don't wear clothes in Sweden.
+- I've always freelanced as an actor, and you always have to worry about the next paycheck. When I booked 'True Blood,' I promised myself I would take advantage of the fact that for the first time in my career, I could afford to turn down big money to go and do small, character-driven indies.
+- I'm definitely a city kid.
+- In general, we are lazy as consumers and just want to label people as good guy, bad guy.
+- I wasn't like a Hollywood child actor - 'I'm five! I can sing, I can dance, I can act! I wanna be a star!'
+- When you meet someone, of course you want it to last forever. It'd be very depressing if you didn't feel that way. But things change, and you maybe grow apart. You have to accept that.
+- You can never connect on a deeper level if you idolise someone - you don't see the real person.
+- To me, when I watch movies, it's always fun to watch the bad cop or the bad guy.
+- I'm not saying everything in Sweden is perfect, because it's not. But it is interesting having grown up in a social democratic country such as Sweden and then watching what's going on in the U.S. and the income disparity.
+- On a global scale, the way Trump talks about dealing with foreign policy is very scary.
+- When I was four or five, I would organise my cars and my action figures. I needed some kind of structure, I think.
+- It's difficult to get to know a Swede. But once you do, you're in.
+- As a teenager, I didn't want to be an actor at all.
+- When people stare at you, and you read about yourself in papers - at 13, it just got very confusing. I thought that if this is what it's like to be famous, I don't like it one bit.
+- I'm not interested in parts where they are looking for a good-looking guy. I want to be a weird little sidekick in a crazy comedy and then play like a dark drama or a thriller.
+- I've been a member of Greenpeace since I was a teenager.
+- Swedes are such a civilised, perfect society - at least on the surface. There's a great safety net, a huge middle class, free education, free health care. People are very polite, they wait their turn. They're not too loud, they're not too quiet, but sometimes it's a little too perfect.
+- When we were shooting in Shreveport, me and a couple of friends went down to Lafayette, because they had a big Zydeco music festival down there. We spent two days dancing to Zydeco music, eating fried alligator... It was one of the craziest festivals I've ever been to in my life, but I loved it.
+- The system in Sweden is great because you get free healthcare and free education; someone who doesn't have a lot of money can become a doctor or lawyer. There's good paternity and maternity leave - the U.S. is probably the only civilised country in the world that doesn't give parents anything.
+- A true artist, in my mind, is willing to fail sometimes, because if you're not brave enough to say yes and follow your gut, it's never going to be good.
+- I'm pretty intense when it comes to relationships, platonic ones as well. If I feel a connection with someone, I'm willing to go there.
+- I was thirteen, and I did a movie that got attention, and I got attention, and I didn't like it - it made me uncomfortable - so I just quit. And then I was trying to figure out what to do and was worthless at everything, so I was like, 'All right, I'll try acting again.'
+- I don't really have a three-year plan or a five-year plan. I don't know what's next, and that's what I find quite exciting. I dig it.
+- To go from 'Generation Kill,' which is a very real, dark, gritty series, to 'True Blood,' which is flamboyant, crazy, way out there... I couldn't ask for two better jobs.
+- People don't know much about what's going on on the ground in Iraq: what you see in the media is heavily censored.
+- I'm always going with my visceral reaction when I read a script. I am more drawn to characters who are conflicted, and in developing a character exploration. If it's a baddie, I'm rarely intrigued, and if it's a goody two-shoes - too much of a good guy - I'm not, either.
+- I spent a summer in Texas when I was eight, in Fredericksburg, which is, like, real Texas. It's, like, cowboys and stuff. That was my first time in the States, and I was eight years old. It was also the first time I tasted Dr. Pepper, which blew my mind.
+- I was raised by this whole community of artists. It was pretty wild.
+- 'True Blood' was the most amazing adventure of my life; I met some of my best friends.
+- I've always been interested in those Orwellian dystopian novels, like 'Fahrenheit 451,' 'Brave New World,' and obviously Orwell's '1984.'

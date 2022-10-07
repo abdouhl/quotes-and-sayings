@@ -1,0 +1,16 @@
++++
+author = "Tarsem Singh"
+title = "Tarsem Singh Quotes"
+quotes_len = "10"
+description = "the best 10 Tarsem Singh Quotes"
++++
+- Your true nature doesn't come out. So the gods let you do what you want because free will would be compromised if they showed up at the White House saying, 'Take us to your leader.'
+- I've been an atheist since I was nine years old. And my mom is really religious, so we have a strange relationship. But if my mother was right, what would be the reason that the gods could let anything bad happen in the world?
+- There are different sides to me; I wanted to make a personal film but I would not want to make any film that does not reflect me in it. At least, not right now. I'm just too young to be doing that.
+- If I had to control what I was speaking, it would be a chore. Right now I just feel I've got my shoes off, everybody comes in, I talk. If I was an actor it could be a problem, but right now I just talk all the crap, I can badmouth anybody I want, I can say what I want and move on.
+- You know, if you have a zoo you don't want the other creatures to see you. You want them to hang out and act properly and, you know, when the monkeys will come and ask for the bananas, they won't act like monkeys. If you want them to act on what their true nature is, you've got to leave them alone.
+- I love the idea of making a movie for kids but it's got to be that, with my take on it.
+- I don't have to put on a front. If I had to, it would be difficult and tiring.
+- I took two or three months and I came up with a reason that I thought was enough and I went with it: if there is a God he's definitely not benevolent. We should mean less to him than ants. And if there is a God or there are gods they would value, more than anything, free will.
+- Usually I design the lighting and when I have the physical set there, I'm not good at going out loosely and saying, 'Do you what you want, give it to the editor, and he'll figure it out.' I physically then walk on with the actors and I say, 'Let's walk until you guys feel the space works for you, and tell me when all that happens.'
+- They have horses in 'Snow White?' I am lucky nothing nasty happens to horses in 'Snow White.'

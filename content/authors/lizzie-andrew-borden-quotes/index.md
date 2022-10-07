@@ -1,0 +1,31 @@
++++
+author = "Lizzie Andrew Borden"
+title = "Lizzie Andrew Borden Quotes"
+quotes_len = "25"
+description = "the best 25 Lizzie Andrew Borden Quotes"
++++
+- I had no occasion for an apron on that morning.
+- I did not see his face, because he was all covered with blood.
+- I said I thought first I was on the stairs; then I remembered I was in the kitchen when he came in.
+- I have been away a great deal in the daytime, occasionally at night.
+- I don't know what I have said. I have answered so many questions and I am so confused I don't know one thing from another. I am telling you just as nearly as I know.
+- Go for Dr. Bowen as soon as you can. I think father is hurt.
+- I was on the stairs coming down when she let him in.
+- When I first came down stairs, for two or three minutes I went down cellar to the water closet.
+- I always went to my sister, because she was older and had the care of me after my mother died.
+- I knew there was an old axe down cellar; that is all I knew.
+- I did not hear her go or come back, but I supposed she went.
+- She said she was going out, and would get the dinner. That is the last I saw her, or said anything to her.
+- I can't do anything in a minute.
+- I don't know whether Mrs. Borden is out or in; I wish you would see if she is in her room.
+- She told me she had a note, somebody was sick.
+- Last winter when I was coming home from church one Thursday evening, I saw somebody run around the house again. I told my father of that.
+- I thought I would go out, and see if the air would make me feel any better.
+- I never eat any breakfast.
+- I know what she used to do sometimes. She kept her best cape she wore on the street in there, and she used occasionally to go up there to get it and to take it into her room. She kept a great deal in the guest room drawers.
+- I was feeling well enough to eat the pears.
+- Oh, Mrs. Churchill, do come over, someone has killed father.
+- My door was open part of the time, and part of the time I tried to get a nap and their voices annoyed me, and I closed it. I kept it open in summer more or less, and closed in winter.
+- Maggie went out of doors to wash the windows and father came out into the kitchen and said he did not know whether he would go down to the post office or not. And then I sprinkled some handkerchiefs to iron.
+- I think he came to the front door and rang the bell, and Maggie let him in, and he said he had forgotten his key; so I think she must have been down stairs.
+- I was not up stairs when he came home; no, sir.

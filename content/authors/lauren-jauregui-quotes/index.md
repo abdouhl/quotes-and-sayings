@@ -1,0 +1,105 @@
++++
+author = "Lauren Jauregui"
+title = "Lauren Jauregui Quotes"
+quotes_len = "99"
+description = "the best 99 Lauren Jauregui Quotes"
++++
+- There's this notion that artists are supposed to be dumb and frivolous. I completely disagree with that.
+- This country was built and continues to survive off the backs of immigrants and refugees.
+- I'm either dressing like a rocker chick, or I'm looking like I just stepped out of ancient Greece! It all depends on my mood. I love bohemian vibes, too.
+- I am proud to be the granddaughter and daughter of immigrants who were brave enough to leave their homes and come to a whole new world with a different language and culture and immerse themselves fearlessly to start a better life for themselves and their families.
+- If I could tell every Trump supporter two things, it would be to travel and read a history book. Look beyond yourselves; look at how petty the morals you uphold seem when you realize we are not the only ones.
+- For me as an artist, pop culture has so much power and influences society on a regular basis - I see it in the kids; I see it in everyone that I encounter. Everyone is influenced by pop culture whether we want to be or not.
+- Honestly, like, I fall in love with souls, and I don't really even see anything but that, to be honest.
+- I would say that regardless of how the brand has been created, we are four hard-working women who have succeeded in making our dream to become artists a more possible reality through this.
+- I feel like our fans identify with us because they're like, 'I'm her,' or 'I don't look like any of them, but I'm different like them.'
+- Growing up in Miami, being Cuban is integrated into our culture. When we greet anyone, we give them a kiss on the cheek.
+- I love Celia Cruz - she was also a huge part of my childhood. She's an iconic woman.
+- I really, genuinely don't look at my schedule too often, because when I do, I get a little overwhelmed by how much is going on.
+- As an artist, I don't care about where we are in the charts and all that. The important thing to me is to connect with a creative project.
+- I needed our fans to know they're loved and accepted, and fear isn't the way to go.
+- Kids would tell me I was fat and say other mean things about my body.
+- I think Ed Sheeran would be a great collaboration.
+- Having those positive friends around can really make a difference in how you view yourself. It's helped me realize that there's no such thing as having a perfect body, and just because I'm not shaped the same way as another girl is, it doesn't mean I'm not pretty. It just means that no two girls are alike.
+- I went to a high school that taught me to be more worldly. The whole curriculum was very globally based. We learned a lot about other cultures and reflected on them.
+- We are screaming battle cries against those whose political and personal agendas threaten our lives and sanity.
+- Don't lose your love for yourself and how much you've grown and how far you've come.
+- A lot of people talk, but they don't say anything. And people listen, and they don't absorb anything of substance.
+- Amandla Stenberg is so powerful in her energy and what she speaks about and what she projects. I think it's incredible.
+- It's cool to be able to give each other that space to really explore ourselves individually and grow.
+- I feel like, especially being around other girls, it's really easy to start picking yourself apart and being like, 'Wow, she looks better than me.'
+- That messed me up, growing up in the public eye when I was a teenager. That's when everyone is trying to find themselves.
+- I just don't feel limited by genre.
+- I'm marching for women; I'm marching for the LGBT community. I'm marching for immigrants. I happen to fall into all three categories, so I'm marching for myself at the end of the day and for my family and my friends. And for whoever else deserves it.
+- We're not all thin model types, and we're not all perfectly colored. It mind-boggles me that somebody would take time out of their life to make someone feel inferior because of something like that. That, to me, is insane.
+- I gave my life to this without knowing what I was doing. I was very little when I started in 5H: I was 16.
+- Read your contracts. Up and down, left and right.
+- It's hard to accept yourself when you live in a world where nobody is like you, or you feel like nobody is like you because there's no representation.
+- It's good to be an anarchist and just love yourself.
+- I'm everywhere; I'm just a soul that's floating around here on earth.
+- Societies have been conditioned to believe that entertainers are just that, but I refuse to be put into the box of a puppet.
+- I've always had this sense of justice - I get that from my mom, for sure. When you see stuff that's wrong, it's just wrong, man. You gotta point that out.
+- Two powerful women making art together is always really cool.
+- I feel like people make such a big deal out of sexuality. It's so weird to me, because at the end of the day, it's just about soul connection. It's just about who you connect with.
+- I rekindled a friendship I hadn't had in a long time, and I was reminded of all the parts of me that had left. I was like, 'Wow, I love to paint and to write and to be outside.'
+- You can't use the fact that I'm bisexual against me if that's something I'm proud of.
+- When we all start to wake up and realize that our comforts are fleeting, and more money is never going to save this world, maybe, just maybe, will we be able to return back to the grace of America's principal values.
+- I'm actually a huge fan of changing every single 'anti-Trump' sentiment to 'pro-human rights' because they are synonymous.
+- I am proud to be part of a community that only projects love and education and the support of one another.
+- Some of our songs are empowering, but I feel like more so than our music, it's who we are. We're four women who are completely different ethnicities, completely different body types, completely different walks of life and opinions.
+- We all allow each other to explore our individual things that make us happy, and so we're just being supportive of each other and making sure we focus on Fifth Harmony, and what's important to the group is important to all five of us.
+- We've digressed from the true meaning of life. We have replaced the Creator with money and claim Him in the name of war. We have dishonored our children.
+- I am proud to be a woman.
+- We know how hard we've worked, we know how our choreography makes us feel empowered. We have our voices, which are incredible and kind of surpass anything else.
+- We had so many of our fans tell us how worthless they felt before they found out about us and watched our interviews and listened to our music.
+- When someone like me, who is in the entertainment industry, which is a huge falsity of its own, tries to talk outwardly about politics, especially as a woman, I receive a lot of 'Shut up - just sing and dance for us, you idiot.'
+- I'm so proud of my girl Kehlani. She and SZA are killing it.
+- We should care about each other.
+- I want to give the girls who admire us everything I can. I don't want to just fill them with selfies and crap. That's not what I'm about. I'm about, 'Be aware of the world and that you're not the only one in it.'
+- When you really break it down to the way the world works, we're all little humans floating on a gas ball in the middle of space. That's the reality of our situation. And we've created these concepts and constructs that move us away from that.
+- If you connect with an artist because of what they make as a body of work, you feel like they're your friend. You feel like you're on the journey of connection with them because they see the world the same way you do. That's so powerful, and if you use that, you can genuinely change minds.
+- You can't help it as a human being when you're put under so much scrutiny by multiple people, not even just one person in real life, telling you something. It harms you.
+- I don't know if anyone should do anything that's not authentic to them.
+- A bunch of my fans have come up to me and said, 'Because of you, and because you came out, I have finally begun to accept myself.' That is infinitely incredible for me. I didn't expect to get to the point where I would own up to it within myself.
+- I feel like art has been at the center of change since the beginning of time.
+- I think pop culture has always influenced society.
+- We like that when girls look at us, they don't see perfect little blond-haired, blue-eyed Barbie dolls.
+- My grandparents and my mom came from Cuba back in the '60s because they were fleeing from communism and Castro. I wouldn't be here otherwise.
+- Every time somebody asks me, 'Oh, when you mix your own music, what are you going to make?' And I don't know.
+- It's truly disheartening to me to see so many beautiful women who have no idea what their potential is.
+- My theory is the spectrum: there's a spectrum of sexuality.
+- I like the ability to engage intellectually with someone. I get so bored so quickly, so if you can't keep me interested, then I'm out.
+- I love every time that I get to be on a stage with Halsey. She's so incredible.
+- We want to just make music that impacts people - we don't really care about the rest.
+- If you love women, and you want to sing about love, don't feel the need to say 'he.' Don't feel the need to adapt to the society or the culture.
+- There's straight people, and there's super gay people, and then there's everybody in between, and everybody is a little bit of something because sexuality is fluid.
+- I wasn't born into a family that told me that I wasn't capable of what my brother was capable of. I can do anything.
+- I love music; I love performance. I love everything revolving around art. But I also am really passionate about politics and human rights and science and the environment. Those are things that fascinate me.
+- We're learning the business, meeting people we need to know, getting knowledgeable about our craft.
+- I have a lot of people in my life who support me.
+- For me, coming into my own and being comfortable with myself really changed me as a person and made me more confident and vibrant.
+- For me, I love Marc Anthony a lot. He's one of my dad's favorite artists, and I listened to him a lot growing up.
+- Even the fact that I labelled myself makes me mad sometimes, because dude, I'm just a free spirit.
+- What I would tell everyone is don't lose your sense of individuality.
+- They sell you this present of rainbows and butterflies, and as a 16-year-old, that's what I bought. It's why I did 'X Factor' and why I ended up in a group. But then you're working so hard, so young.
+- I think that until we're 21, human beings don't get to know themselves very much.
+- You need to accept yourself for who you are and surround yourself with a good group of girl friends that'll lift you up instead of put you down.
+- We're all really passionate, and we voice it in our own way, and we all come from a loving place and see from the same perspective, which is why I feel so blessed to be part of this group.
+- I think that people have a very strict perception of what a pop artist is.
+- When we auditioned for 'The X Factor,' we were five individuals going into the show. That obviously means we are five solo artists in our beings, so we have our own creative ideas, of what sounds the best music-wise, because we are all artists.
+- We have an energy about us that's so unique and so intense, and it's because of how much power we have in us as individuals, being confident, harnessing that power, and wanting to share that with other women.
+- I do feel like the blogs that I follow share an aesthetic and draw a lot from '90s influences.
+- We definitely work hard, and we want to keep our fans engaged... we want to give them new music.
+- I was raised to feel that I can do anything, and I will always believe that.
+- I'm proud of myself, and I'm going to continue to grow.
+- I like to dress in edgy black leather and denim, but I like a wide range of things.
+- When I was in fifth grade, I got bullied really nastily about my appearance.
+- I feel like a lot of people disregard the scrutiny that people like us are under.
+- I've been outspoken forever about everything.
+- For me, honesty is a huge thing, and loyalty, when it comes to relationships.
+- Doing something that is your passion, in my case related to music and art, being a performer playing shows around the world, that is a dream come true.
+- Women are super-dynamic. I can be whatever I want to be. I can have interests in so many different kinds of things.
+- I feel like all four of us are really powerful in our messages, what we speak about, and what we are about.
+- I've always been passionate about human rights in general. I think anyone who knows me can attest to that.
+- I am a bisexual Cuban-American woman, and I am so proud of it.
+- It's amazing the support we've been able to get from Latinos and just in general from everyone.

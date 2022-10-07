@@ -1,0 +1,20 @@
++++
+author = "Arthur L. Herman"
+title = "Arthur L. Herman Quotes"
+quotes_len = "14"
+description = "the best 14 Arthur L. Herman Quotes"
++++
+- The most interesting statistic, stunning statistic that came out of my research was that in 1942, as this war production effort is going on, the number of Americans killed or injured in war-related industries surpassed the number of Americans in uniform killed and wounded in action in the war by a factor of 20 to 1.
+- The lesson of the Cuban Missile Crisis is plain: Strength prevents war; weakness invites it. We need a commander-in-chief who understands that - and who won't leave us facing a foe who thinks he doesn't.
+- Few Americans realize it, but the United Nations is driving to take control over the Internet. You remember, the folks who want a worldwide income tax and who put Syria and Iran on their Human Rights Committee.
+- Gandhi wanted to meet with Churchill, his most bitter foe, when he visited London in 1931- but it didn't happen. Churchill wanted to go to India personally as prime minister in 1942 to negotiate a final settlement on India with Gandhi and the other nationalist leaders - but the fall of Singapore prevented it from happening.
+- Some say Edward Snowden is a hero and a patriot. Others say he's a fool and a traitor. The evidence is mounting that the guy who leaked the details about the National Security Agency's Internet-eavesdropping program may be something more sinister - namely, a willing tool in China's ongoing cyberwar against our nation.
+- It is a fact that the Left routinely resists, then as now: Americans fought and died in Vietnam for freedom, just as they are doing in Iraq and Afghanistan today. Whatever mistakes generals and policymakers have made along the way cannot detract from that essential truth - which should be a part of any reliable history.
+- Whatever one wants to say about the conduct of the Iraq War, going to war to remove Saddam Hussein in 2003 was a necessary act. It should and could have been done earlier, had not the Clinton White House, which understood the need, not wasted the opportunity through timidity and bluster.
+- You have to remember that although Gandhi and Churchill only met physically once, their paths crossed again and crossed again all over the globe, from London and South Africa and India and back to London. In fact, I discovered that during the Boer War in 1899 they literally passed yards from each other on the battlefield.
+- I guess the most surprising discovery was how long Gandhi remained loyal to the ideal of the British Empire, even in India.
+- Most people today don't feel that Barack Obama is on our side. We sense he's incapable of doing what Roosevelt did, of loving his country so much that he was willing to run great risks in order to advance its cause, to free others from a new Dark Age - and protect our own liberty in the process.
+- Millions of Americans cannot tell you who lived at Mount Vernon or who wrote the Declaration of Independence - let alone the Emancipation Proclamation. But they know that to be 'a Benedict Arnold' is to be a traitor of the deepest dye - someone who coldly betrays not only a sacred cause but every moral scruple along the way.
+- In his final year in office, Clinton decided that his contribution to Middle East peace would lie not in the removal of Saddam Hussein but in a grand attempt to resolve the conflict between the Palestinians and Israel. With this, he missed his last chance to deal forcefully with the man he was publicly committed to overthrowing.
+- Edward Snowden may not be a Chinese mole, but he might as well be. He's just handed Beijing a major score, while the NSA struggles to pick up the pieces - and the rest of us pay the price in terms of future national security.
+- Letting the greens dictate your energy choices, whether it's halting the XL Pipeline or fracking in New York, isn't just bad economics. It can also leave your rivals and enemies controlling your energy destiny.

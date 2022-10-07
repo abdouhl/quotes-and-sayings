@@ -1,0 +1,98 @@
++++
+author = "Luis Enrique"
+title = "Luis Enrique Quotes"
+quotes_len = "92"
+description = "the best 92 Luis Enrique Quotes"
++++
+- In order for a player to score goals, he needs minutes.
+- In football, you have to be consistent.
+- When you play against Athletic, you know there is no easy ball.
+- I don't talk about what happened after one game or the other. We look at a season as a whole picture.
+- When you're leading 4-1, the opponent has nothing to lose.
+- Ernesto Valverde is a great coach.
+- Once the game is decided, everyone looks to score. It's natural.
+- Dani Alves is a special player, in my opinion.
+- When we have a defensive situation in which we are conceding too many goals, it is not just a problem in the defense but the entire team, starting with the coach.
+- Bravo, Marc-Andre ter Stegen, and Jordi Masip are three goalkeepers of the highest quality.
+- Football is a contact sport and sometimes is difficult to measure that.
+- I like to be close to the players and listen to what they've got to say and feel. Then I make decisions from a coach's point of view, thinking about what's best for the team.
+- When someone oversteps the mark, there's a referee.
+- Messi will be great regardless of the position where he plays.
+- Players need to control their emotions as much as possible.
+- I always want all my players to improve and do even better.
+- Against a team who are tight inside their area, you look to find combinations, the center with the wings or with shots from outside the box.
+- I focus on football. I'm not interested in gossip.
+- The captains of the national team are the ones that have played the most matches. That's what I had in the national team. Maximum respect to those players.
+- I've got no interest in justifying myself to a player of mine.
+- I've always heard Leo saying he is happy at Barcelona. I'll take the message that he is very comfortable here.
+- I've been satisfied with everything since I arrived at Barca, and I'm pleased with the players' attitude.
+- Pedro has special qualities. He adds a lot, dribbling, scoring, keeping the pitch wide. He's always ready to compete.
+- Things don't always work out as you want them to.
+- At Mestalla, with their support, it's always tough. I don't remember any easy game.
+- Being praised constantly weakens you.
+- I always think we have to be cautious with our attitude to refereeing the professionals and the people in the football family.
+- The limits are set by the referees. Those are the ones who are in charge of making sure this is football and not American football.
+- Records are always something that will be achieved, but they're not our aim. Our aim is to win games and nothing more.
+- Coaching the national team would be great.
+- I do what I want.
+- Results like 8-0 wins build confidence.
+- I think Messi's is a fantastic attitude and should be the mentality that all top players in the world should adopt.
+- I don't really have a bad memory of anyone I've played against.
+- Everybody has the clarity of telling I haven't seen a player like Lionel Messi, and I am fortunate for training and seeing him every day at the training field. And even sometimes he surprises you with some good performances. There is not comparison with other players I have seen along my life. He is unique.
+- The players on the pitch are the ones who decide who takes the spot-kick.
+- It's always bad news when a player gets injured - dreadful news.
+- It seems Barcelona are expected to win every title, but it is not always like this. People think Barca win automatically, but that's not the case.
+- If we want to be champions, we have to do our homework on all opponents, regardless of their position in La Liga or the stadium.
+- I want to win every game.
+- Xavi playing 750 games for Barcelona is a lot.
+- I like teams which repeat their style, clubs that are synonymous with one style.
+- It's difficult to understand someone leaving Barca, with the best players in the world.
+- Pep's Barcelona was spectacular. They had a collective style based on players of talent, which sought control and sought to dominate all over the pitch.
+- We need the ball even to defend; that's our objective: having the ball and having it as far as possible from our goal as possible.
+- Leo would also be unstoppable if I played him at full-back. Messi is simply the best there is.
+- It's always tough playing away from home.
+- I want all the titles.
+- Guardiola is the best because he has won so many titles, because of the way he did it, and because he's adapted to another country with a very difficult language, and he's implanted his ideas.
+- I feel happy because I have enjoyed a lot making Barca fans happy by winning trophies, and that makes me proud.
+- You learn something from everyone, even the bad coaches because they tell you something and you think, 'I'll never do that in the future.'
+- I think Luis Suarez, not just with the physical side of his game but his capacity to shoot with one touch in the box, knowing where the goal is is great.
+- Being a player for a big team like Barca, you have to be very strong.
+- He has ambition and hunger, but I would not say Messi is the only piece of art at Barca.
+- Nobody wins the league in December. We have to go game by game.
+- The strikers need the midfielders, defenders, and goalkeepers. My objective is to have everything work in all the aspects.
+- When I leave Barca, I'm sure I'll take at least a year off.
+- Messi is the best in the world, even when he is defending.
+- I think it's fantastic that players can decide to go to China and earn more money.
+- Messi is 'The Matrix' - that image when everything slows down, and he can do what he wants.
+- If Leo is at his level, it's going to be very difficult to find a solution to stop him.
+- I love coaches that think more about attacking than defending. As a football fan, I think that's wonderful.
+- I normally talk to my players about everyday situations, and there are not really any secrets.
+- I've never known anybody who is able to see what's behind him.
+- Every coach talks to their players. Imagine not talking to Lionel Messi - that would be ridiculous.
+- I've always said that regardless of memories, tomorrow is an important game.
+- To be a Barca goalkeeper, it's not enough to have quality. You have to make decisions and execute them.
+- I like adversity; that's how I am.
+- Messi is an extraterrestrial in every sense, and I'm very fortunate that I was able to enjoy the best, or one of the best, versions of him. Without a doubt, he's the number one, and to be that, you have to control every aspect and be very strong physically.
+- I like Southgate as a manager, what he brings. He always wants the ball and adapts to the players.
+- A coach's life is that, when you win, it is easy, and when you lose, you're no good; it's all your fault.
+- I have to take criticisms, and I will continue to take them for what I think is best for the team.
+- I love offensive coaches.
+- Conquering titles is not very easy.
+- I like there to be a good atmosphere in the dressing room, for music to be played before matches. We have to entertain the fans and have a good time ourselves.
+- Players become stronger when they win titles.
+- This is a sport for crazy people, a unique sport.
+- I work every day 100 percent, but I assure you that I'll quit if my players don't follow me.
+- How marvellous it is to enjoy Messi. No one can touch his numbers, and it is impossible for anyone to do what he has done apart from him.
+- If the teams with the best players always won, football would be boring.
+- There's no other club where I'll be able to work with better players than at Barca.
+- Nobody wins the league in December.
+- Any one of Messi, Neymar, Xavi, or Suarez can take penalties; it doesn't matter.
+- You have to be prepared for situations on and off the field, and everything that happens within the world of football. It's difficult for players at big clubs to deal with these things.
+- Scoring a goal is very important for us, but the objective is to win the match.
+- Messi no longer surprises me.
+- The trainer I learned most from about the field of play was Van Gaal, even though he's the one I've had the most confrontations with - well, disagreements. He's got an obsession with work ethic, the way he plans.
+- There's always a possibility that players can come and go when the market opens.
+- The objective is always to win.
+- My job is to improve the performance of the team game by game.
+- Coaching Barca involved dedicating all your energy to the team, the club, and the players. And when you see the end is coming, you have to take it in, accept it, and communicate it. There's nothing else you can do.
+- I'd like to manage in England at some point. My wife wouldn't like the weather; she's from Barcelona and likes the sun. It would depend on the team and the football they played.

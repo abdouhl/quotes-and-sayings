@@ -1,0 +1,44 @@
++++
+author = "Timothy B. Schmit"
+title = "Timothy B. Schmit Quotes"
+quotes_len = "38"
+description = "the best 38 Timothy B. Schmit Quotes"
++++
+- I'm a fan of all music, and probably my first - well, not the very first music I listened to, but back in the late fifties, when I first started hearing rock & roll, it was definitely tinged with doo wop and also Elvis and all those great songs.
+- The two most mysterious things in our lives are birth and death. They are both miraculous events; one brings shiny, brand new life into the world, and the other snuffs it out like that. That person isn't there anymore.
+- I got to see The Beatles a couple of times. In fact, I saw their last performance ever in San Francisco. The Beatles were massive to me - I learned so much from them.
+- My youngest is 26, and so I hardly remember life not being a father, but my wife and I were hands on-parents.
+- I'm not a big fan of file sharing. I mean, I've done it quite a lot for other people, where they send me the file, I do it and send them back. You don't get any back-and-forth and exchange and feedback when you do it that way.
+- I've had a lot of people pass away in my life. I guess it's all a matter of how you deal with your mortality - and recognizing that you are mortal. I'm trying to see what a gift life is and how quickly it can be extinguished, without any warning.
+- I do not run my band like The Eagles, for sure. I've never had to be heavy handed.
+- Being a parent is one of the hardest jobs there is. It's one of the greatest things, too, but it's also probably the hardest thing anybody ever does.
+- I grew up pretty much living in trailer houses. The third and final trailer house was called an 'Expando' because you could actually crank it open from 8 feet to 15 feet wide. It was a virtual palace for my brothers and I.
+- I've always been music-oriented. My dad was a musician, and I listened to the radio all of the time.
+- A great song has to stand on its own, just singing and playing, and the rest is frosting. But you have to pay attention to the frosting.
+- Jazz doesn't have much to do with how I write songs, but I am a big fan. My favorites are Oscar Peterson, Ahmad Jamal, and Mose Allison.
+- I play some places where the people are right at my feet, and you can see their expressions. It's kind of more like playing in your living room. It's almost easier to play in front of thousands of people in an arena scene, in some ways, but you don't get the personal contact.
+- Wherever your musical interest takes you, whether it's just in your garage or in your shower, never forget why you started. Keep that first and foremost in your mind.
+- I traveled a lot, but we didn't hire nannies to take care of our kids. We were both very hands-on. My wife did the lion's share because I traveled a lot, but it was important to us to do our best.
+- One of the important things when you're making a record or doing a performance is the sequence of the songs. It really matters a lot because you want your project, your show, or your albums to sort of have a life.
+- I try to live in a state of being grateful as much as possible. I'm not always successful.
+- Writing a song is work. You have to go deep in order to mine the material and dig it out.
+- 'White Boy from Sacramento' is just sort of a tongue-in-cheek autobiography. I hoped it came out a little humorous, but it's really all true.
+- People would call me up because they liked my voice, and they wanted some kind of vocal harmony. Sometimes I was asked to come in and sing all the harmony parts, and sometimes I would sing with other people.
+- Even though I grew up playing folk music - and surf music, originally - I was listening to Motown and Stax on the radio as well. That music always resonated with me.
+- We all go through different mood changes. I'm just a person; I've got all those emotions going like everybody else, and sometimes it gets the better of you.
+- I'm good at fitting in, and I think I'm fairly perceptive about moods and psychic environments.
+- I have an interest in Native American artifacts, mainly Plains Indians from the 1840s to the 1900s, and I go in and out of that. I get really into it, and then I put it down, but it's surrounding me.
+- Music's always been a big part of my life. Because of my father, I was always surrounded by music and musicians, and in school, I was in the chorus, and I played various instruments.
+- It seems like people are just dropping off the Earth. I suppose that happens when you get older. It's part of life. No one's getting out of it.
+- I write songs; I record them. When I get enough, and it seems like a coherent piece, I call it an album.
+- Although I was writing songs when I was younger, I didn't feel I had much of a clue as to what I was doing or how I was doing it. There are a few songs from my past where I thought, 'Well, that's pretty decent,' but I didn't have a discipline. I suppose I'm kind of a late bloomer.
+- There is a song called 'I Refuse,' and I get a bit scolding, I suppose, in a way. But it all comes back to elements of hope, and in the case of that song, it's basically, 'Okay, you're trying to suck me into this world of negativity, and I'm not going to go there. I'm going to live my own life.'
+- My dad and I didn't talk much. Our relationship was OK but not amazing. So there I was, dressed up in my sort of uniform, the clothes my band was wearing at the time. He could tell I was I getting serious. I guess he knew I was going to go for it. So he told me how to handle myself professionally, not to take what people write about me to heart.
+- I didn't really think too much about being any kind of pioneer. The truth is, I actually kind of caught onto a couple of really great coat tails in my career. The things were already moving when I got involved in both cases, really - Poco and the Eagles.
+- It took me a while to get an electric guitar and a bass and amps and stuff. Playing the acoustic guitar was much easier and more affordable. But I was always listening to the radio and was interested in all the rock and pop music.
+- When I was in grade school, I remember singing in a chorus where they actually had two parts going. It was very easy for me to pick out the harmonies, and I kind of just went with it.
+- I just want to keep going as long as I can. I'm getting older, and I want to keep growing, and I feel pretty excited about what I do. Whether it's true or not, I believe I'm doing better as a writer, which is really nice.
+- Working solo means you don't have to account for anybody else. You do it yourself, so you're not trying to please others as well as yourself; you're just trying to do the best you can.
+- I was playing surf music with my band when a girlfriend of mine who had come from Los Angeles took me to a James Brown concert. That show really changed my whole outlook and thought processes, especially about music and different cultures.
+- I did a lot singing for one album for Crosby, Stills & Nash, and at the time, they didn't want anyone to know it wasn't Crosby.
+- I probably learned most of my craft from singing to the radio.

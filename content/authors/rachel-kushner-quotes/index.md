@@ -1,0 +1,138 @@
++++
+author = "Rachel Kushner"
+title = "Rachel Kushner Quotes"
+quotes_len = "132"
+description = "the best 132 Rachel Kushner Quotes"
++++
+- I am a rereader. Quality is variety if you wait long enough. Barthes, Baudelaire, Benjamin, Celine, Duras, Faulkner, Fitzgerald, Melville: There is so much to revisit. 'Ingrid Caven,' by Jean-Jacques Schuhl, is always in rotation. I used to read 'Morvern Callar,' by Alan Warner, every year - I adored that book.
+- Publishing is not my world.
+- I spent ten years riding motorcycles.
+- For me, everything about the telling is guided by tone. It's a bit mysterious; it's either there, or it isn't.
+- I think sometimes writers can get themselves into trouble trying to exert a totally controlled and super-knowing tone. This kind of knowingness is not the most promising tone to be sustained throughout a novel, to have a young woman who understands everybody and is always reading a room perfectly.
+- My dad had a Vincent Black Shadow, which was a quite particular thing: it was the fastest cycle of its era... It sparked a world for me; when I was old enough, I got a motorcycle.
+- Futurism eventually got marred by its link to Fascism, but early on, it was totally avant-garde, and I wanted to dream a phantom link from the early futurists to the politically radical Italy of the 1970s, a time of fun, play, subversion - if also violence and mayhem.
+- I think the art world heightens the intensity of desires for inclusion, and the humiliations of exclusion, which is why it's a great place to circulate when you are in the lucky position, as I am, of not wanting or needing anything from anyone.
+- I guess I'm not really fond of just chit-chatting. I want to learn something and have an experience.
+- It's a cliche, and in a way it's a conservative idea about fiction, but I did learn the hard way that plot does need to dictate the story.
+- When the art world is done wrong, a reader's faith is lost and possibly not recuperable.
+- I like Baudelaire's sentences quite a lot. I read and re-read him very often.
+- Most go to prison not on account of their irreducible uniqueness as people but because they are part of a marginalized sector of the population who never had a chance, who were slated for it early on.
+- Art is like a stock with a decent return for people in finance, and they get to feel like they are involved with culture, spend time with artists, as part of their dividend.
+- I steer clear of books with ugly covers. And ones that are touted as 'sweeping,' 'tender' or 'universal.'
+- The interaction between the two matters, but to me, each doesn't really exist independently of the other, so I'm not ever faced with a situation where the tone is wrong for the story, or the story wrong for the tone. They are two parts of one thing.
+- I am just getting into Zora Neale Hurston, who is possibly a much better writer than the critics and rivals who tried to erase her from history, resulting in a life in which she worked as a maid and died in a welfare nursing home. She's clever. She does something modern to the sentence.
+- I'd say it's okay to be political and to be a writer. Those streams can be separate, and they can be connected; for me, they're both. Life is political, and I'm interested in my community and in a lot of issues - some of them American, some global.
+- Growing up, I was not told that there were women's areas of preoccupation or male ones.
+- Artists are political in the sense that they've subtracted themselves from the structure of the marketplace and are contributing something that's not utilitarian. Even though books get sold, and I get advances, I get to look at society and think for a living.
+- Our parents had Ph.D.s, but we were dirty ragamuffin children. I spent a huge amount of time by myself. I daydreamed and learned how to be alone and not be lonely.
+- I'm a kind person; I don't have a really nihilist streak in me, but I respond to that kind of humour.
+- I don't pay attention to auction prices. Nothing interests me less. One of the benefits of not being an artist is I don't have to navigate the social hierarchies of the art world as a person of desire. I don't need anything. I live in a different way.
+- I'm not the kind of person who would want to go into a studio and manage other people and listen to the phone ringing. That's alien to me.
+- Danzon is my favorite Cuban music, played by a traditional string orchestra with flute and piano. It's very formally structured but romantic music, which derives from the French-Haitian contradance.
+- My older brother, Jake, and I had a bohemian childhood. My parents are deeply unconventional people from the beatnik generation. They weren't married, and I thought that was normal. We called them by their first names.
+- I was very precocious when I was young. I went to college at 16, and I graduated at 20. I wanted to be a writer, but I was more interested in experience than in applying myself intellectually.
+- I shy away from plot structure that depends on the characters behaving in ways that are going to eventually be explained by their childhood, or by some recent trauma or event. People are incredibly complicated. Who knows why they are the way they are?
+- I had a Stuart Davis poster growing up.
+- Art is something special because it can come up with a way of approaching the truth that is a little to the side.
+- I have spent a lot of time in the art world, and I guess I do listen to how people speak. I'm interested in what they say and how they say it.
+- I know what it's like to go very fast on motorcycles. Those moments, they stay with you.
+- I didn't do a masters in creative writing until I was 26, which is quite old, and then I found myself in New York and I needed money, so I started working full time as an editor.
+- I grew up in Oregon, and then I lived in San Francisco and New York.
+- Telluride has an incredible history and reputation, and I've long known of it as a unique entity that makes a place for writers - one more aspect of this exceptional film festival in the Colorado Alps.
+- Artists complain about the art world until it starts rubbing their back, then they have their love affair with it.
+- Eventually, I decided that if I was going to really write a novel, I couldn't do it in New York City while holding down a job. You need a constant money source to live in New York City unless you're independently wealthy, which I'm not.
+- Themes only arise after a novel is written, and people begin to try to talk about it.
+- Flamethrowers have been used by many armies in many wars, including by American Marines in Korea and Vietnam. They cause horrific deaths and are thus a serious public-relations liability. The U.S. military apparently phased them out in 1978.
+- When I see someone for the first time in a while, and they ask, 'How have you been?' or 'What have you been up to?', it's politeness but a bit of a conversation stopper.
+- I don't think a woman riding a motorcycle thinks of herself as doing something that has sex appeal. I think she's trying to replicate for herself an experience that she sees men having.
+- A lot of politics in art is just institutional critique, which, in my opinion, is not all that political.
+- I have spent a lot of time listening to people who are serving life sentences and getting to know them and the circumstances of their lives. I have never met anyone serving a long prison sentence who had anything close to what I could call a childhood; instead, the upbringings always - always - involve extreme situations of poverty and abuse.
+- I am occasionally enraptured by Western landscape. But I don't identify that state of mind as having to do with my own origins, having grown up in the West, although I certainly crisscrossed Nevada countless times growing up, and then as a young adult, in cars and on motorcycles.
+- I don't really know what the Great American Novel is. I like the idea that there could be one now, and I wouldn't object if someone thought it was mine, but I don't claim to have written that - I just wrote my book.
+- Italy in the Seventies seems like a fascinating place.
+- Painting was a problem - you produce a thing, and then you sell it and get money, and that was quickly considered totally uncool.
+- When one is the type of writer who cares about the meaning of the historically specific setting, the history itself is not something that I would call backdrop. It's not window dressing for a timeless relationship about love and betrayal. For me, the setting and the specific history are active co-agents with me in trying to form the novel.
+- The Seventies seemed like this really open time. There were a lot of strong women characters deciding what kind of artists they wanted to be.
+- The art world is filled with vibrancy.
+- I try to show ugliness, but with compassion for the people who commit ugly acts.
+- Happiness is a mysterious concept. It seems to work best as futurity: at that point I will be happy, et cetera. I feel like I experience small pieces of joy day to day.
+- I'm very interested in the idea of a large group of people who come together quite suddenly, but not illogically, for reasons that could not have been anticipated.
+- The 1970s seemed particularly playful. People were trying to make work that couldn't be sold.
+- I get the feeling that people from outside the world of contemporary art see it as deserving of mockery, in an emperor's-new-clothes sort of way. I think that's not right and that it's just because they don't understand the discourse.
+- The social dimension of the art world is fascinating to me, but I also want to entertain the reader, so I will let a character say something funny.
+- From 'Midnight Cowboy' to 'Taxi Driver' is a brief era whose grit, beauty, and violence has been quite mythologized.
+- Danny Lyon is one of my favorite photographers.
+- I usually get up between 7 A.M. and 8 A.M., have coffee, and go right to work. It's really important not to get sidetracked in the morning so I'm still in that dreamy state for my writing.
+- I have never liked the 'Been there done that' thing... You hear that all the time from people, and I think it's just based on pure insecurity... Each person is going to have their own unique take on something.
+- Even if it happened in real life - and oftentimes, especially if it happened in real life - it might not work in fiction.
+- I like to read novels where the author seems knowledgeable, like someone you know you could walk calmly next to through a complicated situation, and he or she would be alive to its meaning and ironies. And you wouldn't even have to mention them out loud to each other.
+- My neighbors think I do nothing because I don't go to a job, which is fine and good.
+- I don't start with a list of historical scenes that I want to include in the book. At a certain point, the narrative totally takes over, and everything that I include I can only incorporate if it answers to the internal terms of the novel.
+- In fiction, there happens to be a long history of creative engagement with marginality, with the very human components of society that others don't want to think about, from writers such as Dostoyevsky, Baudelaire, and Rimbaud to Genet and Sarrazin and right on up to Norman Mailer.
+- I knew that I wanted to write about a very young woman because I wanted to see the eyes of the art world in a fresh or even slightly naive way. Because there's something very honest about entering a room and not having a read on everyone there.
+- At home, I dedicate occasional whole days to reading as if I'm a convalescent. The ideal place for this is the bath, where the body floats free. Books go a little wavy, but they're mine, so who cares.
+- My parents were hippies.
+- One is sometimes meant to reassure the reader that she's qualified to write about a certain topic.
+- I don't like the info-dump, as it's known.
+- I was really inspired by these larger-than-life female artists like Lee Bontecou and Eva Hesse and Yvonne Rainier and the incredible Lynda Benglis. There were many women who were really driven and became successful, who were part of essential paradigm shifts, despite the fact that the art world was still dominated by men.
+- I always collect images, maybe because I was working with historic material - but even if I were working with contemporary material, I would do the same thing. I keep a kind of index of them while I'm working. I find them incredibly useful, not so much to illustrate a time, but to give some sense of the feeling of a time.
+- A historical event represents the best and the worst of that moment.
+- I am not a sun person at all. I think it's a cancerous poison and I don't want it touching me.
+- 'Blood Meridian' was without question the novel that made me want to become a writer.
+- There were people in Cuba who truly had substantial things to gain from revolution. There were people who had things to lose in the revolution. I think they're all allowed to have their memories of what happened.
+- I think that when the social stakes for people are higher, how you present yourself may sometimes feel like it's going to inform your destiny. Because if other people regard you in a certain way, they'll want to help you, and you will end up having a career.
+- Writing does produce a very unique satisfaction. There are times when I'm writing that it's frustrating or appalling or difficult, but when it goes well, it goes really well, and there is a feeling of rightness, like I'm doing the thing I was meant to do, almost in a mystical way, like I'm at an appropriate angle to the world.
+- Art breathes into life a surplus that is both vital and extraordinary.
+- I don't have any outside view of myself, and if I did, I would probably be creatively inhibited. I just write in the way that I write.
+- I don't believe that intelligence can be reduced to a number, frankly. But I can see how doing exactly that produces a useful sorting mechanism in our society in order to separate children into categories of promising and doomed. The tests seem arbitrary and without real scientific value and yet have lasting consequences.
+- I don't write listening to music, and in a way it seems silly that any writer should have to explain why not, as it's possibly no different from saying you don't eat gourmet dinners or play tennis while you're at the keyboard.
+- It's really a misconception to identify the writer with the main character, given that the author creates all the characters in the book. In certain ways, I'm every character.
+- If a writer is always trying to keep a narrator emitting a tone of complete knowingness, it can become false.
+- Eventually, I grew out of my interest in motorcycles because they're quite dangerous. I don't ride them anymore. But I have this history.
+- The late Seventies was the death of the manufacturing age in the United States. It was also a time when the Pictures Generation artists were getting started. They co-opted the language of advertising. The factory disappeared, and weirdly, so did the art object - it was the age of making gestures, not objects.
+- L.A. is a great place to write because you have a lot of space. I have a big office at home, I can leave the doors open. Flowers bloom all year. But it's unglamorous in all the right ways.
+- Tone is somewhat totalising in that, once I locate it, it tells me what kind of syntax to use, what word choices to make, how much white space to leave on the page, what sentence length, what the rhythmic patterning will be. If I can't find the tone, I sometimes try narrating through the point of view of someone else.
+- It's through engagement with the world, and not separation from it, that something with meaning gets produced.
+- Art is about play and about transcendent meanings, not reducible to politics.
+- I'm hesitant to ever take on the crest of the veteran. So I don't know who I am to warn the younger writer about the perils to come. I think maybe the most dangerous influence is to think you have all the answers and should be giving counsel.
+- I get the feeling that people from outside the world of contemporary art see it as deserving of mockery, in an emperor's-new-clothes sort of way. I think that's not right and that it's just because they don't understand the discourse. The art world is filled with vibrancy.
+- Like most writers, I've read a lot of Hemingway, and I admire him greatly.
+- I got all my politics and culture and my sense of the great wide world of adults from 'Mad Magazine.' But all other comic books literally gave me a headache.
+- Writing is a way of living. It doesn't quite matter that there are too many books for the number of readers in the world to read them. It's a way of being alive for the writer.
+- The great thing about writing is that it has to work without that invisible layer of the reader's added knowledge.
+- I don't read for plot, a story 'about' this or that. There must be some kind of philosophical depth rendered into the language, something happening.
+- I spent a huge amount of time by myself. I daydreamed and learned how to be alone and not be lonely.
+- One of the strategies for doing first-person is to make the narrator very knowing, so that the reader is with somebody who has a take on everything they observe.
+- Subject matter is sort of overemphasized in the way books get discussed, I think.
+- My mother told me many stories about her childhood in Cuba. Living there had a profound impact on her and how she regards herself.
+- We're all performing for someone.
+- I suppose I am interested in women plus anonymity plus disappearance.
+- I'm drawn in some strangely natural way to immersing myself in a milieu whose rules I don't understand, where there are things you can't access simply by being intelligent or doing well in school.
+- I know there are writers who like to say that every novel is hard, and it doesn't get easier. That may be the case, and I've only written two. But the first, to me, was characterized by an enduring oscillation between perseverance and a profound doubt.
+- Success is a completely abstract thing - it has no bearing on daily life, family matters, the matter of artistic creation, but it can affect grace, and if I lose that, I really have gained nothing from success.
+- A novel is not a rant.
+- I love the novels of Didion and Bret Ellis and consider them L.A. writers because they write about L.A.
+- I'm a very interior person. I love silence. I revel in it. I'm happy that way.
+- I begin a book with imagery, more than I do with an idea or a character. Some kind of poetic image.
+- I have to arrange my life very carefully. I need eight hours' sleep to work.
+- These women were taking over these former manufacturing warehouses in SoHo and figuring out a way to be fashionable and viable without money. It's hard to imagine a life like that in Manhattan now - there's something romantic about it.
+- I have crashed on a motorcycle that was going at 140mph, so I know what it feels like.
+- I don't believe in the model of pure inspiration. All of my creative work stems from a dialogue with others.
+- Story and plot, not historical facts, are the engine of a novel, but I was committed to working through the grain of actual history and coming to something, an overall effect, which approximated truth.
+- It's no secret that Cuba is a typical Latin American culture in that it has a fair amount of homophobia. Homosexuals have been notoriously persecuted under Fidel's government.
+- I am not fond of lengthy descriptions of phony artworks.
+- Citizenship and ethnicity can become, in certain contexts, restrictive, and perhaps that's one reason I was interested in people who feel compelled to mask their origins and thereby circumvent the restrictions.
+- I'm not sure if you can strive your way into a career as a novelist. You have to write books; there are no short cuts.
+- I steer clear of books with ugly covers. And ones that are touted as 'sweeping,'_ 'tender' or 'universal.' But to the real question of what's inside: I avoid books that seem to conservatively follow stale formulas. I don't read for plot, a story 'about' this or that.
+- When I see things in the world that leap out at me, I want to make use of them in fiction. Maybe every writer does that. It just depends on what you claim or appropriate as yours.
+- Writing a first novel was an arduous crash course. I learned so much in the six years it took me to write it, mostly technical things pertaining to craft.
+- Proust is a huge author for me.
+- I have enormous respect for people who are gifted mechanics.
+- I write the novels that are possible for me to write, not that ones I think will come across in a certain light.
+- I think character is very much a product of where you live, who you are, what is happening in that time of your life, and I'm interested in those pressures, those forces. A political context, a social context, really determines if not who people are then how they treat one another and what they say, how they speak.
+- I know a little bit about motorcycles and motorcycle riding.
+- I had always wanted to include images in a novel, and with my first book, 'Telex From Cuba,' I made an elaborate website that is basically all images.
+- Some writers think that fiction is the space of great neutrality where all humans share the same concerns, and we are all alike. I don't think so. I'm interested in class warfare because I think it's real.
+- Prayer is so complicated.
+- I don't think of myself as a gearhead or a motorcyclist. I'm not that young, and this is like another life of mine. But the people I know from that era think of me that way.
+- For me, art is not 'brooding.' It comes from someplace that is more fun and that has a kind of electricity to it.

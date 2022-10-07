@@ -1,0 +1,106 @@
++++
+author = "Kei Nishikori"
+title = "Kei Nishikori Quotes"
+quotes_len = "100"
+description = "the best 100 Kei Nishikori Quotes"
++++
+- I love to play Australian Open.
+- It's very comfortable playing U.S. Open. I always enjoy playing here.
+- My motivation for tennis has been increasing every year.
+- When you have to play a lot of tournaments and you get more experience and you get more confidence playing a lot of matches, and also you get mentally strong.
+- I'm not the loudest guy on the tour for sure. I'm more calm, I think my private too.
+- I've been feeling really comfortable on clay because I have more time to set up my forehand. I can use a lot of different shots - drop shots and high balls. You can mix up a lot of shots, so it's actually more fun to play on clay.
+- My height is no longer growing, but my muscle is still growing.
+- It's a little bit embarrassing to say but... I wanted to be a penguin.
+- Everybody has different strengths. That's the fun thing about tennis.
+- Neither tennis nor golf is considered among the top two sports in Japan.
+- I try to play one match at a time.
+- I have to say, if I live in Japan, I think I was going to have different life. There is too much attention. I feel like I'm a star there. But I think it's good thing that I live in States.
+- I think in fifth sets I'm really playing good tennis, more than any other sets.
+- I think clay has more rhythm so I can feel more balls better.
+- I think the woman's side has been much better in Asia.
+- Yeah, it's never easy, someone serving like Ivo.
+- For me, yeah, that's going to be my big goal to win a Masters or Grand Slams.
+- I'm trying to win more points at the net, not just come to the net more frequently.
+- I hope more kids start playing tennis.
+- I feel a lot of confidence from that memory, playing final first time in Grand Slam. But also I always think that I could play a little better in a final. I lost straight sets. I didn't do well.
+- I just need to play to my strengths.
+- If you're not in the top three or four, you have to play a lot of tournaments.
+- I can't believe I beat James Blake.
+- Yeah, always excited to play Novak, because it's great challenge for me. Always exciting to play him. Good player.
+- It's not easy to put another tournament on the schedule.
+- Rafa is the best player on the clay.
+- Getting to the semifinal of the U.S. Open, I have to be 100 percent.
+- I got a lot of good things from Olympics.
+- It is tough to live by myself.
+- When I moved to U.S., you have to be stronger somehow, and a lot of kids from different countries and sometimes you have to play with big guys, especially I was small when I was little.
+- I don't feel any pressure from Japan, you know, because I live in the United States.
+- There are many things to do to make Asian tennis strong.
+- I think Japanese people like teamwork. Sometimes they don't try to be No. 1 or different to other people. That can be good but sometimes it means you don't get a dream or a strong goal.
+- In the U.S. I can concentrate all the time on playing tennis, doing my training and all the important stuff.
+- In English, you can more easily say what you want. It's so open and natural. I really appreciate that.
+- For my tennis, I think it's better balls are flying because I like to play quicker, finish the point little bit quicker than other guys.
+- Luck is important.
+- I am improving a lot of my weaknesses.
+- It's not like I want to be famous but it's a great motivation for me. If you have good attention, you feel more excited.
+- Getting injured gave me the opportunity to re-examine some small things like my serves.
+- Hopefully I can do well and I hope tennis can get bigger in Japan and Asia. That's my goal.
+- Japanese food is healthy, but it doesn't make you bigger.
+- Playing rock-solid like Djokovic, I can't get the most of my game, while I can't play very aggressively like Federer. So I have a goal to try to play in between them.
+- Everybody tells me I have a good record. Sometimes I have to think that I have to keep building my record after going five sets.
+- I have a good return. I have good speed, too, that most of the big guys don't have.
+- I love chickens. Everyone loves chickens, don't they?
+- Yeah, there are good facilities in Japan and good coaches, but the toughest thing is you need to play a lot of tournaments in Europe or U.S., because they have more good players.
+- I grew up in Matsue, in Shimane prefecture, which is one of the smallest cities in Japan.
+- I feel the support from Japan.
+- Trust me, I hate playing five sets. I don't do it on purpose.
+- Especially the people staying No. 1, I bet they have a lot of pressure. They have to always fight, not even on the court, but off the court, too.
+- I think I have best result of Grand Slam in U.S. Open.
+- When I turned pro, it was one of my goals to get ranked in the top 50. I didn't really feel the pressure. I had some fear but at the same time I was happy to play tennis and playing stronger players.
+- I wanted to keep Top 10 every year and that gave me a little bit of pressure.
+- I'm always staying tough.
+- I need to be more cautious while determining which points in the match I have to focus and how I can win break points in a more assured manner.
+- It's always exciting to play, you know, sports.
+- After turning pro, I was feeling a lot of respect to everybody actually, especially top players.
+- I used to be a bit quieter and I think living in America has made me a little more open about talking to other people.
+- With more Asian players on the tennis circuit, there's more awareness about tennis and knowledge about various tennis tournaments.
+- I would do anything for tennis.
+- It's not easy to focus every point, you know. You lose some concentration.
+- They have some good food in Sarasota.
+- When I go back to Japan it's a little bit crazy. I usually have to wear a hat and glasses otherwise I cannot go through the streets.
+- Yeah, I try to stay positive all the time.
+- I think I will have a lot of chance for big tournaments, especially grand slams.
+- I try to play good tennis all the time.
+- I am very proud to represent Japan.
+- The day after I retire I will move back to Japan. That's how much I love Japan. I feel more comfortable there, all my friends are there, my sponsors are mostly Japanese and I feel more fun in Japan.
+- It's a great honor to make history but to make more history, I need to be healthy and injury-free.
+- I don't know why I always win third set. I think it's more mental.
+- It's a great honour to make a lot of histories, to be No.1 player in Japan but that never gives me the pressure.
+- I get nervous every match, before the match especially. But I think it's a good sign. That means you want to win.
+- In the match, I just try to focus what I have to do. I try not to think too much about outside things.
+- To win against Roger was a big achievement for me.
+- I feel like I have great support here. Many Japanese comes. Fans are very loud. Helps me. So, yeah, I always enjoy playing New York.
+- The wrist is needed in tennis.
+- You know, beating Rafa, it was great experience I had in Olympics.
+- I mean, I feel pressure sometimes, but I think I'm handling really well.
+- It's an honour to be Japanese.
+- It's not easy to focus again, you know, after playing three or four hours. I don't know, I do it well somehow.
+- Yeah, it's always big challenge for me to play Marin.
+- It's tough situation for Asian players because all the tournaments in Europe and U.S. It's not easy to go and come back all the time.
+- I just try to hang in there and try to focus every point.
+- It's a little bit different to than U.S. in Japan. U.S. has a lot of respect for the sports, but not as much in Japan.
+- It's not easy to play the big guys, especially since I'm one of the smallest guys on tour.
+- I got really strong living in the States, because I wasn't mentally really strong and I wasn't really like the fighter when I was little.
+- I'm confident I have the ability to challenge for world No 3 and 4.
+- With COVID-19, I didn't have many symptoms luckily, so I think it's OK.
+- I mean, I try to show my guts and everything, you know, good energy on the court. But I think it's most important, you know, shouldn't be too many up and downs, especially downs.
+- I'm Japanese, of course, but spending so long in America has made me into a different kind of person.
+- Being number one, winning Grand Slams, that's something I never had before.
+- I'm making fewer mistakes as I get older.
+- I had many injuries.
+- For sure, it's important for an Asian man to win a grand slam. I hope I'm the one to make it.
+- I think Li Na and some other Chinese ladies have done so many amazing things for Asian tennis.
+- Young players are always aggressive and unafraid. That's their weapon and I can learn from that.
+- I am faster than other players and I can get to a lot of balls. They have big serves, much power, they can finish points with one or two shots. For me, it's not like that, but I still enjoy matching up to them.
+- I'm happy to go into Melbourne, one of my favourite tournaments there.
+- It's really amazing. Novak, Rafa, Roger, they win couple times a year in a row all the grand slams.

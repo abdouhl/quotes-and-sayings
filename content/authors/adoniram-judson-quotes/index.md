@@ -1,0 +1,65 @@
++++
+author = "Adoniram Judson"
+title = "Adoniram Judson Quotes"
+quotes_len = "59"
+description = "the best 59 Adoniram Judson Quotes"
++++
+- God is to me the Great Unknown. I believe in Him, but I find Him not.
+- God is waiting to be gracious, and is willing to make us happy in religion, if we would not run away from him. We refuse to open the window shutters, and complain that it is dark.
+- I take leave of Prome and her towering god, Shwa Lan-dau, at whose base I have been laboring with the kindest intentions for the last three months and a half. Too firmly founded art thou to be overthrown at present; but the children of those who now plaster thee with gold will yet pull thee down, nor leave one brick upon another.
+- Consider this point. It is a main point of true wisdom. Whenever there is an execution of purpose, there must be an agent.
+- A life once spent is irrevocable. It will remain to be contemplated through eternity. If it be marked with sins, the marks will be indelible. If it has been a useless life, it can never be improved. Such it will stand forever and ever. The same may be said of each day.
+- The places chosen for the administration of the ordinance, and the circumstances attending those instances, in which the act of baptizing is particularly described in the New Testament, plainly indicate immersion.
+- Of how much real happiness we cheat our souls by preferring a trifle to God! We have a general intention of living religion; but we intend to begin tomorrow or next year. The present moment we prefer giving to the world.
+- When Paul was exhorted to be baptized and to wash away his sins, there was an evident allusion to the use of water in the ordinance of baptism, and had there been no application of water on which to ground such an allusion, we may be certain that we should never have heard of washing away sins in baptism.
+- The word which denotes the act of baptizing, according to the usage of Greek writers, uniformly signifies or implies immersion.
+- There can be no doubt that the blessing, of which believers are heirs, is justification by faith; and that the promise, according to which they are heirs of this blessing, is the gospel promise made to Abraham.
+- The future is in our power. Let us, then, each morning, resolve to send the day into eternity in such a garb as we shall wish it to wear forever. And at night, let us reflect that one more day is irrevocably gone, indelibly marked.
+- I was seized on the 8th of June, 1824, in consequence of the war with Bengal and, in company with Dr. Price, three Englishmen, one American, and one Greek, was thrown into the death prison at Ava, where we lay eleven months - nine months in three pairs and two months in five pairs of fetters.
+- We had never before seen a place where European influence had not contributed to smooth and soften the rough features of uncultivated nature. The prospect of Rangoon, as we approached, was quite disheartening.
+- According to the Burman system, there is no escape. According to the Christian system, there is. Jesus Christ has died in the place of sinners, has borne their sins; and now those who believe on Him, and become His disciples, are released from the punishment they deserve. At death, they are received into Heaven and are happy forever.
+- I thought they loved me, and they would scarcely have known it if I had died. All through our troubles, I was comforted with the thought that the brethren in Maulmain and America were praying for us, and they have never once thought of us.
+- We have this consolation, that it was the evident dispensation of God which brought us to this country; and still further, that if the world was all before us, where to choose our place of rest, we should not desire to leave Burmah.
+- Love to Jesus is a sure title to the greatest possible happiness; for Jesus is omnipotent and has determined to make his friends happy, and surely will not forget a single one in whose heart is enkindled one spark of love.
+- On thee, Jesus, all our hopes depend. In thee all power is vested, even power to make sinful creatures instrumental in enlightening the heathen.
+- Embrace every opportunity of exercising kind feelings and doing good to others, especially to the household of faith.
+- Ah-rah-han, the first Buddhist apostle of Burma, under the patronage of King Anan-ra-tha-men-zan, disseminated the doctrines of atheism and taught his disciples to pant after annihilation as the supreme good.
+- I suppose they think me an old man and imagine it is nothing for one like me to resign a life so full of trials. But I am not old - at least in that sense; you know I am not. Oh, no man ever left the world with more inviting prospects, with brighter hopes, or warmer feelings - warmer feelings.
+- I have considered the subject of missions nearly a year and have found my mind gradually tending to a deep conviction that it is my duty personally to engage in this service.
+- Let us die as soon as possible, and by whatever process God shall appoint. And when we are dead to the world, and nature, and self, we shall begin to live to God.
+- Any known attempt at proselyting would be instantly amenable at a criminal tribunal and would probably be punished by the death of the proselyte and the banishment of the missionary. All efforts must be conducted in private and are therefore very limited.
+- That mighty Being, who heaped up these craggy rocks, and reared these stupendous mountains, and poured out these streams in all directions, and scattered immortal beings throughout these deserts - He is present, by the influence of his Holy Spirit, and accompanies the sound of the gospel with converting, sanctifying power.
+- The world is yet in its infancy; the gracious designs of God are yet hardly developed. Glorious things are spoken of Zion, the city of our God. She is yet to triumph and become the joy and glory of the whole earth.
+- There are two evil futurities and one good. A miserable future existence is evil; and annihilation, or nigban, is an evil - a fearful evil. A happy future existence is alone good.
+- My views of the missionary object are, indeed, different from what they were when I was first set on fire by Buchanan's 'Star in the East' six years ago. But it does not always happen that a closer acquaintance with an object diminishes our attachment and preference.
+- It is my growing conviction that the Baptist churches in America are behind the age in missionary spirit. They now and then make a spasmodic effort to throw off a nightmare debt of some years' accumulation, and then sink back into unconscious repose.
+- Notwithstanding my present incompetency, I am beginning to translate the New Testament, being extremely anxious to get some parts of Scripture, at least, into an intelligible shape, if for no other purpose than to read, as occasion offers, to the Burmans I meet with.
+- A person employed in direct missionary work among the natives, especially if his employ is somewhat itinerant, can easily make long and interesting journals.
+- The land of Beulah lies beyond the valley of the shadow of death. Many Christians spend all their days in a continual bustle, doing good. They are too busy to find either the valley or Beulah. Virtues they have, but are full of the life and attractions of nature, and unacquainted with the paths of mortification and death.
+- I never realized what a great privilege it is to be able to use the voice for Christ until I was deprived of it.
+- The Israelites frequently forsook God, and he as frequently forsook them. But when they repented and returned to him, he remembered his covenant and delivered them from their distresses.
+- I am persuaded that the chief reason why we do not enjoy religion is that we do not try to enjoy it.
+- My prospects for life, though in a measure shaded with uncertainty, hardship and danger, are very animating and bright. My prospects for another life, blessed be God, are still brighter.
+- While therefore your tears flow, let a due proportion be tears of joy. Yet take the bitter cup with both hands and sit down to your repast. You will soon learn a secret: that there is sweetness at the bottom.
+- A mission to Rangoon we had been accustomed to regard with feelings of horror. But it was now brought to a point. We must either venture there or be sent to Europe.
+- Perhaps the secret of living a holy life is to avoid every thing which will displease God and grieve the Spirit, and to be strictly attentive to the means of grace.
+- If we are interested in Christ by faith, notwithstanding our imperfections and sins, God will be our God through grace.
+- We should naturally expect that the baptism of infants, if enjoined at all, would have been enjoined in the law which instituted the ordinance of Christian baptism. But this law is silent on the subject of infants.
+- O, my past years in Rangoon are spectres to haunt my soul; and they seem to laugh at me as they shake the chains they have riveted on me.
+- I never was deeply interested in any object; I never prayed sincerely and earnestly for anything, but it came at some time - no matter how distant, in some way, in some shape, probably the last I should have devised, it came. And yet, I have always had so little faith. God forgive me.
+- Amboyna seems to present the most favorable opening. Fifty thousand souls are there perishing without the means of life, and the situation of the island is such that a mission there established might, with the blessing of God, be extended to the neighboring islands in those seas.
+- When any practice is proposed and enforced as a binding duty, we have a right to examine the grounds of the alleged obligation.
+- Missionaries must not calculate on the least comfort but what they find in one another and their work.
+- For many years, the work advanced but slowly. One denomination after another embarked in the undertaking; and now, American missionaries are seen in almost every land and every clime.
+- I esteem it the crowning mercy of my life that not only the chief ends I contemplated on becoming a missionary are attained, but I am allowed to see competent, faithful, and affectionate successors actively engaged in the work.
+- The course that I have uniformly pursued, ever since I became a missionary, has been rather peculiar. In order to become an acceptable and eloquent preacher in a foreign language, I deliberately abjured my own. When I crossed the river, I burnt my ships.
+- I am left alone in the wide world. My own dear family I have buried: one in Rangoon, and two in Amherst. What remains for me but to hold myself in readiness to follow the dear departed to that blessed world, 'Where my best friends, my kindred dwell, where God, my Saviour, reigns.'
+- See the hand of God in all events, and thereby become reconciled to His dispensations.
+- Though I have seldom done anything to my own satisfaction, I am better satisfied with the translation of the New Testament than I ever expected to be. The language is, I believe, simple, plain, intelligible; and I have endeavored, I hope successfully, to make every sentence a faithful representation of the original.
+- Observe the seven seasons of secret prayer every day.
+- Blessed be God, that we live in these latter times - the latter times of the reign of darkness and imposture. Great is our privilege, precious our opportunity, to cooperate with the Saviour in the blessed work of enlarging and establishing his kingdom throughout the world.
+- I have to hold a meeting with the rising generation every evening, and that takes time. Henry can say, 'Twinkle, twinkle,' all himself, and Edward can repeat it after his father! Giants of genius! Paragons of erudition!
+- Christ commands those who believe to be baptized. Pedobaptists adopt a system which tends to preclude the baptism of believers. They baptize the involuntary infant and deprive him of the privilege of ever professing his faith in the appointed way. If this system were universally adopted, it would banish believers' baptism out of the world.
+- You will readily believe me when I say that on leaving my country, I little imagined that I should ever become a Baptist. I had not indeed candidly examined the subject of baptism, but I had strong prejudices against the sect, that is everywhere spoken against.
+- Believe in the doctrine of perfect sanctification attainable in this life.
+- We cannot sit still and see the dear Burmans, flesh and blood like ourselves and, like ourselves, possessed of immortal souls that will shine forever in heaven or burn forever in hell - we cannot see them go down to perdition without doing our very utmost to save them. And thanks be to God, our labors are not in vain.

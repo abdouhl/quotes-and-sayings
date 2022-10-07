@@ -1,0 +1,106 @@
++++
+author = "Travis Knight"
+title = "Travis Knight Quotes"
+quotes_len = "100"
+description = "the best 100 Travis Knight Quotes"
++++
+- You can never tell what's going to be popular.
+- You throw a rock in Hollywood and you're going to hit someone in the film industry.
+- Our ambition is to be the center of independent animation filmmaking; to be the bravest animation studio in the world.
+- One of the things my dad told me when I was growing up was, 'Find your calling. Find what you're meant to do.' When I found animation, I knew this was it.
+- The executive side of you always wants to find the best, most efficient way to do things. Of course, art is extraordinarily inefficient.
+- When you think of the warm grandmotherly type of character, you don't think of Elaine Stritch.
+- We're constantly trying to find the best way to tell the stories that we want.
+- Rather than a taste for the macabre, I like the full range of human emotion in a story, which means darkness and light. It means warmth, but it also potentially means scares.
+- Portland doesn't have the same kind of infrastructure that the national film hubs have. We struggle with that a little bit.
+- If you can connect with the audience emotionally, that's potent storytelling.
+- Creativity is messy and inefficient. But corporate governance needs to be tight and organized.
+- I think the Knight boys have a long history of disappointing their fathers.
+- I think any artist wants their artist to be seen and appreciated and enjoyed by as many people as possible.
+- No TV show has meant more to me than 'Buffy the Vampire Slayer.'
+- When we started on 'Coraline,' there was a whole host of things that we had no idea how we were going to do. Because we were making films in a way that had never really been done before, we were taking this hundred-year-old art form and bringing it into a new era by embracing technology and innovation.
+- You see it in the stuff I've done at Laika: I've always tried to make movies that have an artful blend of darkness and light, intensity and warmth. That have a thinking brain and a strong beating heart at the centre of it.
+- The only kind of people who pursue stop-motion as a career are people who are absolutely in love with the medium.
+- People have been declaring stop-motion dead for a generation. But living in the digital age, people appreciate the art of craft, or working with your hands.
+- I love Oregon and want to see the state continue to thrive and evolve.
+- Just because somebody works in miniature does not diminish or invalidate their contributions to the art form compared to someone who works in live action.
+- One of the things that gives stop-motion its inherent magic is that you're seeing something imperfect and thus undeniably human - because it's made by human hands.
+- My grandfather, my dad's dad, he was a lawyer. He was a state legislator. He was the publisher of Oregon's second largest newspaper. He was a pretty amazing guy.
+- It's a very difficult thing to adapt a piece of existing material into film.
+- We use technology in service of the art, as a storytelling tool - and if we want to do something that's never been done we have to invent the technology. 'ParaNorman' represents the realization of stop-motion's potential.
+- I'm a child of the '80s.
+- I'm a huge fan of what Marvel did, it's no surprise for anyone to know that as a child I was a huge fan of comics.
+- When you allow an animator to focus on a portion of the film and really understand the arc of the scene, what's happening with the characters, they can make choices all along the way that reinforce the main points of the scene. They really get to know what's happening.
+- I know I have exacting standards.
+- While you're testing out armatures of puppets, you're also trying to find the proper visual vocabulary for the character and to come up with a guidebook of sorts for how a character will move and act.
+- If you look at films like the Rankin/Bass specials, those sorts of things, there's nothing inherently creepy about any of those, in fact those are fairly warm.
+- One of the great many things I love about being a father is sharing my beloved childhood experiences with my kids.
+- Within a safe environment, the theater, you can have a big ride, big ups and downs, intensity, warmth, humanity, laughs, tears - you want that full range of emotion.
+- You have to find the thing you feel you can contribute to the world.
+- When your focus is franchises and brands, that limits the kinds of stories you can tell. That kind of thing can be good for the bottom line but they're not particularly good for showcasing the diversity of human experience.
+- Stop-motion is filmmaking at the pace of a glacier. In live action, you're moving so quickly.
+- Sometimes the theme of the film is something that comes down to the way you designed the film - that you're saying something about the world. And it's one of the things that I think animation can do, in a way that other forms of filmmaking can't do. Because every single thing you see has got to be designed and created.
+- The film industry is run by multinational media conglomerates and they have their perspective on what they need from their product. That's why we live in an era where you see reboots and sequels and remakes and prequels, all these old presents are re-wrapped and offered up as new gifts.
+- All of the things we learned on 'Coraline' we applied to 'ParaNorman,' and all of the things we learned on 'ParaNorman' and 'Coraline' we applied to 'The Boxtrolls.'
+- When I became a father, I saw what passed for family entertainment. So much of it was vapid. I wanted to make things that mattered.
+- We live in world that wants to burnish the rough edges and straighten the crooked line, but conformity doesn't beget greatness.
+- This medium of stop-motion, it can be much more than it's been kind of defined as - it's not just a creaky and anachronistic way of making films, it actually is a very vital art form that can do wonderful things if put in the right hands.
+- A fundamental and unfortunate part of being alive is to suffer loss and to suffer grief.
+- If you go back and look at those films, movies like 'Bambi' and 'Pinocchio,' there are elements that are incredibly dark. Yet no one batted an eye, thinking that kind of entertainment was inappropriate for children.
+- Everything I've tried to do at Laika, searching for an artful blend of darkness and light, intensity and warmth, humour and heart, I wanted to bring to the Transformers franchise.
+- We had so many firsts on 'Coraline' that I couldn't quite see where we'd go from there, but for 'ParaNorman' we developed this 'skewed naturalism' that marries a lot of intricate detail with a more cinematic approach, then just built on all that and pushed those techniques even further, so we can tell our stories that much more effectively.
+- Stop-motion has limitations, any form of filmmaking does, but stop-motion has a lot of limitations.
+- We're not purists about stop-motion. If there's a tool we can use that makes more sense to bring something to life in a better way, we'll use it, whether that's hand-drawn animation or CG or some newfangled technology we're developing.
+- My brother and I had unresolved things. I just wish I could have had one final conversation with him.
+- A principal struggle of many young companies is to establish an identity, a philosophical and emotional core, and LAIKA is no exception.
+- I just love what art can do and what it means for us; that it can cross barriers. It can speak to us across space and time and culture.
+- Very few people view stop motion the way we do. We really try to use it - and animation generally - as a powerful visual medium by which you can tell virtually any kind of story in any genre.
+- From all the iterations, Bumblebee has been the Transformer with the most connection to people.
+- Coming from the world of animation, every single line counts; every single gesture counts. You put thought into every single one of those things and the way a frame is composed.
+- If you go too small, you can't get the performance you need out of the small little parts. And if you go too big, the puppet gets difficult to move, because it's too heavy, and there's too much material, and it becomes this exercise in just moving these massive parts around. So there is a natural scale that makes sense for stop-motion.
+- Laika's films aim to promote thought, feeling, and connectivity through art, inspired by our shared humanity. We're deeply gratified that the spirit of our work has resonated so strongly with audiences around the world.
+- Artists are neurotic and hypersensitive, and they tend to focus on granular details, sometimes at the expense of the big picture. I've gotten better at the big picture over the years.
+- My father has this insane, all-consuming passion for sports.
+- I spent a lot of time alone when I was a kid, I climbed trees, hopped creek beds, read, watched movies, I'd make stories, make films.
+- I loved Tolkien and I loved 'Star Wars,' which was the first memory that I have being in a movie theater. And, of course, that was the defining movie for me as a kid.
+- Works of art are like a Trojan horse. Under the surface is always some artist's deeply held philosophy on their view of the world. But on the other hand, you do not want to make it feel like medicine. You do not want to make it feel like an afternoon TV special where you're trying to hammer a message into someone's head.
+- Animation has been ghettoized through the years by giving the impression we only do the same kind of stories.
+- I love 'Princess Mononoke,' 'My Neighbour Totoro.'
+- If you look at 'Coraline' and you look at 'ParaNorman' certainly you can tell that there are threads of the same DNA between those two movies, but they're two very different kinds of movies. They look different, they feel different, they are very different kinds of movies.
+- The water in 'Life of Pi' is very realistic.
+- You only have so much time on this planet.
+- We want to tell unique, individual, discrete stories with a unique and discrete individual point of view.
+- I fully believe that representation and inclusion matters... and that's why on all of our films, we've featured diverse casts, and that actually is true for 'Kubo' as well.
+- Nike is like a member of the family. Undoubtedly some of that stuff is in my DNA.
+- We don't want to make little pop culture ephemera or confections, that sort of thing, and so 'ParaNorman' like 'Coraline' has something meaningful to say.
+- At LAIKA, we try to find an artful balance of darkness and light, intensity and warmth, and humor and heart. The idea of being able to bring that philosophy to 'Bumblebee' was really exciting.
+- I take a firm stand against sequels. My industry brethren are a little shocked at how firmly I'm committed to not doing sequels.
+- Historically, there's been a degree of sameness to animated films.
+- In any piece of art, the artist pours themselves into it. It becomes a reflection of who they are and what they believe. That's what it has to be. Otherwise it's just a product.
+- My kids have terrible taste.
+- Stop-motion is sort of the redheaded stepchild of animation. But it's incredibly beautiful.
+- Ultimately, the goal is to be on an annual cycle - releasing a film every year.
+- Commingling keenly felt emotion, madcap humor, and retina-bursting visuals, 'Missing Link' is a kaleidoscopic cinematic experience unlike any other.
+- Phil is my father. He's a part of who I am. But I don't want to be defined by that.
+- I think anytime you see something that's been brought to life by an artist's hands, it just has a different kind of quality.
+- Historically, for a stop-motion film, you gathered the crew together, you made the movie, and then everyone ran screaming to the next project.
+- It took me five years to make 'Kubo and the Two Strings.'
+- The interesting thing about Laika is that it's very much an island of misfit toys. It's unusual people with strange talents and very unusual passions who have somehow found each other.
+- I love 'Spirited Away,' that's a huge one.
+- One of the other things that I love about Miyazaki's films, is that when he sets a film in Europe, it's not a documentary - it doesn't really look like Europe, but it's something he internalises, synthesises and weaves into his work. I love seeing that cross-cultural exchange.
+- I think there's an unfortunate thing where a lot of content geared towards kids and families is watered down, dumbed down.
+- Historically, stop-motion animation has had a jerky-jerky quality, which is a constant reminder to audiences that they're looking at artificial objects. It creates a barrier between the audience having an emotional experience and what they're looking at. We're working hard to get past that.
+- I was athletic growing up and that was, of course, a big part of my household, but it wasn't something that I was necessarily passionate about.
+- We made a commitment to making diverse stories with diverse characters brought to life by diverse artists.
+- I won't say which one, but one shot on 'Kubo' took two months to get the expression right. It's ridiculous on some level.
+- We respect that children are smart, sophisticated and can handle things that adults typically don't think they can.
+- We used to go to movies to see stories about ourselves. It would transport us to new worlds and we'd see aspects of ourselves reflected back.
+- Let's be honest, working in stop motion is awful. It's the worst. It's such a stupid way to make a movie. It's ridiculous. You're literally playing around with these dolls that are maybe 9 inches tall, trying to coax a performance out of it.
+- Portland and Oregon draw a certain kind of person to it. The city has extraordinarily talented people and sometimes it takes an outsider to see that.
+- In some ways we describe 'Boxtrolls' as 'Oliver Twist' if Terry Gilliam had made it. I think he's an extraordinary artist, and animator.
+- There is an inherent creative restlessness at Laika where we always want to challenge ourselves.
+- When 'Buffy' was on the air, I recorded every single episode on my TiVo. I'm pretty sure my DVR thought I was a fourteen year-old girl. Whatever. The show was incredible. It refused to be pigeonholed.
+- If any single human being is responsible for all this nonsense I've done with my life, it's Ray Harryhausen... In 'Kubo,' you can see some of his influence throughout.
+- I always loved that solitary experience of making things. There's a solitary aspect to animating... It's ultimately the animator and the puppet coaxing a performance out of it.
+- I made friends slowly when I made them at all.
+- When you look back over 100 years when stop-motion was really at the dawn of cinema, a lot of the ways it developed was you had stage magicians who were looking to bring their illusions to life, and one of the ways they did that, at the time, was through cinema and stop-motion. They developed these processes.

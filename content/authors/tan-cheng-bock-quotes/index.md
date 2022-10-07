@@ -1,0 +1,85 @@
++++
+author = "Tan Cheng Bock"
+title = "Tan Cheng Bock Quotes"
+quotes_len = "79"
+description = "the best 79 Tan Cheng Bock Quotes"
++++
+- I've never followed my party... I'm no yes-man, I've never been a yes-man.
+- I'm already 80 years old and I always say I want people to get into the House to really experience what it's like in the House.
+- I want to make sure my candidates have my support. We are a family, we always go together.
+- We got to put in place policies to ensure that those who are unemployed, what do we do for them?
+- Simple people can bring very good knowledge to Parliament because they know the ground.
+- If I convince myself that I'm going contest in West Coast, I will go. It doesn't matter who else comes because that's your belief.
+- Any of us who wants to go to Parliament must have that responsibility to represent the people who voted us in.
+- I think those who have followed my political life would have known that I don't believe in just blind loyalty.
+- If it's of help to my candidates, I would like to go anywhere to give my candidates a boost.
+- I want to relax for a while, maybe go back to my medical practice. I got a lot of old patients waiting for me.
+- When I was asked to manage some issues in Europe for the government, I didn't go to Parliament and just make a great speech and impress them. Instead, I will go down and discuss with those people about certain issues that we don't agree, and over a glass of wine we talk about it and they say 'okay, let's forget it.'
+- A truly united Singapore means having a Parliament that reflects all views, and not just the PAP view or the group-think of a single political party.
+- I want to be a president and I will not change my thinking.
+- I believe the processes of good governance have gone astray. Specifically there is an erosion of transparency, independence and accountability.
+- If those people who come in to join the PSP, hoping to extract something from the party for themselves, I think even if they leave, I will not feel sorry.
+- Timing is very important in politics.
+- I feel that it is a social responsibility for us who are better educated to give back some to the society in whatever service we can help.
+- I want to work closely with the government but it doesn't mean I become so weak and just toe the government line.
+- I enjoyed Parliament being a proper elected MP.
+- The key message is I'm always trying to hope the Singaporeans will understand, is a question of every government must be... examined based on certain very fundamental principles to have a good government. You must have transparency.
+- We want to build a compassionate and truly democratic Singapore where good values and people matter.
+- When you face the shareholders, then you can feel the heat is on you. For 20 years I got to answer to my shareholders. It's not easy.
+- If you strongly believe something is wrong, you must speak up and stand by what you say.
+- The President must be above politics. He must not be a proxy to any political party. His interest must be national, not with a political agenda in mind.
+- In all my 26 years in Parliament, we had referred to Mr. Ong Teng Cheong as the first Elected President.
+- I think the president must be very watchful of what is happening. The president cannot deal with the bread and butter issues of Parliament, but he cannot be a sleeping president.
+- I believe in giving everybody a chance to join our party. Over time, we realized that some joined expecting what the party can do for them... We want the people, when they come and join the PSP, to do something for the country and not for themselves.
+- I am a hypebeast person.
+- For the past 20 years, the PAP has had a strong monopoly. However, prosperity has not flowed to all Singaporeans.
+- I was previously the chairman of the Jurong East Town Council and South West CDC.
+- The president actually is there to complement the government in power. If they have done something that is not proper, it is the duty of the president to... discuss and to come to some common ground.
+- Very important, the President must be seen not as a figurehead but as somebody the people can look to for support for some of the issues, national problems and so on.
+- You don't have to go and criticize your opponents, how bad they are and so on. It is a contest of ideas. I got my ideas, you got your ideas right. We will let Singaporeans decide.
+- If I become president, I want to make sure that we shouldn't live in fear. We should all be one people. We should all enjoy differences of opinion without getting upset.
+- For vocational workers, their pay should reflect their skills and difficulty of labour. To be skilled in a craft should be accepted as an alternative path.
+- The President must not be such a distant person.
+- I opposed the NMP scheme very, very strongly and I stated my case in Parliament, objected to it and voted against it. That has been my stand.
+- I don't toe the party line all the time.
+- If we stand together as Singaporeans, there is not a force in this world that can tear us apart.
+- To be a unifying person, I think first you must have acceptance.
+- But at the end of the day, any president must try to unify Singapore... that must be in the heart of the man who wants to be the president.
+- The civil servants will always be there to look after this country. So don't worry... Any political party taking power will have to work with the civil servants who are very well acquainted with running this country.
+- I began my career as a medical doctor in Ama Keng, a poor village in Lim Chu Kang. The people I cared for were ordinary Singaporeans. They were simple people who despite their hard work, had barely enough for themselves.
+- At the end of the day, I connect very closely with the youth. I love the youth. I love the young people.
+- We should not live in fear, we should all enjoy being able to express our views freely and openly, challenge each other on issues.
+- I'll welcome any competitor, no problem.
+- Never expect the votes to come.
+- Protecting lives means reshaping national policies from a community healthcare angle.
+- I'm not sponsored by anybody but myself... I'm not sponsored by the PAP.
+- Serving people is never a problem for me, because I've already served all my patients. Even as a doctor, I also wasn't purely a doctor.
+- We must never forget that Singapore is home for all races and this harmonious relationship must not be taken for granted.
+- Selling and telling are two different things. In politics, we sell ideas.
+- We are not starting a revolution. We are starting an evolution of change.
+- The role of the president is to take care of your money, and that's what I intend to do.
+- So far we have 4 open elections with no minority Malay President. So 2017 must remain an open election and if no minority Malay President wins in 2017, than a reserved election will be triggered in 2023.
+- If the PAP has a two-third majority, they will have the power to change important laws like the Constitution at will, whenever they wish.
+- Ask yourself, have you ever heard any of your PAP MPs ask the hard questions? As a Singaporean, you have a right to information that the Government is refusing to answer.
+- I think you can fool people once but you can't fool the people all the time.
+- Sometimes I do my walkabouts, all the young fellows will come and call me 'hypebeast Ah Gong.'
+- As borders take time to reopen, we will make sure the Government spends our reserves to nurture strong local businesses. To grow local supply chains. And to encourage innovation. This is important because local businesses will be Singapore's growth catalyst in our post-COVID economy.
+- One of my key areas of unification is to champion multiracialism. Multiracialism is vital to unity.
+- In politics things change, in politics timing is important, and in politics, how I move, I don't tell you.
+- I hope to encourage younger Singaporeans not to be so fearful.
+- In life you cannot be captured by the past. If you're not prepared to change for the future, you will stagnate.
+- The most important thing for Singapore is stability.
+- I'm prepared to mentor any political group, even PAP chaps can come to me, I'll still mentor them. Because the objective must be very clear: you want to train people who will be good MPs. MPs who will think of Singapore first.
+- If you've got no base, it's very difficult to function as an MP. You cannot be a 'virtual' MP, you must be a proper one.
+- I would love to work with the SDP, the Workers' Party and with all the other small parties.
+- So long as I'm relevant, and so long as my health permits and people still want me, I will continue.
+- My mind is always focused on the country.
+- I think it's quite good to spend some family time.
+- I never forget a friend.
+- I cannot say that the PAP has done me wrong or something. I think I'm quite grateful to the PAP.
+- This is politics. In politics, you only show the cake but not the ingredients. The time will come when I show you the cake and the ingredients.
+- I would love to be a mentor to many people who want to go into the political arena, teach them the art of winning elections.
+- Freedom of choice and free speech without fear must be defended.
+- At 18, they're old enough to drive. The girls enter university, and the boys enter into National Service. Since they have a duty to defend our country, these 18-year-olds should also have the right to elect their leaders. They are mature enough.
+- You ask yourself what is it you want? You want results or to show you are such a great fighter? For me I would rather make sure I get good results.
+- I was only a village doctor with a rebellious streak.

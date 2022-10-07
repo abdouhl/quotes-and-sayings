@@ -1,0 +1,40 @@
++++
+author = "Alastair Campbell"
+title = "Alastair Campbell Quotes"
+quotes_len = "34"
+description = "the best 34 Alastair Campbell Quotes"
++++
+- My aunty says I'm the double of my father. He was a workaholic, which I've definitely inherited. And like me, he could be the life and soul of the party, but also quite withdrawn.
+- There is something in me that makes me see things through.
+- Don't accept that you are in crisis just because everyone says you are.
+- I had a happy childhood.
+- My dad, Donald, was a vet and had a practice in Yorkshire. Cats and dogs were his bread and butter, but his greatest love was large animals.
+- Friends have suggested that I am the least qualified person to talk about happiness, because I am often down, and sometimes profoundly depressed. But I think that's where my qualification comes from. Because to know happiness, it helps to know unhappiness.
+- To me, marriage is partly a religious thing and I'm not religious.
+- By asking the question 'Am I happy?,' and via the answer setting out what I mean by happiness, there is a political route that can be taken, by asking another question - 'Can politics deliver happiness, and should it try?'
+- I used to be very routine-based and the new thing in my life is not having a clear, full-time existence.
+- I will continue to help the political causes I believe in in any way I can.
+- My closest friend, who died not long ago, is buried near Marx's grave in Highgate cemetery, so I see the gaggle of admirers laying roses at the foot of his tombstone regularly. I have never been tempted to leave flowers there myself. Great theories, shame about the practice. Marx did many things. But inventing class was not one of them.
+- One of the more fatuous remarks I've heard in recent days is that 'My Life,' Clinton's autobiography, is too long and, at almost 1,000 pages, short it is not. But this man was for eight years the President of the most powerful country on earth.
+- The thing about politicians in Britain is that they are out there, you can lobby them, get close to them, there are loads of ways you can protest against them, and booing is a pretty weak way of doing it.
+- The pressures to get the story first, if wrong, are greater sometimes than the pressures to get the story right, if late.
+- Like most meaningful activities, campaigns are team games.
+- May I share with you my earliest memory of a political row? It was with my mother, about the Queen - classic Freudian stuff, shrinks would say. I was eight, and refusing to watch the Queen's Christmas Day broadcast.
+- I'm certainly driven, I hate losing, I can be ruthless and short-tempered and terribly competitive.
+- The media are obsessed with spin doctors and with portraying them as a bad thing, yet seem addicted to our medicine.
+- One in four of us will have a mental illness at some point. That is a lot of people.
+- My public caricature - that of a self-confident alpha male - is only partly accurate.
+- Clinton is a big personality who has led a big life, and for some of the media conventional wisdom to boil it down to a view that 'all people are really interested in' are a few moments of madness in the Oval Office gets him, the importance of the presidency, and the significance of his life, all wrong.
+- The royal family's existence is a constant reminder of the hollowness of John Major's rhetoric, and idiotic statements by its leading members a constant boost to the republican cause. They're fine opening hospitals. It's when they open their mouths they get into trouble.
+- There are many reasons for the decline in royal esteem. One is that so many of the royals are thick.
+- So here is one of my theories on happiness: we cannot know if we have lived a truly happy life until the very end. This view of life and death was reinforced by my close witnessing of the buildup to the death of Philip Gould. Philip was without doubt my closest friend in politics. When he died, I felt like I had lost a limb.
+- In an ideal world, it would not take a film star to get the media focused on mental illness.
+- Failure, it is thought, is what sells, and what people want to hear and read about. I am not so sure.
+- There has been a shift to what may be defined as a culture of negativity which goes well beyond coverage of politics.
+- I have always been driven. I have always believed in what I believe very deeply.
+- The bad news for journalists today is that the media, however seriously people who are in the public eye take it, is not taken as seriously as it once was - by the public.
+- We should confine booing in sports arenas to sport. I love a good boo as much as the next football fan.
+- I think I'm highly loveable.
+- The day of the daredevil reporter who refuses to see obstacles to getting the truth, and seeing it with his or her own eyes, seems to have died.
+- I want to write more books, see my first novel made into a film, fight more campaigns, work in more countries. I want to be able to recall experiences that have endured for their pleasure and range and intensity.
+- I hold no candle for George Osborne whatsoever. He has no strategic skills, is a hopeless chancellor, has no idea how most people have to live and his policies are failing and hurting millions.

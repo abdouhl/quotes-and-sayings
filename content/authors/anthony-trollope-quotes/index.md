@@ -1,0 +1,71 @@
++++
+author = "Anthony Trollope"
+title = "Anthony Trollope Quotes"
+quotes_len = "65"
+description = "the best 65 Anthony Trollope Quotes"
++++
+- What is there that money will not do?
+- A husband is very much like a house or a horse.
+- The true picture of life as it is, if it could be adequately painted, would show men what they are, and how they might rise, not, indeed to perfection, but one step first, and then another on the ladder.
+- There is no royal road to learning; no short cut to the acquirement of any art.
+- Wine is valued by its price, not its flavour.
+- An author must be nothing if he do not love truth; a barrister must be nothing if he do.
+- And though it is much to be a nobleman, it is more to be a gentleman.
+- I do not know whether there be, as a rule, more vocal expression of the sentiment of love between a man and a woman, than there is between two thrushes. They whistle and call to each other, guided by instinct rather than by reason.
+- I never knew a government yet that wanted to do anything.
+- I think the greatest rogues are they who talk most of their honesty.
+- I do like a little romance... just a sniff, as I call it, of the rocks and valleys. Of course, bread-and-cheese is the real thing. The rocks and valleys are no good at all, if you haven't got that.
+- They are best dressed, whose dress no one observes.
+- A fellow oughtn't to let his family property go to pieces.
+- This at least should be a rule through the letter-writing world: that no angry letter be posted till four-and-twenty hours will have elapsed since it was written.
+- High rank and soft manners may not always belong to a true heart.
+- Love is like any other luxury. You have no right to it unless you can afford it.
+- A man's mind will very gradually refuse to make itself up until it is driven and compelled by emergency.
+- There is no way of writing well and also of writing easily.
+- I hold that gentleman to be the best-dressed whose dress no one observes.
+- The habit of reading is the only enjoyment in which there is no alloy; it lasts when all other pleasures fade.
+- It is hard to rescue a man from the slough of luxury and idleness combined. If anything can do it, it is a cradle filled annually.
+- My sweetheart is to me more than a coined hemisphere.
+- They who do not understand that a man may be brought to hope that which of all things is the most grievous to him, have not observed with sufficient closeness the perversity of the human mind.
+- It has now become the doctrine of a large clan of politicians that political honesty is unnecessary, slow, subversive of a man's interests, and incompatible with quick onward movement.
+- Success is the necessary misfortune of life, but it is only to the very unfortunate that it comes early.
+- A woman's life is not perfect or whole till she has added herself to a husband. Nor is a man's life perfect or whole till he has added to himself a wife.
+- But then in novels the most indifferent hero comes out right at last. Some god comes out of a theatrical cloud and leaves the poor devil ten thousand-a-year and a title.
+- It has become a certainty now that if you will only advertise sufficiently you may make a fortune by selling anything.
+- It is necessary to get a lot of men together, for the show of the thing, otherwise the world will not believe. That is the meaning of committees. But the real work must always be done by one or two men.
+- There are some achievements which are never done in the presence of those who hear of them. Catching salmon is one, and working all night is another.
+- When a man is ill nothing is so important to him as his own illness.
+- It is the test of a novel writer's art that he conceal his snake-in-the-grass; but the reader may be sure that it is always there.
+- Life is so unlike theory.
+- I doubt whether any girl would be satisfied with her lover's mind if she knew the whole of it.
+- In these days a man is nobody unless his biography is kept so far posted up that it may be ready for the national breakfast-table on the morning after his demise.
+- Poverty, to be picturesque, should be rural. Suburban misery is as hideous as it is pitiable.
+- Never think that you're not good enough. A man should never think that. People will take you very much at your own reckoning.
+- Three hours a day will produce as much as a man ought to write.
+- Dance with a girl three times, and if you like the light of her eye and the tone of voice with which she, breathless, answers your little questions about horseflesh and music about affairs masculine and feminine, then take the leap in the dark.
+- When the ivy has found its tower, when the delicate creeper has found its strong wall, we know how the parasite plants grow and prosper.
+- It is a grand thing to rise in the world. The ambition to do so is the very salt of the earth. It is the parent of all enterprise, and the cause of all improvement.
+- I have no ambition to surprise my reader. Castles with unknown passages are not compatible with my homely muse.
+- No man thinks there is much ado about nothing when the ado is about himself.
+- When it comes to money nobody should give up anything.
+- There is no road to wealth so easy and respectable as that of matrimony.
+- A man's love, till it has been chastened and fastened by the feeling of duty which marriage brings with it, is instigated mainly by the difficulty of pursuit.
+- There is no human bliss equal to twelve hours of work with only six hours in which to do it.
+- Passionate love, I take it, rarely lasts long, and is very troublesome while it does last. Mutual esteem is very much more valuable.
+- Neither money nor position can atone to me for low birth.
+- As to that leisure evening of life, I must say that I do not want it. I can conceive of no contentment of which toil is not to be the immediate parent.
+- Don't let love interfere with your appetite. It never does with mine.
+- Oxford is the most dangerous place to which a young man can be sent.
+- When men think much, they can rarely decide.
+- I ain't a bit ashamed of anything.
+- It may almost be a question whether such wisdom as many of us have in our mature years has not come from the dying out of the power of temptation, rather than as the results of thought and resolution.
+- Cham is the only thing to screw one up when one is down a peg.
+- Marvelous is the power which can be exercised, almost unconsciously, over a company, or an individual, or even upon a crowd by one person gifted with good temper, good digestion, good intellects, and good looks.
+- Book love... is your pass to the greatest, the purest, and the most perfect pleasure that God has prepared for His creatures.
+- It is self-evident that at sixty-five a man has done all that he is fit to do.
+- It is a comfortable feeling to know that you stand on your own ground. Land is about the only thing that can't fly away.
+- There is no happiness in love, except at the end of an English novel.
+- As to happiness in this life it is hardly compatible with that diminished respect which ever attends the relinquishing of labour.
+- The satirist who writes nothing but satire should write but little - or it will seem that his satire springs rather from his own caustic nature than from the sins of the world in which he lives.
+- It has been the great fault of our politicians that they have all wanted to do something.
+- Since woman's rights have come up a young woman is better able to fight her own battle.

@@ -1,0 +1,23 @@
++++
+author = "Tony Oller"
+title = "Tony Oller Quotes"
+quotes_len = "17"
+description = "the best 17 Tony Oller Quotes"
++++
+- I don't know if it's embarrassing, but I have a lot of girl Christian music.
+- I had my share of issues, but now, it's something that's made me who I am and no complaints.
+- I'm very lucky to be doing what I'm doing, and the reason I'm doing everything is because of fans.
+- Music is a big passion of mine, and to be able to do it on the side of acting would be amazing.
+- I write most songs randomly. They don't always deal with something I've been through but something I think is important to tell.
+- I've learned the truth in these sayings: 'Luck is when opportunity meets preparation' and 'The right project will find you'.
+- I call my fans 'friends.'
+- I stay in a lot.
+- I love country; I'm gonna do a country solo album at one point just 'cause. I'm a big fan of Keith Urban, Trace Adkins, Rascal Flatts, even though that's more pop. I grew up on country.
+- My favorite parable for living a positive and influential life is the Golden Rule: 'Do unto others what you would have them do unto you.'
+- I'm always on Netflix. They got 'Breaking Bad!' How can you say no to that?
+- Being from Texas, acting or music isn't really a thing to do.
+- I'm a quirky dude, man.
+- Let's be honest, Netflix has stepped up its game up. It seems to have a lot more of an assortment of stuff.
+- Always make sure your heart is bigger than your head.
+- I love pop and rap. Bringing those two worlds together is always fun.
+- Always dream. Never give up!

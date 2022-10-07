@@ -1,0 +1,103 @@
++++
+author = "Chamillionaire"
+title = "Chamillionaire Quotes"
+quotes_len = "97"
+description = "the best 97 Chamillionaire Quotes"
++++
+- I know how to think outside of the box and be creative.
+- People always put you in a box as a rapper, especially when I get up on a panel and start speaking, and I start speaking when I got some sense. They're like, 'Oh, well, I didn't expect him to have sense.'
+- If I was to leave home without my wallet and my iPhone, and I could only go back and get one, I'd grab my iPhone.
+- If you're a humble person, and you walk in, and you start talking, people are going to be able to tell. You can't fake it.
+- I just want to innovate.
+- I don't want people to think I'm not proud to represent Texas.
+- There are musicians who wait all their lives for this award while for me it came with my first album. People have started acknowledging my work because of the Grammy.
+- I love melody more than any other part of music.
+- I kind of always thought that I had a good ear for melodies. I think in terms of melody. I can just be walking and I'll hear a melody.
+- Everybody's out there trying to be somebody else. Even the good guy's trying to be the bad guy, you know? Just be yourself, man. I think that works.
+- I mean honestly, anybody can diss me. I remember 50 Cent said something and everybody was like you need to get at 50 and I was like, 'Whatever, I'm in a whole different place in my life.' It's gon' have to take something really, really serious for me to start putting that much negative energy into the world again.
+- For those of you familiar with me, you know I'm the last person to chase publicity or attention.
+- I'm a human before I'm even a rapper.
+- Ridin' was natural, not forced. I didn't try to make a Grammy record.
+- Timbaland uses a lot of Indian music and that has certainly familiarised me about the music of India.
+- I didn't want to be one of these rappers that holds his chain up just faking like he has money. I wanted more.
+- When I was coming up, there was only one way to listen to music, and that was on a Walkman.
+- If you go down to Texas, people are real proud about and they rep Texas.
+- Artists can be themselves. They don't have to pretend to be somebody they're not.
+- When I decided to collaborate with people, I wanted to collaborate more with the underdogs, the street people, messing with the people like Jae Millz and Papoose. When I went to New York, they were all over the mixtapes, so I wanted to get down with those guys instead of trying to go safe with all the super-big names.
+- America is fascinated with seeing people have nothing and turn it to something.
+- I can't live without my iPhone.
+- Slick Rick has always been one of those guys real good at telling stories.
+- There are cops who be racially profiling.
+- Some people don't have to be on the screen all day and they could be making interest on so many different things and making money. I look at people like that. Those are the kind of entrepreneurs I look at.
+- When I get to the stage, I don't get no kind of weird feeling when everybody starts screaming. It doesn't make me feel superhuman or anything. Me, I never really wanted to be famous like that.
+- Before, I used to just make songs all day and now, with so much business and other things that I have in my personal life, I don't have time to sit around and make songs like I used to. I wish I did. I wish I could practice on my craft all day and just be in the studio like I feel Lil Wayne does.
+- I want people to understand how the tech world changes my world.
+- I know that the fans are also very responsible for an artist's success and feel like they deserve to be recognized.
+- Spotify will dramatically change my industry.
+- I want to do more to create more awareness so that the people in our communities aren't just thinking that you just got to be a basketball player or a rapper, because that's what I thought.
+- Music's designed to be timeless.
+- I named my first album 'The Sound of Revenge' because I wanted to get revenge on everyone who doubted me. But when I finally got revenge, I didn't enjoy it.
+- I just think knowledge makes the world go 'round, man. So, if that makes me a geek, then cool.
+- The reason why we decided to put the focus on minority and women-funded startups is because this demographic of companies and founders is just underrepresented, they're under-invested in.
+- I'm a rapper to a lot of people. But I'm also someone who is very entrepreneurial.
+- When people say they can't find African-American startups to invest in, it just sounds a little crazy to me.
+- There are a lot of people that have great ideas that want to create disruptive companies that change the world but everybody doesn't have the skills to be able to do that.
+- I'm an underground mix-tape artist who's had a level of commercial success.
+- I'm willing to role the dice with my career to be different.
+- You can learn how to code today. You can build this same thing that you're looking at every day, that you're tweeting on, that you're snapping on, and I feel like that conversation needs to be had.
+- Life is too short to be arguing over some little things.
+- My focus is not necessarily about money as much as people think.
+- I've got an iPod but I don't even use it. It's just that, you know, you've got to like plug it up to the computer. And then you've got to download songs. And put them in your playlist. I'd rather just get the CD and pop it in. I'm cool with the Discman. The Walkman.
+- When fans know they are being rewarded, they are more engaged.
+- I don't want people to love me. I want people to chill and just listen to my music.
+- People can see it when you're honest and sincere.
+- I am a career artist. A lot of people come by and they fly by night, but I'm gonna prove that I can stay in the game and have some longevity.
+- Even if I did work with a big producer, you try not to do the same kind of records as everybody else.
+- Don't listen to much country music, you know, but I know a little bit though. My sister listens to a little bit of country.
+- I'm just living life and enjoying it. Alive, kicking, and doing good. That's what a real winner is.
+- I used to try to get revenge on the critics, but now I realize I've already won, and it doesn't matter what people say.
+- Rap got me out of the hood. Rap got me out of Houston and helped me to see the world.
+- I got kicked out of my father's home because of my feelings towards hip-hop.
+- Sometimes I'll do something when I'm tired at night, and it'll sound hot. But in the morning, when I'm wide awake, I'll listen again and think it's way off. Nobody else would notice it, but I'm like, I've got to fix that!
+- Hotels are nice and everything, but there's no place like home.
+- Being an entrepreneur isn't easy, but it's even harder for minority and women-led companies.
+- Celebrities need to be talking to the people who are their greatest fans.
+- Timing is everything for me, especially.
+- I believe in pushing my records until the wheels fall off.
+- My biggest obstacle is trying to keep the music pure to what I want to release. I don't want any corporate suit telling me what story to tell.
+- I don't want to be the guy that's sitting here, calling somebody and telling them their dream. I want to be in the seat of the founder.
+- I'm just an artist that makes good music and has a good idea to make money off of that.
+- I'm not trying to reinvent the wheel with 'Venom.' I'm not trying to go too far to the left or too far to the right. Sometimes I step outside the box and it might lose people a little bit, so this time I'm going straight up the middle. I'm coming with some hard stuff.
+- I walked around the music industry for a bunch of years, right? I saw a lot of rich people. I didn't see wealthy. I got into the tech industry, I see wealthy every day.
+- It's an honour to have been invited to perform in India for 'Vh1 Hip Hop Hustle.' This only reconfirms the impact Hip Hop culture and music has made globally.
+- Most companies that are successful listen to people and see what they want and they make that. So when I used to make songs, I'd make mixtapes. The public would tell me what they like and then I would make songs based on what they like. That's how I knew 'Ridin' Dirty' was going to be big - they told me they liked this kind of music.
+- I have some ideas for things nobody's done before, and some are ideas bigger than me that I might be able to pull off, maybe.
+- We as rappers have a job and have to get fans music and let them know about stuff that's coming out. So if everyone migrates to Twitter, that's where we go.
+- Snoop Dogg has this larger than life image which is so not true because when you meet him in person he's so humble, loves his kids and enjoys his life.
+- Slim Thug and Z-Ro can make a record together, and even Flip and T.I. can make a record together, but there's a difference between that and Flip and T.I. holding hands and being friends. When people say they want these records, they mean that they want us all to be friends.
+- I was never really like, 'Oh, I wanna be famous,' you know, 'I wanna be a big rapper.' I mean, I love rap, but it wasn't just fame.
+- Sometimes I ask at concerts, how many of you are on Twitter, and the crowd goes crazy. Then I ask about Facebook, and the crowd goes even more crazy.
+- I can do so much more than rap with the rest of my life. there's so much more in this world.
+- Weird Al is not gonna do a parody of your song if you're not doing it big.
+- Technology is power.
+- I woud definitely want to collaborate with Indian musicians.
+- If you don't have respect for immigrants, or you don't have respect for minorities, or you don't have respect for women, it's gonna be very difficult for you to understand why the other side needs to be treated fairly.
+- Just like so many other people out there, I don't want to sit on the sidelines, I want to do the most that I can to help.
+- I love that with a lot of my favorite records, I couldn't tell you the sales on them, like Scarface or some of the UGK albums.
+- Scarface, I don't think, has done anything in his whole career to tarnish his legacy.
+- Not everything works for everybody.
+- Me and a few others like Big Boi from Outkast and Trey Songz were excited about the ride-sharing space. This was around 2014, we started making the steps to get in touch with Lyft and did our investment in 2015.
+- We all know he was talented but he was also a very smart, kind, funny individual and his personality and presence will be deeply missed. There will never be another person like him but his legacy will live forever. R.I.P. Chad Butler.
+- If you look at companies like Twitter, Google, all these companies started with ideas and then everybody used it. In my world, people don't think like that. Rappers chase the next check. They become a slave to labels and eventually that money starts shrinking.
+- I've watched the dynamics of music completely change to where we've sold tapes, we've sold CDs, then everything started becoming 'music is free' now. In a perfect world, Napster wouldn't have come along. But the world isn't perfect, and when it changes, you have to adapt.
+- Don't let evil agendas turn us against each other.
+- I was thinking what happens if I break my leg today? What can I do to prevent me going back to the place of being poor? It led me to the world of venture capitalism. How are they making money? I decided I'm going to learn as much as I can.
+- I know I make a lot of jokes about Mike Jones, but I don't even have no hatred for him.
+- The future of the world is in the palm of the tech community.
+- I trust my gut instinct, and go against the grain and it works.
+- When I'm in the studio with other rappers, we talk about social issues.
+- I like to give people information; that's to a fault.
+- There are people that are doing things that I would've never even thought possible.
+- Everyone could relate to that feeling of when, even if you've done nothing wrong and you see the police behind you, you get nervous.
+- I don't play 'Farmville'... I play 'Mafia Wars.'
+- I was one of the first rappers to have his own forum. Then 50 Cent made 'Thisis50.com,' and everyone made sites just like it.

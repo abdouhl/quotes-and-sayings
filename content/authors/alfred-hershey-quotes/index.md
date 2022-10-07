@@ -1,0 +1,17 @@
++++
+author = "Alfred Hershey"
+title = "Alfred Hershey Quotes"
+quotes_len = "11"
+description = "the best 11 Alfred Hershey Quotes"
++++
+- Humans love truth and justice, and rejoice in ceremonies that honor those qualities. For that sentiment we should indeed thank God.
+- I can only point out a curious fact. Year after year the Nobel Awards bring a moment of happiness not only to the recipients, not only to colleagues and friends of the recipients, but even to strangers.
+- Virus particles contain single molecules of nucleic acid.
+- Joseph Mandell and I began by attempting to make chromatography of DNA work.
+- Actually, my correspondent's language is better than mine. He can put his sentiment into words.
+- Physical studies of DNA had, of course, been under way for some years before analysis of virus particles began.
+- Different viral species contain nucleic acids that differ not only in length and nucleotide sequence but in many unexpected ways as well.
+- Year after year, the Nobel Awards bring a moment of happiness not only to the recipients, not only to colleagues and friends of the recipients, but even to strangers.
+- Of course there are depressing periods when nothing appears to be happening. But whenever anything was happening, and even when nothing was happening, it was fun just to do phage experiments.
+- When I began playing around at being a physical chemist, I enjoyed very much doing work on the structure of DNA molecules, something which I would never have dreamed of doing before I started.
+- That's the nice thing about doing research. Whatever you do is novel, so you always have this sense of novelty, even if you are only using a new gadget.

@@ -1,0 +1,96 @@
++++
+author = "Robbie Robertson"
+title = "Robbie Robertson Quotes"
+quotes_len = "90"
+description = "the best 90 Robbie Robertson Quotes"
++++
+- Do you know what a skin walker is? It's a thing in Indian mythology. There are certain people born with this gift, and they're able to actually get inside you and mess with your feelings and with your mind. And if a skin walker chooses to get a hold of you, there's not much you can do.
+- For years after 'The Last Waltz,' I got all kinds of silly movie offers - or, maybe, not silly, but parts that are not my calling... lots of offers to play some wonderful boyfriend.
+- The native music of North America, the original-roots music of this country, is also the underworld music of this country.
+- I don't want to be one of those people saying, 'Remember when things were better?'
+- The direction is going the right way for respect for aboriginal people in North America, and all we can do is stand up and say, 'Please do it faster.'
+- I thought of a lot of people from the same era when I was making a lot of records that had continued making a lot of records. A lot of it didn't seem terribly inspired.
+- In a lot of groups, you can change a musician, and it doesn't mean anything.
+- I love traditional music. But in any culture around the world, there is the historic and cultural music and everything that's been passed down and passed down, and hopefully you take that, and then you take it, you know, the next distance, and then somebody else takes it the next distance.
+- My mother told me when I was a toddler and in the crib that they would have music playing, and the thing when I lit up was boogie-woogie or something out of the Louie Jordan period of sometimes big bands, and then all kinds of things.
+- I never really had a teenage experience. I went from childhood to maturity, and in some ways, it short-circuited me emotionally.
+- I was a storyteller for The Band. It was never, 'Hey guys, here's a song about what happened to me.' I was always more comfortable writing fiction.
+- My mother was a Mohawk, born and raised on a reservation, and when I was a kid, she would take me there to visit her relatives.
+- I think the world of Chuck Berry.
+- I've always been in love with that Delta-flavored music... the music that came from Mississippi and Memphis and, especially, New Orleans. When I was 14, I was in a wanna-be New Orleans band in Toronto.
+- Once you establish a foundation of knowing what the greatest recording artists of all time were... Wouldn't you want your kids to know this stuff?
+- Music should never be harmless.
+- I've been really fortunate that I've been at a lot of critical crossroads in my musical journey. When I look back, there are some pretty interesting things to look at.
+- One of the greatest live recordings, I think, in the history of the world is Ray Charles in Atlanta... And they didn't even have a big mobile recording thing set up. The word on the street was they only had like two microphones, one for the band and one for him. Perfect recordings. I think it's mono.
+- The kid at 9 or 10 who knows who Billie Holiday is... that's the coolest thing ever.
+- I do not have yearnings to get back on a bus. If it means getting on a bus, I don't want to do it.
+- I'm always optimistic.
+- Everybody grows in their own way.
+- The Band is probably the ultimate example of people taking all kinds of music, from gospel to blues to mountain music to folk music to on and on and on and on and putting them all in this big pot and mixing up a new gumbo.
+- When you look at that period when Warhol and the Velvets and the Stones were doing things, it was this intersection of art and music. And then it went away.
+- I admire those old road dogs, Willie Nelson, Bob Dylan. That's their life.
+- I always like to keep one hand in the tepee and the other hand in the synagogue. Wouldn't it be great if there was a combination of the two? You could go to synagogue, and it would be really hot in there.
+- I remember from my earliest years people speaking, you know, in a certain kind of rhythm and telling stories and sharing experiences in a way that was different in Indian country than it was other places. And I was really struck by this and obviously very affected by it, because it's always come out in my songs.
+- The road has taken a lot of the great ones: Hank Williams, Buddy Holly, Otis Redding, Janis, Jimi Hendrix, Elvis.
+- It's a bit of a sore spot, the Thanksgiving in Indian country.
+- A lot of people from my generation can't write songs anymore, or it's really hard and it's an unpleasant experience. I don't feel that way at all.
+- Working on 'The Last Waltz' introduced me to Martin Scorsese, and I had been a movie bug since I was a young kid.
+- Boy, do I got some stories to tell.
+- The Band was rebelling against the rebellion. The rebellion went to a place where it became too obvious, too trendy, like you were just following the pack. So it was our choice to get off the bandwagon - no pun intended - and do things that were in our background and what was the most honest thing to do.
+- That whole lifestyle - make a record, do a tour: I know how to do that. It doesn't interest me.
+- You don't stumble upon your heritage. It's there, just waiting to be explored and shared.
+- In Americana, the facts and the dreams seem to be all the same to me.
+- There's a bookstore in New York where you could buy scripts, and I got addicted to them because they were easy, quick reads... and the pictures were so vivid.
+- It's extraordinary that revolutions taking place around the world were sparked by communication on the Internet.
+- I think, some countries, you have to be dead to have your picture on a stamp.
+- Most of my younger Native American friends are not in any way looking for sympathy, and they're not looking to lay guilt on anybody. They have their dignity, and they do what they do.
+- When I was playing with Bob Dylan in, like, 1966, I was, like, 20 years old.
+- I asked Bob Dylan to paint the album cover for 'Music from Big Pink.' He said, 'Yeah, let me see what I can come up with.'
+- Time is not kind to everything.
+- I come from a family who prided themselves, both sides, on memory. And I was told growing up, constantly, that I was born with a really good memory.
+- I think that there's always great music being made. Always has been, always will be.
+- I'm not an activist.
+- If I can play one note and make you cry, then that's better than those fancy dancers playing twenty notes.
+- I'm really lucky because I found myself in a position where I can do whatever I want to do. I can make records, produce records, make movies, or I can do nothing. I'm not a slave to the dollar.
+- There's something so healthy about young people speaking up in unity.
+- I'd always thought Cage's 'Root of an Unfocus' would be great in a movie.
+- By the time I was 13, I was the only one in London, Ontario, who knew how to play rock n' roll.
+- I like to work on records when I feel inspired, not because it's expected of me.
+- Music isn't necessarily made to last, and there's always been disposable music.
+- People go through periods when things are dark and cloudy, and they talk dark and cloudy.
+- To find a new star in the sky is pretty hard.
+- One of the things I feel very strong about is the achievement of the Band really being a complete band.
+- Some people love some music, and they hear it a year later and they think, 'What was I thinking?'
+- I am fascinated by the places that music comes from, like fife-and-drum blues from southern Mississippi or Cajun music out of Lafayette, Louisiana, shape-note singing, old harp singing from the mountains - I love that stuff. It's like the beginning of rock and roll: something comes down from the hills, and something comes up from the delta.
+- Think about the number of people who do film music, make records and have a Native American heritage - and I may be the only one on the list.
+- I haven't been to many music events where somebody was performing and it actually made me cry.
+- Musical revolutions, I don't know how many I've been through.
+- It's easy to be a genius in your twenties. In your forties, it's difficult.
+- There is an extraordinary collaborative spirit when you are learning and growing.
+- I could never be a movie star and get up at 7:30 to be at someone else's studio.
+- I saw Ray Charles at Massey Hall.
+- You never know what could be interesting tomorrow.
+- I feel so lucky to have been in a group where it was a real band. This wasn't a singer and guitar player and some other guys.
+- There's a thing that has happened in the U.S. where the spirit has been beaten so badly and so you feel no unity in the voice of the country.
+- My mother is extraordinary. She understood me and never tried to hold me back.
+- My thirst for knowledge and experience comes from the idea that once you learned something, it was time to learn something else. I missed out on a formal educational process, so I'm making up for that.
+- People think I left The Band and spoiled this whole thing, and that's not what happened. Nobody broke up The Band. Nobody ever said, 'That's it, we're done.'
+- Sixteen years on the road is long enough. Twenty years is unthinkable.
+- Some music is supposed to be disposable; that's OK. A lot of music is fun for today, but it isn't supposed to be timeless; it's supposed to be trendy.
+- I play guitar quite a bit, because I'm always in search of something. I don't play to jam, but because I'm fishing. I'm looking for something, that I hope you can never find. If I do find it, I'm afraid I won't have a need to do this any more.
+- We need to have a taste factor in our life. It isn't about what's popular; it's about what's really good.
+- I wanted to develop a guitar style where phrases and lines get there just in the nick of time, like with Curtis Mayfield and Steve Cropper. Subtleties mean so much, and there is a stunning beauty in them.
+- I don't like overt traditionalism.
+- Cowboys had guitars. And they sang country 'cause they lived in the country.
+- I don't know - it's a bit of a mystery of how things come about when they do. I don't have a scientific explanation for it. Sometimes when you're writing a song, you don't know where you're going.
+- Record making is an extraordinary experience.
+- I love the idea of having a kid who says, 'Yeah, of course I knew about Billie Holiday and Johnny Cash when I was nine years old.'
+- I really have to feel a sense of freedom in my storytelling.
+- A lot of times when you're making a record, you put your head down and charge forward until you're done. You just hope that the ideas hold up, because you're kind of lost in your own storm.
+- At a young age I thought, 'Wow, that fiddle thing, that's pretty cool. That mandolin is great. These drums, I like these drums... ' They were Indian drums. And I was saying, 'But that guitar. That guitar. Girls are going to like that guitar.'
+- After the 'Last Waltz' concert, it just seemed very healthy to me to put making a record as far out of my mind as I possibly could.
+- Chuck Berry told me if it wasn't for Louis Jordan, he wouldn't have probably ever even got into music. That Louis Jordan changed everything and made him want to become a musician.
+- When I was 14 years old, I had the opportunity to meet Buddy Holly. I asked him how he got that big, powerful sound out of his guitar amp. He said, 'I blew a speaker and decided not to get it fixed.'
+- Some bands today have the experience of really working together and honing their craft. And other bands are very much like, 'I just got a guitar for Christmas, let's start a band.' And you can hear the difference.
+- When I was younger, I thought I was too young to really be personal. I thought that what I was feeling and thinking might be half-baked.
+- Bob Dylan is as influential as any artist that there has been.

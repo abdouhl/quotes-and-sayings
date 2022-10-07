@@ -1,0 +1,106 @@
++++
+author = "Colin Powell"
+title = "Colin Powell Quotes"
+quotes_len = "100"
+description = "the best 100 Colin Powell Quotes"
++++
+- In 2008, I spoke out against calling the president a Muslim as if that was a curse. And then in 2012, once again, I was very disturbed about some of the intolerance I was seeing in the party, so I made a statement saying there's a level of intolerance in some parts of the Republican Party. And there was, and I think there still is.
+- When Jerry Springer thinks you've gone too far, my friends, you have gone too far.
+- Get mad, then get over it.
+- Our diplomacy and development budget is not just about reducing spending and finding efficiencies. We need a frank conversation about what we stand for as that 'shining city on a hill.' And that conversation begins by acknowledging that we can't do it on the cheap.
+- Never let your ego get so close to your position that when your position goes, your ego goes with it.
+- You have to make sure you know why you are going to war and then use decisive force to end it as soon as possible.
+- Today I can declare my hope and declare it from the bottom of my heart that we will eventually see the time when that number of nuclear weapons is down to zero and the world is a much better place.
+- Experts often possess more data than judgment.
+- Trump just looks stupid trying to appeal to blacks and Latinos.
+- Politics is not bean bags. It's serious, tough stuff.
+- Wouldn't it be great if we could look forward to a whole world in which no child will be left behind?
+- Throughout my career, I learned plenty about war on the battlefield, but I learned even more about the importance of finding peace. And that is what the State Department and U.S.A.I.D. do: prevent the wars that we can avoid so that we fight only the ones we must.
+- My own experience is use the tools that are out there. Use the digital world. But never lose sight of the need to reach out and talk to other people who don't share your view. Listen to them and see if you can find a way to compromise.
+- Yup, the whole birther movement was racist.
+- Success is the result of perfection, hard work, learning from failure, loyalty, and persistence.
+- We got rid of a terrible dictator. We gave the Iraqi people an opportunity for a new life under a representative form of government.
+- The commander in the field is always right and the rear echelon is wrong, unless proved otherwise.
+- So like any football or basketball coach, you always always believe you're going to win.
+- Some of the generals are saying, 'We're making progress. We are clearing an area.' But you really don't defeat the Taliban by clearing an area. They move.
+- I was born in Harlem, raised in the South Bronx, went to public school, got out of public college, went into the Army, and then I just stuck with it.
+- Many interviewers when they come to talk to me, think they're being progressive by not mentioning in their stories any longer that I'm black. I tell them, 'Don't stop now. If I shot somebody you'd mention it.'
+- The United States is not stingy. We are the greatest contributor to international relief efforts in the world.
+- Economy's got to get moving, we've got to get the unemployment rate down. That may be the defining issue of the campaign.
+- The purposes of the United States should not be doubted. The Security Council resolutions will be enforced - the just demands of peace and security will be met - or action will be unavoidable. And a regime that has lost its legitimacy will also lose its power.
+- Standing in support of children is something we should all be able to get behind, regardless of party affiliation.
+- Surround yourself with people who take their work seriously, but not themselves, those who work hard and play hard.
+- Leadership is solving problems. The day soldiers stop bringing you their problems is the day you have stopped leading them. They have either lost confidence that you can help or concluded you do not care. Either case is a failure of leadership.
+- Trump is a national disgrace and an international pariah.
+- You should see what our Founding Fathers used to say to each other and in the early part of our nation. But what they were able to do, especially in Philadelphia in 1787, four months, they argued about what a House should be, what a Senate should be, the power of the president, the Congress, the Supreme Court. And they had to deal with slavery.
+- I think whether you're having setbacks or not, the role of a leader is to always display a winning attitude.
+- Have fun in your command. Don't always run at a breakneck pace. Take leave when you've earned it, spend time with your families.
+- Never neglect details. When everyone's mind is dulled or distracted the leader must be doubly vigilant.
+- Avoid having your ego so close to your position that when your position falls, your ego goes with it.
+- Children need to get a high-quality education, avoid violence and the criminal-justice system, and gain jobs. But they deserve more. We want them to learn not only reading and math but fairness, caring, self-respect, family commitment, and civic duty.
+- Bad news isn't wine. It doesn't improve with age.
+- It was the Congress that imposed 'Don't Ask, Don't Tell,' it was certainly my position, my recommendation to get us out of an even worse outcome that could have occurred.
+- Foe means enemy. Now, will we have differences of opinion with the Russians? Yes. Will they get mad at us from time to time, and we get mad at them? That's part of the normal diplomatic relations.
+- There's not going to be a World War III, because there is no one to have World War III with.
+- President Assad, I worked with. I know him reasonably well, met with him a few times, and he's a liar.
+- We all hoped in 2001 that we could put in place an Afghan government under President Karzai that would be able to control the country, make sure al-Qaeda didn't come back, and make sure the Taliban wasn't resurging. It didn't work out.
+- I try to be the same person I was yesterday.
+- Don't be afraid to challenge the pros, even in their own backyard.
+- The Army will take its lessons learned. They're excellent at looking into themselves and reflecting on what did we do right, what did we do wrong.
+- Diplomacy is listening to what the other guy needs. Preserving your own position, but listening to the other guy. You have to develop relationships with other people so when the tough times come, you can work together.
+- What we have to find is the right level of regulation of our financial system so that it has the incentive to invest in things, but at the same time, it is sufficiently regulated so it can't get in the kind of trouble that we have seen in the past and we have seen recently.
+- Russia isn't going to start a war. They can't afford it. I think Mr. Putin can be dealt with if we stop screaming at him. You can work with the guy. You just have to know who he is.
+- Giving back involves a certain amount of giving up.
+- When you decide to get involved in a military operation in a place like Syria, you've got to be prepared, as we learned from Iraq and Afghanistan, to become the government, and I'm not sure any country, either the United States or I don't hear of anyone else, who's willing to take on that responsibility.
+- Perpetual optimism is a force multiplier.
+- In other words, don't expect to always be great. Disappointments, failures and setbacks are a normal part of the lifecycle of a unit or a company and what the leader has to do is constantly be up and say 'we have a problem, let's go and get it'.
+- But just as they did in Philadelphia when they were writing the constitution, sooner or later, you've got to compromise. You've got to start making the compromises that arrive at a consensus and move the country forward.
+- It's nice to say let's be bipartisan. But we're a partisan nation. We were raised as a partisan nation.
+- Is there something wrong with being a Muslim in this country? The answer's no. That's not America. Is there something wrong with some seven-year-old Muslim American kid believing that he or she could be president?
+- The healthiest competition occurs when average people win by putting above average effort.
+- The chief condition on which, life, health and vigor depend on, is action. It is by action that an organism develops its faculties, increases its energy, and attains the fulfillment of its destiny.
+- A dream doesn't become reality through magic; it takes sweat, determination and hard work.
+- Look at the world. There is no pure competitor to the United States of America.
+- The country would be a lot better off if we stopped having comment sections. And if we got rid of Twitter.
+- I don't want to spend the rest of my life giving speeches.
+- Don't let your ego get too close to your position, so that if your position gets shot down, your ego doesn't go with it.
+- No battle plan survives contact with the enemy.
+- It ain't as bad as you think. It will look better in the morning.
+- What you're seeing with Occupy Wall Street and the others are people who are unhappy and they're directing their unhappiness now toward Wall Street and toward those they think are doing too well in our society.
+- There are lots of countries that are having these kinds of internal civil wars in other parts of the world and nobody is talking about intervening.
+- There are no secrets to success. It is the result of preparation, hard work, and learning from failure.
+- You're not just voting for an individual, in my judgment, you're voting for an agenda. You're voting for a platform. You're voting for a political philosophy.
+- I don't know that there is much the United States can do except work with the international community.
+- We have practiced diplomacy since the very beginning of the nation. Sometimes it has not worked, and we've had to go to war. I always believe you should try to find peace and reconciliation before conflict. That has been the approach I've taken.
+- Trump has no sense of shame.
+- Engineering didn't take to me. And what saved me and kept me in college was I ran into ROTC cadets who were in a fraternity called The Pershing Rifles. And I found my place. I found discipline. I found structure. I found people that were like me and I liked.
+- It isn't enough just to scream at the Occupy Wall Street demonstrations. We need our political system to start reflect this anger back into, 'How do we fix it? How do we get the economy going again?'
+- We need to understand that we as citizens and as a government in any community throughout this country have no more important obligation than to educate those who are going to replace us.
+- In the last several years, I have been troubled by the right shift of the Republican party too far to the right.
+- It's not just a matter of whether you support Obama or Romney. It's who they have coming with them. I always keep my powder dry, as they say in the military.
+- You don't know what you can get away with until you try.
+- Great leaders are almost always great simplifiers, who can cut through argument, debate and doubt, to offer a solution everybody can understand.
+- I always like to take my time and examine the two candidates, see not only the two candidates but the policies they will bring in, the people they will bring in, who they might appoint to the Supreme Court, and look at the whole range of issues before making a decision.
+- 90 percent of my time is spent on 10 percent of the world.
+- Indeed, we're strongest when the face of America isn't only a soldier carrying a gun but also a diplomat negotiating peace, a Peace Corps volunteer bringing clean water to a village, or a relief worker stepping off a cargo plane as floodwaters rise.
+- I consider myself a moderate Republican. I have very, very moderate social views, and I'm pretty strong on, on defense matters.
+- You need to understand, if you take out a government, take out a regime, guess who becomes the government and regime and is responsible for the country? You are. So if you break it, you own it.
+- The only bipartisanship you ever see is when they finally sign a bill and everybody says, 'Gee, isn't that wonderful?'
+- Don't bother people for help without first trying to solve the problem yourself.
+- War should be the politics of last resort. And when we go to war, we should have a purpose that our people understand and support.
+- High-quality early-childhood programs and health coverage have expanded, and the number of mentoring relationships for at-risk youth has risen dramatically. That progress is encouraging, but it's not evenly distributed.
+- In terms of the legal matter of creating a contract between two people that's called marriage, and allowing them to live together with the protection of law, it seems to me is the way we should be moving in this country.
+- I respect the fact that many denominations have different points of view with respect to gay marriage and they can hold that in the sanctity in the place of their religion and not bless them or solemnize them.
+- It's a disgrace that we have millions of people who are uninsured.
+- Too often we act - ask our schools to be truant officers, our teachers to be truant officers, because we're giving them children who have, you know, they're not ready to learn. And if they're not ready to learn by the third grade, they know they're behind.
+- You can't just have slogans, you can't just have catchy phrases. You have to have an agenda. And I think what the Republican Party has to do, if it's going to incorporate the tea party efforts in it, is to come up with an agenda that the American people can see, touch, and actually believe in, and something they believe in.
+- Organization charts and fancy titles count for next to nothing.
+- I don't think we handled the aftermath of the fall of Baghdad as well as we might have. But that's now history.
+- As I have done in every election since I started voting so many years ago, I always like to take my time and examine the two candidates, see not only the two candidates but the policies they will bring in, the people they will bring in, who they might appoint to the Supreme Court, and look at the whole range of issues before making a decision.
+- People have asked me, 'What would you have done if you hadn't gone into the Army?' I'd say I'd probably be a bus driver. I don't know.
+- If you are going to achieve excellence in big things, you develop the habit in little matters. Excellence is not an exception, it is a prevailing attitude.
+- The idea that putting Americans 'first' requires a withdrawal from the world is simply wrongheaded because a retreat would achieve exactly the opposite for our citizens.
+- Fit no stereotypes. Don't chase the latest management fads. The situation dictates which approach best accomplishes the team's mission.
+- Drones are just another weapon, and they turn out to be a very effective weapon that puts no American troops at risk, and I don't see why we shouldn't use them against identified enemy targets.
+- If a leader doesn't convey passion and intensity then there will be no passion and intensity within the organization and they'll start to fall down and get depressed.
+- I think the Iranians are clearly determined to have a nuclear program. And we have to assume that with a nuclear program they have the capability and the will to create a nuclear weapon.

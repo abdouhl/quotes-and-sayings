@@ -1,0 +1,101 @@
++++
+author = "Leslie Odom, Jr."
+title = "Leslie Odom, Jr. Quotes"
+quotes_len = "95"
+description = "the best 95 Leslie Odom, Jr. Quotes"
++++
+- As an artist, I'm very used to waking up and sort of not knowing what my day's going to be and not knowing where my next paycheck is going to come from.
+- None of us wants to be judged by our worst act on our worst day, and we consistently judge Burr for that. He was not a perfect man, but he's not a villain. He's a dude, just a guy.
+- I had no vision of me being a part of that show ever. But I was committed to being the first super-fan of 'The Hamilton Mixtape' that there ever was. I was in love with this thing.
+- I've spent a long time learning my way around a stage as an actor, but this I don't know as well. Humbly, I'm excited to get with a band and perform regularly as an artist and see what I can learn and how I can grow in that space.
+- I remember when I was in 'Rent,' Daphne Rubin-Vega threw a party. At the time, she had a loft in TriBeCa, and the elevator opened right into her apartment. I was like, 'I've never seen anything like that.' I didn't know it was possible.
+- I'm so excited about my new partnership with the talented and motivated team at S-Curve Records!
+- I know what feeling broke feels like real well. I know that real well.
+- There was a lot of the 'Hamilton' experience that was like a locomotive. It was a hurricane, so the apartment often looked like a hurricane. There were clothes and shoes all over. We were getting more things in than we had room for. We had to figure out how to make space for all the blessings and goodness coming toward us.
+- When I step on the stage and sing 'Wait for It,' I'm singing that for everybody. I don't mean I'm singing it for them; I mean, you are their voice.
+- The bad guys have way more fun, in my opinion. 'Bad guys' in quotes.
+- I grew up in Philadelphia in a time where we took it for granted that we were supposed to be young and gifted and black. It was a culture of excellence - and all my friends were more talented than I was.
+- That was the bat signal for me - 'Rent' changed my life. It took me years before I got beyond that show.
+- It's not about doing something that's as big as 'Hamilton.' That may never happen again, and that's okay.
+- You need to put your head down and... try not to lose hope.
+- What goes up must come down; I'm not going to be in 'Hamilton' forever. Everything I work on won't have this kind of success.
+- I wanted to make an album that was hopeful and encouraging and inspiring. That was the goal.
+- I got my Equity Card with my Broadway debut when I did 'Rent.' I was in high school, and I came to New York to do that show.
+- I'm an artist, and I like art that gets people talking, good or bad. Criticism is good, too.
+- None of us get to divorce ourselves from the world. We walk into the theater and bring all of our grief and our pain and our joy with us.
+- You gotta love this thing. Whatever you choose to pursue - medicine, law, writing, you have to love it. You study it, you eat it, you drink it, you try it, you do it, you love it in every way.
+- I don't have any control over the offers that are going to come to me or not come to me. But I can't go backward, and so that's what's tricky.
+- You hear a song like 'Wait For It,' you hear a song like 'Dear Theodosia' - if you get one of those songs in a musical - one - it's worth dropping everything to sing that one song.
+- You can't judge the people that you play anyway; you leave that for somebody else to do.
+- I think it was, my parents got me a karaoke machine when I was about 9 years old. Even before that, they got me a tape recorder that I used to walk around my life with. And there was something about recording and then hearing myself back.
+- It is said an artist spends their whole life trying to get to the place where their heart was first opened up. 'Rent' was that place for me.
+- You go see a great production of 'Romeo and Juliet,' where those kids are full of life and love, you hope and forget.
+- I've been involved with 'Hamilton' for about two and a half years. I've learned so much. I came into it a young man. Now I've dropped the 'young.'
+- I'm the nap champion.
+- I started out with this 'La Boheme' fantasy, but as you get older, the 'La Boheme' fantasy becomes less sexy, believe me.
+- We're reminded yet again: we are stronger, we are smarter, we have more fun when we include each other - when we include as many perspectives as possible.
+- To get even realer with you for a second, as a black actor, as a performer of color, I don't know how many more roles like Aaron Burr are gonna come along for me.
+- I think art, at its best, happens on a conscious and a subconscious level.
+- I don't want to leave anything offstage.
+- When we go and cheer Cynthia Erivo on in 'The Color Purple,' it's because we've elected her to be our voice. She sings 'I'm Here' for all of us.
+- What is the future going to say about us now? What are our kids going to look at us and say, 'How could you not stop that person from getting into power? How could you not stop that environmental disaster that you saw coming a mile away?'
+- People are coming to you at their most vulnerable; they're showing you the parts of themselves that they're afraid to show: the parts that they're not so sure about, not so secure in. And so it's a really holy profession I think, teaching. If you do it right, it can change somebody's life.
+- Nothing lasts forever in my profession.
+- I studied at Carnegie Mellon. I went there with a bunch of really, really talented kids.
+- We don't get to get swept up, because we have to start over every day at 8 o'clock.
+- I remember Ella Fitzgerald sort of coming into my life like a bolt of lightning - like, what is that? It was one of the purest examples of God in art that I'd ever seen.
+- There's this Frank Wildhorn tune 'Sarah' - it's not a widely known tune, but it's my favorite song to sing.
+- I was a good student; I was a good boy. I got A's, and I did all the papers right.
+- I want to know that I'm gonna knock 'em dead every night.
+- I'm addicted to growth.
+- I feel like every night, when you see a really good production of 'Romeo and Juliet' or something, you should hope that it ends differently. That's why we watch our favorite movies again and again.
+- If you're an open channel when you're onstage, if you're just a vessel, things are going to come out that are stored away deep in your DNA.
+- Sometimes I think of creativity or art as this well that we all draw from.
+- You must be an artist and a citizen of the world. You must speak to this stuff that's happening. You must do what you can to shine a light on it, help people through it.
+- When I see the black experience - there's not one, but it is specific, and you can't ignore it.
+- I know what not being able to pay your bills feels like real well... I know that way better than a room full of beautiful people and Tony awards and Grammy awards.
+- For most of your career, what you're trying to do is to step into other people's shoes.
+- What a casting director does is they're a connector.
+- It's about polarization. You're trying to stir up something in your audience.
+- I've done a lot of translation in TV, and I can do it. I'm trained to do it. I know how to inject a certain amount of my naturalness into that and where I come from into those things, but it helps if somebody's writing with my experience in mind.
+- I've been fortunate in my life. It hasn't been easy, but there has been a focus on the positive, and it has reverberated. Eventually, the outlook mirrors itself back to you in the friends you have, in the partner that you choose.
+- I'm in no way running from 'Hamilton' or its success or these beautiful songs that I've been blessed to be able to be the one to introduce them. I certainly won't be the last to sing them, but to be the first, I feel very lucky.
+- I have a great foundation, a great training foundation. But it took me a long time to let the training go.
+- I haven't had a chance to decorate my dressing room yet, but I have these pictures of myself as a kid that I want to put up because I said, 'I really want to make sure that I take that kid with me on this journey.' I want him to experience this.
+- I'm glad things worked out the way they worked out.
+- I've realized along the way that a lot of things that I do as a performer are about waiting for somebody to write something for me or develop something for me, but music, music was the thing that I don't have to wait for anybody's permission to do.
+- I haven't gotten hundreds of jobs that I've auditioned for.
+- My dad was an early hip-hop fan.
+- I kind of think we sort of subconsciously draw things into our lives, whatever we're trying to work through.
+- I've dedicated more than 15 years to this theater and television thing; I want to spend the next 10, 15 years or so devoted to music.
+- If I'm allowed it, I'm really looking forward to a little time on the couch and a little time on a beach in Brazil.
+- They're people who had flaws and who had affairs and had sex and had scandals, and very rarely do we look at the totality of our heroes' lives.
+- I've been in a long-term relationship, and I'll tell you, it's never boring! People trying to merge their lives together always run into challenges.
+- We didn't go to Broadway musicals when I was growing up; it was too expensive.
+- Oh, Alexander Hamilton fell short of his best self every now and again, and he still managed to do these wonderful things - well, so do I. So what am I capable of?
+- All I try to do is put as many colors as I can on the canvas every night.
+- Donny Hathaway's 'For All We Know' is the song that I've sung the longest. It is a beautiful song about living in the moment and appreciating this very second. That is the song I did for my 'Rent' audition.
+- 'Hamilton' has restored my faith in theater.
+- I can only imagine what the show would have meant to me as a 16- or 17-year-old. I know what 'Rent' meant to me in my life, how that show changed the course of my life, and we can only hope that 'Hamilton' will have the same effect on a few kids.
+- I grew up in the Canaan Baptist Church.
+- I have to remind myself that it may never be this good again.
+- The record company felt wisely that we should get something out before I left 'Hamilton' or around awards time, and that deadline was not easy.
+- Josh Gad was in my class. Katy Mixon. Griffin Matthews. Josh Groban - he ended up leaving to become a huge star, but he was in our class in freshman year. I remember Josh was this nerdy kid in a turtleneck with a voice from heaven.
+- I think I spent most of my childhood, and my early years as a performer, in student mode. And I think that's OK - I mean, it led me to where I am.
+- I know what it's like to be ignored; when I got to L.A., I longed for somebody who looked like me to show me the ropes.
+- I know it's hard for people to imagine a time when 'Hamilton' wasn't 'Hamilton,' but for years, it was just this little thing that I was telling people about that didn't make any sense to anybody as I was describing it. But I loved it.
+- You gotta prove yourself. I'm not above that. I will never be above that. Bring it!
+- I grew up in Philadelphia.
+- What's a better foundation for drama? You have power, you have ambition, you have sex... that's the stuff of drama.
+- I think that the best songs to sing are songs that you love, because you sing them with love when you love them.
+- Until you make a name for yourself, they're like, 'Be a little more Denzel,' 'Be a little more Wesley Snipes.'
+- The only reason to keep talking about history is if you are juxtaposing it with the world that we live in today, if you are learning something about our world by looking at the way they shaped their world.
+- At 14, 15 years old, I started reading 'Backstage' regularly. Eventually, I got enough courage to look at the auditions section.
+- 'Rent' opened up my heart, my senses. I was never the same. I hadn't been back in that place in the same way since. 'Hamilton' put me back in that place.
+- There are certainly people who have committed horrific, evil acts in the history of humanity. I don't think Aaron Burr's one of them.
+- My dad was always in sales. My mom had a heart for the ages. Worked in recreation, doing rehabilitation in nursing homes. Very nice, practical folks who were very proud of me but had no inclination toward the stage in any way.
+- We want to pull out songs from the American song book, and we want to make them palatable for a modern audience.
+- Making $1,260 a week at 17 years old? That was a million dollars a week to me!
+- The time I spent in New York when I was 17 gave me the confidence to pursue my dreams with my whole heart.
+- It's still a political statement to stand on stage as a person of color and be excellent. We still need those images to combat the narrative we're often fed - as someone innately inferior or inexorably linked with lack.
+- I think for a lot of us, you know, what 'Hamilton' gave us the opportunity to, what it gave me the opportunity to do, was to go, 'Here's what I've learned in 35 years.'

@@ -1,0 +1,106 @@
++++
+author = "Rick Famuyiwa"
+title = "Rick Famuyiwa Quotes"
+quotes_len = "100"
+description = "the best 100 Rick Famuyiwa Quotes"
++++
+- I felt like I was Ferris Bueller. I wanted to be those kids in 'The Breakfast Club.'
+- People come to L.A. and they expect to see a ghetto like the projects, but that's not the way it's set up. Inglewood, in particular, is the furthest thing from a ghetto. It's a middle-class community, but it's gotten a bad rap over the years... because of 'Grand Canyon' and 'Pulp Fiction' and other films.
+- I remember growing up watching John Hughes movies and watching these white kids from suburban Chicago. I connected to them even though I didn't live in their environment.
+- Because of technology, there's no longer the social shaming that goes on if you're a black kid walking into a record store to buy Nirvana.
+- Gangs are a part of living in Los Angeles, but you can exist in Inglewood or Culver City or anywhere else, without joining one.
+- 'The Wood' was sort of like 'American Graffiti' for me in a lot of different ways.
+- So many kids that we label as 'thugs' and 'criminals' are often those same kids that end up in circumstances that are out of their own control.
+- Nineties hip-hop in particular really shaped what became the common pop cultural language that we all speak.
+- You might go into 'Dope' feeling you already know what this movie is because, all right, there's kids, they're from Inglewood, oh, it's drugs.
+- Media has become a way that we think about our history. And the media moments are, for better or worse, how we contextualize our history.
+- I felt like Inglewood, being the place where I originally found my voice, would be the place where I could sort of redefine my voice.
+- Ultimately we're all moving towards a time when the races will be more and more mixed and we will all be brown to some extent.
+- But at the end of the day, the lottery of birth shouldn't determine your value to the world.
+- We all would shudder if what we did, no matter what, in our 20s and early 30s were publicly displayed on a national stage.
+- For those of us who grew in the early hip hop era, that music shaped us in a way to be in a position to express ourselves.
+- It was titled 'Confirmation' very purposefully. I wanted the film to be about that process - about how Judge Thomas and Anita Hill were thrown into a situation that was difficult for anyone to navigate, no matter what the truth was. It's hard to know what the truth is.
+- I was a political science major before I transferred into film school.
+- The biggest part of what Anita Hill did was take away the stigma of coming forward, and it took a lot for her to do that. We don't have these conversations, because of the fear that people won't believe you or you'll get attacked if you come forward. She came forward anyway and continued to tell her story.
+- I met Forest Whitaker on 'Our Family Wedding' and we struck up a real bond and friendship.
+- There's a hunger our there for different types of stories, and I think there's an audience that's waiting and primed to accept a vision of America that looks like what they see when they walk out of the door each day.
+- I think Black cinema is thought of in small terms. That's where most of the problems come from. When there's a film that has success, like in the '90s with the crime hood films; when one of them does well, it becomes the replication, or there's a romantic comedy that breaks out, it becomes a singular way of looking at it.
+- When I was approached by Warner Bros. and DC about the possibility of directing 'The Flash,' I was excited about the opportunity to enter this amazing world of characters that I loved growing up, and still do to this day.
+- 'Black cinema' I don't even know what that means. It's just cinema. When Paul Thomas Anderson makes a movie, we don't just say it's 'white cinema.'
+- Now being 41 and looking back on my career... It became natural for me to revisit Inglewood and to revisit the coming-of-age movie, but not wanting it to feel like a period piece completely about nostalgia but wanting it to feel like something that was relevant today and also forward-looking.
+- I was fortunate to write pretty much a year out of film school and start making movies in the Hollywood studio system. But with each progressive film it became more frustrating not being able to speak and say things I wanted to say.
+- As a kid who grew up in Inglewood, California during the Showtime era, I'm so happy to help bring the story of Earvin 'Magic' Johnson to the screen. This project is a convergence of so many things that excite and interest me as a filmmaker.
+- For me growing up when hip hop was forming and maturing and coming into its own, I just felt I was a part of something really exciting. I was a part of it as a consumer.
+- We've all seen these projections of how society is going to look in 50 years. We're all going to have to deal with each other culturally.
+- I'm not as cocky as I used to be.
+- We're a country of many different cultures, and that's always what has made this country stand out. It almost feels like making diverse movies is the most American thing you can do.
+- I don't like the term 'black film,' and I am proud to be black.
+- We don't discuss race, so just the discussion of race has become racist. We've been trained that it's such a lightning rod that we don't even want to say the word.
+- I can understand being in such a public place and having your intimate private life examined.
+- DC is the foundation of what we all know about comic books and heroes. They've had great storytellers, great illustrates, as a part of that tradition.
+- I was in high school and college as hip-hop was really sort of coming into its own as a, you know, creative force, as a sort of cultural voice. And it really spoke to me.
+- It's insidious how Hollywood warps your values without you even realizing that it's happening to you. You get a little whiff of success and it whets your appetite, and before you know it you're going right down the road they've laid out for you.
+- This whole thing with Anita Hill and Clarence Thomas happened during my first year of college. It was a cross-section of race and politics and gender that I feel is still going on today.
+- I feel like geek is about obsession. I feel like I geek out on certain things and that just means it's a mad devotion or obsession to something.
+- There are constant challenges about what's 'mainstream.' These kids in 'Dope' are as mainstream as the kids in 'Superbad' or 'The Breakfast Club.'
+- It would have been more comfortable for us as a society if Anita Hill wasn't as intelligent, poised, and credible as she was.
+- I wanted to try and change the idea of what we call mainstream. So many times what we call mainstream is upper middle class white suburbia. And anything outside of that is considered niche.
+- In high school, I was into a lot of different stuff, and I did ride skateboards.
+- As filmmakers and as actors, you have to find truth.
+- When I watch films and it becomes just about the reference and not necessarily a flow with how people naturally speak, that's when you're just saying, 'Okay, I'm trying to be cool and show off.'
+- That's the one drawback of trying to keep up with technology, is that it changes quicker than films can come out.
+- Anita Hill has changed the history of how we deal with each other in the workplace. But it also was an interesting episode in how race and the history of race converged in this moment and got used and twisted and interpreted in all kind of ways.
+- Everything about who I am, negative and positive, is what shaped me.
+- There's this responsibility you feel to present a certain thing that kind of respectability politics. I think that became the only accepted way of defining black culture. I started to become too aware of 'How does this look?' instead of 'Who are these characters?'
+- There's a generation that doesn't care if Tom Cruise is at the top of the movie. They want authenticity.
+- These actors who were in 'Dope' are the actors I want to continue to collaborate and make films with from here on out.
+- I always come back to Inglewood for inspiration when I need it.
+- I was always this weird outcast kid.
+- Inglewood for me was where I really found my voice found sort of the core group of friends that I still have to today.
+- I want 'Flash' to reflect the world we live in.
+- Lots of people knew who Kevin Hart was a decade before he hit it big.
+- All films are a challenge and they are a harder challenge when dealing with characters of color.
+- Inglewood is a microcosm of Los Angeles. It's a city by the airport. It's the first city when you're coming into L.A., and the last city when you leave.
+- I'm probably going to be ashamed to say this... It was a Sir Mix-a-Lot album. I think I was 12, 13. I had just enough money for the 'My Posse's on Broadway' single, so I bought that single. That was the first thing I bought with my own money.
+- Kendrick Lamar is from Compton, but his Compton and how he expresses that is completely different than NWA and Eazy-E even though they were from the same environment.
+- What should be driving the conversation is: What's the story? What's the movie about? Is it a compelling story? And if it is, then you make it regardless of the color of the people behind or in front of the camera.
+- I've always felt that 'Dope' is a big movie in a little package.
+- For me, I think of 'Dope' as an album. There may be a love song and there may be a party song, but it's all coming from one artist.
+- I think the trick is to understand that universal isn't defined by a singular way of being. We don't have to somehow accept universal as being middle class, or white, or whatever it may be.
+- We'll always be re-examining how we relate to each other in terms of race and gender, in terms of power and access.
+- Magic has lived an extraordinary life as a champion athlete, passionate activist, and highly successful entrepreneur. The impact of Magic's life on the game of basketball and beyond is undeniable.
+- I don't know if I've seen in the Constitution where it says if there's an election year, then we take a break until after for us to do the business of the American people.
+- As a black man working in the business, it's a challenge sometimes to get some of these things and these stories told when they don't quite fit in a box or convention of what people expect of you or what you should be telling.
+- Broadway doesn't mean anything in Los Angeles.
+- I consider 'Dope' a part of the new mainstream.
+- I will continue to look for opportunities to tell stories that speak to a fresh generational, topical and multicultural point of view.
+- I loved films like 'When Harry Met Sally' and 'Annie Hall,' but these were very specific, white Manhattan experiences. You don't see a single person of color anywhere, but somehow these films are universal. As a filmmaker and creator, I was frustrated with that idea.
+- In many ways, a teaser trailer these days has just become a short version of the full-length trailer, as opposed to something that grabs you and teases you and makes you go, 'Whoa, what is this?'
+- It could be why it's getting harder and harder to get people into the cinemas and multiplexes, because we're just seeing a world that doesn't reflect reality.
+- I think 'The Wood' was probably more concerned with the parts of Inglewood that aren't usually seen on film - the areas that were middle-class, or upper-middle-class - and that idea that these worlds do exist, and should be accepted as part of Inglewood itself.
+- Good or bad is what we tend to want to affix to people, but we're all complicated.
+- Societies are being interconnected and we have to adjust to that fact.
+- I think the younger generation's view on race is slightly more evolved. It's a category far down on the list of how they see themselves.
+- Comedy opens you up to ideas that a straight-up drama doesn't. You resist those messages when they come to you earnestly or dramatically.
+- I think we've now gotten to this point where we're growing more and more distrustful of our institutions, be they government or corporations or otherwise.
+- Wedding films are always about the differences between people. But they haven't quite dealt with African-Americans and Latinos.
+- It wasn't that long ago that I was coming up, but it feels almost ancient that you had to go to the library and you had 'World Book Encyclopedias.'
+- When I wrote 'High Stakes,' I followed the classical format. I wrote an outline first, then a first draft, then got feedback and rewrote and rewrote it. I'd never done that before.
+- You can't control where you are born, and when you're growing up, until you've seen something else, you're just living your life.
+- I'm a first-generation American. My parents are from Nigeria. I had this weird last name that looked Japanese, and then people would see me and go, 'Oh. You're not Japanese.'
+- Love stories happen in communities outside of just the Upper West Side of Manhattan.
+- When you're young, you sort of have an idea that this is how it's always gonna be as a filmmaker. And then you have the ups and downs of trying to get your art created in an industry that doesn't traditionally make films with you and people that look like you behind the camera.
+- We live lives that aren't broken into neat three-act structures. On any given day anything can happen, from the hilarious to tragic. So why can't my movies be like that?
+- In many ways the film business is behind what's going on culturally. We are a world that is becoming more diverse and there's no going back.
+- When I first started working on 'The Wood,' these people couldn't grasp the concept that, one, there is a black middle class, and, two, Inglewood is a part of it.
+- Why is it when a woman makes a film or a movie stars a female cast it is labeled women-centric because it is not white, male and middle-class men?
+- I've been a fan of Wendell Pierce for a very long time. He was in one of my early movies and he brings such a level of heart and humanity to his roles.
+- Maybe I'm more suited to making small independent films.
+- I always say it's hard to cast an African-American film sometimes because those kinds of actors just aren't out there.
+- I'm first generation American, and my parents were both from Nigeria.
+- I don't know, my parents were pretty open about a lot of things, especially my mom. And any kind of little crazy thing I was into, she was very supportive of. You know, whether it was BMX bike racing or being in the Boy Scouts or surfing or anything else, she always seemed to sort of support it.
+- The thing you gotta understand about L.A. is that everything is suburbia. Los Angeles isn't set up like San Francisco or New York.
+- There are so many instances where kids who have talent and intellect have to navigate the world of low expectations and resources. We have to nurture those gifts more.
+- I really love weddings. You are surrounded by people who are strangers and then after you say 'I do' those strangers become family.
+- I grew up on Spielberg and Lucas. That was sort of what inspired me to make movies.
+- I always wanted to make a coming-of-age film, or something about growing up, like 'The Wonder Years,' 'Stand By Me' or 'Diner.'

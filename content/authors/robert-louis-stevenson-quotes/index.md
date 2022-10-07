@@ -1,0 +1,108 @@
++++
+author = "Robert Louis Stevenson"
+title = "Robert Louis Stevenson Quotes"
+quotes_len = "102"
+description = "the best 102 Robert Louis Stevenson Quotes"
++++
+- If a man loves the labour of his trade, apart from any question of success or fame, the gods have called him.
+- A friend is a gift you give yourself.
+- Marriage: A friendship recognized by the police.
+- I travel not to go anywhere, but to go. I travel for travel's sake. The great affair is to move.
+- To be idle requires a strong sense of personal identity.
+- There is an idea abroad among moral people that they should make their neighbors good. One person I have to make good: Myself. But my duty to my neighbor is much more nearly expressed by saying that I have to make him happy if I may.
+- Man is a creature who lives not upon bread alone, but primarily by catchwords.
+- Everyone lives by selling something.
+- It is one thing to mortify curiosity, another to conquer it.
+- Even if the doctor does not give you a year, even if he hesitates about a month, make one brave push and see what can be accomplished in a week.
+- The difficulty of literature is not to write, but to write what you mean; not to affect your reader, but to affect him precisely as you wish.
+- Vanity dies hard; in some obstinate cases it outlives the man.
+- If your morals make you dreary, depend on it, they are wrong.
+- Each has his own tree of ancestors, but at the top of all sits Probably Arboreal.
+- Every man has a sane spot somewhere.
+- Compromise is the best and cheapest lawyer.
+- Absences are a good influence in love and keep it bright and delicate.
+- Keep your eyes open to your mercies. The man who forgets to be thankful has fallen asleep in life.
+- There is no progress whatever. Everything is just the same as it was thousands, and tens of thousands, of years ago. The outward form changes. The essence does not change.
+- Old and young, we are all on our last cruise.
+- The cruelest lies are often told in silence.
+- Wine is bottled poetry.
+- Nothing made by brute force lasts.
+- To be what we are, and to become what we are capable of becoming, is the only end of life.
+- Nothing like a little judicious levity.
+- Well, well, Henry James is pretty good, though he is of the nineteenth century, and that glaringly.
+- I am in the habit of looking not so much to the nature of a gift as to the spirit in which it is offered.
+- There is only one difference between a long life and a good dinner: that, in the dinner, the sweets come last.
+- It is a golden maxim to cultivate the garden for the nose, and the eyes will take care of themselves.
+- The correction of silence is what kills; when you know you have transgressed, and your friend says nothing, and avoids your eye.
+- It is not likely that posterity will fall in love with us, but not impossible that it may respect or sympathize; so a man would rather leave behind him the portrait of his spirit than a portrait of his face.
+- I've a grand memory for forgetting.
+- The world is full of a number of things, I'm sure we should all be as happy as kings.
+- We all know what Parliament is, and we are all ashamed of it.
+- To be wholly devoted to some intellectual exercise is to have succeeded in life.
+- So long as we love, we serve; so long as we are loved by others, I should say that we are almost indispensable; and no man is useless while he has a friend.
+- Of what shall a man be proud, if he is not proud of his friends?
+- We are all travelers in the wilderness of this world, and the best we can find in our travels is an honest friend.
+- Books are good enough in their own way, but they are a poor substitute for life.
+- Life is not a matter of holding good cards, but of playing a poor hand well.
+- It's a pleasant thing to be young, and have ten toes.
+- All human beings are commingled out of good and evil.
+- The truth that is suppressed by friends is the readiest weapon of the enemy.
+- The habit of being happy enables one to be freed, or largely freed, from the domination of outward conditions.
+- No man is useless while he has a friend.
+- The world is so full of a number of things, I'm sure we should all be as happy as kings.
+- You can give without loving, but you can never love without giving.
+- For my part, I travel not to go anywhere, but to go. I travel for travel's sake. The great affair is to move.
+- Once you are married, there is nothing left for you, not even suicide.
+- You cannot run away from weakness; you must some time fight it out or perish; and if that be so, why not now, and where you stand?
+- In marriage, a man becomes slack and selfish, and undergoes a fatty degeneration of his moral being.
+- We must accept life for what it actually is - a challenge to our quality without which we should never know of what stuff we are made, or grow to our full stature.
+- To travel hopefully is a better thing than to arrive.
+- An aim in life is the only fortune worth finding.
+- There is a fellowship more quiet even than solitude, and which, rightly understood, is solitude made perfect.
+- Sooner or later everyone sits down to a banquet of consequences.
+- Most of our pocket wisdom is conceived for the use of mediocre people, to discourage them from ambitious attempts, and generally console them in their mediocrity.
+- When it comes to my own turn to lay my weapons down, I shall do so with thankfulness and fatigue, and whatever be my destiny afterward, I shall be glad to lie down with my fathers in honor. It is human at least, if not divine.
+- That man is a success who has lived well, laughed often and loved much.
+- It is better to lose health like a spendthrift than to waste it like a miser.
+- The obscurest epoch is today.
+- Quiet minds cannot be perplexed or frightened but go on in fortune or misfortune at their own private pace, like a clock during a thunderstorm.
+- The mark of a good action is that it appears inevitable in retrospect.
+- Fiction is to the grown man what play is to the child; it is there that he changes the atmosphere and tenor of his life.
+- You could read Kant by yourself, if you wanted; but you must share a joke with some one else.
+- You can forgive people who do not follow you through a philosophical disquisition; but to find your wife laughing when you had tears in your eyes, or staring when you were in a fit of laughter, would go some way towards a dissolution of the marriage.
+- To forget oneself is to be happy.
+- Marriage is one long conversation, chequered by disputes.
+- Every heart that has beat strongly and cheerfully has left a hopeful impulse behind it in the world, and bettered the tradition of mankind.
+- The price we have to pay for money is sometimes liberty.
+- It is the mark of a good action that it appears inevitable in retrospect.
+- You can kill the body but not the spirit.
+- Marriage is like life - it is a field of battle, not a bed of roses.
+- Politics is perhaps the only profession for which no preparation is thought necessary.
+- Nothing more strongly arouses our disgust than cannibalism, yet we make the same impression on Buddhists and vegetarians, for we feed on babies, though not our own.
+- I regard you with an indifference closely bordering on aversion.
+- There are no foreign lands. It is the traveler only who is foreign.
+- The Devil, can sometimes do a very gentlemanly thing.
+- When I am grown to man's estate I shall be very proud and great. And tell the other girls and boys Not to meddle with my toys.
+- Keep your fears to yourself, but share your courage with others.
+- Perpetual devotion to what a man calls his business is only to be sustained by perpetual neglect of many other things.
+- All speech, written or spoken, is a dead language, until it finds a willing and prepared hearer.
+- He who sows hurry reaps indigestion.
+- You can read Kant by yourself, if you wanted to; but you must share a joke with someone else.
+- You think dogs will not be in heaven? I tell you, they will be there long before any of us.
+- So long as we are loved by others I should say that we are almost indispensable; and no man is useless while he has a friend.
+- Everybody, soon or late, sits down to a banquet of consequences.
+- The world has no room for cowards.
+- Our business in life is not to succeed, but to continue to fail in good spirits.
+- I have a little shadow that goes in and out with me, And what can be the use of him is more than I can see.
+- When a torrent sweeps a man against a boulder, you must expect him to scream, and you need not be surprised if the scream is sometimes a theory.
+- The body is a house of many windows: there we all sit, showing ourselves and crying on the passers-by to come and love us.
+- Don't judge each day by the harvest you reap but by the seeds that you plant.
+- I never weary of great churches. It is my favorite kind of mountain scenery. Mankind was never so happily inspired as when it made a cathedral.
+- The web, then, or the pattern, a web at once sensuous and logical, an elegant and pregnant texture: that is style, that is the foundation of the art of literature.
+- Talk is by far the most accessible of pleasures. It costs nothing in money, it is all profit, it completes our education, founds and fosters our friendships, and can be enjoyed at any age and in almost any state of health.
+- It is not so much for its beauty that the forest makes a claim upon men's hearts, as for that subtle something, that quality of air that emanation from old trees, that so wonderfully changes and renews a weary spirit.
+- To become what we are capable of becoming is the only end in life.
+- There is no duty we so much underrate as the duty of being happy. By being happy we sow anonymous benefits upon the world.
+- To know what you prefer instead of humbly saying Amen to what the world tells you ought to prefer, is to have kept your soul alive.
+- Give us grace and strength to forbear and to persevere. Give us courage and gaiety and the quiet mind, spare to us our friends, soften to us our enemies.
+- We live in an ascending scale when we live happily, one thing leading to another in an endless series.

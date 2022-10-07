@@ -1,0 +1,70 @@
++++
+author = "Lauren Graham"
+title = "Lauren Graham Quotes"
+quotes_len = "64"
+description = "the best 64 Lauren Graham Quotes"
++++
+- I'm nice, and I show up on time.
+- If I had a normal job and had been moving up, I'd be management level now.
+- I think what my hope is is that the only downside of having a steady job on television is, I think for all actors, there's a piece, there's some adrenaline, and part of the love of the job is not knowing what's coming next, and the variety.
+- Growing up an only child with a single parent is probably why I'm an actor.
+- I get concerned when I see kids on their phones. They don't read enough anymore, anything longer than a tweet.
+- Because I have no consistent schedule as an actor, it was difficult to develop one as a writer. Ideally, I'd like to write first thing in the morning, every day. But sometimes I'm called to set before the sun comes up, or I've worked late the night before, or I'm on a plane.
+- Honestly, I was such a tomboy as a kid. People were taking from their mothers' closets - I was taking from my dad's closet. It was the '80s, so it wasn't terrible, but I was wearing my dad's dress shirts over jeans from the Gap.
+- I've dated people who I thought were going to be a big deal in my life, and I've also spent long periods by myself.
+- Just for daily wear, I love discovering new jeans companies.
+- I take the no-doughnut pledge, and then I break it.
+- As actors we always say that once the person in a scene gets what they want, the scene is over. It's resolved. But life is never resolved - you're always in the process.
+- None of my characters have really had jobs.
+- My mother had lived in London since I was little, so she never got to see my school plays and stuff.
+- Texting is not flirting, if you don't care about me enough to say the words than that's not love, I don't like it!
+- Like my dad, I have a Christmas party most years. I like to celebrate and see as many people as possible.
+- When the creator of the show is gone, the actors end up being the people who have been there the longest.
+- All TV shows are basically part of the same storyline.
+- Acting is the most bizarre profession. You can stay in it for years and not really be in it and be waiting for someone to give you an opportunity. It's like when I watch 'American Idol' and see people who have been told to believe in themselves at all costs: It's not always a good idea.
+- I love doing the 'New York Times' crossword puzzle, even on the days I can't finish it.
+- I've learned a lot from trainers over the years, but mainly that you need discipline to stay in the gym and out of the many fine cupcake emporiums on every corner.
+- All my references are 50 years old-when somebody shot J.R., you know? Oh my god, I'm 100!
+- I've made out more this season on a family-friendly show than ever in my actual life.
+- It's great to have an acting job in the age of Reality TV.
+- You want the story to end when it's supposed to and not be squeezed for somebody's financial gain.
+- I've seen 'The Godfather Part II,' 'Broadcast News,' and 'Annie Hall' more than 20 times each.
+- Personally, all I ever want to be wearing are jeans.
+- As an actor, you have to maximize your time, because you don't know what's going to happen in your 50s and 60s and 70s. It's like the career of an athlete: For many people, it ends at a certain point.
+- As I've gotten older, I've gotten more liberal, and my father is increasingly conservative. It's so shocking to me because I always thought we had the same politics. The day I realized we voted for different presidents, I practically fell out of my chair.
+- I just don't know that a TV show demands a movie ending.
+- I get a delivery of a diet food during the week, which doesn't mean that I don't eat the occasional Krispy Kreme doughnut.
+- One of the things I like about the show is it redefines the idea of what it is to be a mother, which at its most basic level is to take care of a child. It doesn't mean you have to look like the ladies in the Lysol commercials.
+- One thing I've learned is I actually don't like variety very much. I like having the same thing over and over: assorted lean proteins, arugula salad, quinoa or brown rice with soy sauce, olive oil, lemon, and salt. Those ingredients can pretty much get me through the week.
+- The parts for women, you're either like the quietly suffering wife or the wild girl.
+- What I remember about coming to L.A. is that suddenly work was as big a presence in my life as my life itself.
+- While I very much wanted to be in a relationship, I didn't want to be in the wrong one.
+- Honestly, 'Parenthood' was not what I planned. I didn't plan to do another drama. I didn't plan to play a single mom. I didn't plan, even, to do an ensemble show. But I hadn't found anything I liked as much. I just connected to the show.
+- I've always thought my strengths were I'm smart, and I have a good sense of humor. I definitely struggle with feeling confident.
+- Some people think my father was a spy, because of working for that government agency in Vietnam, but he can't find his car keys, much less keep a national secret.
+- Nobody ever seems to want my advice about serious stuff. People will be like: 'Who made that sweater?' Or 'How did you get your hair so straight?' They don't to come to me for the relationship advice or deep stuff. In fact, my little sister actually hides from me.
+- I love TV. I think I'd do a half-hour single-camera comedy.
+- I always saw myself as a comedic actor and wacky best friend.
+- Having trees and a track to run on have become more important to me than living near cool restaurants.
+- I would like to be part of a family, however that looks. Family is really important to me.
+- Well, it's more of a sane life to be part of an ensemble! I find that the work can be more specific too and I have to really make sure I know where I am in the story because I'm not in every scene.
+- The thing I don't like on television is when somebody does something that makes absolutely no sense just for the shock of it.
+- I've always really liked being active. I do Spinning classes, I run, I have a trainer, I do Pilates with my sister Shade.
+- Perspective is the most important thing to have in life.
+- I dream of playing Lady Cora's sister on 'Downton Abbey.'
+- These days I have to be extra nice in stores. It never fails that whenever I look as bad as I can possibly look or I am sort of cranky because the store is out of something, that is precisely the time when someone one will recognize me and say: 'I really like your show.'
+- The thing about good writing is it has a music to it.
+- My time at Barnard was fun but stressful. I transferred there from the acting conservatory at NYU, and my Rolling Around On the Floor Pretending to Be a Lion classes didn't translate into many academic credits.
+- 'Mom' isn't an adjective or a personality; they're not all the same.
+- We moved in 8th grade, so 7th grade I was doing okay, and then 8th grade, everything fell apart. I had no fashion sense to speak of. We only had a couple of hair care products back then. We didn't have all these things to tame your hair. I had glasses; I had braces. I had it all.
+- I have way too many jeans. But I never seem to have a top to wear.
+- For a time in high school, I had glasses, braces, and a cast. I like to call this look 'no date for homecoming.'
+- I'm baffled when young actors aren't familiar with current film, television and theater, or aren't interested in older films or plays and the history of the craft in general. If you don't know what's out there, and what came before, then how can you picture yourself working, and how can anyone else?
+- If you're meeting someone for the first time after three hours of hair, makeup, and styling, you've already set the bar too high.
+- Belly buttons are cool!
+- I didn't grow up identifying with beauty. I grew up thinking I could be smart and funny - those are the things I got feedback on.
+- Strangers were worried about me; that's how long I was single!
+- The thing you must really do in television is bring yourself to everything you do - you can't try to be anybody else.
+- I've pretty much always been on a diet since I was born. And the women in my family struggle, so I find the less I think about food, in a way, the happier I am. In general, I think I eat less the less I think about it.
+- Sometimes I'll think, 'That was a really nice day. I ate well, I exercised, I called some friends, wasn't working too hard,' but I rarely have one of those.
+- I really think if you're trying to look good, do something athletic. I have a little mini tramp, and sometimes I'll just try to jump for 20 minutes. It gets your blood circulating, and that always looks really pretty.

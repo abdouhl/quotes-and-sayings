@@ -1,0 +1,74 @@
++++
+author = "Austin Seferian-Jenkins"
+title = "Austin Seferian-Jenkins Quotes"
+quotes_len = "68"
+description = "the best 68 Austin Seferian-Jenkins Quotes"
++++
+- It's one-of-a-kind, because some people would die to have the family I do.
+- If someone has to be the villain, I'll be the villain. I have no problem with it. The movies still say, 'Starring... the villain.'
+- I really don't care about my numbers.
+- If you don't do it the way coaches ask you to do something, and someone else does it the way it's supposed to be done, that's just natural life.
+- I think I just need more time to refine my skills, and I can be a dominant pass rusher.
+- I just want to support my mom. I have everything I need. I don't need to buy anything.
+- I'm me: I'm a fun, easy-going guy that likes to work hard, who's very driven and determined.
+- I'm really blessed to have an amazing family.
+- I have to hold up my end of the bargain and do what's expected of me.
+- I'm a villain. But hey, villains have fans, too. They might have more fans than the heroes, and I'm OK with that.
+- I really have a love and passion for football. I enjoy basketball, but it's not something I love. You have to let things go that are not for you.
+- I've split out, played receiver, I've been a fullback, I've been in-line.
+- There's a lot of people in this world, and it's important to learn about them.
+- When I get out on the field, it's all about football. I love football.
+- I don't pay attention to stats or anything like that. I just pay attention to how I play and the intensity that I play with.
+- Sometimes I get emotional. I let my emotions get the best of me.
+- I need to take care of my mom and making sure she's financially OK. She's done so much for me, it's the least thing I can do.
+- When you lose things like football, which is the game I love - and this is the most important thing in my life - it really puts everything in perspective.
+- It's everything to me. This is my life. I love football so much.
+- I love my coaches. Coaches love me.
+- My thing of not playing offensive tackle is the health issue. I don't want to be that big. That could end up not being good for your health.
+- I don't really care where I go because wherever I go, they're going to get a very talented, driven guy that's going to get every inch of his potential out, max everything I have in my body out.
+- Quite frankly, I just want to be playing at the highest level of football. That's the most important thing to me.
+- Being 300-some pounds is not always healthy. You can say what you want about it, I don't want to do it.
+- I love Coach Koetter.
+- I played basketball my whole life. It definitely helps. It translates to going up for rebounds and going up for balls in the end zone. Quick feet. It helps with getting in and out of your cuts. It definitely all translates to football.
+- Granted, everybody is different, but I think it's real important to know all the people that you are around, and how they operate their history, and things like that. You know where they are coming from a little bit, and you don't insult them, or take something for granted.
+- You have setbacks in your life, and adversity. You can be discouraged about it or have courage to get through it and be better.
+- I just want to be the best version of me.
+- I won the John Mackey Award, so I did something right.
+- I want to be great at everything. I want to be the best at everything.
+- Someone has to be the villain. I'm the most villainized player right now. People don't like me.
+- Being able to play basketball at a high level, adjusting to the ball in the air, quick feet, quick hands and all that stuff definitely translates to playing tight end in the National Football League.
+- Every single day since Day 1, to Day 2, to Day 3, to Day 4, to Day 5, to Day 6, to Day 7 to Day 8, whatever day it is now, I've gotten better.
+- I don't care what the depth chart is. I don't care what I'm on. I'm going to enjoy it, and I'm going to seize every opportunity that I get, because that's the most important thing.
+- Once you get into the NFL, it doesn't matter what draft pick you are, what round you are, if you're undrafted or not. It's football time again. The draft, all of that doesn't matter anymore.
+- I love donating my time and serving other people. Just seeing the faces of people in need light up when they see you... There is no way I can put it into words. You feel like you did something right.
+- Playing on Saturdays, seeing 75,000 people yell your name, 88, ASJ, and all of that stuff is great.
+- People in Seattle and Tacoma know who I am as a person, and I don't think I am a character risk or have a character issue at all.
+- I want to play defense. I want to get sacks.
+- I want to be a dominant pass rusher. I think I can do that with my body type and my work ethic.
+- I'm Austin Seferian-Jenkins. He's Tony Gonzalez. He's the best tight end to ever play the game. So that's a real strong comparison. I'm just going to do my job and leave the comparisons up to the coaches and the media.
+- I fail every once in a while, but failing is your first attempt at learning. I'm not worried about it.
+- Texas is a great program. The respect they gave me was amazing.
+- I'm going to take full advantage of my opportunities.
+- You troll me, I'm going to troll you.
+- I kind of knew. I said, 'Yeah, I'm not going to be able to play in the NBA. That's just not going to happen. Let that dream go.'
+- I think guys that play basketball really understand how to go up and get a ball. Because in a rebound situation, you've got to go up and fight for a ball. Just boxing out. There are a lot of things that transfer.
+- Foot work, hand-eye coordination. There's a lot of things. If you just watch basketball, you can tell where it would help someone who's receiving the ball.
+- Ever since I was growing up, I knew I was going to play in the NFL. I never thought anything else.
+- I've done everything I can at the University of Washington... I know I'm ready for the NFL.
+- I've played this game since I was in second grade, and there's nothing more important to me than playing football.
+- All I'm trying to do is be me.
+- I'm who I am. I'm confident. I think it's weird if you're not confident.
+- I'm a player, the coaches coach.
+- I hold myself to a very high standard. But you're going to make mistakes. You've got to erase it and move forward.
+- Last time I checked, no one is perfect.
+- I'm not trying to get in good graces of anybody. I just want to be myself and be the guy that helps out in the community, because that's who I am.
+- I'm a normal person. You say something about me, I'm going to say something back, funny or not. I'm just going to be me. It's nothing against them. I'm just doing what you do to me.
+- You've got to invest your own time, invest your own resources into creating a better world, not only for yourself but for the people you surround yourself with.
+- My dad showed me a football and would throw it up and have my dog - a German Shepherd - chase me around when I went after the ball. I caught it because I was scared of that dog. The next year, my dad talked to the commissioner of a local league and convinced him to let me play as a first grader with third graders.
+- I had to go to jail, which was probably the most humbling thing I've ever had to deal with in my life.
+- It's not about me. I think people are too caught up with what I'm doing. It's just numbers. I'm trying to win.
+- Preparation starts after the game before.
+- The idea that I can provide for my mother and play at the highest level in the world for football and compete against the best guys in the world - it's a very exciting idea.
+- I think that people that don't really understand the game of football and are just fans that think people just show up on Saturday and go, I don't think they understand the work that we put in here and what our schemes are and what we're trying to do.
+- I don't want to try to sell myself or portray something that I'm not.
+- I think people make a really big deal that I'm this big character-issue guy, and I've got red flags. I'm not.

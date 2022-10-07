@@ -1,0 +1,26 @@
++++
+author = "Charles L. Evans"
+title = "Charles L. Evans Quotes"
+quotes_len = "20"
+description = "the best 20 Charles L. Evans Quotes"
++++
+- When inflation begins to rise, that's a situation we know how to deal with. When the economy is not doing well, and we're stuck at zero, that's one we don't know so much about - or we know about it that it's bad.
+- For every company that sees the value of their capital go up, there's another company that has been disrupted, and the value of their capital gets marked down because it's not going to compete in the same way.
+- Negative interest rates have been employed by many, many central banks.
+- I think that sharing information about our economies, the way that the central banks do in Basel and other forums, is quite useful. But it's sharing information. It's not coordinating policy. It's not coordinating a single monetary policy.
+- At the end of the day, inflation has been below 2% for quite a long time, and to me, symmetry means getting somewhere above 2% inflation at some point in my Fed career.
+- I often will state things strongly if I think that it's important.
+- I don't think Keynesian Monetarism has to be Democrat or Republican.
+- From the peak in 2007 to the trough in 2009, Americans lost $11 trillion of net worth for households and businesses.
+- During the slow recovery after the Great Recession, inflation was very low, and it took us a while to get it back moving up.
+- In a world of global competition and new technology, I think competition is coming from new places.
+- Paul Volcker is a tremendous hero with the Federal Reserve system and for the American economy. He took very tough actions and helped to break the back of double-digit inflation at a time when it had to be done.
+- Central bankers tend to be conservative by nature.
+- If we were to underrun our inflation objective over a period of time that we tried to increase interest rates, I think that would be worrisome.
+- If the national economy improves, Chicago will improve.
+- I believe that the history of Fed policymaking is that, you know, there are times when we need to raise rates.
+- For risk management reasons, we need to make sure we hit our inflation objective at the same time we're at full employment.
+- There is nobody who would want, in any way, to lose what Paul Volcker won for the American people by fighting inflation and achieving price stability.
+- When capital comes into our own countries, it ought to be for, you know, a longer-term investment. If it's extremely short, hot money, we ought to treat it in that way and have type of regulatory policy.
+- If you look around the world and see all the different countries struggling to get away from very low inflation rates with economies not nearly as strong as ours, you want to make sure we avoid those circumstances.
+- It's a challenge for monetary policy to communicate that our inflation objective is 2 percent.

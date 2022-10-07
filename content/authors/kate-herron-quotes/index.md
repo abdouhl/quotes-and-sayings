@@ -1,0 +1,83 @@
++++
+author = "Kate Herron"
+title = "Kate Herron Quotes"
+quotes_len = "77"
+description = "the best 77 Kate Herron Quotes"
++++
+- When I started, there wasn't a discussion of Season 2, exactly. It was just that season of 'Loki.' As we got deeper into production, everyone was very happy, and obviously there's so much to explore with Loki.
+- I play a lot of board games, so you need to be quite good at strategy and poker faces so people can't always read your hand.
+- It's about Loki's journey, and he's a character that wants the throne in episode one whereas by the finale, he doesn't want that.
+- The show is not so clean cut in terms of good and bad. That is the theme that runs through the show. Loki is taking down the TVA, but is it the right decision?
+- He Who Remains is in the comics, but the version in our show was very different.
+- I'm really proud to have been part of Loki's story. I gave it everything in my heart and my soul.
+- 'Delicate.' I say it all the time when I eat food; when I'm trying to sound smart. I'm like: 'Oh, it's really delicate.' And my friends - they've caught on. They know what I'm doing. Like, 'why do you keep saying it's delicate?' I'm just trying to sound like a food critic.
+- Well, there's that beautiful quote about Loki from the comics, which is that he's the god of outcasts, and I think he said 'They see themselves in me, and I in them.' I think that's a big part of why I love Loki, but also, you know, he is isolated.
+- I love Marvel, and I was just so excited to have a chance to direct for them.
+- Basically, I love Loki, and I found out they were making a show about him.
+- An Alligator Loki is something that we all found hysterically funny.
+- Directing all six episodes was a really unique experience, right? Because normally TV is run through the showrunner system, and Marvel didn't do that on 'Loki.'
+- Loki has been written as bi, he's also been written as pan, and it just felt like this is a show about his identity, so let's acknowledge it and make it canon.
+- I love villains.
+- It was so exciting to me watching him go from villain to antihero over the last 10 years. So when I found out they were making a show about 'Loki,' I was very determined to get in the room for it, and they luckily met me and here I am. I would say I chased heavily after it as a 'Loki' fan.
+- When I started the show, that was always in the DNA of it - that Loki was going to meet a version of himself and they were going to fall in love.
+- I love stories about self-love and finding your identity and your people.
+- My background's in comedy.
+- They changed my life, and I just love Marvel as I'm sure people can tell from the amount of Easter eggs and references I did throughout it. But I just feel like I've done my part with 'Loki,' at least for now, and I'm excited to see where it goes next as a fan.
+- In terms of the themes, I love gray areas. The show is really about what makes someone truly good or what makes someone truly bad, and are we either of those things? 'Loki' is in that gray area.
+- I've been so swept up in the 'Loki' story.
+- The jobs I've gotten are usually the ones where I go in cold or blind in terms of what they're after and I pitch my take on it.
+- We're taking Loki to an entirely new part of the MCU.
+- I love Loki. I love so many of the comic runs with his character as well.
+- Oh, I think I'd be a lighthouse keeper. I was living on my own for a lot through COVID, and I think I was quite good at it.
+- I was really inspired by the film Minority Report when he sees the projection of his wife because she's no longer there, but she's life-size and in the room with him, and that's very painful.
+- 'A Clockwork Orange' was filmed near where I grew up, and 'Children of Men.'
+- When I joined the project, we always knew that Loki and Sylvie were going to go to He Who Remains, and the multiverse would be released. So I already knew when I got the job that it was going to be a massive undertaking to do that and a big responsibility for Marvel to get it right.
+- I grew up in southeast London and there's a lot of brutalist architecture.
+- The multiverse being released, we always knew that is where 'Loki's story was going to end.
+- I remember my heart was beating very fast when I had to call him because he's like one of my heroes. But he's Owen Wilson. He's lovely and very charming and it was just really fun talking to him.
+- Alligator Loki, who knows what the alligator's story could be? That was always fun - the debate about whether it's a Loki, or if it's just an alligator with horns on its head. I think he is a Loki.
+- You know, 'Jurassic Park' is a film I always go back to a lot - it's a fantastical world, but I care about all the characters in that situation, and then I think in caring about them, it can make it relatable and help me kind of see this heightened world through, not always familiar eyes, but at least eyes I can understand.
+- Miss Minutes was inspired a bit by Felix the Cat, and cartoons of that era.
+- I always wanted to direct stories that are big scale and fantastical worlds.
+- I've worked at a lot of random places, which weirdly has influenced 'Loki' in some ways because we have this office culture kind of running through it. I've worked in a lot of offices.
+- I'm so bad at getting up in the morning.
+- Nothing has prepared me better for working with Marvel than playing tabletop games with my friends. It definitely taught me how to have a good poker face. You have to hide your hand - and sometimes lie.
+- I think Marvel is really good at managing, and the thing I love about working with them is that you never feel hindered.
+- I think that if a villain's done right, you don't necessarily have to like their actions, but you have to understand them.
+- Generally, Marvel manages everything internally and keeps us all in check.
+- I remember trying to turn one of my Barbies into Storm, and I melted her hair off.
+- I think the thing that always blows my mind is that Loki hasn't had much screen time, really, in the grander scheme of things. I think it's roughly 79 minutes and I think that's so incredible that he's this really beloved character.
+- For me, it was really exciting because I think Loki has had one of the best arcs over the last 10 years of the MCU.
+- I love that line, 'Lokis always survive.' That idea goes across all our characters who are Lokis.
+- I asked my agents, 'Can you just keep calling them and get me a seat in the room to chat to them about it?' And Marvel met me.
+- With filmmaking, I for so long was like, oh, I need permission to go out and be a director and be a filmmaker. And I read Robert Rodriguez's 'Rebel Without a Crew.' He just went out and did it, man. In his book, he even says just put your name on a business card and say you're a filmmaker. Congratulations, you're a filmmaker.
+- Mobius is like a detective in the way that he works with Loki.
+- I say 'sorry' all the time. I just throw it into sentences.
+- It takes so much effort to make anything, any type of art. I try to find the good in everything; if I don't like it, fine, no big deal, but I don't really want to voice that online.
+- It's a lot for one director to do six hours, particularly in the Marvel way.
+- In film-making, so much can go wrong, and I feel like the same is with life, right?
+- I've always loved the editing process.
+- Because I thought there's no point trying to second guess what people are looking for, because if I'm the right director for it, then I'll get the job.
+- My dad, bless him, he was never into Marvel before, but now he's obsessed with it. When I got the job, he started watching his way through the films, and he's got all these different YouTubers that he now watches for theories, and he tries to get spoilers out of me.
+- And I love genre, and I love Loki, and I love Marvel.
+- Marvel has a very specific MCU in-house style with the costumes, and so I thought, 'Oh, it could be so fun to put this original Loki in an outfit that maybe Loki would have worn in a movie like 40 years ago.'
+- I feel like we've done a lot of amazing groundwork in setting up the TVA and Loki on a whole new journey.
+- I would say that when I joined 'Loki,' it was always going to be those six episodes. We were treating it like a movie, and we were running it like a movie. We weren't doing it in the showrunner system.
+- My least favorite word is 'Bank' because it's the worst underground station in London. It's terrible. I get lost in it all the time; like a labyrinth, and you just can't find your way out.
+- I remember in 'Men in Black,' there's a coffee room, a tiny little room where they have their coffee break. In the offices I worked in, yeah, there were rooms like that.
+- The main thing I would say is: Lady Loki in the comics is a very different character to our character, obviously.
+- It didn't come to pass or anything, but it would be interesting to do a 'Sex Ed' - Marvel crossover.
+- Is anyone truly good or truly bad?
+- Good comedy writing is always coming from truth.
+- You get so deep into something when you are filming, it's almost like writing it again when you are in the edit.
+- Oh, Amy Poehler. I just love her. I think she's like a dream woman.
+- I love Marvel and I'd love to work with them again, but my outing with 'Loki' is what I've done with them.
+- Basically, I love Loki and I found out that Marvel were making a television show about him. Like everyone, I saw him die in 'Infinity War,' and I was horrified.
+- Well, I think the thing that was always important to us, first and foremost, was that our Loki, it's his journey that he goes on, and that's something that we definitely were looking at for a long time.
+- There are some actors who will come in firing and they just want to go for it. But they don't want to do a million takes.
+- It was nice to see Loki grow as a character, because of the love he found within himself, to see the good points of another version of himself.
+- Basically, Marvel always have an executive on every film. So we had Kevin Wright. And there's kind of a Kevin Wright on every production that is essentially your producer, but they're also the Marvel gatekeeper, I guess, or the overseer.
+- I always thought of episode 1 as the prologue and episode 2 as our chapter 1 for 'Loki.'
+- I just didn't know that you could have a voice and an authorship over a film, which probably sounds a bit silly. But I just hadn't really thought about films in that way.
+- When I worked in an office, I was definitely using a computer that should've been long gone over a decade ago but wasn't because it wasn't broken so they weren't going to fix it.
+- Loneliness is definitely a theme running through the show, but I think there's hope in it also. Loki and Sylvie find each other, and there's hope in that for them.

@@ -1,0 +1,108 @@
++++
+author = "Tom Junod"
+title = "Tom Junod Quotes"
+quotes_len = "102"
+description = "the best 102 Tom Junod Quotes"
++++
+- I am not running for president, but I've always known if I ever did run for president - or local dogcatcher, for that matter - the boy I bullied would and should arise as a necessary ghost from my past.
+- The premise and promise of Big Data is that there are no stories, only patterns; that the human preference for story is aligned with the human tendency for error; and that only through dislocations in scale - the scale of sample size and of time - will truth emerge.
+- We live in a time of short attention spans and long stories. The short attention spans are seen as inevitable, the consequence of living our lives in thrall to flickering streams of information. The long stories are the surprise, as is the persistence of the audience for them.
+- Mark Zuckerberg is the product of Facebook just as surely as Facebook is the product of Mark Zuckerberg.
+- You don't have to love cooking to cook, but you have to do more than love baking to bake. You have to bake out of love.
+- I was a salesman just out of college, traveling all over American roads in the cause of selling handbags to stores that would in turn sell them to American women, not unlike my father had done.
+- When a cocker spaniel bites, it does so as a member of its species; it is never anything but a dog. When a pit bull bites, it does so as a member of its breed. A pit bull is never anything but a pit bull.
+- The two biggest meals of your life you don't have to cook and you don't get to eat. The first you don't eat because no man eats - or cares what he eats - at his wedding. The second you don't eat because, well, no man eats at his funeral, either.
+- The suits are as similar as uniforms, and yet you can tell their individual qualities by how they respond to movement - the good ones ripple like wheat in a field and provide not a show of monotony but rather a spectacle of plenty.
+- I am an adoptive parent. My wife and I adopted our daughter nine years ago. She was born in China. We have been her parents since she was nine and a half months old, and we don't know very much about her life before we first took her into our arms.
+- Conservatives still attack feminism with the absurd notion that it makes its adherents less attractive to men; in truth, it is feminism that has made forty-two-year-old women so desirable.
+- There are no foodies at funerals.
+- There are only three questions that matter in the kitchen if you're cooking and not baking. The first is how good are your ingredients; the second is how much salt to add; and the third is how long to cook whatever it is you're cooking - the question of doneness.
+- By becoming the Twitter police we've volunteered to become the thought police: This seems indisputable, even uncontroversial.
+- By turning our culture over to the spectacle of child stars and their growing pains, we simply wind up taking their childishness seriously and ensuring that they don't grow up at all. And neither do we.
+- My parents were ambitious people, my father especially, whose entire life was devoted to rising above, but his ambitions were defeated long before death finished them off, and so when he died, he came back to where he started, but he didn't come back home, because there was no home to come back to.
+- We are trained to distinguish between journalism that's short and long, that's responsible and irresponsible, that stands for the right values and stands for the wrong.
+- I cook so that there is no absence. I cook so that I am always there, even when I'm gone, even when I die, and my cooking translates in my daughter's memory as, simply, this: time.
+- Gluttony is harder than it looks. It's listed as a sin, as something you give in to, when really it's a skill, requiring not just hunger but resilience. That's why the most resilient city in the country, New Orleans, is also the most gluttonous.
+- The child stars who emerged from Disney boot camp and dominated pop culture in the late '90s and '00s are not only still around but also have spawned successors who have proven even more indispensable to the business of music, movies, and television.
+- One of the great pleasures of reading Tom Wolfe - of still reading Tom Wolfe - is the sense of awe he consistently inspires.
+- Because I actually like cooking for people, people like what I cook for them.
+- There is certainly no want of journalistic ambition among the purveyors of what is now called 'long-form,' nor of novelistic technique brought to bear on nonfiction, nor of outrage.
+- Every celebrity has become a celebrity because of sex and money. But few celebrities like talking about either sex or money; they would rather talk about ideas, or ideals, or solving the world's problems - all against a backdrop of sex and money.
+- Most people are hungry, therefore they eat. I am hungry, therefore I cook. Since my senior year in college, when I moved into an apartment with a bunch of friends, I have cooked almost every day of my life.
+- Once upon a time, a long time ago, a man took off his jacket and put on a sweater. Then he took off his shoes and put on a pair of sneakers. His name was Fred Rogers.
+- The American middle class has always existed to reconcile the apparently irreconcilable: settled values with unsettled ones, social mobility with a sense of permanence.
+- But I'm not an Atlanta Falcons fan. Nobody is. Sure, the team has its followers, its adherents, in Atlanta. But they don't follow the team the way fans from other teams follow their teams - the way, say, fans of the New Orleans Saints follow the Saints.
+- A mob pelting pilloried wrongdoers with rotten vegetables would seem to have little in common with one doing the same with 140-character invective, except of course the most important thing: the belief that they are in the right, and are even doing good by making the object of their contempt feel really, really bad.
+- I love many of the rock and rollers next up on altar of actuarial sacrifice more than I ever loved David Bowie.
+- Ask people who know him for a description of Bob Dylan outside the prerogatives of fame and the obligations of art, and they have to stop and think; there's just not that much left.
+- We live in the golden age of character actors - in an age when actors who have done their time in character roles are frequently asked to carry dark movies and complicated television dramas.
+- I met fred rogers in 1998, when 'Esquire' assigned me a story about him for a special issue on American heroes. I last spoke with him on Christmas Day 2002, when I called him to talk about an argument I'd had with my cousin; he died two months later, on February 27, 2003.
+- Like most people, I like to give what I like to get. Unlike most people, I still like to get what I got in college - books, magazine subscriptions, CDs, T-shirts.
+- My mother was not a country girl. She was a Brooklyn girl, born and raised in Flatbush, and then a Long Island girl, who liked shopping, 'a little glitter' in her clothes, and keeping secret the actual color of her hair, which from the day I was born to the day she died, was the 'platinum blonde' of Jean Harlow's.
+- It is insufficient to say that my experience as a bully haunts me. Rather, my experience as a bully has been fundamental to the creation of my conscience, because it is what prevents me from making the basic human claim that I am a good person.
+- But stories don't only speak; they are spoken to, by the circumstances under which they are written.
+- Without your data, Google couldn't pursue the dream of trying to figure out what you're really thinking when you're asking a question, of trying to discern, from the imprecision of your language, the exact answer you're looking for.
+- My ten-year-old daughter loves gifts. She loves to give them and she loves to get them. She loves to give them when she's hurt her parents' feelings, and she loves to get them when her parents have hurt hers.
+- I wasn't learning to sing because I thought I could; I was learning to sing because I knew I couldn't.
+- It sounds lonely being Bob Dylan, because Bob Dylan likes being around other Bob Dylans, and there are not many other Bob Dylans around.
+- Wearing a suit can seem like a somewhat archaic gesture, a concession to formality in a determinedly casual age.
+- The main difference between listening to music on a computer and listening to music on vinyl or disc is not sound quality or even portability; it's that when you listen to music on a computer, you listen to music on the same instrument you use to acquire it.
+- We can trust technology to effect change - that's a given.
+- A lot of people like to say that they have trouble getting gifts. I have trouble giving them. It's not out of a lack of generosity, mind you. My fallback is to go big, no matter what the occasion.
+- It is hard to decide whether Mark Zuckerberg is the most interesting boring person in the world or the most boring interesting one.
+- No one would call me a great cook, but over years of cooking, for me, confidence has replaced ambition.
+- And you understand something: that although, like all American eaters, you've been conditioned to think of the entree as the climax of the meal, it never is. It is, indeed, almost always disappointing, especially if you order fish.
+- I have never baked. I have cooked thousands of meals big and small, but I have never cooked a cookie. I have never roasted a cake, or a pie.
+- The pit bull is not a breed but a conglomeration of traits, and those traits are reshaping what we think of as the American dog, which is to say the American mutt.
+- Josh Ozersky was a meat man. He knew meat, revered it, studied it, sang it, evangelized it, wrote about it, and, of course, ate it. Lots of it. Life, for Josh, was meat, and writing. Everything else was a side.
+- There's an easy way to tell who won a fight, whether it occurs in a ring or in a schoolyard. Watch it with a second-grade boy and ask him the winner. He'll always know. If he doesn't know, the fight wasn't worth watching.
+- The great character actors are now the actors whose work has the element of ritual sacrifice once claimed by the DeNiros of the world, as well as the element of danger - the actors who thrill us by going for broke.
+- In a society in which the median age keeps advancing, we have no choice but to keep redefining youth.
+- Our attention spans have become shorter because there are more and more claims upon them - more information, more complexity; more stories, more stuff; more.
+- Cooking is, to me, the perfect fusion of generosity and selfishness, indeed the resolution of generosity and selfishness, the answer to my torn nature.
+- For a long time, New Orleans was the classic-rock station of American cuisine, its reputation for flamboyance belying its playlist conservatism.
+- Once upon a time, a man named Fred Rogers decided that he wanted to live in heaven.
+- The fact is, you can't have Southern friends without eventually wanting to sing with them, and without eventually learning that the only way to sing with them is to make your peace with country music.
+- Food's not done until it yields something, maybe its soul or maybe just its secrets, and how long you're willing to wait for that to happen is a secret all your own.
+- Let's face it: There used to be something tragic about even the most beautiful forty-two-year-old woman. With half her life still ahead of her, she was deemed to be at the end of something--namely, everything society valued in her, other than her success as a mother.
+- Now, I'm fully aware that there is only one figure more pitiable, more ludicrous, more inherently ridiculous than a bad singer who keeps on singing, and that's a bad singer who keeps on singing because he has issues.
+- Before the Beatles could give us 'The White Album', they had to achieve disorienting success.
+- His name was Fred Rogers. He came home to Latrobe, Pennsylvania, once upon a time, and his parents, because they were wealthy, had bought something new for the corner room of their big redbrick house. It was a television.
+- Fred Rogers was a children's-TV host, but he was not Captain Kangaroo or Officer Joe Bolton. He was an ordained Presbyterian minister who was so appalled by what he saw on 1950s television--adults trying to entertain children by throwing pies in each other's faces - that he joined the medium as a reformer.
+- That's the first thing you learn when you busk in the New York City subways: you immediately join the ranks of the marginalized, the unhinged prophets, the Christian shouters, the Hare Krishnas, the Jehovah's witnesses, the father-and-daughter kitaro team, the violinists playing for their sickly wives.
+- You learn a lot about America when you own a pit bull. You learn not just who likes your dog; you learn what kind of person likes your dog - and what kind of person fears him.
+- I was not a fan. Moreover, I reveled in not being a fan, as though not being able to tolerate Robin Williams was one of the things by which I defined myself.
+- I didn't love David Bowie. Sure, I loved a lot of his songs, like everybody else, and, like everybody else, I had an incarnation of Bowie that I loved best - in my case, the solemn 'art-rock' Bowie of the late Seventies.
+- Any child can tell you what Google does - Google gives you the answers. But Google doesn't, not really.
+- The only restaurants in which you're actually happy to be served your entree are the restaurants that serve entrees ungarlanded by Chef's ambition - sushi joints and steakhouses.
+- I remember George Jones singing on television, but not any of the songs he sang. What I remember was my visceral reaction to him, the intensity of my distaste.
+- Now, I love Israeli food, love 'Jerusalem: A Cookbook', love the homey exoticism, the fusion forged in the crucible of an eternally contested crossroads.
+- I forget what I wore for my first encounter with Mark Zuckerberg. I know it wasn't a suit - that would have seemed out of place in the rigorously casual world of Facebook. I probably wore what I usually wear, a pair of jeans and a Gap T-shirt, maybe my black sneakers.
+- And what makes Bob Dylan stories interesting is that the only person who can decide their outcome is Bob Dylan, so you never know how they're going to go.
+- Music and television are turning into the equivalent of gymnastics and tennis: sports built entirely around the identification and training of prodigies.
+- Of course, Google specializes in coming up with ideas, professes the highest ideals, and is dedicated to solving the world's problems.
+- Character actors like Philip Seymour Hoffman and James Gandolfini have found themselves getting more and more leading roles because they are permitted to behave onscreen in ways that George Clooney and Matt Damon never could.
+- I collect songs because I want to control what I - what everybody within earshot - listens to.
+- I have a mean streak and I am capable of cruelty. This does not mean that I am necessarily mean and cruel; instead, it means that I have to be vigilant about my capacity for cruelty and the mean bone in my body.
+- Weddings have become an expression not just of our desires but also our ambitions, and so more and more the food at weddings is like the food everywhere else, with the ingredients parsed for purity and the preparation praised for ingenuity and the sushi chef standing where the carving table used to be.
+- Once upon a time, there was a boy who didn't like himself very much. It was not his fault. He was born with cerebral palsy. Cerebral palsy is something that happens to the brain. It means that you can think but sometimes can't walk, or even talk.
+- Every artist can make art only from the materials at hand, and many of the child stars who try to mature into artists can make art only from their knowledge - and ours - that they were child stars.
+- I'd never met Philip Seymour Hoffman, never knew anyone who knew him, never even read a passably revealing magazine profile of him.
+- Between 1965 and 1980, my mother, Frances Junod, served cutlets of pale flesh - mostly veal and chicken, though sometimes pork - to my father, my brother and sister, and me at least twice a week.
+- I never met Lou Reed, never was one of those journalists lucky enough to be the object of his derision, contempt, condescension, indifference, and occasional piercing honesty.
+- I did not get into a fistfight with my father at my sister's wedding. My sister didn't have a wedding.
+- I am the guilty gift-giver, which means that I am a gift-giver who lacks all sense of proportion.
+- I don't play guitar. I sing. I'm the lead singer, of Cousin Billy. I also play harmonica, after a fashion.
+- I have about 25,000 songs on my computer and play them mostly on shuffle, which means that the songs I've played the most are the songs that have been on my computer the longest.
+- Music has always enhanced our experience of life on earth by seeming to give us access to something larger than ourselves - the strings of the universe.
+- I had heard a lot of stories about my father and celebrities, most of them from his own mouth. In his stories, famous women flirted with him outrageously and helplessly, and famous men sought his company, paid him deference, or took umbrage after being upstaged by him.
+- We love football because the game of football is better than it has ever been, and is somehow managing to attain, at the same time, an apogee of opprobrium and excellence.
+- We might accept pit bulls personally, but America still doesn't accept them institutionally, where it counts; indeed, apartment complexes and insurance companies are arrayed in force against them.
+- That there is as yet no drug for immortality - or, for that matter, for muscle growth in the infirm - does not mean that immortality is theoretically or even technically impossible.
+- I always looked askance at Pandora and Spotify, regarding both as a passive means of experiencing music; they feed you music they presume you will like, and eventually you like it.
+- I'm a suit guy. I like wearing them for the sense of completion they offer. I like buying them for the sense of near permanence - the knowledge that whatever I buy will be part of my life for the next ten years or so.
+- Music subscriptions will eventually replace music collections because the digital universe is oriented against the idea of ownership - because music ownership is itself the eight-track of the Internet.
+- Bob Dylan is either the most public private man in the world or the most private public one. He has a reputation for being silent and reclusive; he is neither.
+- Storytellers all, we humans might run out of time even as we triumph over the problem of running out of space. But we will never run out of stories.
+- I was a bully in fifth and sixth grade. I wasn't one of the bullies - I wasn't strong or dominant enough to be one of the kids who bullied everyone in equal measure. I was a bully, in that I bullied a kid, whose name I won't mention here. My bullying was selective and personal.
+- Now, I was one of those kids who grew up privy to both his parents' secrets, who acted as the intermediary between them and eased their estrangements: that was my function in the household.

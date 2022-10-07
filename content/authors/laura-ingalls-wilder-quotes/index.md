@@ -1,0 +1,30 @@
++++
+author = "Laura Ingalls Wilder"
+title = "Laura Ingalls Wilder Quotes"
+quotes_len = "24"
+description = "the best 24 Laura Ingalls Wilder Quotes"
++++
+- Far worst of all, the fever had settled in Mary's eyes, and Mary was blind.
+- So they all went away from the little log house. The shutters were over the windows, so the little house could not see them go. It stayed there inside the log fence, behind the two big oak trees that in the summertime had made green roofs for Mary and Laura to play under.
+- Pa did not like a country so old and worn out that the hunting was poor. He wanted to go west. For two years he had wanted to go west and take a homestead, but Ma did not want to leave the settled country.
+- If enough people think of a thing and work hard enough at it, I guess it's pretty nearly bound to happen, wind and weather permitting.
+- Home is the nicest word there is.
+- The trouble with organizing a thing is that pretty soon folks get to paying more attention to the organization than to what they're organized for.
+- Every job is good if you do your best and work hard. A man who works hard stinks only to the ones that have nothing to do but smell.
+- Mr. Wilder says he would rather have me help than any man he ever sawed with. And, believe me, I learned how to take care of hens and to make them lay.
+- But in the east the sky was pale and through the gray woods came lanterns with wagons and horses, bringing Grandpa and Grandma and aunts and uncles and cousins.
+- Wild animals would not stay in a country where there were so many people. Pa did not like to stay, either. He liked a country where the wild animals lived without being afraid.
+- Suffering passes, while love is eternal. That's a gift that you have received from God. Don't waste it.
+- Her blue eyes were still beautiful, but they did not know what was before them, and Mary herself could never look through them again to tell Laura what she was thinking without saying a word.
+- So Pa sold the little house. He sold the cow and calf. He made hickory bows and fastened them upright to the wagon box. Ma helped him stretch white canvas over them.
+- A long time ago, when all the grandfathers and grandmothers of today were little boys and little girls or very small babies, or perhaps not even born, Pa and Ma and Mary and Laura and Baby Carrie left their little house in the Big Woods of Wisconsin.
+- The path that went by the little house had become a road. Almost every day Laura and Mary stopped their playing and stared in surprise at a wagon slowly creaking by on that road.
+- Mary and Carrie and baby Grace and Ma had all had scarlet fever. The Nelsons across the creek had had it too, so there had been no one to help Pa and Laura.
+- There the wild animals wandered and fed as though they were in a pasture that stretched much farther than a man could see, and there were no settlers. Only Indians lived there.
+- The enormous lake stretched flat and smooth and white all the way to the edge of the gray sky. Wagon tracks went away across it, so far that you could not see where they went; they ended in nothing at all.
+- It is the sweet, simple things of life which are the real ones after all.
+- Everything from the little house was in the wagon, except the beds and tables and chairs. They did not need to take these, because Pa could always make new ones.
+- Once you begin being naughty, it is easier to go and on and on, and sooner or later something dreadful happens.
+- I always have been a busy person, doing my own housework, helping the Man of the Place when help could not be obtained; but I love to work. And it is a pleasure to write. And, oh, I do just love to play!
+- They drove a long way through the snowy woods, till they came to the town of Pepin. Mary and Laura had seen it once before, but it looked different now.
+- In the long winter evenings he talked to Ma about the Western country. In the West the land was level, and there were no trees. The grass grew thick and high.

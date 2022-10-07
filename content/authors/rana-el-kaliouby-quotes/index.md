@@ -1,0 +1,88 @@
++++
+author = "Rana El Kaliouby"
+title = "Rana El Kaliouby Quotes"
+quotes_len = "82"
+description = "the best 82 Rana El Kaliouby Quotes"
++++
+- I do believe that if we have information about your emotional experiences, we can help you be in a more positive mood and influence your wellness.
+- I grew up in the Middle East, and I worry that AI increases the socioeconomic divide as opposed to closing the gap.
+- In the U.S., women smile more than men. In the U.K., there's no difference between men and women.
+- I will occasionally take power naps on weekends and agree that they can be re-energizing.
+- As more and more of our lives become digital, we are fighting a losing battle trying to curb our usage of devices in order to reclaim our emotions. So what I'm trying to do instead is to bring emotions into our technology and make our technologies more responsive.
+- Many people with autism struggle with reading nonverbal cues and acting on them. When you lose that ability to understand and process nonverbal cues, you're at a huge disadvantage socially.
+- Like many, I am often in back-to-back meetings most of the day.
+- The field of AI has traditionally been focused on computational intelligence, not on social or emotional intelligence. Yet being deficient in emotional intelligence (EQ) can be a great disadvantage in society.
+- My Ph.D. is in computer vision and machine learning. I developed software that can read your emotions from your face as part of my doctorate work.
+- On the path to ubiquity of AI, there will be many ethics-related decisions that we, as AI leaders, need to make. We have a responsibility to drive those decisions, not only because it is the right thing to do for society but because it is the smart business decision.
+- I see that our emotional AI technology can be a core component of online learning systems - health wearables, even.
+- I discovered that as a founder and now CEO, my commitment to and passion for Affectiva is super contagious. It is contagious with my team and at internal company meetings, injecting a new energy and sense of camaraderie.
+- If you're a content creator looking to elicit a certain emotion, we can validate that. In cases where an ad is trying to elicit humor, we can tell you if people get the jokes or not by the number of people who smile, the intensity of the smile, and the timing of the smile.
+- People communicate anger of course through facial expressions, but in voice, there's a wider spectrum, like cold anger and hot anger and frustration and annoyance, and that entire spectrum is a lot clearer in the voice channel.
+- I am a firm believer that transparency goes hand in hand with collective intelligence.
+- Now with our Software Developer Kit (SDK), any developer can embed Emotion AI into the apps, games, devices, and digital experiences they are building, so that these can sense human emotion and adapt. This approach is rapidly driving more ubiquitous use of Emotion AI across a number of different industries.
+- We believe that one day Emotion AI will be ubiquitous, embedded on chips in our devices, ingrained into technology we use every day at home and at work.
+- I find solace in immersing myself in my work.
+- We're not interested in applications where you're spying on people.
+- Beyond ensuring that people everywhere have access to mental health, virtual digital assistants can act as learning companions, using their insight into what motivates and inspires you, to help you study and learn. In this way, AI could be used to level the playing field in education and help narrow socio-economic gaps around the world.
+- A brow furrow is a very important indicator of confusion or concentration, and it can be a negative facial expression.
+- To be successful, it is imperative that you not only know the organizations you work with, but more specifically, you have to know the actual people you work with within these organizations, understand what their personal goals and motivations are. In short, to be successful, you need to humanize your clients.
+- I spent many, many hours with my computer, and it really bugged me that it was very oblivious to my emotional state. And that kind of inspired and motivated me to build an emotionally intelligent computer.
+- Because being CEO can feel lonely, I journal religiously as a way to express my thoughts, feelings and aspirations. Looking back at earlier entries helps me reflect on challenges and celebrate progress and successes.
+- Mood-aware technologies would make personalized recommendations and encourage people to do things differently, better, or faster.
+- The way to solve problems in the world is to become scientists and technologists and build things that haven't been built before and discover things that people really don't know about.
+- I think, in the future, we'll assume that every device just knows how to read your emotions.
+- Emotion-enabled wearable glasses can help individuals who are visually impaired read the faces of others, and it can help individuals on the autism spectrum interpret emotion, something that they really struggle with.
+- Even if I have to work, scheduling breaks where I disconnect from technology can be beneficial.
+- At Affectiva, we hire top talent - and the entire world is our search space. I take pride in the cultural diversity of our team, and we celebrate it.
+- We can read your heart rate from a webcam without you wearing anything - we can just use the reflection of your face, which shows blood flow.
+- By humanizing technology, we have this golden opportunity to reimagine how we connect with machines, and therefore, how we, as human beings, connect with one another.
+- My own work falls into a subset of AI that is about building artificial emotional intelligence, or Emotion AI for short.
+- Make sure you give credit to those technologies adjacent to your own - even if they are your competitors.
+- Governments like China and the United Arab Emirates are investing heavily in AI and see it as a competitive advantage.
+- When a woman on your team or in your network comes up with an idea, make sure she gets credit for it.
+- I've found that having role models and mentors who I resonate with is so important - a lot of people have so many questions and may not know where to go to get answers or may not have someone who can relate enough to even answer in the first place.
+- This melting pot of experiences, interests, educations, backgrounds, and cultures makes the U.S. truly amazing. It's how we can come together to come up with new ideas, to collaborate, and to innovate without having to think about borders.
+- Emotions don't disrupt our rational thinking but guide and inform it. But they are missing from our digital experience. Your smartphone knows who you are and where you are, but it doesn't know how you feel. We aim to fix that.
+- Seeing clients as people with goals and desires helps you to understand their perspective, animating their existence beyond a line item in a sales pipeline report.
+- Emotion AI uses massive amounts of data. In fact, Affectiva has built the world's largest emotion data repository.
+- We need to build EQ in our AI systems because, otherwise, they're not going to be as effective as they were designed to be.
+- As co-founder and CEO of an AI company, I am used to there not being many women in the room, especially in AI.
+- I always want to listen with an open mind.
+- With Emotion AI, we can inject humanity back into our connections, enabling not only our devices to better understand us, but fostering a stronger connection between us as individuals.
+- I personally believe in bringing your whole self to work and being open and transparent, even vulnerable. I believe that builds trust, loyalty, and a sense of belonging and passion.
+- In general, in more collectivist cultures, we see that in group settings, people dampen their emotions but are very expressive when they are at home alone. In more individualistic cultures, such as North America and Europe, it's the opposite - people are more expressive in group settings than when they are by themselves.
+- I spent a lot of time wondering about the future. I am curious: when we have AI, and it becomes more mainstream, how is that going to affect the way we communicate with each other?
+- Most of my days in the office end like this: I am in a meeting, it's running over, and I am starting to panic because if I don't leave the office right this second, I will be - yet again - late picking my kids up from school.
+- People who have a higher EQ (Emotional Quotient) lead more successful professional and personal lives, are healthier, and even live longer.
+- People should have to opt in for any kind of data sharing, and they should know what the data is being used for.
+- I remember, once I was stressed, with an upcoming paper deadline. That little Microsoft Word clippy guy would show up in my face, jumping around and asking if I needed help. It had no understanding of my emotions and had zero empathy. That got me interested in this idea of tech being responsive to our emotions.
+- In some cultures, like Middle Eastern, Egyptian, or Asian cultures, people are often hesitant to give any negative feedback.
+- Your emotions are very personal, as personal as your data gets.
+- We recognize that your emotional information is extremely personal. And so we have veered away from all use cases where that data is being collected without your consent.
+- Our human face happens to be one of the most powerful channels that we all use to communicate social and emotional states: everything from enjoyment, surprise, empathy, and curiosity.
+- From building robots and video games to coding apps that solve a problem in your community, or 3D printing in fashion tech, it is important that we explore different ways to engage girls in STEAM and also ensure that there are many, and different, women role models that will inspire our girls to pursue STEAM careers.
+- Without our emotions, we can't make smart decisions.
+- I very purposely have an open communication culture, where I encourage employees to approach me with their ideas without dominating them.
+- I do believe I have certain strengths as a female CEO, such as having another level of awareness through emotional intelligence.
+- Emotion AI will be ingrained in the technologies we use every day, running in the background, making our tech interactions more personalized, relevant, authentic, and interactive.
+- Integrity and being ethical is one of Affectiva's core values. This means we hold the highest standards for all we do, especially in our science and products.
+- Own the leadership style that makes you you. If you are an empathetic leader by nature, embrace that.
+- I am often asked how does being a woman affect my work at Affectiva. Honestly, I don't think it does.
+- The real problem is not the existential threat of AI. Instead, it is in the development of ethical AI systems.
+- Emotions are core to everything we do.
+- I am part of the World Economic Forum Global Council on Robotics and AI, and we spend a fair amount of our time together as a group discussing ethics, best practices, and the like.
+- I am often asked what the future holds for Emotion AI, and my answer is simple: it will be ubiquitous, engrained in the technologies we use every day, running in the background, making our tech interactions more personalized, relevant, authentic and interactive.
+- We're very interested in helping individuals on the autism spectrum cope and learn about social interactions and regulating emotions.
+- With every technology, there will be misuses of it.
+- A lot of our communication has now become digital, and it does not mimic the natural way we have evolved to communicate with each other, so it's almost like we have this muscle, these social-emotional skills, and they're atrophying, right?
+- Success is rarely about having the best, the most, or the cheapest features in a product. Instead, it is almost always about knowing what matters to your sponsor in a client or partner account and delivering on that.
+- Remember, don't let the pressures of doing business get in the way of what doing business is truly about: building relationships with people.
+- I co-founded Affectiva with Professor Rosalind W. Picard when we spun out of MIT Media Lab in 2009. I acted as Chief Technology and Science Officer for several years until becoming CEO mid-2016, one of a handful of female CEOs in the AI space.
+- There's a large percentage of mobile phones that now have a camera that's with you a lot of the time, and there's a lot of interest around those cameras as a data collection mechanism.
+- I do worry that organizations and even governments who own AI and data will have a competitive advantage and power, and those who don't will be left behind.
+- You can understand so much about how consumers perceive a brand by analyzing their spontaneous, subconscious responses.
+- I'm a Muslim Egyptian-American, born in Cairo. I grew up in Kuwait until the first Gulf War, when my family relocated to the United Arab Emirates. As an adult, I studied and lived in the U.K. before moving to Boston.
+- Emotions matter. They influence all aspects of our lives - how we live, work, and play - from the decisions we make and how we communicate. Emotions also influence our overall health and well being.
+- You won't remember what it was like when your technology didn't recognize when you are sad or angry.
+- You want to know if people are resonating with your ad before it goes live and before you spend millions and millions of dollars. With our software, you can get a moment-by-moment readout of a viewer's emotional journey.
+- In online learning environments, it is often hard to tell whether a student is struggling. By the time test scores are lagging, it's often too late - the student has already quit.

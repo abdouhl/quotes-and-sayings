@@ -1,0 +1,111 @@
++++
+author = "Louis C. K."
+title = "Louis C. K. Quotes"
+quotes_len = "105"
+description = "the best 105 Louis C. K. Quotes"
++++
+- The problem is, the more famous you get, the more people see you who didn't choose to.
+- Every day starts, my eyes open and I reload the program of misery. I open my eyes, remember who I am, what I'm like, and I just go, 'Ugh'.
+- Comedy isn't polite and it isn't correct and it isn't accurate, even. It's just a mess. So that's the way that I approach it.
+- I don't think it makes any sense to try to get anyone to not talk.
+- When I am in a hotel, and I turn off the lights and the TV, I just freak out. I turn the TV back on and don't get any sleep.
+- Anytime you see a bit where some stranger does something to me, it's me.
+- Whenever I've encountered a Christian saying, 'Why don't you stop talking like that so I can hear you?' I think, 'Well you're the one putting the earmuffs on, but I wish you could hear me because I like you.'
+- I think I'm past any window where I'm suddenly going to become surprisingly ripped so that people go, 'Oh, my God, what happened to you?'
+- The thing is, comedy's gone in a weird direction. People are really into ironic comedy and fakeness and cleverness.
+- I definitely look at my body and I go: 'Yuck.'
+- I spend enough time onscreen looking hangdog and depressed.
+- I don't have a room full of writers pitching ideas. It's just me out of my head.
+- I grew up watching all these crazy movies, European movies and stuff, and I guess that I always laughed at things that were a little more offbeat.
+- When I take my kids out for dinner or lunch, people smile at us.
+- When you're a father in a marriage, you sort of become the mother's assistant. And you sort of get a list from her every day and you run down the list and it feels very much like a chore.
+- There's been a lot of simple vilification of right-wing people. It's really easy to say, 'Well, you're Christian, you're anti-this and that, and I hate you.' But to me, it's more interesting to say, 'What is this person like and how do they really think?'
+- Some entertainers don't pay attention to what's going on around them.
+- A lot of the struggle I had with movies is I really loved moments and tones and feelings in a scene, and I loved creating those, but I never really had great stories to string them together.
+- There's no such thing as a cheap laugh.
+- Perception is created and twisted so quickly.
+- It's hard to know where your thoughts come from, especially when you have a thirst for material because you need it professionally.
+- For my scale, how I grew up and live my life, I'm making plenty of money.
+- Talking is always positive. That's why I talk too much.
+- Life is full of horrible mistakes.
+- To me, it's very exhilarating when somebody else does a great thing, and it's not me.
+- When I got divorced, I thought 'Well, there goes my act.'
+- You have to be aware of who you're talking to in an audience.
+- I've met a lot of people who've lost their jobs and they still have a sense of humor.
+- I like all ladies of all different ages.
+- When I was first divorced, I started dating younger women, and it was really exciting. But after a while I was like, 'This is just dumb.'
+- If you're a woman and a guy's ever said anything romantic to you, he just left off the second part that would have made you sick if you could have heard it.
+- There are people that really live by doing the right thing, but I don't know what that is, I'm really curious about that. I'm really curious about what people think they're doing when they're doing something evil, casually. I think it's really interesting, that we benefit from suffering so much, and we excuse ourselves from it.
+- Sometimes I try to take a nap before shows. That clears my head.
+- To me, art supplies are always okay to buy.
+- I don't believe in this idea of, 'That's hate speech, stop it.'
+- Cars and cameras are the two things I let myself be materialistic about. I don't care about other stuff.
+- Technically, I've learned that having good legs and wind is good for being on stage. You have to be in shape and have endurance.
+- My ex-wife, she really didn't like the material that I did. And that's something I regret, that I wasn't more careful about making sure that she was O.K. with it. I just sort of didn't ask. So that's how that goes.
+- When I read things like the foundations of capitalism are shattering, I'm like, maybe we need that. Maybe we need some time where we're walking around with a donkey with pots clanging on the sides.
+- I get mad like anybody else does, but being able to laugh about getting mad is very healthy, and my kids know that.
+- To me the goal of comedy is to just laugh, which is a really high hearted thing, visceral connection and reaction.
+- I don't like comedy. I like funny things. I don't like comedy. Like, comedy movies are just, 'Oh Jesus.'
+- I do actually use a boxing trainer when I train for stand-up.
+- I'm not motivated to entertain people through Twitter, so just by having Twitter and not saying anything, I make people mad.
+- Life isn't something you possess. It's something you take part in, and you witness.
+- I've had soccer moms come up and tell me they can relate when I say that I want to throw my baby in the trash.
+- A very painful part of being a parent is having really negative feelings about your children when you love them so much.
+- Most people are dead. Did you know that? It's true, out of all the people that ever were, almost all of them are dead.
+- I'm not a political comedian. That's just not what I do.
+- If I owned a network, I would never let a guy just put people on without telling me who they are.
+- There's two kinds of press that you get when you put out a TV show: The reviews, and the people that just decide what the reviews say.
+- A lot of TV is put together by teams, by writing staffs and several different directors. It's a great, very smart way to make television. It's worked for however long TV's been around.
+- I do feel a lot of times like I'm out of my league with my kids in terms of what my responsibility is.
+- You can't direct without a good crew.
+- I like pressure. Pressure doesn't make me crack. It's enabling. I eat pressure, and there might be times when I get a bad feeling in my gut that this might be too much, but you feel pressure when you're not doing something, you know?
+- It's easier to cancel a show if it's expensive.
+- Being popular with an audience is a very rickety ladder to be on.
+- People don't talk to me on airplanes.
+- Everything that people say is testable.
+- When you're young as a comic, you don't have a lot of leverage.
+- I'm not sure why I'm so often disgusting on stage. I don't always know where it comes from.
+- You can't cancel my stand-up tours. It's impossible. There's too many separate bosses. There is no 'bosses.'
+- A household name is like ketchup. Everybody wants ketchup. Ketchup doesn't hurt anybody.
+- I wish I could know everything ever, like that would be my wish - that's what I hope heaven is, that they tell you who shot JFK and all that stuff.
+- The only pitch I have to movie people is the same as this one: Just give me $8 million. I'm not telling you what it's about and I'm not telling you who's in it.
+- I never viewed money as being 'my money' I always saw it as 'the money.' It's a resource. If it pools up around me then it needs to be flushed back out into the system.
+- I don't know what it's like to be an actor, where if your show gets canceled, really you're just a bum.
+- I don't have a brother in real life.
+- I love comedians. They're my community.
+- I don't think women are better than men, I think men are a lot worse than women.
+- I've tried to do away with lying in my life in the last few years, but it's hard.
+- I'm bored' is a useless thing to say. You live in a great, big, vast world that you've seen none percent of.
+- I could never sit down and write jokes.
+- If you're a cartoon character or most TV characters, sure, you'll fight, because the punches are juicy-sounding and they don't leave marks. But in real life, if somebody punches you in the eye, it doesn't make any noise and your eye is swollen for, like, six months. It's a nightmare to get punched in the eye.
+- There's a woman I see who's not my therapist, but she's like an old friend who's a therapist in profession. She lets me talk to her like a therapist once in a while, and she does a great thing. Whenever I have a big dilemma, like this is a big problem in my life, she always says, 'Wow, you're going to have to figure that out.'
+- I don't stop eating when I'm full. The meal isn't over when I'm full. It's over when I hate myself.
+- I know what it's like to have a bunch of material that's working that you don't care about. You want to die.
+- I like being full, every day, with stuff that I have to do.
+- Some things I think are very conservative, or very liberal. I think when someone falls into one category for everything, I'm very suspicious. It doesn't make sense to me that you'd have the same solution to every issue.
+- People get successful and they start saying, 'Well of course I am! I was chosen! I'm special!' No, you're not.
+- I've learned from experience that if you work harder at it, and apply more energy and time to it, and more consistency, you get a better result. It comes from the work.
+- It's more fun to experience things when you don't know what's going to happen.
+- I think you have to try and fail, because failure gets you closer to what you're good at.
+- I have a crazy amount of different jobs, so the way I manage that is to not do more than one at a time. It's like old computers that had small memory chips, they would do something called swapping, where they would fill the memory with one task, do it and get it out.
+- Oh, I love stand-up.
+- I was an awkward kid.
+- Gay men have to go through something to own their - who they are. They get beat up. They get ostracized. Whatever they go through, if they survive it, they come out very confident people.
+- If I do something for my kids, I get a medal, because most fathers don't.
+- When two kids are being completely berserk, and they're naked and throwing food around, sometimes I just let it go because I can see a future where they're going to be dressed, and they're going to be at school. So I kind of let stuff go sometimes.
+- I would rather be with my kids than anybody else.
+- There's no real preparing at home for stand-up. You just go and you just do it.
+- It's kind of awkward to eat alone in a restaurant because everybody's looking at me.
+- Pushing the envelope' sort of implies that you're inside the envelope with everyone else, and you're trying to find the edges on the outsides.
+- Breaking records is not something you expect to be doing. That's like a sports thing, it's not usually a comedy and writing thing.
+- I'm enjoying the work while I get it right now.
+- It's a positive thing to talk about terrible things and make people laugh about them.
+- My kids are really easy. I often worry that they're too easy to deal with. They're really nice people.
+- You know, the people who do indie film and decide who gets those little budgets? They're mean, man. They're cold and very cool-oriented.
+- America's a family. We all yell at each other. It all works out.
+- I was a nerd growing up, and I'm a little antisocial and awkward.
+- I thought about going to NYU film school - that was this ideal to me. But I didn't make any kind of grades in high school.
+- I've always loved boxing. It's something I've always been extremely excited about.
+- Comedians work great as actors because they're good under pressure. With a lot of actors, you have to make them feel like everything's going really well to get a good performance out of them. But, if you have a comedian on the set, you can tell them, 'Hey, you really are screwing this up,' and then they just get better.
+- Well, when I was younger, I lied all the time, because once you understand the power of lying, it's really like magic because you transform reality for people.
+- I think one reason TV has always done well is because there is something comforting where you kind of know what you're going to be taken through.

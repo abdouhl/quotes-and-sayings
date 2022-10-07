@@ -1,0 +1,106 @@
++++
+author = "T.J. Dillashaw"
+title = "T.J. Dillashaw Quotes"
+quotes_len = "100"
+description = "the best 100 T.J. Dillashaw Quotes"
++++
+- I've always wanted to coach 'The Ultimate Fighter,' I thought it would be something I'd really enjoy.
+- Urijah is the one who got me in the sport, he's the one who talked me into fighting instead of going into grad school.
+- It's something to be proud about when I'm done, to look back at my career and know I've handled myself the way I wanted to - that my son can look back at my career and be proud of his dad.
+- I don't want to be fighting when I'm 37 years old.
+- I know there's nobody working harder than me.
+- I'm a big time hunter. I grew up my whole life hunting and providing meat for my family.
+- I'm a big fan of the calf slicer, some moves that aren't always done inside the octagon.
+- I think I'll finish Cruz faster than I finished Barao. Cruz has got a crazy style. But I think I'm going to finish him quicker than I finished Barao.
+- I believe in Duane Ludwig as a coach. I love the guy. I train with him. Me and him mesh. When you find something that works, you keep it going. Me and him see eye to eye. We train well together.
+- I'm not a fake one.
+- I'm always reinventing myself.
+- I felt in college I wanted tattoos. I'm really glad I didn't. I was broke. I would've been bargain shopping for a tattoo artist.
+- I wouldn't say I grew up with a silver spoon. Yeah, I was very fortunate. I have a great family.
+- I am leaps and bounds better than Henry Cejudo. I greatly believe that. But unfortunately, I didn't get a chance to prove it.
+- I wanted to drop the weight class to go to the 125s, and I played it off on how easy it was going to be. 'I can do this, no problem, I always cut weight.' I pushed my body to the extreme.
+- I got the who's who in the boxing world; I've been training with the Lomachenkos, the Terrence Crawfords.
+- If you really look at the sport, when the No. 1 ranked fighter beats the No. 2 ranked fighter, the only thing that's up next for him is a title fight.
+- If I'm not focused, that's when I'm going to get in trouble.
+- What it really comes down to is that I believe I'm the best pound-for-pound fighter in the world, and to do that, I need to beat the best.
+- I wanna watch Cub Swanson against Aldo.
+- During the fight you really don't feel much; you've got so much adrenaline going. Luckily I've mostly been on the winning side, so I haven't felt much pain inside the octagon.
+- I don't want to fight Urijah. He's the one that got me into the sport.
+- Everyone is wanting to make a name for themselves, and Dominick Cruz has been doing that by talking. He's been behind a desk, being a reporter, talking about fights.
+- I'm in the gym nonstop, I'm always in shape, so I'm willing to do what it takes.
+- It's been fun to get out and work with a lot of coaches. I've broadened my knowledge.
+- It's not just so much to be the champ-champ. It's just that I feel that I'm the greatest pound-for-pound fighter in the world.
+- I'm really going to put a stamp on my career by beating Cruz.
+- I'm just going to speak the truth and if people like it or don't, it's the truth.
+- I'm one of those guys that loses and gains weight out of my face.
+- It's a sport, you've got to push hard and you've got to get after it. You can't complain, you can't be a sore loser and all this shoulda, coulda, woulda stuff.
+- It took me two years to get a title shot off a split-decision loss to Dominick Cruz that the UFC told me they thought I won.
+- I'm obviously going to own up that I cheated and I got caught.
+- I don't want to be a diva champion.
+- I'm not one who wants to hate on anybody.
+- It's always in the back of your head that this is a crazy sport.
+- I respect Demetrious Johnson. I respect him as a human being. He always acts like a professional, he's a nice guy, but that still doesn't mean that I can't say that he's scared to fight me.
+- My first vehicle I had to buy it myself and work to get it. My dad was really hard on me.
+- I got thrown into the lion's den when I got to Alpha Male. My first sparring session was with Joe Benavidez, Chad Mendes and those guys, just bleeding from my face, its not like they took it easy on me. It was one of those things where we sparred 3-4 days a week, and we got thrown in there and that's what made me as tough as I am.
+- I've taken fights on one-day notice.
+- This sport is crazy, anything can happen.
+- Cruz is a little too athletic for Faber, Faber is flat-footed.
+- I don't take losing very well.
+- I was raised the right way, my parents did a great job, I owe them everything. Without them, I'm not the man I am today.
+- I've been known for that. My emotions get the best of me.
+- The reason why I'm so shredded at 135 is because I'm a professional athlete. I do everything the correct way.
+- Any time you have to tell work where you're at and what you're doing, that's considered an employee, not a contractor.
+- I'm not a guy that's gonna go out there and not be me and be fake and talk a bunch of crap.
+- I'll fight anyone the UFC wants me to beat and defeat them.
+- I'd love to get that Mayweather fight. Not even for the money, just for the fact of proving us UFC fighters got what it takes to get in that ring.
+- Urijah's about Urijah. He's about number one. He's always been that way. No matter what it is he needs to be doing something better than you, he needs to be one-upping you. He's a one-upper.
+- I'm not gonna be one of those guys who's going to do the Conor McGregor effect and talk a bunch of crap to make money.
+- Lance Palmer, I'm always talking with.
+- I wanted to be Team UFC. But the more Team UFC you are, the worse you get treated, it seems like.
+- Going to train out at Joel Diaz's out in Indio, I've trained with the Lomachenkos, I've seen Terrence Crawford's camp - I think that would be a super intriguing thing to get involved in.
+- This is a selfish sport. I'm going out there and winning for myself.
+- I will beat Aldo. I wanna fight him.
+- When I won the belt, I dominated Renan Barao, and they gave him an instant rematch within two months. And then he missed weight and they still gave him a rematch.
+- Let's really have the best fight the best. I think that's the way it needs to go.
+- I used to think Dominick Cruz was really good.
+- No matter where you're at, there are always guys you don't get along with. If it's any kind of job or any kind of situation in life, there's always going to be someone that gets on your nerves, and it definitely is the case with some of the fighters.
+- I don't go out there and talk crap about Urijah and there's plenty to talk about. I'm just gonna continue to be a humble guy and appreciate what he did for me in this sport.
+- For the fans out in public, I don't make enough money to not fight.
+- I'm a big Red Hot Chili Peppers fan.
+- This is a very short-lived career. I have to do what's best for myself. I have to do what's best for my career and being on top for as long as possible.
+- I treat myself more as an athlete instead of as a fighter. As a fighter, you're going out there as a street thug, relying on your hands, trying to knock someone out, being overly aggressive.
+- Most of the guys I've come across in the UFC have always been really polite and are always friendly with each other. We all understand how hard it was to get where we're at and how hard it is to stay there, so it's a mutual respect for each other.
+- We're controlled more than any other professional sport. We're told what to wear, when to wear it, what we're allowed to say in our interviews.
+- Chad Mendes, I'm hunting with all the time.
+- I was chasing that Demetrious Johnson fight. It just really didn't seem like it wanted to work itself out.
+- Guys cross train all the time. That's what Alpha Male's known for, guys have open doors to come in all the time.
+- I'm not the flashy guy with the neck tattoos trash talking your head off.
+- I don't have maybe the typical fighter story of having to grow up rough. I grew up great.
+- I'm not one who looks for the drama.
+- I believe I'm the best of all-time at bantamweight.
+- I'm one of those guys who's a hard worker.
+- What's going to build my name the most is by beating Demetrious Johnson. I think he's the best pound-for-pound in the world. I'd love that fight.
+- The goal is to have a belt around my waist.
+- Anyone in the UFC, that should be your goal, to get the UFC belt and to fight for that title.
+- I've never missed weight once in my entire life or my career going from wrestling from eight years old through all my professional career. If I agree to do something, I'm doing it.
+- Have I been overly aggressive in some sparring sessions? Yes, I have. There's things, there's punches and things I've thrown that's been too aggressive and I've gotten to where I've had to tell myself, yeah, I shouldn't have done that, kind of thing.
+- Me and Urijah are really good friends. Not just business partners in the gym, but friends.
+- When guys are trying to better themselves or their career, they go to a new team or a new coach. It happens every day in this sport. What's the big deal?
+- Let's be honest, I've never said I wasn't a sore loser.
+- Immediate rematches or rematches in general, I don't know if they ever really do change.
+- Justin Buchholtz is one of my best friends.
+- As long as you're willing to soak up information and learn from anyone who is worth learning from, that helps you out so much. I can become a new fighter, I can learn new tricks, I can improve my game.
+- It would be tough to fight any of my teammates.
+- I'm gonna be the greatest.
+- I can't fight forever. I've gotta fight and secure my future and decide what I'm gonna do with my life.
+- I'm a lean 135er.
+- We're professional athletes. I feel like I got treated better in college wrestling. I had a physical therapist on hand at all times, no matter what, when I was in college.
+- I've seen past fighters who don't seem all there anymore, can hardly walk around or look like the Tin Man, they've just been through the wringer.
+- I don't want to have to fight Urijah. It's not something I want to do.
+- I wasn't ever really friends with Garbrandt. We weren't really that close. But guys like Justin Buchholz, the head coach, he was always in my corner. Danny Castillo. Guys like that.
+- I'm trying to be the best in the world and get that pound-for-pound spot and I'm trying to get paid.
+- I'd rather be an athlete than a fighter, an athlete is going to go there and figure out the ways to win, see the holes in the game.
+- I've got no problem making 125.
+- I've got a split decision loss to Dominick Cruz and that changed everything, a fight that I thought I won. That changed everything, but I am the best bantamweight in the world.
+- My performances speak for themselves.
+- Lineker is a very tough fighter. I mean, he's definitely not on my level.

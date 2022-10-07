@@ -1,0 +1,14 @@
++++
+author = "Thuy Trang"
+title = "Thuy Trang Quotes"
+quotes_len = "8"
+description = "the best 8 Thuy Trang Quotes"
++++
+- I was in school studying civil engineering. A guy approached me on the street and said that I had a interesting look-very exotic. He told me I should try to be in the industry.
+- To see a doll of yourself is very weird and very neat at the same time.
+- Each one of us has to take responsibility for reality, and present it so that kids will grow up familiar with that and say, OK. I've seen that before. I'm not afraid of it.
+- We never expected the show to be this great. We think it is successful because kids can identify.
+- Almost everything I tried out for I pretty much got. I landed Power Rangers, and the rest is history.
+- Lynda Carter played Wonder Woman and was one of the first female superheroes. It gives me more of an encouragement that we can be strong and can do whatever a guy can do.
+- I want to do feature films. I am flying to Malaysia to be in another feature film. We will be filming that in Malaysia, the Phillipines, and back in California.
+- Lynda Carter, I think the reason I liked her was because she was so down to earth. Even though she was a big star and she was Miss America, she was very approachable.

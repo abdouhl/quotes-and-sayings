@@ -1,0 +1,18 @@
++++
+author = "Art Linkletter"
+title = "Art Linkletter Quotes"
+quotes_len = "12"
+description = "the best 12 Art Linkletter Quotes"
++++
+- I like what I'm doing. Today at 88, I wouldn't think of quitting because I can't think of anything else I would rather do. And now with my lectures on all the charitable things that I do, just as you do, I think that what I'm doing matters.
+- I stand fearlessly for small dogs, the American Flag, motherhood and the Bible. That's why people love me.
+- One of the wonderful things about going to a small college is you can get into everything.
+- Sometimes I'm asked by kids why I condemn marijuana when I haven't tried it. The greatest obstetricians in the world have never been pregnant.
+- A finished product is one that has already seen its better days.
+- I've learned it's always better to have a small percentage of a big success, than a hundred percent of nothing.
+- The depths of the Depression. You didn't ask what the job was, what the pay was, you didn't ask about stock options, or - you said yes.
+- I grew up poor. I never had any money. I was a hobo, you know, ride the freights.
+- The four stages of man are infancy, childhood, adolescence, and obsolescence.
+- In the Top 40, half the songs are secret messages to the teen world to drop out, turn on, and groove with the chemicals and light shows at discotheques.
+- Yes, I backed the hula hoop. And I had a lot of other people come to me with ideas that turned out well.
+- My philosophy is to do the best you can for somebody. Help. It's not just what do you for yourself. It's how you treat people decently. The golden rule. There isn't big anything better than the golden rule. It's in every major religion in one language or another.

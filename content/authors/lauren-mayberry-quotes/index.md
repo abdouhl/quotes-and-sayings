@@ -1,0 +1,106 @@
++++
+author = "Lauren Mayberry"
+title = "Lauren Mayberry Quotes"
+quotes_len = "100"
+description = "the best 100 Lauren Mayberry Quotes"
++++
+- The bands that we've found we have something in common with are bands like The National or Tegan And Sara, and I feel like that's because all three of us come from more alternative rock backgrounds.
+- I guess, at the end of the day, I want to be viewed as a musician.
+- I operate a pretty strict muting and blocking policy on Twitter.
+- I like the idea of a record being more than one thing emotionally - human beings go through so many emotions in one day - and I like those things sitting next to each other.
+- A relationship can be deeply damaging without anyone leaving marks on you. So many people - especially young women - end up trying to maintain those emotionally abusive relationships because we don't think it's that bad and that we are really some of the lucky ones because we haven't experienced 'real' abuse.
+- Nobody is strong 100 percent of the time or falling apart 100 percent of the time; sometimes you're doing both at once.
+- There are so many problems with feminism, as women spend a lot of time telling other women what to do, and that distracts from the actual problem.
+- I did my dissertation on the idea of femininity and women's writing, so I spent eight months reading about how women are portrayed in the media in terms of images and tone of voice and what words are used.
+- We went from playing small clubs to quite big stages quite quickly, and a lot of the time, I felt like I was trying to catch up with myself. Figuring out how to take up space was an interesting journey.
+- Crushes start out as that teenage phenomenon, life-affirming and cute, but as you wander into adulthood, they seem to end up more painful, harrowing, and uncertain, especially if you have just come out of the relationship you thought would finally, maybe, maybe be the one that stuck.
+- It's nice to squash people's expectations.
+- I discovered the idea of feminism when I watched the film '10 Things I Hate About You.' It's a classic.
+- We were overwhelmed by how much the first album connected with people, but I wouldn't put us in the 'pop star' realm.
+- I have a personal Twitter for band purposes, but I don't use social media a lot.
+- After the first album, I spent a lot of time being like, 'I'm not really a singer.' That kind of mentality doesn't help.
+- I identify as a feminist but subscribe to the pretty basic definition of a feminist as 'someone who seeks equality between the sexes.'
+- I'll scroll through Instagram, but I have to take Internet breaks.
+- Makeup and clothing and all that should be a fun way to be creative and express yourself. Just like in nature, where birds have all the colors. But instead, it's all focused on the aesthetics of being attractive to men. Even if you really don't think it is that, that's what we're doing.
+- I think about politics, so it would be inauthentic not to talk about it.
+- I never wanted to write really cheesy pop lyrics - like, 'baby, baby, the sun is shining' - that's not something that interests me personally. I'm always wanting to write something that has some kind of meaning.
+- If Radiohead made a video where Thom Yorke was featured more than the other members, nobody would say anything.
+- I think that everybody likes different kinds of music, and that's absolutely fine.
+- I guess I'm fortunate in that two things I always wanted to do, since I was 16, were play music and get into news media. I'm very lucky to have two things that can engage my brain at once.
+- Every conversation we have as a band is about gender in some way, and it's been like that from the beginning.
+- The music industry isn't unionised in the same way Hollywood is. If I've got a problem, who do I go to?
+- Is the casual objectification of women so commonplace that we should all just suck it up, roll over, and accept defeat? I hope not.
+- When people say, 'Stay in your lane; you're a musician, so you should only talk about music,' what do you think songs are written about? I connect with music because what somebody has said has resonated with me in one way or another.
+- We were quickly labeled as an outspoken feminist band, which I'm totally fine with.
+- My band persona is 25% tougher than I am.
+- You can't believe everything you read in a newspaper or everything that's coming out of the president's mouth. And you can't believe when someone posts a picture from their personal life, because most of the time, it's staged - we're showing each other these idealized versions of ourselves so that we seem better and other people will feel worse.
+- I am in a band that was born on the Internet.
+- There will never be a job that I do in this industry where I don't have to talk about being a woman. I will always be a female artist. People will put that in front whether you like it or not.
+- Nothing gets my hackles up like being told I can't do something.
+- The depressing reality is that campaigns like the Everyday Sexism Project would not need to exist were casual sexism not so startlingly commonplace.
+- People say Taylor Swift's not feminist enough or Beyonce's not feminist enough, but there are 12-year-old girls going to their shows and taking an awesome message.
+- Growing up in Scotland and living in Glasgow, you see the heritage that religion has had and how something that, in theory, is about kindness and community and caring for each other is used to persecute people.
+- I think, in reading a few sentences of text, you can just tell the tone, and that's something I love in prose writers but in lyricists as well.
+- When people say stuff to us casually in reviews, if they write about it in a condescending way with really gendered language, that's not really about me. It used to hurt my feelings more than it does now. That's not about us as a band or me as a person. That's about how you feel about women, and that's a societal thing.
+- Somebody said to me once that Chvrches was an emo band in disguise, but nobody had figured it out yet, and I thought, 'You're not wrong!'
+- Pretty much everybody we know in Glasgow who's in a band has another job. All of us have worked in bars, cafes, or cinemas. It means you can afford to do the thing you love.
+- I speak a little bit of French and German, but apparently, I'm really bad at Dutch. The pronunciations are quite hard. I tried to say 'hello' in Dutch, and it did not work. People were just like, 'What?'
+- Just because I front the band or we play bigger stages now, it doesn't mean we somehow suddenly changed the way we approach things. We all still view what we do as indie and alternative in terms of how we execute it, even if the actual music we make is more pop than our previous projects.
+- Obviously, when you're working at things, you all hope that people will relate to it.
+- I find it quite boring when you're listening to radio, and it's the same kind of voice that's on every song on the radio. You can't really tell a lot about that singer as a storyteller and about the singer from what they're singing.
+- Life's too short to be shoehorned into a box that isn't for you.
+- If people are really hateful and disgusting in the way they treat other people, that probably came from a hurt place - but then, when does it stop? When does this spiral end? Sometimes you can get pretty melancholic about that.
+- To me, it is not necessarily you responding that trolls want: they want to scare, they want to intimidate, and they want to silence people - so ignoring it doesn't make a difference.
+- Moving from a first to a second album is an incredibly transitional time for any band because you never get to make one in a vacuum like you did with your debut.
+- We're a band that's never been okay with the status quo. In a way, it's allowed us to be more open and confrontational in our music.
+- We should all be able to have faith that our governments are working in our best interests - and if they aren't, then they should be challenged and held to account.
+- I wouldn't want to do a solo project.
+- We've done a couple of women's mags, but we tend to talk about feminism and women in the industry, which I feel more comfortable talking about. It's a more valuable discussion than, 'Oh, you're a girl in a band. What hair conditioner do you use?' I use hair conditioner, and I like talking about it. But I don't want that to be the question.
+- If you give me half an hour on the Internet, I can hate myself completely by the end of that 30 minutes.
+- Ultimately, what we're striving for is people being allowed to do what they want and not feeling they should or shouldn't do certain things.
+- Margaret Thatcher was a lady. I suppose she was a woman in a man's world, but that's about the only nice thing I have to say.
+- One guy came to a show and was like, 'You're going to be huge. I can see it in my mind's eye. We could make you the next Pixie Lott.' I did an internal scream and ran away.
+- I don't want to write the same song over and over again.
+- I went to an island in the Bahamas full of iguanas. You don't live on the island, obviously, because it's solely populated by iguanas, and it's not allowed.
+- I don't buy into this idea that pop has to be frivolous or vacuous, and we've never subscribed to that.
+- We all like to believe we are completely self-sufficient, but at the end of it all, we're all searching for a human connection, something to make it all feel a bit more worthwhile.
+- It only takes two seconds of your life to say, 'I don't agree with white supremacy. I don't agree with homophobia.'
+- Some of the most powerful female performers I've seen balance the feminine and the masculine and are incredibly strong. Like, I think Hayley Williams is one of the best rock performers.
+- I've never been able to write narrative as a character, really. Jenny Lewis, I love her stuff, I love that she can weave these American Gothic fairytales. I feel like I sound inauthentic when I do that, so I tend to write from a personal standpoint.
+- Even in the early stages, you can tell who thinks you're an idiot singing songs someone else has written for you. We never wanted to be two producers and a girl who wears some shoes.
+- When I'm writing, it's because I'm trying to figure something out for myself. If I don't believe in what I've written, then how can I expect anyone else to believe in that, either?
+- We come from a more alternative rock band background, and it's interesting to see the things that people think we should or shouldn't do since our music is a little bit poppier.
+- I'm not in the business of telling people 'DIY or die,' but I do think it's important to be as hands-on with what you're doing as possible.
+- If you were 12, and Beyonce was up onstage saying to you, 'You get to do exactly whatever you want to do,' that would be awesome. I wish she said it to me when I was 12.
+- Objectification, whatever its form, is not something anyone should have to 'just deal with.'
+- I don't want to be the front for somebody else's creativity and sell that day in, day out.
+- I never want to be the woman that's telling other women what to do.
+- I've been into short stories ever since I read an Angela Carter collection when I was a teenager.
+- I worked in a lot of cinemas when I was at college, and I'm a movie dork, and it's a nice thing to do while you're on tour. Everything is different a lot of the time - you're never in the same place - but I like going to the cinema because it feels like no matter where you are, the experience is really the same.
+- I think looking at the front row of a Chvrches show is really diverse. It could be 50-year-old dudes who love Depeche Mode or teenagers or teenage girls and their dad.
+- Some musicians don't have strong opinions, or they deliberately don't have strong opinions because they want to try and sell as many records as possible.
+- Japan has always been a really special place for Chvrches.
+- There's a difference between criticism and hatred.
+- Cacie Dalager's voice is beautiful, and her lyrics break my heart.
+- We're in entertainment. We're supposed to be making music that communicates with people, but ultimately, it's supposed to be something that people can enjoy. Sometimes you just want to escape for an hour and a half.
+- I don't want to sound negative here, but I don't know any lady that was surprised by #MeToo.
+- I've always worked in cinemas or cafes to make money because it turns out freelance journalism is quite hard to get into.
+- I don't have a lot of time for things that are deliberately, achingly cool.
+- If we just stand at two opposite ends of the spectrum screaming in each other's face, we're never gonna get anything done. I don't agree with a Trump voter, but why do they feel like that? Yes, some of those people are racist and have hateful opinions, but some of those people voted for him because they felt completely left behind.
+- I get this weird, existential crisis when I'm looking through Instagram - and then I'll realize we work in entertainment. We know all the smoke and mirrors.
+- Seeing people communicate about the band online has been amazing, but I think a lot of people spend a lot of time talking about what they hate rather than what they love. I don't want to get trapped in that.
+- I've come to terms with the fact that standing and screaming in someone's face about how wrong they are is never gonna make anyone change.
+- No one has a better idea of what Chvrches is than we do.
+- Making sure that we interact with the fanbase in a way that feels right to us has been really important.
+- There were times in my early 20s where I dealt with some anxiety and depression issues. At that time, it just feels like you're under the water, and you can't get out.
+- Just because I get to coast around in a nice, cushy little bubble, that's not how it is for everybody.
+- I would rather write something that's authentic to me than something that'll be likely to get played on the radio but doesn't have any substance to it. People can see through that really quickly.
+- The film world feels like a smaller world than music.
+- People have said it's hypocritical for me to call myself a feminist and make the kind of music we are making, because we signed to a major in the U.K., and that system objectifies women. Or people have complained that I don't dance. But I like the idea that I can stomp around the stage if I want.
+- First time we played in New York was in 2013. It was all very eye-opening. A very bright lights, big-city sort of vibe, and we played the Mercury Lounge.
+- Anne Carson and Angela Carter are folks I hold close to my heart because they have such unique ways of telling stories.
+- I spent a lot of time reading 'Cosmopolitan' and quietly crying.
+- I'm conscious of what bands we tour with and what companies I want to be associated with, even in the small things: if I'm going to buy stage makeup, I want to get it from companies run by women. Those are little changes that will make a difference.
+- I guess I have a weird habit of writing body part metaphors.
+- I had somebody say to me once, 'You can't make the kind of music you're making and call yourself a feminist.' The door was slammed on them swiftly after that.
+- Sometimes if you don't take the easy option, it'll pay dividends in the long run.

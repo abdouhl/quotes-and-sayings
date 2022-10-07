@@ -1,0 +1,34 @@
++++
+author = "Corin Tucker"
+title = "Corin Tucker Quotes"
+quotes_len = "28"
+description = "the best 28 Corin Tucker Quotes"
++++
+- I think Pussy Riot is amazing. I'm honored that they were inspired by riot grrl, and obviously they're making history around the world.
+- I think there's a huge lack of political artists in America, and I think it really speaks to our consumeristic culture and how people are driven to be financially successful here. It's such a shame that we don't have people who are more inspired than that.
+- When in doubt, I always go vintage! Get a ruffled dress and throw a t-shirt over it.
+- Aretha Franklin, she's just the most amazing singer ever. But I think there are so many singers that I just loved and sang along to on the radio. I guess I just enjoy trying out different styles along the way.
+- I loved 'Rock Lobster.' I probably heard 'Rock Lobster' first at a party or dance. Then we would do the Rock Lobster - get down on the floor and do the whole dance. I thought that was really cool and exciting, that there was actually a band that had their own dance at that point.
+- I've played 'The Wizard of Oz' for my kids, but by today's standards, it seems really long. I don't know if there's enough action in it for them. And there's the whole black-and-white sequence in the beginning where she's on a farm. It takes a while to get to the colored part, and then it gets more exciting, and things start to happen.
+- I feel really lucky. My fans are incredibly loyal. They encourage me to keep going. I feel more torn, trying to fulfill what my kids need. It's really huge. They're doing so well.
+- I think the B-52's were a huge influence on Sleater-Kinney. The way that there'd be a really interesting guitar line that'd be really melodic and kind of simplistic, I really related to that. The sense of melody is really intense and fun. It's not just traditional song structures, but it's very melodic and draws you in, in kind of an immediate way.
+- My love of reading and the English language is something given to me by my parents, and I've passed it on to my children.
+- There are so many times that, as a woman in the music industry, you're asked questions no male musician would ever be asked.
+- Kill Rock Stars has a willingness to really work with the artist and to be flexible with what they're doing... part of being an independent artists means having your hands in the business all the time, so they bring in a lot of ideas about it.
+- I've always been a writer who does simplistic, simple melodies. But I think it works.
+- The eighties were my teen years, so the GoGos are sort of a touchstone.
+- I think that, by and large, the predominant voice we hear in rock music is a white male voice.
+- The first show I ever played was the International Pop Underground Convention in Olympia, Washington. It was girl night, and I was in Heavens To Betsy. I had just turned 18.
+- I do think we have a long way to go in terms of the culture around women still being career women, and asking a woman about her career and her work, just seeing them as fully validated human beings in the workplace.
+- I feel really privileged that I've been able to be an activist and a musician for over 20 years now, and I've always been able to say whatever I want. I think that's something we Americans really take for granted, but it's a big deal, and it's not something most people in the world are able to do.
+- I think 'Amazing Race' is sometimes like being on tour.
+- Part of this whole Sleater-Kinney 2.0 is breaking the rules. We wanted to tell our story... we feel like we need to stand up for ourselves.
+- I try to relish each of the roles I play in life. If I'm cooking dinner for the kids, I throw on my polka-dotted apron. I might don a smart blazer if I am doing a work presentation. If I play a rock show, there may indeed be glitter and fishnets involved. It's my way of saying, 'Thank you, I am glad to be here.'
+- I was a really big R.E.M. fan when I was like, in my freshman year of high school. I was a huge R.E.M. fan.
+- When I started playing music, it was all face-to-face.
+- I don't always succeed in creating a delicious dinner for my family; I would, however, argue for the likely success of Taco Night. Who doesn't love a taco? Make it with veggie crumbles! Add fish! Have you tried ground buffalo? The results are always impressive.
+- I think having musical training as a child was really, really important. I studied piano as a child. Piano is a great instrument to understand musical theory on. I think I have that in my brain somewhere.
+- Twenty years later, twenty years after I joined the women's movement, we're still talking about the same issues. We're still talking about reproductive rights for women, and we're still talking about getting equal pay for women. And that's just frustrating.
+- I'm pretty straightforward as a performer, but I do have a bit of a diva in me.
+- I do love dance music. I love Daft Punk. I mean, I was a child in the '80s, so bands like the Eurythmics and just so many great '80s bands were dance bands, but they had the whole soul thing happening, too.
+- It's great for my daughter to see Beyonce and Taylor Swift, women that are in charge of their own careers, writing songs from their own perspective and taking people to task. That's very different from when I was growing up - it was all like, 'Stand by your man.'

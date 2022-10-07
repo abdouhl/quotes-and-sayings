@@ -1,0 +1,61 @@
++++
+author = "Tiesto"
+title = "Tiesto Quotes"
+quotes_len = "55"
+description = "the best 55 Tiesto Quotes"
++++
+- I like a challenge. I need to feel passionate about something. If I'm not passionate about it, I can't stand it. It has to feel real. DJ'ing, touring, charity work - anything.
+- I have been DJing in clubs for years. I always dreamed to be a famous DJ in Holland. And now it's worldwide. You can't imagine. I mean, I still can't believe it myself that everything has gone so well.
+- I love playing FIFA on my PlayStation!
+- I saw a DJ from Germany called Sven Vath. I saw him in the club, he played for six hours and I was just totally intrigued, because everything he played I'd never heard before and everything he did I'd never seen before. I was so blown away by what he did.
+- DJs are the new rock stars.
+- I can read a crowd pretty well. I know what to play and know how to keep it interesting for them and for myself as well. Most of the other DJs are more like producers so they become famous because they make hits and then they start DJ-ing. But I'm more from the other way around.
+- A lot of DJs who started the same time as me, they are not to be seen anymore. And I get so much love and respect from the young DJs, and some of them look up to me or ask me for advice. I am almost like the mentor.
+- The 'Work Hard, Play Hard' video shows how much a part of music the fans can really be. With the help of SanDisk, we were able to create the first-ever music video to be made using fan videos shot only from their mobile phones.
+- I love to produce a track and then play it for the crowd; that's the biggest kick for me!
+- Remixes come very quickly, because you already have the melody and the vocals. I have a great passion for music, so it doesn't matter to me if it's a remix or an original production. I don't think about it as, 'Well, I have to spend three hours on a remix or I have to do something all original.'
+- There's an amazing intimate feeling in a small club but an insane rush playing a stadium or festival.
+- I think one of the greatest gigs I played, and we've had many, but to play the opening ceremony at - at the Olympic games in Athens 2004 was pretty special, you know? Because it's such a big deal for the whole world. And the whole world's watching. So that was definitely one of the special ones.
+- If you remix, people want to tap into your sound. If you keep that to yourself, it makes the sound more special.
+- I heard 'Get Lucky'; it's just not my taste. It's great what Daft Punk does and the sound quality is great, but that whole disco vibe is not really my thing.
+- It doesn't matter if they're famous or not - I just want to meet other creative people who can maybe bring something different to the studio than what I have. I think that's the most important thing for me.
+- A 'Magik' session is a journey through different stages of emotions and the 'Search for Sunrise' is more chilling music for when you come home after a party or when you are just about to go to one.
+- I love suits, but onstage it's too hot. So, I like a nice T-shirt!
+- I love performing in the U.K. Everyone is always up for it and brings all their energy to the dance floor.
+- I played a lot of acetates at the end of my vinyl period - I used to make tracks and get them pressed in four or five days - but the quality was always so bad and they would skip all the time. The vinyl days for me are over. I still buy vinyl, but only albums, and just to play. For DJing, vinyl is a nightmare.
+- Trance is a very emotional and uplifting form of dance music. It appeals to many people in this way having such a strong connection with emotions. It makes people happy and ready to party.
+- Most of the time - at the Grammys for example - a DJ will perform with just their hands in the air because they can't do anything and that makes it a little awkward, I think.
+- My fans are crazy, but in a good way. Very supportive, and some tweet me more like a 100 times a day. As for tour tales, I have a saying: 'What happens on tour stays on tour.'
+- If you play the same club every week of every month, it's kind of boring. It's great that you can play one night in Brazil and one night in Japan, one night in Europe, and see the world. It's amazing what you see if you travel around the world.
+- I like 'Elle' magazine. I love things online, like when all the big brands have a fashion show, I like to see the new collections.
+- I've always wanted to be a DJ so I could play the music I love for other people. That feeling hasn't changed, but my sets are always evolving. In terms of tailoring to a specific crowd, certainly I do play differently depending on the situation. It's a different feel, for example, in a small club versus a festival.
+- Since I was a kid, I always felt the need to share the music I love with as many people as possible, and DJing seemed like the perfect outlet.
+- My favorite all-time artist... I would say, I think that must be Sigur Ros, I love that band. It's like going to the stars for me. When I put the music from Jonsi or Sigur Ros on, it's so relaxing, it's warm and it never gets boring to listen to, you always hear new things. Yeah, that must be my favorite band.
+- I was never attracted to the pop world. I listen to music that is pop sometimes. But I've never thought, 'Oh, I need to work with Ne-Yo now.' It's never really been my thing.
+- Most people went to dance shows, but it was basically a table and a DJ playing and not really a spectacular thing. I brought the whole production with the effects - the best sound, the best lighting to blow the fans away.
+- I want to make myself and the crowd happy by way of something different, and that makes things difficult. I'm never playing something that hasn't been released or no one has ever heard before because I care to deliver them what they were hoping to see from me. But also I play four or five songs that will definitely surprise them.
+- I spend a lot of time talking to young and emerging producers on Twitter, feeding back thoughts and encouraging them.
+- I would love to fall in love and get married and have beautiful children. I mean that's one of the goals in life, I think, to have, and it's a beautiful thing. My sister has kids and all my friends have kids. They show me their, you know their report cards. And I can show them my sports car.
+- There have been a lot of people involved in the growth of EDM's support in the U.S., from DJ/producers like David Guetta, Deadmau5 and Skrillex, to major festival organisers and pop artists of EDM integrating elements of dance music into their music.
+- Whenever I made money I invested in myself... I bought whatever I needed to make my career better. I never really spent money on other stuff, like buying expensive cars.
+- The best clubs in the world are always the clubs where you have a variety of people. Like, you have the crazy people, you have the nicely dressed people, you have the office people, you have the regular guys - that makes it fun.
+- I got involved in 2003, 2004, with a company called Dance4Life out of Holland.
+- If I were a girl, I always like Chanel. It's so stylish and timeless. So I like Karl Lagerfeld a lot.
+- Napster is great so long as they put out tracks on there that have been officially released. I don't really mind people downloading my music; I also see it as a compliment. And if you are a real music lover, you want to have the original CD anyway 'cause then you feel more connected to the artist.
+- I think I'm commercial underground. I'm not commercial in the way that people consider 'pop,' but I'm not underground in the way that people consider that. either. I am just a cool guy.
+- I can honestly say that the fans inspire. There's an unexplainable rush that comes when I'm in the middle of a set and the energy from the fans hit me. I also get really inspired through collaborations. I've learned so much from the emerging producers I've worked with just as they've learned from me.
+- I love L.A., but I don't live there. I spent some time there when I was recording 'Kaleidoscope,' mainly working with some of the artists I collaborated with. The city and people in L.A. have a great vibe and the weather is always beautiful.
+- I think it would be different to work with a guy like Kanye West or Jay-Z, those guys are so phenomenal, but just to work with a rapper, I don't think is really my thing. I really like songs, like true songs. Like indie songs.
+- I was playing a gig in Greece in September 2003 and this guy walks up to me and says, 'Hey Tiesto I just heard you play; you're amazing. I want you to play at the opening ceremony of the Olympics.' I looked at him, like, 'Sure pal!'
+- Miami is a really special place for me, particularly in the U.S. It was one of the first places in the country to really embrace dance music, and I've been going there for many, many years.
+- I think Coran Capshaw is such a brilliant entrepreneur and he always thinks about new stuff; the biggest stuff you can imagine. I know he's working on a lot of things for me at the moment, and I think it will definitely help my career to go to the next level.
+- Besides music and charity, fashion is one of my interests that has been growing over the past few years. I think it goes so hand in hand, music and fashion.
+- After my touring life, I'd love to be more involved with charity. It gives me a lot of fulfillment, you know? I would love to get people who are into my music more active in charity work. In the future, when I have more time, I'd love to do spend more time on that.
+- At the end of the '90s and into 2000, electronic music was still an underground phenomenon, especially in America.
+- There's nothing more frustrating than when you hear a track and you can never find out what it is.
+- At first, I was only interested in music, but I spent so much time in the clubs and seeing fashions change. So naturally, I developed an interest in it.
+- Sigur Ros make beautiful music. Bloc Party are fantastic and exciting and innovative.
+- I was a huge 'Pyromania' fan. You would never expect it, but I was in love with Iron Maiden; I was such a huge fan. I went to a lot of rock stuff like Van Halen, too.
+- It will be great to have a fashion career during and after my DJ career.
+- Growing up, Guess always had these amazing billboards and cool affordable clothing. I wore it then, and I still wear it now! It's come full-circle. When I design the clothes, I have a very good team around me, showing me different pieces and cuts.
+- I think the indie-rock world is very creative. They're always looking for something new, and I think of all the instruments we have in the world, the ones that are the most creative and interesting are the electronic ones. There are so many sounds and plug-ins you can use.

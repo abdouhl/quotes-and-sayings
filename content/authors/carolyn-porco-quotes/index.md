@@ -1,0 +1,66 @@
++++
+author = "Carolyn Porco"
+title = "Carolyn Porco Quotes"
+quotes_len = "60"
+description = "the best 60 Carolyn Porco Quotes"
++++
+- In any 'big science' enterprise, like planetary exploration, where you must work in big teams of similarly driven people, it is important also to know how to work alongside others even when they may be your fiercest competitors.
+- The geysering on Enceladus is the most astonishing phenomenon we have in our solar system.
+- 'Carl Sagan: A Life,' though a riveting tale, tells as much about the all-too-human feelings of jealousy and resentment as it does about the individual who inspired them.
+- It would be impossible in a few words to describe all that we've found with Cassini. No mission has ever gone as deep for as long on a planetary system as rich as Saturn's.
+- There's nothing in this world like being the first to discover some fundamental fact of nature. It's profoundly satisfying.
+- The need for a detailed, comprehensive examination of the Saturn system became clear during the early 1980s, after the two Voyager spacecraft made flybys of the planet. These celebrated events were the opening acts in the story of humanity's exploration of Saturn.
+- People gravitate to religion to feel a connection to the underlying meaning of everything. Well, as a scientist, you're always looking for the underlying meaning, and that, to me, is such a spiritual life, I wish people would open themselves up to that wonder.
+- I have a bias, and I don't deny that. But it's not so much an emotional attachment with objects that we study: it's a point of view based on the evidence. We simply know more about Enceladus.
+- The book that blew the doors off the house, grabbing me with its breathtakingly deep and irresistible view of the universe and our relation to it, was 'Intelligent Life in the Universe' by I. S. Shklovskii and Carl Sagan. I recall an enchanting all-nighter completing a college homework assignment to read the first chapter.
+- When the Voyager 2 spacecraft sped through the Saturnian system more than a quarter of a century ago, it came within 90,000 kilometers of the moon Enceladus. Over the course of a few hours, its cameras returned a handful of images that confounded planetary scientists for years.
+- As far as I'm concerned, Enceladus has become the go-to place in our solar system for issues bearing on extraterrestrial life. It's a great place to examine extraterrestrial organic chemistry that is water-based and, therefore, like biotic chemistry on Earth.
+- Those of us engaged in the practice of science come to feel a certain reverence for it, engendered by its demonstrable power to dissect, clarify, and explain what previously was unexplainable, and thus to improve the human condition.
+- I know that I derive the same kind of spiritual fulfillment from what I do, being a planetary scientist, seeing our exploration of the solar system come to fruition. I get such a spiritual high from it that I don't even see the need for religion.
+- Even if the ocean on Enceladus starts out being as microbially poor as the pelagic ocean on Earth, which is the worst case, we still have a chance of seeing lots of organisms in the plumes.
+- I did play the guitar and sing; I was in a band called The Estrogens: three females and one very brave guy.
+- It's always snowing at the south pole of Enceladus.
+- Titan is the one place in our solar system whose geographical and atmospheric diversity and complexity are rivaled only by the Earth's. It's very Earth-like, but it's also very different, which means we have a lot to learn as well as a prayer of understanding what we find.
+- Titan has no liquid water on its surface, and any liquid water beneath its surface is inaccessible to us, as far as we know. It has hydrocarbon lakes, but we don't know of any organisms that could live in those, not at the temperatures that we find on Titan. Any reference to possible life in lakes on the surface of Titan is pure speculation.
+- I got into astronomy through an interest in religion.
+- The first real Cassini image that brought tears to my eyes was an image of Jupiter. I didn't expect it to look so detailed.
+- It's like there's a pulsating, hidden world, governed by ancient laws and principles, underlying everything around us - from the movements of electrical charges to the motions of the planets - and most people are completely unaware of it. To me, that's a shame.
+- We can have fun speculating about why things are the way they are but don't look to science to provide any answers.
+- Every type of ring behavior we have seen around Jupiter, Uranus, or Neptune can be found in orbit around Saturn. And Saturn's ring system offers the greatest promise of understanding processes in operation within all disk systems, not just those found around planets.
+- No matter how you measure it, whether you measure the amount of mass or you measure the number of bodies, most of our solar system exists out beyond the orbits of the asteroids. So we could not have claimed to know our own solar system until Voyager had toured the giant planets.
+- Cassini was so profoundly, scientifically successful. It's amazing to me, even, what we were able to do right up until the end.
+- The most exciting thing that we have found with Cassini is the geological activity, the geysering activity at the south pole of Enceladus.
+- Boy, when you come to study something, and you come to understand it - you know, even if it's just a little discovery that you make, and you come to understand it on your own, it feels it's like the greatest high. It's like you just have found some incredibly secretive thing about nature.
+- My work is my life.
+- Between my participation in Voyager and my role in Cassini, when comes the time, I will die a happy and gratified woman.
+- The Saturn system is a rich planetary system. It offers mystery, scientific insight, and obviously splendour beyond compare, and the investigation of this system has enormous cosmic reach... just studying the rings alone, we stand to learn a lot about the discs of stars and gas that we call the spiral galaxies.
+- Saturn is such an alluring photographic target.
+- I am uneasy about having scientific exploration depend on profit-making companies.
+- Make education more accessible to women - all women, not just Americans.
+- Motive may be inferred only when the stimuli in the agent's environment are open to view and the influences leading an agent to a particular action can be evaluated.
+- As far as Europa goes, Europa very likely has an ocean under its surface. In that regard, Europa and Enceladus are on equal par. But on Europa, the ocean is at least several kilometers under the surface, and the moon is bathed in an intense radiation field.
+- I'm used to fighting and arguing with males.
+- For me, it was my first cosmic connection, on par with a first kiss. No other planet looks as unworldly or surreal as Saturn. When you see it floating in the eyepiece of your telescope, you feel as if you've uncovered mystery in the cosmos.
+- I was drawn to astronomy by a teenage existential quest. Around 13, I was deep into wondering about the meaning of life and what I was doing here. I turned to religion, but that did nothing for me. I got to wondering where was here. So, I began studying astronomy and became enthralled by what I learned.
+- To my mind, most people go through life recoiling from its best parts. They miss the enrichment that just a basic knowledge of the physical world can bring to the most ordinary experiences.
+- Most of the solar system resides beyond the orbits of the asteroids. There is more to learn there about general planetary processes than on Mars.
+- As a planetary system, Saturn holds the greatest promise for answering questions that have a far broader scientific reach than Saturn itself.
+- Voyager found Saturn to be a planet with a complex interior, atmosphere, and magnetosphere. In its rings - a vast, gleaming disk of icy rubble - the mission recorded signs of the same physical mechanisms that were key in configuring the early solar system and similar disks of material around other stars.
+- My whole entry into astronomy started from a spiritual place.
+- I read about eastern philosophy and religion and existentialism. All that introspective thinking got me thinking about the great beyond. That turned my sights from inwards to outwards, and I started becoming interested in the makeup of the universe, and I started reading about astronomy, planets, and galaxies.
+- By the time I finished high school, I knew I wanted to become an astronomer. By the time I finished college, I knew I wanted to be part of the American space program. And that's exactly what I did.
+- Scientists tend to come in two stripes: those who have tremendous appetite and aptitude for the details, and those who illuminate the big picture. Sagan was definitely in the latter category, and he was profoundly good at it. He made connections that others did not have the intellectual breadth or courage to make.
+- Saturn is accompanied by a very large and diverse collection of moons. They range in size from a few kilometers across to as big across as the U.S.
+- The questions that we scientist have about Saturn's rings are the questions that an ordinary person might be moved to ask when first seeing them, you know. What caused them? How did they get there? How long have they been around? How long are they going to last?
+- Voyager's passage through Saturn's inner system exposed diverse moons with dynamic forces at work. Titan, Saturn's largest moon, whose surface remained invisible through its thick, ubiquitous haze, nonetheless teased observers with hints of a possible ocean of liquid hydrocarbons.
+- Cassini was an international undertaking, led by NASA and the European Space Agency and designed to be, in every dimension, a dramatic advance over Voyager. At the size of a school bus, it was bigger than Voyager and outfitted with the most sophisticated scientific instruments ever carried into the outer solar system.
+- The Huygens images were everything our images from orbit were not. Instead of hazy, sinuous features that we could only guess were streams and drainage channels, here was incontrovertible evidence that at some point in Titan's history - and perhaps even now - there were flowing liquid hydrocarbons on the surface.
+- Science is not the means by which we come to understand why physical laws and circumstances are the way they are. When we ask why - assuming the question is really 'why' and not 'how' - we are really asking to know the motive of some responsible agent capable of reason.
+- The Cassini mission was all about a comprehensive investigation of Saturn and everything in the Saturn system, and it's been a mission that's been done jointly with the Europeans.
+- It's so empowering to know the truth and to really understand something.
+- The reasons why images are so primal and people immediately relate to it is that we are exquisitely engineered to interpret information that is arrayed in two dimensions. That's our eyesight. That's how our eye-brain system works. So it immediately feels to us when we look at an image like we have extended our senses.
+- Let's teach our children from a very young age about the story of the universe and its incredible richness and beauty. It is already so much more glorious and awesome - and even comforting - than anything offered by any scripture or God concept I know.
+- Even by the diverse standards of Saturn's satellites, Enceladus was an outlier. Its icy surface was as white and bright as fresh snow, and whereas the other airless moons were heavily pocked with craters, Enceladus was mantled in places with extensive plains of smooth, uncratered terrain, a clear sign of past internally driven geologic activity.
+- Whenever we humans think that we might be approaching something that is vaguely similar to Earth, we get very excited about it. The prospect of something familiar but yet so distant and so strange is a very exciting combination.
+- Titan is Saturn's largest moon, and, until Cassini had arrived, there was the largest single expanse of unexplored terrain that we had remaining in our solar system.
+- Saturn itself is a giant planet, and there's much to be gained by investigating its meteorology and studying its magnetic field.

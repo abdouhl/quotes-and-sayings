@@ -1,0 +1,89 @@
++++
+author = "Asia Kate Dillon"
+title = "Asia Kate Dillon Quotes"
+quotes_len = "83"
+description = "the best 83 Asia Kate Dillon Quotes"
++++
+- If you don't meet luck halfway with really hard work, luck won't get you all the way there.
+- Once people are made aware of things that they were previously ignorant of, I think people are a lot more willing to really try.
+- I find that, often, when I tell people what pronoun I use, I don't get a lot of backlash. I'm really lucky in that respect.
+- A lot of brands are saying they're going to make 'gender neutral' clothing. But clothing is gender neutral.
+- There is a great silver lining to the 45th presidency, which is, it's hard to swallow that he is existing, which gives us the silver lining, which is a great uncovering of the historical disenfranchisement and marginalization of so many people in this country for so long.
+- I'm always interested in, I would say, not only sharing my wisdom, but acquiring other people's wisdom as well.
+- In my real life, I'm a Black Lives Matter social justice activist, and so it was incredibly interesting to me to play somebody coming from the totally opposite side, whose beliefs are as deeply entrenched - as deeply felt, and given as much gravity, as I give my beliefs.
+- Within my immediate creative community, I would say gender is something that I've always been interested in and always talked about.
+- I think we're at a really critical time in terms of art, and I think it's totally possible to have a project that is entertaining but also moving the cultural needle forward. I think it's one of the reasons I'm so grateful to work on 'Billions.'
+- If someone says 'she' or 'he,' and it's unintentional, I can tell if it's coming from a place of love. It's only when someone misgenders me on purpose that it becomes hurtful.
+- Nonbinary, gender-nonconforming, and trans people have always been around, just as long as any other type of person.
+- Damian Lewis is a consummate professional. He is kind. He's compassionate. He's able to engage in real conversation when we're not rolling, and then, the minute we're rolling, he's totally present and reacting truthfully in the moment and listening.
+- I remember specifically a couple of performances that I saw when I was young - River Phoenix in 'Stand by Me' and also Michael Jackson, in particular his ability to command such power and love while maintaining such deep vulnerability. It really moved my soul from a very young age.
+- I have disregarded gender when deciding which part to audition for.
+- Honestly, from a very young age, before I had the language, really - anywhere that I encountered binary, whether it was in clothing or in toys or in media, it always made me uncomfortable.
+- What 'Billions' does so brilliantly is they just make it a non-issue. Damien Lewis' character says, 'Those are the pronouns you use? Great, let's get down to business. How can you make me money?'
+- I believe the arts are the best way to help people go on a journey of self-discovery toward their own compassion and empathy for humanity and themselves.
+- Dating has never been something I've done. It's never been a part of my life.
+- I would love to do things that teach me new skills. Like, I don't know how to ride a horse. And not that I need a film or television project to teach me that, but it's one of the perks of being an actor, inhabiting a character who has experiences and a knowledge that I don't.
+- I've always been comfortable being the first person at a party, metaphorically speaking - being the first person on the dance floor, saying, 'This is where it's happening, people, and if you don't think so, that's cool, but I think you're missing out.' That's my general philosophy, and it's served me pretty well.
+- For all of the incredible messages I've received about how my visibility is helping people, those people who I follow on social media still receive daily death threats and the most derogatory, inhumane vitriol.
+- Labels can be really helpful when we have the autonomy to label ourselves. But when other people label us without our permission, that's when it becomes dangerous.
+- My mother has always rooted for the underdog, so to speak. She has always been in support of uplifting historically marginalized and historically disenfranchised people.
+- I struggled coming to terms with the fact that I'd been assigned female at birth, but that I didn't feel like a girl or a woman or a man or a boy.
+- I remember, in middle school, we did the musical 'Oliver.' I loved the movie, and I always wanted to play Oliver. It might not have been stated, but the boys auditioned for Oliver, and the girls auditioned for Nancy. But we also did a play called 'Li'l Abner,' and I was really excited that they let me put on a suit and a fake mustache.
+- I was assigned female at birth. My gender identify is non-binary.
+- Gender-neutral clothing is often, for lack of a better term, bags on bags. A baggy shirt with baggy pants, that sort of erases any individuality, as opposed to enhancing it.
+- I think that it's important to say that trans people exist, and we are valid, whether we choose to transition or not. It's really up to anyone to decide what is going to make them feel the most like themselves.
+- As someone who is non-binary gender identifying, I feel a particular responsibility to portray members of my community on stage and on screen, not only as fully fleshed-out characters who are integral to the plot, but as characters whose gender identity is just one of many parts that make up the whole person.
+- Creating more characters that represent historically marginalized and historically disenfranchised people in television and film is certainly important.
+- Me feeling ambiguous about my gender identity has been a lifelong feeling, certainly.
+- We have table reads for every episode of 'Billions.' The core cast is smaller than the core cast on 'Orange Is the New Black,' so in that sense, it has more of a theater vibe.
+- Ithaca is sort of a populated and diverse area. There's a wide spectrum of people living there. In that sense, it was a wonderful place to grow up because it was a microcosm - ultimately, I would learn - of New York City.
+- The stories I grew up with, whether it came to queer representation or representation of anyone that was different, it was always a story of, like, very sad, usually ended up with somebody dying, and it made the idea of being queer or different really scary, actually.
+- Capitalism in and of itself is based on the monetising of human labour, and the first evidence of that is slavery. And that has never changed. We are all participating in that.
+- 'Actor' and 'actress' don't have to be gendered or sexed.
+- Some people's gender identity conforms to the sex they were assigned at birth, and some people's identity doesn't. That realization was certainly very freeing for me - and could be very freeing for other people.
+- I first started removing the 'she,' 'her,' and 'hers' pronouns from my online material. I was just using my name in place of a pronoun, and that felt really good. Then I read the script for 'Billions' and did a little more research into non-binary, and it just really clicked for me.
+- What I learned through my research is that the word 'actor,' specifically in reference to those who performed in plays, came about in the late 1500s as a non-gendered word. It applied to all people, regardless of anatomical sex or gender identity.
+- I've been fortunate that the roles I've auditioned for, I auditioned because I felt I was the right actor to play that part.
+- I absolutely think it is more acceptable for people who were assigned female at birth to dress in a typically gender non-conforming way. There was a time when people of all genders had long hair and anyone who wanted to wore jewelry - it was more a sign of status than a sign of femininity, per se.
+- This character I play on 'OITNB' is an antagonist in a Black Lives Matter storyline, but you need antagonists in order to tell those stories.
+- I see reflections of what I love about myself in the love and care I receive from my friends, family, and co-workers who, in turn, allow me to love and care about them.
+- Non-binary is a term used by some people, myself included, who feel that their gender identity falls outside the tradition boxes of man or woman.
+- I'm really proud that MTV has joined the conversation about breaking down binaries.
+- I want the United States to be having a much larger and more public conversation about racist capitalism. We need a radical reimagining of the economy in this country.
+- I spent so many years not understanding my own gender identity and not having the language for it, and not having those conversations, that now I'm so eager to talk about it. Then I learn more about myself and other people.
+- I grew up poor, financially lower class. Worked in restaurants for 17 years while going to acting school and trying to become a working actor. Because I know what it's like to not have money, I turn down roles if I don't want to play them.
+- Whether it's a song or a television show, or a book or poem, art is the thing that cracks me open and encourages me to go on a deeper journey to find my own compassion and empathy and humanity.
+- I love my ability to generate empathy and compassion within myself and others.
+- When you are not working in TV and primarily doing film, you're working with one director for a long period of time, so getting to work with 12 different directors in the span of six months is incredible.
+- 'Laramie' is a way in to replacing any hate in your heart with understanding, compassion, and acceptance.
+- 'Orange' is fun. Even when we're doing super-intense, emotional, or physical stuff, we're having fun. We're checking in with each other; we know about each other's lives and know each other's families and relationships. We're really friends.
+- I really like working with different directors. It's really fun.
+- There is still so much acceptance, representation and visibility needed for trans women of color and gender non-conforming people of color.
+- I do say gender fluid, because I experience my gender identity as being fluid because it's on a spectrum.
+- Because I was assigned female at birth and I am light-skinned, white, I think people hear my message more than they hear it from someone who was assigned male at birth and is a person of colour.
+- I'm very careful with my media intake. I try and monitor it pretty carefully.
+- I think one of the biggest misconceptions is that only gender non-conforming, non-binary, or trans people have a gender identity. But the truth is, everyone has a gender identity.
+- What we need to do is get rid of 'men's' and 'women's' sections and make sections that are, like, 'dresses for tall people,' 'pants for short people,' 'jeans for people with hips,' you know what I mean?
+- I've always felt like I'm Asia: I'm the first me and I'm the first Asia that's going to walk into the room, and I'm here to change the game. That's part of who I am.
+- When you see white, cisgendered, heterosexual men having conversations about gender identity where they go, 'Oh, those are your pronouns? OK, great. Let's get back to work,' it allows other people to say, 'Maybe if they can do it, I can do it.'
+- Sometimes you have to see the thing to know that it exists. Maybe there's a queer person in a town, but they don't feel comfortable or safe coming out, frankly, and the only representation they feel that they have or connection they have is on television or in a movie, and that's really powerful.
+- I'm really interested in going back in to the history of non-binary people and seeing how many people in history were non-binary but that didn't know it themselves or because we didn't have the language, couldn't talk about it. I know how that felt being a young person not having that language.
+- The very first time I buzzed my head, I was 21 - I'd had short hair since I was 14 - I just remember it was, like, 2 in the morning, and I just was like, 'I really want to do it. I want to see what I look like and what my head shape is.'
+- I was gender-nonconforming in high school in terms of the way I dressed, in terms of the way I cut my hair.
+- I wish everyone could just be free.
+- We've been socialised and told that there is a way to describe people, and that way is by their gender or their sex.
+- The work that I engage with, whether it's self-generated or collaborative, is uplifting and supporting historically marginalized and disenfranchised people, because when I uplift up those groups, I'm uplifting myself and supporting myself - it works out in that way.
+- There was a time when it was important culturally to have the word 'actress,' I suppose, but when it comes to awards ceremonies, we don't have 'Best Directress' or 'Best Cinematographeress!'
+- I spent so many years not understanding my own gender identity, not having the language to talk about it, and not feeling safe in many environments to talk about it.
+- It's interesting that people think that pants are masculine. Pants are pants.
+- I can remember, actually, seeing the film 'Oliver!' and understanding so badly that I wanted to play that part, but that I would never be able to because I was a 'girl' and Oliver was a 'boy.'
+- The United States has larger enclaves than one might suspect of communities that have simply never engaged with anyone different than themselves or anyone that has an ideology that's different or a background that's different.
+- I love that although the world is a dangerous place, I still find it to be beautiful.
+- Binaries, whether it's 'man' or 'woman,' or 'black' and 'white,' were created to separate us. So without binary, there is only 'us,' which makes us all equal.
+- I moved to New York at 17 to go to school. At 24, I moved back to Ithaca, then moved back to New York at 28.
+- My impression of Wall Street growing up was certainly that it was like the big, bad place where all of the men did the bad things with our money.
+- Art is so valuable that I think its misuse is really dangerous. When it's used well, when it's telling a story well or creating representation or visibility for something that's really lacking, it can really save lives.
+- One of the best side effects about working on 'Billions' that I did not anticipate were the number of conversations I had about gender identity with my fellow actors and also members of the crew. From the person holding the boom to the person wiring my microphone, just how many conversations I had with so many open minds and hearts.
+- Given the choice between 'actor' and 'actress,' 'actor' is a non-gendered word that I use.
+- While I acknowledge that it's not my whiteness that has given me my platform entirely... it's part of the reason I've garnered so much acceptance and praise for being out and nonbinary.
+- I love that I dream big and go after my dreams with all I've got to give.

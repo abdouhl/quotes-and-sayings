@@ -1,0 +1,118 @@
++++
+author = "Ansel Elgort"
+title = "Ansel Elgort Quotes"
+quotes_len = "112"
+description = "the best 112 Ansel Elgort Quotes"
++++
+- My dad was always taking photos of us at home, and even on set - he'd bring us along and stick us in the photos in the background. It was almost the beginning of acting for me, like, 'Hey, you go over there and play basketball in the background, and don't even think about the camera.'
+- I don't do that much sampling. I create all my own sounds.
+- I'd like to be Gandalf for a day - he's so wise, he's so powerful, and he's so caring. I love Gandalf. When they remake 'Lord of The Rings,' maybe I'll play it.
+- I want to dunk on Kevin Hart.
+- I cry whenever I watch an emotional scene that I did, just because it brings me back to that moment. It's like, I remember being there; I remember feeling what I felt. It's really weird, right?
+- In 'Divergent,' the story is about Beatrice Prior, and I play her brother.
+- The image of myself that I give on social media isn't actually who I am; it's not 100 percent me, obviously.
+- I like to go on really nice dates. I've made some money, but I don't spend it on anything besides my rent. But I go to nice dinners. And I like to go with a girl.
+- The club scene is terrible.
+- I love Marlon Brando and James Dean. That was when it was all about the star and the script. Nowadays, everything has to be action-packed.
+- I absolutely should be on social media, and I think every person who's an influencer should be, and should be doing good things.
+- Even on Facebook, like, I wouldn't share everything with my friends, because that's obnoxious.
+- My dad's a photographer. So I suppose he named me Ansel just in case I would take over the family business. I guess I failed him.
+- I think if you only work, then you won't have a life. It's tough to have a life when you're working a lot.
+- It's important to be a divergent musician and do a little bit of everything, except you have to make sure your fans are aware of it and that you string them along the right way.
+- You are your main news platform, so no publication has as much power as you do about posting about yourself.
+- LaGuardia High School is a place of acceptance. You have every type of kid there, performing. The outcast girl would not have been made fun of in my high school.
+- I love when a girl is like, 'I can't hang out. I have to go to class.' And I go pick her up, and she's all sweaty in a leotard with her hair in a bun. That's the hottest thing ever.
+- I think it's important I stay connected to every part of my personality. I play basketball. I rock climb. I paint. I'm a little bit scattered, but it's so I can convincingly play all these characters.
+- I don't want to just fall back on the fact that I was on the cover of 'GQ' for being an actor.
+- I watched 'Billy Madison' maybe 80 times. It's my favourite movie. Watched it, like, a million times. My brother and sister watched it with me all the time.
+- As an actor, you want a director who makes you feel comfortable in a place that you can really create and try a lot of different things.
+- If I messed up at the Oscars, I wouldn't be invited back.
+- My style is clubby and groovy - you can jump to it, but you don't just have to just jump to it. It's not just really bass-heavy and hurts your ears; you move with it, and it sounds kind of tribal.
+- I go to dinner with my friends, and we're like, 'Let's put our phones on airplane mode so we can really enjoy each other's company.'
+- I think everyone should have social media - all young people, at least.
+- I don't want money to ever drive my career. I want my career to be driven by what I want to do in art.
+- I wanted to be a lot of things in my life.
+- Human beings are a wonderful virus in some ways.
+- I like romantic dates - going on a long walk in Central Park and then taking the subway downtown and going out to eat and ordering oysters. After that, you walk around again and talk.
+- I just think a lot of people don't give credit to EDM producers or DJs. People think they're just button pushers and just get on stage and don't really perform.
+- To be honest, I don't mind talking about my experiences in life, but details aren't for everyone.
+- I'm looking forward to, as an actor, having to do some stuff that's out of my comfort zone. It makes for interesting work and when you're uncomfortable doing something; then it's going to be interesting when they film it.
+- This is sort of not expected, but I would love to produce a record for Missy Elliott. It would be totally different, but she makes party music. 'Lose Control' was my favorite song when I was in 5th or 6th grade.
+- I don't want to only play the leading man for the rest of my career.
+- Someone once told me we have in our minds who we want, and often those aren't the people we actually want. Like, once there was a girl I thought was perfect for me - I had every box checked with her. But I just didn't feel anything.
+- A lot of high school students on TV and in Broadway are played by people in their late 20s and even early 30s. That seems weird to me.
+- I would like to do more independent films.
+- I have a lot of weird interests, but everything I do is artistic.
+- There are big parts of my life that I don't share. I don't share myself eating dinner with my family. I don't talk about who I'm dating. That's private; that's me.
+- I'm a physical guy. I play basketball, and I rock climb.
+- There's going to come a time when maybe I have kids and a wife.
+- I'm not really too worried about what I'm gonna do next, because I just think of my career as, like, having sixty years ahead of me.
+- When you're crafting a character, it's good to have a lot of influences.
+- I had a birthday party with my family and friends at a house, and Chipotle catered. It was beautiful.
+- There are so many things to be lucky for. Lucky to be healthy, lucky to be, like, beautiful. Lucky to be living in America.
+- In fifth grade, I did 'Oklahoma!,' but I didn't get a leading role. I knew the whole play and could sing it already, but they were like, 'The sixth-grader has to get the lead.' I was really discouraged.
+- Just because you live 20 years or 100 years doesn't make it less meaningful. They're both short amount of times. So all we can do is just live in that time, whatever time we're given.
+- My dad said to always do what I loved and not worry about the money or anything, because if I do what I love, then the money will come.
+- I think that most people who are just artists, who are getting famous, would trade a lot of their fame back for some normalcy, pretty much immediately.
+- I think my parents raised me well. And I'm pretty straight edge. All my friends make fun of me for being straight edge.
+- Some nightlife places, people aren't there for the music, and it's depressing. I'm not just a club DJ; I am a producer, and I'll only DJ when the crowd is there to enjoy the music.
+- I always wanted to be part of a movie that creates a different world.
+- I'm just such a good kisser.
+- When girls scream my name and start crying, I blush like crazy.
+- Parents can't monitor what you are doing on Snapchat.
+- I like strong women. Physical women.
+- James Dean was always a tortured soul.
+- I love to cry. It's great.
+- You can't be a good actor if you get too affected by fame. Because then you're not real, and you're not really wanting more. You look at a lot of actors who, before they were famous, did a lot of amazing work, and once they got too big, it just got off.
+- I write music because I love it. Sometimes more than anything in the world.
+- My fans are going to be there for me.
+- Technology moves so fast and social media moves so fast because everyone wants the new thing, but also, everyone wants to be where their parents are not. Once the mom got a Facebook and a Twitter and an Instagram, I don't want to be there anymore.
+- When I was in lower school, I graduated from fourth grade, and the principal gave us a summer assignment to take a 30-minute reflection period every day. And, of course, there were no cell phones at the time. She said to just think. And that's lost. It doesn't exist anymore. Just imagine being on a couch and just thinking.
+- Most actors nowadays are models turned actors. That's why a lot of young actors are terrible. You have to learn how to act. It is not something that you can just do.
+- I never felt fanboyish about acting, about actors, about movies. I'm a fanboy with music.
+- I like romanticizing romance.
+- When I chose to do 'Carrie,' I never had done anything on camera before. I was always onstage, so everything surprised me. Just going on set and walking into a makeup trailer and seeing Chloe Moretz and Julianne Moore - 'Wow, I am part of this ensemble.'
+- From an early age, I understood the concept that, if you're not the star, then your job is to not pull attention away from the star.
+- My dad grew up in Washington Heights. I grew up in New York in Manhattan. So we're purebred New Yorkers.
+- I just make whatever music I want. It's my obsession, and it's very fulfilling.
+- I grew up with Grace Coddington coming over to our house, like, all the time, but, like, she was just, like, the woman with the red hair.
+- All I want to do is work.
+- So many movies just have two pretty people thrown together.
+- 'The Fault in Our Stars' is a beautiful film that's really positive. The second half gets sad, but it's always positive.
+- I want to encourage people. One of the things I do encourage people is that - that Internet is a place where we should share our ideas and be positive, not negative.
+- I can be overly confident at times, but with someone who I'm very close to, like with my mother, I will break down. In real life, people will find out that I'm not actually that confident and that I'm a real guy underneath it all.
+- Picture-taking is an ensemble art - like theater.
+- I don't just act, and that's really important to me. I don't want to just be an actor forever.
+- I don't want anyone part of my love life besides me and the person I'm loving.
+- I can tap dance a little bit.
+- I don't want to just sell out shows to young girls who like my movie franchise. I want to sell tickets because people respect me.
+- I'm a total goof. When I'm being really comfortable with my friends, I can be very goofy.
+- Nicholas Sparks and John Green are very different writers.
+- I think that when you first read material or you first read a script or story and know you might be playing a part, it's important not to see yourself because it should be a challenge enough that it doesn't come easy.
+- Just in terms of the opportunity I've gotten is amazing. I consider myself super, super, super lucky.
+- Any real person has a front and a real part to themselves.
+- The first movie I ever cried at was when I was 10 years old and saw 'The Notebook' in theaters. I was like, 'Whoa, so weird. Crying at a movie? I'm not supposed to do that. So weird.' I didn't know that art could make you do that.
+- I hated the ballet, but I liked performing. I did 20 shows, and I couldn't get the smile off my face.
+- I'm not that big of a reader, to be honest.
+- With 'Carrie,' I did, like, seven auditions. I'd never done a movie, so they wanted to make sure I wasn't going to ruin it. I don't blame them.
+- I think it would be ridiculous to work with Tom Hardy. I hear some crazy things about him, and he's also really good.
+- My mom is very romantic. As is my dad. They appreciate real romance.
+- I never really did that well in school because I was so absorbed with doing acting.
+- I want to play everything. I want to be like Christian Bale: I want to be able to be Batman and then, like, his character in 'The Fighter.' That is what is so impressive about really good actors, that they can be character actors and leading men at the same time.
+- The first show I did was 'The Nutcracker' ballet. I was one of the kids who comes out in the beginning.
+- I like to buy girls shoes and jewelry. I buy stupidly expensive shoes. I got Louboutins for my mom and my girlfriend before. My mom was like, 'I can't wear these; they're too high.' I was like, 'Mom, you have to try them - they're so cool. They're red snakeskin!' She still wears them every so often, but she can't walk in them.
+- I want to do movies, television and theater. Whatever comes along.
+- What's interesting to me is the fact that creatively, I can do anything now and people will pay attention, and if I suck, hopefully they will stop paying attention very quickly, but if I'm good, then I have my foot in the door, and people have paid attention, and I did a good job, and people are like, 'Oh, wow!'
+- I don't believe in spending money lavishly, now that I'm making money.
+- I'll work thirteen hours at a time producing a new track. Not a lot of people understand that - not girlfriends, friends, family.
+- Sometimes I'll write a tweet that I'll just be like, 'Why do I have to say this to all of these people?' It's like writing a Facebook status: it's the same. I view tweeting as like writing a Facebook status. Remember when we used to write statuses?
+- I'm not going to go on Twitter and rant about something.
+- I'm starting to get a following on Twitter. That's a really awesome power to have. It gives me the opportunity to make any kind of art I want.
+- Girls love it when you have some weird nerdy thing in your room. It makes you look less threatening, even though I'm, like, very threatening. I'm the most threatening guy ever.
+- 'East of Eden' is an important story for me. It's about a kid that's misunderstood and feels like he's not loved by his father. It's a very father-son kind of story, and it's not until the end that they sort of make up. I like that because every boy has trouble with his father, so it's very relatable.
+- My dad photographed a lot of beautiful dancers. My mom was a dancer.
+- You can be really weird, and people will still accept you if you're in movies. I'm not actually weird, but if I feel like being weird, then I can do it, and they accept it because you're an actor.
+- Sometimes you want to read what people write about you, obviously.
+- Growing up on, say, the Upper East Side, you're so isolated. If you go to the Hamptons every weekend, you never talk to a construction worker, and the construction worker would never talk to you.
+- You know what I'm realizing? I always love a place if I like the movie I'm doing there. I've heard people say, 'I hate Pittsburgh,' and I'm like, 'I love Pittsburgh so much!' I loved what I was doing there, and I loved Austin for the same reason.
+- My thing with fans is, it's always about being really good to them and taking the time to take every picture. If there are 300 people, you should take 300 pictures - you shouldn't take 250 because then fifty people will go home sad. Why would you do that?

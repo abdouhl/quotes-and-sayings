@@ -1,0 +1,74 @@
++++
+author = "Ashley Wagner"
+title = "Ashley Wagner Quotes"
+quotes_len = "68"
+description = "the best 68 Ashley Wagner Quotes"
++++
+- In 2010, I was 17 or 18 and thought, 'Yeah, the Olympics, that might happen.'
+- I by no means quit social media.
+- I went through my awkward teenage years. I don't want to go back.
+- Yu Na Kim, Mao Asada, Carolina Kostner - all these girls can do triple-triples in their sleep, and they have the skating skills and the spins and the rest of the technical jumps. So I have to have that as well if I want to be able to call myself 'competitive' against them. And when I say 'competitive,' I mean I want to win.
+- I might be more of a tomboy on the ice, but when it comes to fashion and things like that, I'm a total girlie-girl.
+- When I fall, I fall hard.
+- When my parents were paying for my sport, it wasn't just me out on the ice. Pretty much every dollar my mom made teaching went into my skating.
+- I'm not a crier.
+- I love Pinterest! Pinterest is absolutely phenomenal when you're trying to come up with a costume design.
+- I always loved Michelle Kwan's outfits. Most of them were designed by Vera Wang, and they're just so simple, but the fabric that they used and the way that it was sewn together look so elegant and rich. You could tell that time had been put into it. It wasn't just another spandex, stucco-covered costume.
+- I want to stay involved in sports in one way or another.
+- Years ago, I tore out a Nike ad featuring Allyson Felix and Maria Sharapova looking super fierce and tough. I always told my family that I wanted to be like them someday, so to come home to my apartment and see boxes of Nike gear stacked higher than my doorknob is pretty much a dream come true.
+- I'm scrappy.
+- I'm so proud to be an Army brat, but it was not an easy life. Moving around so much, skating was that one constant thing I had to hold on to.
+- I'm such a strong-headed person and so stubborn, I don't need someone to be sweet to me.
+- Skating is one of those sports you unfortunately see people get stuck in.
+- I try to stay low-carb and high on lean protein. I'm lucky in that I love chicken and rice; it's one of my favorite meals. I steam some vegetables and top them with olive oil for some flavor.
+- I hate doing Tabatas - you do whatever you want at high intensity for 20 seconds, and then get a 10 second break and you repeat that for 8 minutes. So you can do jumping jacks for 20 seconds, you can do sprints for 20 seconds, etc. It's supposed to help you get your endurance up really fast.
+- When I do my makeup, it kind of helps me get into the character that I'm trying to portray.
+- Adding an Olympic medal to everything that I have already accomplished would be so huge for me.
+- Covergirl is my sponsor, and they have been so helpful in supplying me with their wonderful products. I love their blush, mascara and lip gloss.
+- Nothing has been easy for me... I've always had to work for everything I've gotten and everything I've accomplished.
+- To put on a performance, you have to be emotional. You can't be a zombie.
+- The fact that an icon would even utter my name or have any idea of who I am is absolutely unreal.
+- I was very much a tomboy. I just couldn't do the pink ballet tutus.
+- I'm a show pony, and I don't get to skate with girls doing triple Axels every single day. I skate with little babies who are working on their single Axels while trying not to hit them on the ice.
+- I live in California, so I do stand-up paddle board, which is a killer workout. I also run, about four miles every three days.
+- I can adapt to change easily, but I'm not a fan of it.
+- I'm vicious. I can be nice off the ice, but on the ice, that's not where it's time to make friends.
+- I think growing up in skating, I was surrounded by the LGBT community, so I grew up very aware because I was around it so often, and some of the kindest people I know are gay figure skaters.
+- You should not be defined by one bad performance.
+- Skaters are infamously superstitious.
+- I'm not one for neon colors.
+- Twitter is a blessing and a curse at the same time.
+- My parents told me, 'Skating is a privilege, not a right, and school always comes first.'
+- I love 'The Vampire Diaries!' I can't help it - it's such a teeny-bopper show, but I think I just like it to stare at the guys.
+- The SoCal weather can't be beat, but I just haven't quite been able to embrace the lifestyle.
+- A lot of people who watch figure skaters want us to look like pretty princesses. I want people to see the athlete, and I want to look like a woman among girls.
+- You always imagine everything will go so smoothly in the Olympic season.
+- It just comes kind of naturally to me to take something and try and make it relatable and interesting to someone who doesn't know everything about skating.
+- I give myself a cheat day where I annihilate my diet. I'm an all-American girl, so I go for a burger and fries and a shake.
+- People don't want to watch a sport where you see people fall down and somehow score above someone who goes clean.
+- Off the ice, I can be soft, and I can be elegant and sweet.
+- I love hanging out with friends and family.
+- I just believe in equality for all.
+- Some skaters, they live for skating, and they are home-schooled. I'm very lucky my parents let me go to school and have a normal life.
+- I think the great thing about social media is it gives people access to you on a totally personal level that they didn't have before, so it's really important, and it's a great way to get people involved and excited about what you're doing.
+- I'm a strong-headed person, and you can always tell how I'm feeling in that moment.
+- I'm the type of skater that needs to stay upbeat and relaxed, open, because if I stay quiet, I get in my head, and then I start to think too much and start to doubt.
+- To have full and multiple criteria is the best way to decide who is best prepared to be on that Olympic team.
+- In this crazy, crazy world of figure skating, it is easy to focus on a name or a target. But when you are going after someone, it really only holds you back from what you are capable of yourself.
+- I want people to see a real person on the ice. I want to seem tangible, hard-working, passionate about my skating, not just going out and doing something I've rehearsed a million times.
+- After a pretty amazing year that included more wins than I thought possible, I rang in 2013 by watching the Times Square ball drop on TV... and then heading directly to bed. It might not have been the typical New Year's Eve for a 21-year-old, but what can I say? It was a training night!
+- I haven't mastered the art of sitting and smiling.
+- For me, I have gay family members, and I have a lot of friends in the LBGT community.
+- From a young age, I was viciously competitive.
+- When I step out onto the ice to compete 'Romeo and Juliet,' I don't feel like a fighter. I feel very nervous, and it's very difficult for me to get into the mindset for it.
+- Seabeck is slow to change.
+- I love hockey. That's actually one of my favorite sports.
+- I know roughly when I skate a good program where the score should end up.
+- I'm not a pretty princess, and I'm aware of that, so I like music that is really intense, really bold, and characters that in a way almost have a dark side and are kind of evil because, for me, that's when I feel my strongest and fiercest, when I'm not necessarily the good girl.
+- When I'm competing, I need to be strong.
+- I'm always looking for a way to give myself something new as a person.
+- I am going to get involved with giving back to military families.
+- I'm very much a technical person.
+- If I train well and stay focused, I'm confident I can deliver when the time comes.
+- My mom devised a plan to get me out of the house and gave me the choice between ballet or skating. She knew both of those sports were time-consuming and would keep me busy with hours of practice.
+- I love to win, honestly... If you love to win, you should say it. And honestly, I'm hooked on it.

@@ -1,0 +1,106 @@
++++
+author = "Trevor Ariza"
+title = "Trevor Ariza Quotes"
+quotes_len = "100"
+description = "the best 100 Trevor Ariza Quotes"
++++
+- You just got to be comfortable where you are.
+- My favorite player of all time is Deion Sanders, so football is my first love. When I was little, I focused more on football, definitely.
+- It was extremely tough to leave Washington. Especially with the chemistry that we built, players getting better over there. My family and the players, our families became really close. That was tough, I ain't going to lie.
+- It's hard to describe the profound way James Harden changes the game of basketball when he's on the court. It's not easy to capture the way he can see two or three steps ahead of everyone else. James is unlike any player I've ever played with.
+- I started to get a whole lot of attention in the 10th grade. That's when I kind of came out of a little bit of a shell, or whatever, as far as basketball was concerned. I stopped being so goofy. For a high school kid, my game matured a little faster. It got better from the ninth to tenth grade.
+- On the court, I get the opportunity to just open up all my feelings, everything that's wrong, everything I struggle with, I get to come out here and forget about it and get it out.
+- A team is not one individual, its everybody.
+- What you see is what you get. I'm not going to beat around the bush about anything.
+- You have to be a real live dog to come out there and compete every night.
+- My mom supports me. She's behind what I do.
+- One minute, you're 18, 19. The next minute, you're 33.
+- In order to be a great team you have to be selfless.
+- I don't cry over the past or worry about spilled milk.
+- What I do know is I'm going to give absolute 100 percent effort any time I'm on the court.
+- I love L.A.
+- D.C. has become one of my favorite places in America.
+- I just try to make plays when needed and pick up the loose ends.
+- Wherever I fit in, that's where I'm going to play.
+- The good thing for me is I have a lot of experience going through NBA seasons.
+- I'm going to compete. That's what you're going to get from me - competition. I've done throughout my whole career.
+- The most important thing for me is feeling like I'm part of something.
+- The past is not going to get us anywhere. We've got to play for the moment.
+- When you're young and in the NBA, it makes you grow up fast.
+- We went through a whole lot in Washington, from winning 28, 29 games to going to the second round of the playoffs in two years. That was a tough time and a great time as well. Early, like my first year, it was really tough, because to be honest with you, I didn't want to be there.
+- I don't like ghosts.
+- I've always been a player who is a team guy.
+- There's no crying in basketball.
+- Nene is an unbelievable talent. He's a nightmare for the opposing team.
+- No, you can't practice fouling.
+- You trust your work. You understand throughout the season everything isn't going to be perfect, stay confident, continue to take the shots you've been taking and whatever happens, happens.
+- There's always a switch that turns on at some point where you tell yourself, okay, the thing that I can control is the effort. When you figure that out, everything else just falls into place.
+- Teams make runs and you just have to stay focused.
+- Kobe was like a brother to me, for sure.
+- I mean, to be honest with you, my whole career I've guarded players that have outweighed me by 30 pounds. Period, 'Melo to LeBron.
+- Bottom line: If I'm open, I'm going to shoot the ball.
+- That's when you start messing up, when you put too much pressure on yourself. Just come into the game clear and just try to play hard.
+- It's a business. So sometimes, teams make business decisions and you've got to live with that.
+- I play to win, because I think that's when you get the most praise is when you win.
+- My teammates have given me a lot of confidence, my coaches have also. When there's people behind you like that, you have no choice but to get better.
+- My experience in Orlando was a good one. I made some good friends.
+- I always thought there was more to basketball than just scoring the ball.
+- I'm not a big stats guy.
+- I'm happy any time I'm on the court.
+- I'm willing to run through a wall for my teammates, for organizations that I play for. So whatever is asked of me, I try to do.
+- I'm just a big kid at heart.
+- I'm a West Coast dude, definitely, but I do like the city of D.C. It's cool. A lot of things to do. It's just cold.
+- I would like to play for as long as I feel like I can play at an elite level, however long that is is how long I would like to play.
+- For me, the main thing is to continue to work, continue to grind on everything and stay focused.
+- You don't live in the past. You live in the present and look toward the future.
+- Superstar NBA players don't just change positions in their prime. Not eight years into their careers... not when they've been consistently at the top of the league in scoring... and especially not when their team lacks another dominant scorer.
+- I do my best to come in and work hard and let everything else take care of itself.
+- I love being a father, and I couldn't ask for better children.
+- Everybody wants to start.
+- I think pressure is a frame of mind.
+- The person I used to watch growing up was Tony Bland. I just loved the way he played. He was a big guard, and I watched him a lot. He scored, he shared, he did a little bit of everything. I wanted to be a point guard, though it didn't work out that way.
+- I love my family a lot.
+- I hate when people score on me.
+- I don't think you ever really get over losing a sibling, especially when you are with that person every day.
+- Basketball is a game of mistakes, and we know that we can make mistakes, but things that you can't do is lack effort.
+- When the team wins, everybody wins, so I can score two points, one point, get three rebounds, if our team wins, that's all that matters to me.
+- Playing basketball is a game that I love. I've been doing it since I was a kid. It's what I always wanted to do.
+- I learned that no matter what you do, nothing's going to be given to you, and you always have to work for everything you get.
+- No, I don't put no pressure on myself, I just go out and play the game.
+- I'm confident in my abilities to play at any position at any weight, so I'm not worried about bulking up or anything like that.
+- I'm a laid-back dude, period, but I can be vocal, if need be.
+- I always imagined myself going up against Reggie Miller, Michael Jordan, guys like that, and I had to make the shot to win the game.
+- I don't play for self-recognition, none of that stuff.
+- It took for me to get to the Lakers and for my teammates to help me get through that mental block that I had. Anytime I was open, anytime it even looked like I might be open, they always told me, 'Shoot the ball. We don't care if it goes in or if you don't make it. Just shoot it.'
+- People get confused because we all make a lot of money and it seems crazy to the general public, but this is something that we all love to do. We play this game because we love it and if we didn't get paid for it, most of us probably would still be playing.
+- It's hard to see the mistakes that we make.
+- I want to play good.
+- I'm 6'7' and like to sleep diagonally.
+- I mean that's what a team is about: just coming together and doing the things that are needed to win.
+- I'm comfortable in my skin anywhere and everywhere.
+- My son is an L.A boy, just like his daddy.
+- When you have players that are willing to do anything to win, usually the results are pretty good.
+- Hey, everybody is entitled to think what they want to think.
+- In order to get better, you've got to give to your team. If you give to your team, everybody sees it, everybody feels it, and it makes the next person next to you want to give to you.
+- A loss is a loss, whether it's by two or two hundred, it doesn't matter.
+- I didn't really want to play for the Lakers, I wanted to play for the Clippers.
+- I work hard, extremely hard worker.
+- When you have players who are hungry to win, you don't have to tell them much.
+- Whether I'm shooting the ball, playing defense, anything I can do to help the team win, that's what I try to do to the best of my abilities.
+- Whatever helps our team win, that's what I'm going to do.
+- Not any particular position, just whatever the coaches ask of me, I try to do.
+- I'm a chameleon of sorts.
+- I think that the game has gotten faster, so it's more position-less more so than position, and it's about fit and how pieces fit together and having teams match up to you more so than matching up to teams.
+- I wasn't going to play in New York. By trading me to Orlando, I got a chance to play.
+- I'm the type of player who can adjust to anything.
+- To me, James Harden is like basketball's Picasso - he's an artist whose work you respect, even if you don't always understand its significance until later. (Or maybe Van Gogh or some other artist - I'm not an art history buff, but you get my point).
+- I get the job of guarding the 'tough guy' every night so I just try to bring the same energy every night with whoever it is that I'm facing.
+- My family is definitely the most important thing for me, before anything. Basketball, everything.
+- I'm not worried about who's starting and who's coming off the bench.
+- That's my first job on this earth is to make sure that my offspring are as smart as they can be and as well prepared for this world as they can be. So, I take that very seriously.
+- Like I've been saying the whole time I've been in the NBA: anything the coach asks me to do that I can do, I'm going to try to do. Whether it's to score the ball or guard the center, I'll do it.
+- The way I do things is I take it one day at a time. Don't try to put too much pressure or stress on myself figuring out what somebody else is going to do. Just worry about what I got to do.
+- There's going to be times where things don't go the right way, but for the most part, if we continue to communicate, we'll figure it out quicker.
+- I looked at basketball as something that I love and escape from the real world, and in order to continue to escape the real world, you got to work hard at it.
+- The doctors told me I had a bone deficiency, so I had to get my vitamin D up. I've been drinking a lot more milk. Still don't like it though.
+- Whatever is asked of me I try to do.

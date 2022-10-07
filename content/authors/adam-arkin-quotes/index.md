@@ -1,0 +1,25 @@
++++
+author = "Adam Arkin"
+title = "Adam Arkin Quotes"
+quotes_len = "19"
+description = "the best 19 Adam Arkin Quotes"
++++
+- It's the same thing that drives people to want to experience sexual pleasure or have one too many drinks. We all want to experience the other, and to get out of our daily existence.
+- It's amazing that this is still news to people, but that affects the final outcome of the film. When people are treated well, and they're made to feel valued, they give 110 percent.
+- The place was crawling with youngsters. It was good, because the kids were good. I can't make a general assumption. Again, you're probably getting, as a general theme from me, that I don't make a lot of broad, sweeping rules about movies.
+- To confront those fears, in a controlled environment, where there's 300 people around you going through the same thing, it's this weird sort of yin and yang.
+- I want to continue doing as big a variety of things as I can do, and if that means I have the honor of getting to do more feature work, I would love that. I know that if I make any other long-term TV commitments, it's not going to be on a drama.
+- I can't imagine that I would have been cast in the role, without Jamie Lee giving me a thumbs up.
+- It's a lot of work and I also feel like I've done it. I miss comedy. And I also think that, from purely a logistical standpoint, that the day-to-day schedule on a comedy allows you to have a life, much more of a life, than on a drama.
+- What I had to say was, in general, I'm not really a fan of any one genre of any kind of film.
+- First and foremost, it was fun. Everybody involved with it made you feel like they were an important contributor to the process. We were made to feel valued.
+- We all look to have transcendent experiences that lift us out of the everyday, and fear is a good one. But, I think it's the same reason why people want to laugh their heads off.
+- I think that's created a healthy environment. The comparisons to 'ER' were maddening and there was this assumption that the two of us were looking at each other with rage and resentment, which was also not the case.
+- I think that was the case here. We just wanted it to be good for everybody.
+- I really would have been stupid not to have done it. It was also a film that was actually happening, I mean, Miramax was doing it, and it had a kind of legitimacy to it. And once I read the script, I was there.
+- The idea of it becomes a little freaky if you're dealing with someone who has trouble differentiating between fantasy and reality, but that's a concern no matter what kind of movie you're dealing with.
+- People can get obsessed with romance, they can get obsessed with political paranoia, they can get obsessed with horror. It's isn't the fault of the subject matter that creates the obsession, I don't think.
+- I think in the case of horror, it's a chance to confront a lot of your worse fears and those fears usually have to do, ironically, with powerlessness and isolation.
+- You're going through the horror of it, you're going through the isolation of it but you're being empowered by reminding yourself that you're connected to everybody else.
+- I'm always honored, but I think for every 100 of those that come along, one of them is actually going to happen. And, the fact that this was an offer on a major film that had a start date, was pretty impressive.
+- I feel like Josh, Michelle and Adam were all team players, who wanted to be a part of an ensemble.

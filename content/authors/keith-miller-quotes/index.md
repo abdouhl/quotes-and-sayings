@@ -1,0 +1,34 @@
++++
+author = "Keith Miller"
+title = "Keith Miller Quotes"
+quotes_len = "28"
+description = "the best 28 Keith Miller Quotes"
++++
+- I learned that the purpose of the Twelve Steps is to do the will of God.
+- No gentleman ever discusses any relationship with a lady.
+- What happens is that people who are very religious but who are not in touch with reality, cannot be spiritual.
+- Religious work is one of the best ways to keep from facing your reality if you are Christian, if you are using it to calm the pain, because that it what all addictions are, attempts to cover the pain of this spiritual disease.
+- A spiritual person is also in touch with his or her own reality, feelings and thoughts, and the reality of the people around him or her, not projecting on them.
+- A lot of us have jobs where we need to give people structure but that is different from controlling.
+- Pain is the doorway to wisdom and to truth.
+- We can't be intimate because we can't share feelings that we don't have.
+- We are a nation of people who are afraid we are not enough.
+- We religious controllers control in the name of Jesus and it is really painful to people.
+- I remember when I was a little boy my father didn't love me; he couldn't. He loved my older brother but he couldn't love me somehow, at least not in a way I could understand it.
+- We live in a constant fear that our shortcomings will be exposed to family, to friends and to the world.
+- I was taught that pain is bad.
+- Then one day I read about a book that said that the church is the only army that shoots its wounded.
+- If God is in a life, it doesn't have to be big to be happy and to be important in His kingdom.
+- You are controlling because I want you to do it, not because of the situation or what needs to be done.
+- I have learned to like myself for the first time and to have some serenity.
+- Beneath all of these addictions is this disease, this control disease which is the mark of our society.
+- Feelings are like a color chart that God has given us.
+- There never was a social change in America without angry people at the heart.
+- I am too old to think.
+- I grew up and I became very successful at what I did as a young man. I became a work addict because this was the only way I could get any relief from this pain.
+- My only hope to receive love is to let you see who I am, then I may believe you.
+- I am six feet tall. I am not supposed to be afraid.
+- Intimacy, as I am using it, is sharing my reality with you.
+- I wrote a book called The Taste of New Wine because I couldn't find a book that talked about the reality of the situation and how we were dishonest and afraid.
+- The whole Bible is the story of men and women trying to get back to God, to overcome that sin with sacrifices, good works, sermons, prophesy, witnessing, giving all kinds of things. It never worked.
+- The primary symptom of a controller is denial, that is I can't see its symptoms in myself.

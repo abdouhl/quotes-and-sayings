@@ -1,0 +1,34 @@
++++
+author = "Tsai Ing-Wen"
+title = "Tsai Ing-Wen Quotes"
+quotes_len = "28"
+description = "the best 28 Tsai Ing-Wen Quotes"
++++
+- I would have a democratic process for people to get together and talk about the way they want the government to conduct business with China.
+- To me, providing a new economic way forward is of utmost urgency and will be of foremost importance for the new DPP administration if I am elected.
+- Politically, of course, the U.S., despite the flaws in its systems, is still a democracy - we like to associate with democracies. And strategically, the U.S. is a counter-balance to China, a rising China that is not yet a democracy.
+- We will do everything in our power to make sure cross-strait stability becomes the driving force for peace in the Asia-Pacific region.
+- I will, based on the existing ROC constitutional system, based on democratic principles, on the basis of the largest public opinion, promote cross-strait policy.
+- If I'm elected president, I'll make people's voice the foundation of policymaking.
+- We treat China as a normal trading and economic partner.
+- Gender used to be a barrier for women to overcome if they wanted to be in politics, but today in Taiwan the situation is somewhat different. I think there is even a preference for a woman candidate, and in local elections, we have seen that younger, better-educated female candidates are overwhelmingly preferred by the voters.
+- I will make the greatest efforts to seek a way for Taiwan and mainland China to interact that is mutually acceptable to both sides. I will not be provocative; there will not be any surprises.
+- For many Taiwanese, almost all Taiwanese, we'd like to we say we are a country, and we have a sovereignty of our own.
+- Mrs. Thatcher was a powerful figure at the time I was a student in London. And I admire her versatility and strength.
+- Democracy is not just an election, it is our daily life.
+- Ma Ying-jeou tends to use cross-strait policy as an election tool and a political tool, too, and my position is that we don't use that as a political tool because that is an issue that is critical and essential to the interests of the Taiwanese people.
+- People have this vision of me as a conservative person, but I'm actually quite adventurous.
+- I will rebuild the people's trust in government and create a stable foundation for Taiwan's future development.
+- I was not considered a kid that would be successful in my career.
+- I will make the greatest efforts to seek mutually acceptable interaction between Taiwan and mainland China.
+- In the face of love, everyone is equal. Let everyone have the freedom to love and to pursue their happiness. I am Tsai Ing-wen, and I support marriage equality.
+- Our democratic system, national identity, and international space must be respected. Any forms of suppression will harm the stability of cross-strait relations.
+- The greatness of this country lies in how every single person can exercise their right to be himself or herself.
+- I have this idea of a Taiwan Consensus, which means people in Taiwan have to get together and form a consensus of their own and that they turn around to talk to the Chinese to form a cross-strait consensus so we can build a relationship on that consensus. And in my view, that is the right order to do things.
+- We are not facing China alone; we are facing China together with a lot of other people in the region.
+- The youth of Taiwan not only have to face the harsh reality of low wages and high commodity and housing prices, but due to the lack of employment opportunities, many young people are forced to leave their home towns to search for jobs in the cities.
+- A more consistent and sustainable relationship with China will be a core goal of my administration. That requires open channels of communication, both with China's leadership and the Taiwanese people.
+- There are some voters who are rather traditional and have some reservations about electing a woman leader. But the younger generation are excited to have a woman leader for the country. They think it is somewhat trendy.
+- I have promised on many occasions that I will build a consistent, predictable and sustainable cross-strait relationship.
+- We will work toward maintaining the status quo for peace and stability across the Taiwan Strait in order to bring the greatest benefits and well-being to the Taiwanese people.
+- We attach great importance to the peaceful development of cross-strait relations. But if our diplomatic relations is subject to China's goodwill, we will lose the autonomy of our diplomacy.

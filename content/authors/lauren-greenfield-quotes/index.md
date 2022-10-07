@@ -1,0 +1,16 @@
++++
+author = "Lauren Greenfield"
+title = "Lauren Greenfield Quotes"
+quotes_len = "10"
+description = "the best 10 Lauren Greenfield Quotes"
++++
+- My first book, 'Fast Forward', was about growing up in the shadow of Hollywood and how kids are affected by the culture of materialism and the cult of celebrity, and I've often felt the reason my work has an audience in the U.K. is because it's everything the British love to hate about the Americans.
+- My photography is often a sociological look at American culture, and it's been very well published in the U.K.
+- I focus on a lot of women's issues.
+- All my film ideas and subjects have come from photography.
+- I've long been interested in looking at the culture of consumerism and also was interested in this connection between the American dream and the house, and the house being kind of the ultimate expression of self and success.
+- When I first moved from photography to filmmaking, I was worried about how big I had to become. I was one person, or maybe me and an assistant, and I had these small cameras, and maybe a flash.
+- I am very lucky that my first film was fully commissioned by HBO.
+- You have these relationships with people that you care about, but I also try to stick to my job as filmmaker and be fair and truthful about what I saw and my experience of the people, hopefully informed by a deep understanding of them.
+- I've been a documentary photographer for much longer than I have been a filmmaker.
+- I've often used the extremes in my work to comment on the mainstream. I think that sometimes a subject that I'm working on, like popular culture, is so present all around us that they're hard to see. It's like: How do you see the air you breathe? How do you see how it affects you?

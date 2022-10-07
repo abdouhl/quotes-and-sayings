@@ -1,0 +1,30 @@
++++
+author = "Karl Liebknecht"
+title = "Karl Liebknecht Quotes"
+quotes_len = "24"
+description = "the best 24 Karl Liebknecht Quotes"
++++
+- Like a cyclone, imperialism spins across the globe; militarism crushes peoples and sucks their blood like a vampire.
+- Class struggle: external peace, international solidarity, peace among peoples. This is the sacred slogan of international socialist democracy that liberates nations.
+- Through this experience we have been warned - learn everything, don't forget anything!
+- The aim of my life is the overthrow of monarchy.
+- Yes, Socialists should defend their country in great historical crises.
+- Imperialism is not the creation of any one or any one group of states.
+- In the present imperialistic milieu there can be no wars of national self-defense.
+- International socialism recognizes the right of free independent nations, with equal rights.
+- Consider well this fact: As long as the German people does not arise and use force directed by its own will, the assassination of the people will continue.
+- To the socialist no nation is free whose national existence is based upon the enslavement of another people, for to him colonial peoples, too, are peoples, and, as such, parts of the national state.
+- The Russian revolution was to an unprecedented degree the cause of the proletariat of the whole world becoming more revolutionary.
+- Capitalism is war; socialism is peace.
+- Just as invasion is the true and tried weapon in the hands of capital against the class struggle, so on the other hand the fearless pursuit of the class struggle has always proven the most effective preventative of foreign invasions.
+- The basic law of capitalism is you or I, not both you and I.
+- This republic represents the greatest basis for that universal socialist order, the creation of which is at the present time the historic task of the International Proletariat.
+- Passive fatalism can never be the role of a revolutionary party, like the Social Democracy.
+- The new Germany has the unquestionable right to hold its tongue between its teeth.
+- In capitalist history, invasion and class struggle are not opposites, as the official legend would have us believe, but one is the means and the expression of the other.
+- Long live the liberation of the workers off all countries from the infernal chasm of war, exploitation and slavery!
+- Workers, comrades, and you, women of the people, let not this festival of May, the second during the war, pass without protest against the Imperialist Slaughter.
+- Incendiary capitalism is carrying its out evil works more dangerously than ever, and is doing so in the increasingly dangerous neighborhood of the powder kegs that are the great European military powers.
+- For capitalism, war and peace are business and nothing but business.
+- But Socialism, alone, can bring self-determination of their peoples.
+- The failure of the Russian Socialist Republic will be the defeat of the proletariat of the whole world.

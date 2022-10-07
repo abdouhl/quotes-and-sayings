@@ -1,0 +1,39 @@
++++
+author = "Ray Lamontagne"
+title = "Ray Lamontagne Quotes"
+quotes_len = "33"
+description = "the best 33 Ray Lamontagne Quotes"
++++
+- When I pick up the guitar, it's a melody, and that's what drives the lyrics. It's bits and pieces of truth, but it is storytelling.
+- I want to be in control of my own destiny.
+- I'm very uncomfortable in my own skin.
+- We all have that inner voice that is wise, even if we don't always follow it. It's that voice I'm trying to listen to.
+- The thing I love about music is that you can take things that are painful, deep things that hurt you, and you can turn them into something beautiful.
+- I'm a very emotional person.
+- I don't really think of myself as a folk singer.
+- In order to get a note out, I have to dig deep, and I mean that on an emotional level. To physically sing, I have to get somewhere deep before I can do it.
+- It's so easy to get caught up in your own experiences. They can seem so important. But there are billions and billions of other experiences going on.
+- I want to write music that will outlive me.
+- I'm a private person.
+- I feel calm when I'm on my own.
+- My voice sucks. I don't like the tone.
+- It bugs me that people think my songs are personal because it means I have to explain myself all the time.
+- When I think of folk music, I think of topical songs. And I don't write topical songs.
+- I always felt, as a listener at a show, that when there was too much banter between the artist and the audience that it detracted from the show. I more enjoyed shows where the guys came out and they just played.
+- I have a strong sense of self, but that's not a negative thing.
+- My backstory is so tedious.
+- Every song asks to be sung in a different way.
+- I was really lost for a while in my teens. I was angry. But when I found music - Bob Dylan, Neil Young, Joni Mitchell - it was a new discovery. It was a door to this other world where I wanted to be.
+- Social situations, for me - it's very natural for me to be an observer. That's where I'm most comfortable. I observe things.
+- I can't get excited by my own music. It's impossible.
+- You have to believe in yourself before anybody else believes in you.
+- You can make bad choices and find yourself in a downward spiral or you can find something that gets you out of it.
+- I probably wouldn't be a songwriter if I didn't grow up the way I did. It was difficult and it was at times very scary to grow up in a household so unsettled and at times very violent. But, it also, I guess it earned me a sort of wisdom at a young age that's served me well.
+- I am very self-critical, but that's a good thing because it keeps me growing as a human being and as a musician.
+- I'd much rather be playing songs than talking to people.
+- I don't like myself, and I don't like to be looked at.
+- Well... you know, I love motorcycles. They're just beautiful, and there's a certain craftsmanship in older bikes, older Triumphs or BSAs or Norton. I'm just very attracted to it.
+- The label doesn't do anything but put your record in the store, that's all they do. And tell you, you don't have a single... and tell you, it's not gonna sell... that's what the label does.
+- Writing songs is not something I wanted to share with people for a long time. It was precious to me. I didn't want someone to crush it. I waited until I felt strong enough to take the criticism.
+- I need space between me and the audience - and the more space the better.
+- There's a real sense of desperation when you grow up in poverty.

@@ -1,0 +1,44 @@
++++
+author = "Claire Foy"
+title = "Claire Foy Quotes"
+quotes_len = "38"
+description = "the best 38 Claire Foy Quotes"
++++
+- I thought she was just the Queen and he was Prince Philip, and that was just who they were, without thinking about them as a mother or a father or daughter.
+- I've worked in supermarkets, put tags in baseball caps and provided security during Wimbledon, but I never thought acting would be something I'd be any good at, or make a living from.
+- I just think, in every acting choice that you make, you've got to go for the least obvious choice.
+- I think you can't have the monarchy without the coronation. I think you would have to get rid of the whole kit and caboodle.
+- As an Englishwoman, you pick up a lot through osmosis. I've been watching the Queen all my life. But, yes, I did watch news footage and was able to pick a couple of little tics. For instance, she plays with her hands a lot and has a certain way of holding them on her lap when she's in public.
+- Growing up, I was obsessed with Leonardo DiCaprio.
+- I think we should all have a private audience with Helen Mirren.
+- Celebrities choose fame. Royals have it thrust on them.
+- As an actor, there's nothing worse than the sound of 'seven years'. I'm sure to some people it sounds amazing, but to us, it's, like, seven years of playing the same person.
+- I think, generally, British people are more culturally cynical about the things that involve our own country. Especially the royals.
+- I'm lucky I have a fast metabolism... my whole family does... everyone's got a lot of nervous energy so we burn it off.
+- If I was working nine to five, acting would be my hobby... I always feel like maybe I should do an Open University degree. But I'm never going to.
+- I think, whenever you're doing anything, you don't want anyone anywhere to watch it and think that what your character is doing is ridiculous. You don't want anyone to watch it and go, 'Oh my God, that's just fortuitous.'
+- With the royal family, you don't want to see them as people because it takes the sheen off. They're distant; you can idealize them. But there's room to have compassion for people and see them as human beings. Just because they're royalty, it doesn't mean they don't love or feel loss or feel pain.
+- Being really likeable all the time is just not real life, so it's your duty to make a well-rounded character.
+- In the first two episodes, before she becomes Queen, I could be a lot freer with my emotions, but as the series goes on, she develops an armour in order to cope with her circumstances. She has to be a sphinx, which must be so hard. Imagine never being able to shout, 'Shut up,' or cry, even in front of your own family.
+- The idea of your younger sibling being in pain and realizing you are the cause of that pain is unbearable.
+- History has done a great disservice to Anne Boleyn.
+- I feel very lucky to have had the opportunity to bring Peter Morgan's Princess Elizabeth to life; she is a gift of a role and a challenge I am so grateful for - a young woman trying to navigate a path through an extraordinary situation.
+- I think I need to play somebody who expresses themselves and is able to communicate on a more open level, something really different.
+- I think, Queen Victoria's diaries, I think you can get them if you go to the British Library.
+- There is no first-hand account of what the Queen was saying or thinking, so my job as an actor is to interpret her circumstances.
+- I always like to do quite a lot of homework; I quite like to do the research. If I didn't do this, I think I would like to be a researcher.
+- Any scene I've ever played where I've thought people who watch it had experienced something like that - for example, people who've had to deal with losing a parent - I want to do it as respectfully as possible for those people.
+- When someone is 90, and you've seen their entire life, you just think you know everything about them and that they must live a straight-laced life.
+- The Queen has stayed with me in the sense that she lets people come to her. She doesn't feel like she has to go out. I mean, she doesn't have to anyway because of her rank and her position, but she doesn't have to overdo it.
+- I am always so envious of people who do whatever they want.
+- I hate having to pose for photos. It's just so embarrassing. Everyone is expecting you to know what to do because you're an actor, but I haven't a clue.
+- You never know what state you're going to be in after giving birth.
+- I've seen 'Pride and Prejudice' about 4,000 times. I'm not joking: I know every single line.
+- You're more inclined to be cynical about your own country, and you romanticize it from the outside. And why not? It's much more interesting than thinking, 'Oh, everyone's struggling and normal.'
+- The monarchy is thousands of years old and has experienced many things like 'The Crown' in the past. They're always changing and evolving; that's the thing. They have to.
+- I haven't really given much thought to the whole 'working mother' thing.
+- Philip's story is the most interesting in the royal family - his background is the opposite of what you'd think. Everyone has this idea that Philip is this bumbling, deliberately posh sort of man who says the wrong thing.
+- The coronation is a symbol of power, but it's not a symbol for us the people. It's a symbol for that person, who is a human, to become a higher being and become one with God. The church, the scepter, and the crown have been around forever. And the line of kings of England goes back thousands of years.
+- I love home, any home really - my mum's, and of course my own. I love eating food there and chilling in bed with a cup of tea.
+- I wouldn't have been able to go to drama school when I was 19. I don't think I was even conscious of life... I was like a zombie. But when I finished uni' I just realised... just go and do it, stop being a knob.
+- If you're doing something that's period, you've got to live in it, and you've got to make it resonate with you.

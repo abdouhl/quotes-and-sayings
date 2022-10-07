@@ -1,0 +1,46 @@
++++
+author = "Luc De Clapiers"
+title = "Luc De Clapiers Quotes"
+quotes_len = "40"
+description = "the best 40 Luc De Clapiers Quotes"
++++
+- The law cannot equalize mankind in spite of nature.
+- The conscience of the dying belies their life.
+- The idle always have a mind to do something.
+- Clearness ornaments profound thoughts.
+- Great thoughts come from the heart.
+- The art of pleasing is the art of deception.
+- It is difficult to esteem a man as highly as he would wish.
+- The greatest achievement of the human spirit is to live up to one's opportunities and make the most of one's resources.
+- Prosperity makes few friends.
+- You must rouse into people's consciousness their own prudence and strength, if you want to raise their character.
+- The fool is like those people who think themselves rich with little.
+- All grand thoughts come from the heart.
+- The most absurd and reckless aspirations have sometimes led to extraordinary success.
+- The wicked are always surprised to find ability in the good.
+- The greatest evil which fortune can inflict on men is to endow them with small talents and great ambition.
+- Obscurity is the realm of error.
+- To execute great things, one should live as though one would never die.
+- Men sometimes feel injured by praise because it assigns a limit to their merit; few people are modest enough not to take offense that one appreciates them.
+- Wicked people are always surprised to find ability in those that are good.
+- The fruit derived from labor is the sweetest of pleasures.
+- When a thought is too weak to be expressed simply, it should be rejected.
+- Those who can bear all can dare all.
+- Our failings sometimes bind us to one another as closely as could virtue itself.
+- We should expect the best and the worst of mankind, as from the weather.
+- The maxims of men reveal their characters.
+- One can not be just if one is not humane.
+- Emotions have taught mankind to reason.
+- To possess taste, one must have some soul.
+- To achieve great things we must live as though we were never going to die.
+- Lazy people are always anxious to be doing something.
+- You are not born for fame if you don't know the value of time.
+- Indolence is the sleep of the mind.
+- One promises much, to avoid giving little.
+- Vice stirs up war, virtue fights.
+- Clarity is the counterbalance of profound thoughts.
+- Patience is the art of hoping.
+- There is nothing that fear and hope does not permit men to do.
+- The things we know best are the things we haven't been taught.
+- Everyone is born sincere and die deceivers.
+- If people did not compliment one another there would be little society.

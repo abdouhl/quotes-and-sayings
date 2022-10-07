@@ -1,0 +1,16 @@
++++
+author = "Luke Nosek"
+title = "Luke Nosek Quotes"
+quotes_len = "10"
+description = "the best 10 Luke Nosek Quotes"
++++
+- If genetic research doesn't seemed to have lived up to its therapeutic promise, it's because sequencing is just too slow and expensive.
+- We had a mission at PayPal - which was to create a new financial system, a new world currency, and we failed. We were a financial success, but we didn't succeed at the purpose of our company.
+- Halcyon people have put aside and left their homes, their million dollar salaries, full professorships at major universities, and fully seed-funded startup companies to be part of this effort.
+- With Halcyon's technology, the pool of genetic information will grow by orders of magnitude in the course of months, offering the first real chance at cures for cancer and other previously intractable diseases.
+- I have realised more and more that great companies, founded for a long-term purpose, such as Google or Facebook or SpaceX, may do more good in the world than any other vehicle that we have.
+- There would really be no reason to get up in the morning if Founders Fund was not willing to invest in companies that were doing important things, great businesses that very few people believe in.
+- Ultimately Halcyon needs the greatest scientists and engineers in the world to succeed in its mission.
+- We believe SpaceX will become the world leader in space transport, and we want our investors to be part of that future.
+- As I became a venture capitalist, it's almost like I went to the dark side for a while.
+- What we believe at Founders Fund is that technology is a way to help everybody on the planet.

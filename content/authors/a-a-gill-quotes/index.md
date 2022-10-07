@@ -1,0 +1,103 @@
++++
+author = "A. A. Gill"
+title = "A. A. Gill Quotes"
+quotes_len = "97"
+description = "the best 97 A. A. Gill Quotes"
++++
+- You can propose marriage naked or in handcuffs, but no one is going to agree to forsake all others for a man in shorts. You can't declare war in shorts or deliver a eulogy in shorts.
+- If you're bored, it's because someone else is fulfilling his dream. Become a bore. It's the most interesting thing you'll ever do.
+- Clothes maketh the man. They don't make you some other man.
+- When Americans come to London they usually say how much they love the history, the tradition, the splendid tumpty-tum of things whose very repetition has become their point.
+- To a British politician, a police officer is as invisible as the railings.
+- Shorts are silly. Men in shorts are silly men. And silly is the very worst thing a man can be.
+- For men, privacy means not being told stuff that would hurt. For women, secrecy is having stuff go on behind your back.
+- The one thing politicians will always vote for is more politics, so in 2000 they invented the post of mayor of London without ever really thinking what it was a mayor would do.
+- We have to thank the members of the Romantic movement for the sober colours of suits. It was their love of the Gothic that put us in grey and black but the suit stuck.
+- Suits are malevolent magicians' sleeves for socialists, full of patrician loops and tricks, small, embroidered, cryptic messages of deference and privilege. They are ever the uniform of the enemy. They are also the greatest British invention ever.
+- So, being a good man is not an exam or a qualification, it changes, and it incorporates being a good friend, a good father, a good employee, a good boss, a good neighbour and a good citizen.
+- Writing, for me, is the great organiser. It's while writing that I think most deeply about things.
+- This is the trouble with cheating: there are no acceptable rules, or laws. It could be a smile, or dancing to a song that you considered to be indefinably 'ours'. It can feel like cheating to go to a restaurant that you used to go to with someone else. Keeping photographs of exes can infuriate, like retrospective cheating.
+- All people from small islands dance funny.
+- You see, the problem with Dave Cameron is that people know who he is. The less people know about him, the more he's likely to get re-elected.
+- I generally only eat one meal a day, which is pretty unusual for a restaurant reviewer. It's not that I have a problem with food; I'll eat anything that doesn't involve a bet, a dare, or an initiation ceremony.
+- And learn to tie a bow - it's not difficult and there's no excuse for either a clip-on or the hideous Hollywood straight tie.
+- It is impossible to be taken seriously in shorts. No one has ever cared about anything said by a man in shorts.
+- Have you noticed that almost all the change in the world goes to women? When was the last time you had a five pence piece? Exactly. In a Christmas pudding. All the rest of it is in women's handbags.
+- The London police have discovered that the best way to neuter demonstrations is not to move everyone on, or disperse troublemakers, but hold them close, cordon them into a diminishing space for hours and hours, as a sort of arbitrary al fresco arrest.
+- Bald isn't like being ethnic or disabled. Everyone can and will make jokes about it and expect you to laugh good-naturedly, which you will.
+- Learning Jimmy Carr riffs off by heart is not the way to anyone's heart, unless you're Jimmy Carr. And remember, the two most attractive things in a man is a sense of danger and being able to make a girl feel really safe.
+- The super-rich watch each other like envious owls, to see who's got a slightly better loafer, a pullover made from some even more absurdly endangered fur. They will go to any lengths to find the best tailors.
+- If New York is a wise guy, Paris a coquette, Rome a gigolo and Berlin a wicked uncle, then London is an old lady who mutters and has the second sight. She is slightly deaf, and doesn't suffer fools gladly.
+- A cravat is the only item of named after Croatians. Balkan mercenaries were brought to Paris by Louis XIV. Their strange and exotic attire attracted the French bon hommes, who were wearing formal ruffs, and who immediately took to the simple and relaxed military cloth tied at the neck.
+- People collect boredom, they hoard it, they wallow in it, hoping that one day it'll be of interest and become an effete ennui. Let me tell you, it doesn't.
+- Men and women understand different things about personal boundaries. What men call privacy, women know as secrecy.
+- The more there is on offer, the more you don't want. Fifty options of cereal does not hone an epicurean expertise in the finer points of puffed rice, it murders appetite.
+- When I joined the Sunday Times the people I was competing with were all 10 or 15 years younger, they all had double firsts from Oxford or Cambridge, they were all bright as new pins.
+- The real question is: if you knew there was a god, would you behave any differently? And if the answer is yes, then perhaps you should assume there is.
+- Songs are all poetry, and they don't make any sense.
+- I've often been accused of dressing too well. I've always been fascinated by fashion, though I don't think I'm particularly fashionable.
+- Money has to be an explosion of excitement and opportunity, yet we already secretly know that it doesn't do what it promises. Nothing has ever given us as much pleasure as our pocket money when we were 12, or our first wage at the end of that first exhausting week, paid in folded cash.
+- There are five great ages of man - five moments when you need to reevaluate everything, clear out the cupboard and the wardrobe, and most importantly, your head. They are 13, 20, 30, 40 and 60. All men need to know this.
+- It's not in the nature of stoic Cincinnatians to boast, which is fortunate, really, for they have meager pickings to boast about.
+- I can tell very quickly when people are lying.
+- The Lib-Dems are sidekicks. They were born to be sidekicks and that's what they should concentrate on being.
+- Mr. Obama is the only popular politician left in the world. He would win an election in any one of the G-20 countries, and his fellow world leaders will do anything to take home a touch of that reflected popularity.
+- Penicillin and plastic bags help a lot, fridges and hot water make manliness more comfortable and Tom Ford's fragrance range makes it smell better, but the idea that has pushed our lives into the light more than any other -ism or -ology is feminism.
+- Other people's traditions look charming and decorative and exotic. They're nice places to visit on holiday, but you wouldn't want to live with one.
+- No 13-year-old or over should ever be seen in trousers that finish above the ankle. It doesn't matter how good your legs are, or if you're on a beach in Bermuda where they invented the things.
+- I tell you, once a girl's got a dose of novels she's a pushover for iambic pentameter.
+- I'm too vain to go on TV. I'd be a monster of self-consciousness. Plus, I've got a ridiculous voice - I sound like a camp friend of Bertie Wooster's.
+- The pleasure in lovers' gifts is that they are often covert and secretive, worn next to the skin, hidden under pillows.
+- Texting isn't writing. It's not like letter writing. Texting is short scriptwriting. It's a collaborative soap opera where nothing happens.
+- Gifts are an important and necessary part of our collective lives. We need to give and we need to allow others to give.
+- In fact, everybody should wake up smelling nice. I go further, there is not an excuse, ever, not to smell nice, particularly your feet.
+- The truth is a mayor can actually do very little to alter the course of a huge city run by the free market that is home to banking - the engine room of capitalism.
+- Personal adornment is the only cultural form that everybody in the world takes part in.
+- Gift giving is one of the oldest forms of human interaction. It is a behaviour all cultures and all classes share.
+- Mourning the loss of the phone call is like pining for buggy driving or women in hats or three-martini lunches. They've gone.
+- As handbags get ever more absurdly large, so they need to carry more stuff to validate the expense of this huge trunk with chains, buckles and padlocks on.
+- The answer is that if God exists, he doesn't seem to mind if you believe in him or not.
+- Gordon Brown is a character from a tragic opera, twisted by ambition and a Presbyterian sense of fateful destiny. He has waited 13 years, mostly in Tony Blair's shadow, for this poisoned chalice and has a pessimist's luck.
+- I don't know if English is the only language where some expressions only and solely mean the opposite of what they say but we do have an awful lot of them.
+- The only acceptable cravat is the original Croat one.
+- Because there is no better tool for writing than experience. It has very little to do with grammar and everything to do with knowing.
+- A cravat has to be approached with consummate self-confidence and a devilish nonchalance. A cravat has to be grasped by a man who knows how to treat a cravat.
+- I'm terribly prone to anxiety. I get very depressed and I get very anxious and my anxiety is almost always about my children.
+- I don't have prejudices against anybody. I have opinions, based on a lifetime's experience.
+- My only piece of advice is that all of you consider every single text and Snapchat that you ever make as also being shared with your partner, because they all check your phones all the time - trust me on this one.
+- The trouble with righting some wrongs is that it makes the remaining ones seem even more unbearable.
+- Only people who live outside cities realize the size of them. London turns out to be huge; there are great swaths, vast panoramas, a whole diaspora I'd never imagined. The place I live in tends to be manageably small, a few familiar journeys and destinations.
+- Being able to afford everything you desire is not, by any means, the worst thing that can happen to you. But, depressingly, and more profoundly, neither is it the best.
+- I don't go to the openings of shops or parties given by people I don't know.
+- London is a city of ghosts; you feel them here. Not just of people, but eras. The ghost of empire, or the blitz, the plague, the smoky ghost of the Great Fire that gave us Christopher Wren's churches and ushered in the Georgian city.
+- The French are never happy coming to London; this is an ancient and comforting enmity.
+- One of the small joys that's easy to miss in London is the blue plaques on buildings. These are put up to commemorate the famous on the houses they lived in.
+- Women's handbags are incredibly heavy. You rarely get to pick one up and, when you do, you wonder why anyone carries so much stuff around all day.
+- I don't do dinner parties. I have people come to share the food I've cooked for the family.
+- Nature gave you your look and there's only a limited amount you can do about that, but what you wear is the skin you choose for yourself.
+- Cowboy boots you can't wear unless you actually are a cowboy or in a Status Quo tribute band, or over 60; there's something about a retiring gent in cowboy boots that looks sort of presidential.
+- So much of life is not about whether you're good or bad, or right or wrong, or can afford or not afford - it's just about timing.
+- The part that makes you unique is the bit people will like or fear, fall in love with, or try to avoid.
+- The Creation Museum isn't really a museum at all. It's an argument. It's not even an argument. It's the ammunition for an argument. It is the Word made into bullets. An armory of righteous revisionism.
+- The suit is the polite taming, the socialising, the neutering, of riding and military kit. Those pointless buttons on the cuff were moved from lateral to vertical.
+- Have you ever wondered why the rich and privileged care about, or even bother with, the gift bag? Because they don't need this stuff. If they wanted it, they could afford to buy it, without blinking. But they love the gift bag, beyond reason.
+- You don't have a choice about fashion or aesthetics - you're in it, whether you like it or not.
+- Frightened is the natural state for all men.
+- There's no pleasing the British, or winning their favor. They simply hate politicians. All politicians. Hatred goes with politicians like mint sauce with lamb. It's as old as Parliaments.
+- Really, I like the future. I appreciate my automatic alarm-call necklace in case I get lost and confused in a mall. I appreciate the watch that tells the hospital my blood pressure's gone ballistic. I like my computer, just as long as it doesn't get ideas above its workstation.
+- Margaret Thatcher was as viscerally hated at home as she was warmly respected abroad.
+- Boredom is not a thing. It's not a feeling or a condition. It is the absence of feelings, things and conditions.
+- People who don't believe in God are no happier than people who do, and those who do believe are no nicer than those who don't.
+- Every man imagines that he will turn his suit like a double agent, that it can be twisted to his will with irony or comedy, that the man can undermine its origins.
+- A lot of London's image never was. There never was a Dickensian London, or a Shakespearean London, or a swinging London.
+- No British TV company could ever make a series like 'The West Wing' about British politics. It would beggar credibility. No one could write it with a straight face, or perform it without giggling.
+- When you look at traditions closely, examine what they really are, you realize they're made up of layers and layers of deferrals, delays, indecisions, tomorrows and long lunches.
+- Hate numbs the judgment, paralyzes the vitals of democracy.
+- I'm frightened of my innate vanity. I mean: the suits lined with scarves? Even I know the warning signs. I could quite easily end up in a tiny Playboy mansion, all on my own.
+- The problem with a man bag is that it's called a man bag.
+- Everyone has to go to a funeral at some time and you need to be dark and sombre, and in a black tie.
+- I don't remember ever stealing things, but I suppose I was endlessly borrowing money off people.
+- People who know there is a god and people who know there isn't live in exactly the same world. Same number of hours in the day, same weather, same football results. They both love their children and die of the same diseases.
+- Twenty is a tough age because it slips past in the middle of so much else - university, gap year, leaving home, getting jobs.
+- Trying to learn to be a good man is like learning to play tennis against a wall. You are only a good man - a competent, capable, interesting and lovable man - when you're doing it for, or with, other people.
+- The measure of a man's life is how he copes with the terrible wall of fear.

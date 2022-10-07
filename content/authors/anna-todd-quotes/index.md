@@ -1,0 +1,82 @@
++++
+author = "Anna Todd"
+title = "Anna Todd Quotes"
+quotes_len = "76"
+description = "the best 76 Anna Todd Quotes"
++++
+- I think flawed characters are important, because no one is perfect.
+- I had no idea what to expect when I first started writing.
+- Zayn Malik is responsible for countless smiles, countless laughs; he's saved endless fans' lives.
+- When I realized that I can invest in my own marketing and do exactly what I think needs to be done - well, then it just feels like, what is the benefit of having a publisher?
+- Chicago is my biggest base for U.S. readership. If I ask my readers where should I come, Chicago always has the most votes.
+- I love telling 'first' stories - first loves, first college experience, first kiss, all of those kinds of things.
+- If you aren't talking to readers and letting them know you're just like them, they can lose interest.
+- I know most publishers probably don't let their authors write on Wattpad all the time, but mine are pretty open about it.
+- When you're watching 1D Youtube videos and going to their concerts and tweeting them, there's always a desire for more - and there's nothing like sitting down and spending time with them in the form of fan fiction.
+- I wrote a story about a character who looks like Harry Styles. But it has nothing to do with Harry Styles at all.
+- I think I'm lucky, in a way, because with the criticism I get online, it's mostly from really young girls that are fans of One Direction, and they're kind of already known for being mean online. So the things that they insult me with are things that don't really bother me.
+- There's nothing like meeting a girl at a signing and her telling me that she loves reading now, and she's even writing her own stories.
+- I'm so excited for readers to get their hands on 'The Spring Girls.'
+- I used to say that if I could get paid to read books, my life would be made.
+- Being in a fandom is something you don't understand unless you're in one. I think it stems off of everyone wants more of something.
+- I like to write characters that feel like people that I would know.
+- The worst job I ever had was working in the call center of an electric company. I sat in a tiny cubicle getting yelled at every day so I could earn minimum wage.
+- Fan fictions are an alternate universe.
+- I remember seeing stories on Wattpad with five million reads and thinking, 'That must be incredible.'
+- I love signing the books; it's so exciting to see my readers in person.
+- I got married at 18 after dating my boyfriend for about a year. It was quick, I know. My husband joined the Army, and I thought I'd go to college. But we moved to Fort Hood for his job with no money, not even a car.
+- When I was doing it, I just thought, 'I'm going to do this because it's fun.' I wasn't writing for a publisher or a publishing model; I didn't really think about it, but then, somehow, it worked out in my favor.
+- My husband is so proud of me. He's in the Army, so he doesn't get to travel much with me, but when I come home, he's the exact same, so it's really nice to have him so disconnected from all the other stuff so my life can still feel normal at home.
+- Everyone knows 'Little Women.' Most women love it if they've read it. If they haven't, they might love the movie, or they've heard of it.
+- Reading and writing isn't supposed to be this exclusive club; it's just supposed to be entertaining.
+- I just wrote what I wanted to be reading.
+- Before I read 'Twilight,' I was in a reading funk. This series brought back my love and obsession for reading.
+- I've come to find that I am definitely not cut out for the isolated writer thing, locking myself away and writing and bleeding over words alone. I'd rather share my pain with people.
+- I didn't write a ton before 'After,' to be honest.
+- Just write what comes to you.
+- When I love something, I love it all the way.
+- I had no clue what I wanted to do. I tried nursing, I tried science, I tried English. I just kept bouncing back and forth.
+- I don't know how to pose or anything.
+- Love fanfic or hate it, it's getting thousands of people to read and write who otherwise would not have.
+- The Internet can help you come out of your shell and gives you a chance to make friends who have the same passion as you, it's a real community.
+- It's good that I've put out different books apart from 'After' - and before the film comes out.
+- Engage with your readers as often as you can. Readers, myself included, want a relationship with everyone in their lives, even the people behind the pages of their favorite books.
+- I never really had a lot of friends where I lived. Online, you can have thousands of friends.
+- I was reading fan fiction on Wattpad, but they were taking a little bit to update the stories, so I started writing my own stories to entertain myself. I didn't think anyone would read it.
+- Honestly, I never dreamed of being a writer; it felt too unrealistic to even dream about.
+- To me, basically, the whole meaning of 'Little Women' and what it conveys to me is the choice of being any kind of woman.
+- Reading was my escape growing up in Ohio. Both of my parents lost their jobs when I was a teen, and it was hard. But I always had my books. Reading gave me a way of living different lives.
+- I love 'Fifty Shades' and 'Twilight' both.
+- There's so much anxiety coming from social media with teenagers that we have to give them characters that are real and that are not always happy; and that have bad parents and not great, supportive parents; and that are not going on these journeys to save the world with a bow.
+- Everyone should be free to love whomever they choose.
+- When I signed my movie contract, I thought I could never even have an opinion on a movie. But now, I've realized I have a lot of opinions.
+- Just for me - obviously, not all writers think this - but for me, I feel like seeing my book in Target and Barnes & Noble is pretty successful.
+- When I was a young girl, I used to dream about what I would be when I grew up. I thought that I wanted to be a nurse, then a teacher, even a pilot at one point.
+- The idea of being published was such an abstract thing in the beginning. It wasn't even an option in my mind.
+- I love writing, and I am one of the people who can do it and make a living.
+- For me, One Direction is the only fandom I've been in, and I made so many friends.
+- I am drawn to people who are like me - who have experienced the ups and downs of life but have come through the other side.
+- I will never shy away from social issues in my books - or in my everyday life.
+- I have such admiration and respect for the military and military families.
+- I had gone from writing alone, not talking to anyone, to suddenly being in a room filled with not only people but actual celebrities.
+- Everyone has an opinion, and it seems that the negative voices can be the loudest, but I chose to focus on the positive comments from readers.
+- I have been recognized in public but not that often, which is nice.
+- Every single path is so different, but I would definitely say that the idea of what a writer is or should be is not a thing anymore. Everyone is redefining publishing, writing, and storytelling in general.
+- I never had any thought behind anything I did in the beginning, to be honest.
+- It's like, 'Twilight' was voted the worst movie of all time, and I'm like,'Can I please have the worst movie of all time? Please? Half of that?'
+- The only way I know how to write is socially and getting immediate feedback on my phone.
+- I think just... never date anyone who doesn't accept you, and don't change for them. They aren't going to change for you.
+- If you're a fan of One Direction, 2015 felt like one hit after another. Between Zayn leaving and the band announcing their hiatus, this was the year that Directioners would love to pretend didn't exist.
+- I've been reading fanfiction before I even realized what fanfiction was.
+- I love Harry Styles just as much as anyone, and I would never do anything that would hurt his feelings.
+- I barely ever reread the chapter before posting, because I overthink things, and I feel like overediting or trying to use too many words can ruin the story.
+- 'The Giver' by Lois Lowry - I had to read this in school, and I fell in love with it. It was my favorite book as a child, and I read and reread it. I would pretend I lived in that world and that Asher was my best friend.
+- I'm not writing about the 1 percent of people who have this fairy-tale, amazing life. I'm writing about people like me, who maybe had a rough childhood.
+- I'm inspired by the mission of Free2Luv; they are giving a voice to people who need it, and they are so passionate about what they stand for.
+- I was a struggling army wife going to community college who didn't know what to do with my life.
+- I had no idea how long books were supposed to be.
+- Since I don't outline my books very much, I feel like sometimes I don't have a choice in what the characters do; they just kind of take over sometimes.
+- 'Through The Dark' - for sure, that's my favorite One Direction song.
+- I found Wattpad because I was reading a story on Instagram, actually. They're called 'Imagines,' and they are like little fanfictions that people used to write on Instagram before Wattpad was the place to go.
+- I love Harry Styles. He's one of the nicest people in the entire world.
+- I want to work as hard as I can and continue to make a career for myself.

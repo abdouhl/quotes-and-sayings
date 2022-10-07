@@ -1,0 +1,106 @@
++++
+author = "Tara Stiles"
+title = "Tara Stiles Quotes"
+quotes_len = "100"
+description = "the best 100 Tara Stiles Quotes"
++++
+- It's hard to escape bullies that come in many shapes and forms. The processed food industry, corrupt religious organizations, and celebrity worship culture are just a few that we deal with in modern times.
+- Unfiltered venting to a friend about difficult situations can be helpful. But it can work against you if your life turns into complaining.
+- When we allow distractions to wobble us away from ourselves, that's when our intuition starts to fade and our focus dulls.
+- I've never had a problem with Jesus. In fact, I'm pretty sure he's just the kind of guy you'd always want to have around. But I have had a big problem with his agents, publicists, and managers. They've abused his message for power and converted moldable, excited people into bullied believers and followers.
+- A huge problem we face when we're in need is giving up our intuition and blindly following instruction. Letting go works when we are following our hearts, but not so well when we are following a leader.
+- There is no limit on life besides the one we put on ourselves.
+- When we feel like we discover something, we are usually uncovering or realizing what has always been there. The laws of nature are always present, waiting for us to tune in.
+- Stress happens. In different ways, we all hold unnecessary tension in our bodies all day long. Shoulders, neck, wrists, hips, hamstrings, back, oh my!
+- Efficiency is a great secret that can drop us right into our ideal life path, but it is a hard one to practice and something that takes constant maintenance and work.
+- Imagine an America where the health care system is dramatically improved simply because people need to go to the doctor less. Preventive health care, aka taking care of your own body, is a sensible way to go!
+- Friendships naturally shift over life. We have different friends for different times in our lives, and sometimes it's not the best idea to hang on to a friendship to try to make it work if it's an unhealthy connection.
+- Barack Obama is my American Idol.
+- People need to exercise and pay more attention to their health.
+- Practicing yoga has helped me realize a deeper, grounded way of being in the world. I have learned how to communicate in a meaningful way that makes me smile and have learned the super handy skill of efficiency. Use what you need. Rest what you don't.
+- It's amazing what we've been through already in our lives no matter what our age. Think of what we've seen, people we've met, our relationships, experiences, and accomplishments. Reflection is a powerful tool.
+- Even if you're a seasoned professional multi-tasker, your body, mind, emotional life, and growth potential can get a blow from over-committing. Take a look at what's on your plate if you're swamped, and you can surely find some space for yourself even when you feel trapped.
+- Yoga is not about the history of yoga. Yoga is not about being in a sacred community of the initiated few. Yoga is about uniting inward, which takes place in the present, not the past, in each and every moment.
+- This idea of bringing awareness to our lives seems like a good idea, right? We'll gain a productive, enjoyable, reflective life and be able to extend compassion, empathy, and joy to others. That seems like a pretty good deal.
+- Extra weight - whether it's physical, emotional, or spiritual - holds us back from our health and our potential. Overeating is a behavior caused by stress, depression, excitement, fun with friends, self-sabotage, and countless other feelings, emotions, and circumstances. There can always be an occasion to eat and overeat.
+- We get so caught up in doing everything for ourselves, including inspiring ourselves, that it's exhausting and not at all useful. Take a look around you. Look at your friends. Open up to your friends and take in the caring and good intentions they hold toward you.
+- Interactions - whether personal or business, teacher-student, friend to friend, or family member - all call for balance, respect, and compassion.
+- I've had a righteous streak since as long as I can remember. I never tolerated bullying from kids or authority, no matter the case. I got into trouble for calling things how I saw it in my early years at Catholic school, but I couldn't help myself.
+- My parents were/are straight-edge hippies. Mom roamed around gardening so we would have fresh food, and Dad was on wood-chopping duty to heat our passive solar home that they figured out how to design and build together. I was the kid with green peppers in my lunch, and I liked them!
+- Yoga, in its authentic form, is a system of health for the body, mind, and spirit. Neglecting an element transforms the practice into something that is not, in fact, yoga.
+- We all have insecurities. It takes maintenance and constant practice to first identify what they are so we can have an understanding of how we tick and, second, to put forth the action to deal with them.
+- For me, meditation is a practice to get rid of useless junk cluttering my mind and useless ticks inhabiting my body.
+- My instincts led me to meditate in the woods when I was a kid. I would emerge at sunset and announce to my family that we are all connected beings. I would watch the grass grow and dance with trees and realize that I was a necessary part of the inter-workings of the world.
+- If you are inflexible in the body, look at what you are holding onto unnecessarily in your life. Release tension, and life will open up.
+- Our lives are full of distractions, and that's life. The sounds of the street, the thoughts in our minds, family on-goings, tasks at work, and Facebook friends, oh my!
+- The more we work to remove our fears and insecurities, the more aware we become of the interworkings of the universe and tap into the laws of nature, which, to most, will appear like we're doing some magic trickery.
+- Yoga can get at the roots of issues that cause behaviors leading to obesity, heart disease, and stress.
+- Our bodies and our minds have their own timing that pay little attention to our cerebral desires. We can't force or expect things to change as fast as we want, but when we put our efforts in the direction of our intention and drop everything else like snow falling, things unfold with ease.
+- When we work on carving out balance in our lives, we are then shuttled to the superhighway of our best life fueled by our intention. The power and confidence comes from the knowledge that we can absolutely do something to achieve balance.
+- I think yoga should be for everyone, not just the folks who change their name to something Hindu.
+- We all have the power, intuition, and ability to think and act for ourselves until we give that power away. We give our power away because we're bullied into thinking we aren't good enough and someone else must know better than us; therefore, we should give over our instincts and act according to instruction.
+- We have to be nice to ourselves and others in order for life to run smoothly. This is just how it goes: a fun little game of the universe we like to sometimes call karma.
+- You are the only thing holding you back from happiness. You have the ability to change your life radically for better or worse.
+- Filter from your tap, and if you do occasionally buy the bottles, please recycle.
+- Tension can be useful, exciting, flirtatious, strength-building, or destructive. Put yourself in charge of how you direct it.
+- I grew up feeling from a very young age that what was right was right, no matter if God or my teacher said so.
+- Holiday drinking in my family happens about as often as Sarah Palin is spotted reading the 'New York Times.' Neither of my parents are big drinkers, probably because they each had a parent that was.
+- Read labels in your favorite products. Look for short lists of simple, less-processed ingredients with names you recognize as food. If you find some of the same ingredients in your cereal as your shampoo, maybe it's time to switch to something simpler.
+- There are people who intensely clutch an idea that yoga is a higher system, not to be lowered to the weight loss or even fitness category. This is the same kind of clutching that has kept yoga part of a tightly knit club for so long since its introduction in America.
+- We only get one body - might as well take good care of it.
+- Meditation is practical, simple, and very useful. Taking even 30 seconds to rest your attention on your breath instead of following the cycle of your thoughts can bring you back to you in a heart beat.
+- I've learned that the more I streamline what my actual tasks are and where I'd like to direct my energy, as opposed to where I let my energy go in an unaware state of mind, the more energy I have to place where my intentions are. Boundaries are good! Use them and know where they are.
+- I was good at embarrassing authority. It was fun. There's a fearlessness that goes along with being a kid.
+- Meditation has taught me to be in the present moment and observe the present moment at the same time. Just breathe, follow your breath, and your intuition can take you from there.
+- Having goals can be useful, but don't lose sight of how great you are and how much you can help yourself and others right now.
+- A hot bath, time with a book, or five minutes of meditation helps tremendously with recharging and grounding us so we are more equipped to deal with everything life throws our way.
+- I've learned that if you don't have anyone opposing your work, if you don't have anyone thinking, 'Man, that should be me. I could do that. I should have thought of that, or they must have teams of people doing it for them,' your work simply isn't reaching enough people to be relevant.
+- Green things are good for your body.
+- We experience happiness as a series of pleasing moments. They come and go like clouds, unpredictable, fleeting, and without responsibility to our desires. Through honest self-work, reflection, and meditation, we begin to string more of these moments together, creating a web-like design of happiness that drapes around our lives.
+- Meditation can be like a battle with yourself, your thoughts, your body.
+- Yoga practice is therapeutic for the body and mind, reminds us of our goodness, energizes our creativity, and inspires.
+- We are here on this planet to add to the happiness of the world.
+- Time moves along at its own pace for as long as we are on this planet, and then some. So why try to beat it anymore? Maybe it's better to meet time head on and chill ourselves out so we can exist in harmony with the passing days.
+- I started practicing yoga when I was a teenager, studying classical dance. My body and mind were very open but not very strong. I was trusting, excited, passionate, and receptive. All good qualities when balanced with the proper amount of strength and awareness.
+- When we focus mostly on our immediate needs, wants, and desires, we may achieve some of them but hardly feel satisfied. When we feel connected to ourselves on a deeper level, we get happy. We feel safe.
+- A swollen belly is a lot of pressure on the back.
+- We are all connected. The pain and suffering of others is yours also, on some level, whether you choose to pay attention or not. The reason we can't achieve total bliss is because you're not here solo.
+- Coloring is relaxing even for adults - and cheap therapy.
+- Fears, insecurities, and the need to please can rule our lives. Our society is economically and socially set up for us to live under these pressures in order to maintain its control and survival.
+- When we find comfort in knowing that all the love and support we need is housed inside us, we can honestly share that joy with others without needing anything in return.
+- We all strive for balance, often moving to extremes to find ourselves somewhere in the middle where we can sustainably exist in optimal inspiration. Working toward balance takes a lot of ingredients. We need courage, reflection, attention, action, and a push-and-pull relationship between effort and relaxation.
+- When we interact with others from a place of compassion without expectations, things are set up to go pretty smoothly.
+- Yoga, the physical part, brings health in your body; meditation works on the mind, realizing your self. And they both can be practiced at the same time.
+- Inspiration comes and goes when it pleases. It's independent of our desires, doesn't respond well to force, and refuses to be controlled.
+- It's a great thing that yoga is so popular.
+- Yoga and mediation exist whether we choose to acknowledge or practice. It's like a tree. You can walk by the tree and inhale the oxygen it provides consciously or unconsciously. You'll still be benefiting from the tree.
+- The first rule of negotiation is to always be willing to walk away from the deal. The first rule of happiness is to not be attached to pleasing moments.
+- If we eat healthy and live healthy, then that's sustainable.
+- It's no secret the benefits of yoga include but are not limited to a healthy body, calm mind, reduced stress, feeling of connectivity with self and the world, increased awareness and sensitivity, and an overall feeling of awesomeness.
+- Balance takes work. Lots of it. There is no endpoint in balance, no goal, no finalization. Balance requires practice, patience, and - most importantly - movement. We often get stuck in our ways and form habits based on our fears and driven by our insecurities.
+- Distractions can take us in an exciting direction but most often borrow our attention briefly without much resistance and take their sweet time giving it back. Distractions lure us in with an easy escape and then trick us by stealing our attention.
+- We spend so much time closing ourselves to protect from scary things that we forget that when we do open to the world, inspiration can flow.
+- Our state of mind affects completely how we treat our bodies.
+- When we practice cleaning our slate and interacting without motive, what we actually 'get' in return is greater than what we might have expected. Life can open up and be full of surprises that blow past our narrow expectations.
+- When we turn on our observation capabilities, we become much more in the moment and much more powerful. Psychic powers have been known to develop from consistent practice of paying attention. It's available to us all. It's all in what we choose to practice.
+- Yoga puts us back in touch with our bodies' needs and equips us with the tools we already have: the intuition and awareness to nourish our bodies properly with wholesome, healthy foods. Yoga doesn't show us how to starve ourselves. That is a terrible disorder, as terrible as overeating.
+- A trap in dealing with difficult people is getting wrapped up in their personality. When we can stay objective and remove ourselves from other people's roller-coaster psychology, we have a much better chance of moving through the situation positively.
+- When doing something you love, no matter what you'd be getting paid or think the outcome might be, not only will you enjoy yourself more, but you have a better chance of actually creating a sustainable life. Happiness is contagious.
+- Over-working gets less done. We all have experienced this. We can push ourselves to exhaustion, but things get done with less attention, and our bodies eventually break down.
+- Tension happens. It will continue to happen. If we didn't have tension, we wouldn't be alive. How we maintenance ourselves makes all the difference in how we live our lives.
+- When you practice yoga regularly, you get more then you will from jogging on the treadmill catching up on the last season of 'Lost.' When you practice yoga, you use your body and your mind, and you're gaining awareness and intuition.
+- Living, breathing, and being present is the practice that can lead us to having a full and authentic in-the-body experience. If we can shift our perspective from being separate to being part of it all, psychological hang-ups, insecurities, fears, and disorders dissolve.
+- The mere acknowledgment that 'God is watching' can act as a trap, fueling bad behavior, corruption, and guilt, all remedied by God's forgiveness. No personal responsibility is needed - someone on the outside sees whatever we're doing and makes it all OK.
+- Meditation will sharpen your senses and your awareness.
+- Meditation can be intimidating. Sitting there doing nothing, just breathing, can be trickier than it sounds. It may feel strange, uncomfortable, or even put you to sleep.
+- The world needs yoga. This stuff is powerful and intense. It has the power to harm when held tightly, studied without practice, and posed rigidly. Done right, it also has the ability to heal and cure.
+- Wal-Mart is like a physical version of YouTube. You can find anything you want on YouTube. It let me access millions of people online who maybe wouldn't have tried yoga. Wal-Mart carries a similar heavy weight in its ability to reach people.
+- I love my life.
+- The universe is within us. We forget that and make up realities for ourselves that we are small and insignificant. Meditation brings us back to our natural state of consciousness.
+- What fun is life if it's taken so seriously, and what fun is yoga and the search for enlightenment if we are tight, tense, and clenched up from the inside out?
+- The truth of the matter is if we listened to our bodies and cleared our psychologies, we would inherently know what we need to do to stay healthy, and there wouldn't be a market for diet pills, extreme cleanses, or low-calorie, pre-packaged junk food.
+- Paying attention to what we allow ourselves to pay attention to is a tricky thing. It's like being in two places at once but completely worth the discipline. We can react mindlessly or respond mindfully. It's up to us.
+- When we have built up armor against all the bad things we think might happen in the world, we have a false sense of protection and have only built up isolation.
+- One of my favorite teachers is Osho, mainly because he liked to push people's buttons just to get them to think and live outside of their comfort zone.
+- Inspiration is a force not to be wrestled with. You can try, but it will slip under the cracks every time.
+- I'm a pushover for cleaning items that come in packages of three or more.

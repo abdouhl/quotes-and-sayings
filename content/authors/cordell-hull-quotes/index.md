@@ -1,0 +1,16 @@
++++
+author = "Cordell Hull"
+title = "Cordell Hull Quotes"
+quotes_len = "10"
+description = "the best 10 Cordell Hull Quotes"
++++
+- Triumphant science and technology are only at the threshold of man's command over sources of energy so stupendous that, if used for military purposes, they can wipe out our entire civilization.
+- That war has brought with it a truly incredible development of means of destruction and a terrifying prospect of rapid and almost limitless development in that direction.
+- To be sure, no piece of social machinery, however well constructed, can be effective unless there is back of it a will and a determination to make it work.
+- Within a few weeks the organization for the maintenance of international peace and security, established by the San Francisco Charter, will be formally launched through the convocation of the first General Assembly of the United Nations.
+- There is no greater responsibility resting upon peoples and governments everywhere than to make sure that enduring peace will this time - at long last - be established and maintained.
+- I fully realize that the new organization is a human rather than a perfect instrumentality for the attainment of its great objective. As time goes on it will, I am sure, be improved.
+- Please let me assure you, however, that the keen disappointment and regret which I feel in this regard serve only to enhance my profound appreciation of the great honor which you have done me; and my sincere gratitude for your generous action.
+- Fortunately, the war has brought with it not alone a stark realization of what another war would mean to the world, but as well the creation of an international agency through which the nations of the world can, if they so desire, make peace a living reality.
+- Under the ominous shadow which the second World War and its attendant circumstances have cast on the world, peace has become as essential to civilized existence as the air we breathe is to life itself.
+- Never insult an alligator until after you have crossed the river.

@@ -1,0 +1,93 @@
++++
+author = "Kevin De Leon"
+title = "Kevin De Leon Quotes"
+quotes_len = "87"
+description = "the best 87 Kevin De Leon Quotes"
++++
+- We're planting trees to break up the concrete jungle. We're building public transportation and affordable housing.
+- From education to the environment, from high wages to health care to human rights, California is proof that progressive policies put into action improve the human condition of all individuals.
+- What we have done dramatically in California is lead the entire nation. For example, we have created more jobs in clean energy in California than there are coal-mining jobs in all of America.
+- Our communities will become more - not less - dangerous when local police officers are pulled from their duties to arrest otherwise law-abiding maids, busboys, and day laborers for immigration violations.
+- I don't like to move abstract theoretical policies that, on a white paper, sound good. If I wanted to do that, I'd be a professor.
+- As Democrats, we will never be fooled into believing that if we are patient enough, that Donald Trump could be a good president.
+- I don't believe the federal government should be snooping into American citizens' cell phones without a warrant issued by a federal judge. You cannot give the federal government extraordinary powers to eavesdrop without a warrant. It's simply un-American.
+- We carved it in stone: no matter the place of your birth or the hue of your skin, you can live in California in safety, dignity, and, yes, sanctuary.
+- I know - firsthand - that California works best when everyone has the opportunity to succeed. It's a lesson that's hard to learn from the back of a limousine, or behind gated walls. And it's a lesson that guided me every day as the president of the California State Senate - the most productive and progressive policymaking body in America.
+- I don't believe that all folks who supported Donald Trump are racist. I think that there was a lot of economic anxiety, there was a lot of economic panic. A lot of deep-rooted economic insecurity. I think what Trump did, you know, very astutely, was he tapped into this vein, and he promised them a job.
+- Foreign relations should involve human rights, workers' rights, and environmental protection.
+- There's always more employers can do to protect their employees.
+- California Democrats - we fight on the front lines - we don't equivocate on the sidelines.
+- The voice of Vin Scully has become the song of summer for generations of Los Angeles baseball fans and aficionados of excellence in sports broadcasting.
+- I grew up in the streets of San Diego, and I love this city dearly. I love this city. San Diego is my home. Even though I represent Los Angeles, this is my home.
+- I wouldn't have supported invoking Taft-Hartley to help George Bush end a strike.
+- Thanks to policies mandating clean energy development, California's electric grid is one of the least carbon-intensive in the world.
+- I believe that every family - it doesn't make a difference who you are or where you come from - deserves to have quality healthcare. It is a universal right. It's not the exclusive privilege of the elite and the wealthy.
+- Recycling more plastics can help local businesses and expand jobs while supporting the goals of sustainability.
+- I didn't know how to do a press release, so I'd call the local Assembly member and say, 'Hey, can you fax me one of your press releases?' 'Which one?' 'Any one.'
+- While we need to provide leadership and stability to the world, we should do that through diplomacy.
+- I've been surrounded by strong, hardworking women like my mother all my life.
+- In California, we celebrate our diversity. We celebrate who we are because we're proud of who we are; we're proud of where our families come from.
+- Democrats are very good at governing. When it comes to messaging, I'm not too sure about.
+- Dependence on oil from volatile foreign markets undermines our economic security and threatens our national security. Moreover, that addiction is producing toxic air and a public-health epidemic.
+- I try to deal with the poverty gap - to do policies for all of us rather than only for the wealthy.
+- Many foreign students take their California degrees back to their home countries. They become entrepreneurs that develop products that they sell back to us.
+- Poverty is poverty. At the end of the day, people want a job.
+- I want you to know that California is your sanctuary. We will always be a place where you can be whoever you are and become whoever you dream of being. California will always stand up for you. That's a principle that's bigger than partisanship, more powerful than any president.
+- We can't cross our fingers and hope that President Donald Trump can 'learn and change.'
+- California lost its way in 1994 with Prop. 187, but that tragic episode gave birth to a new California consciousness - one that will now do everything within its power to protect our diversity and the economic power it has created.
+- No corner of our society has been left unscathed by the horrors of gun violence. To end it, we'll need to bring together the best from each corner, taking what works from government, the private sector, and our local communities and crafting common-sense solutions to gun violence.
+- Domestic workers allow many people with disabilities to maintain independent, productive lives and live in their own homes - not in institutions.
+- Yes, we absolutely need to eliminate the single-use plastic bag, but we don't have to eliminate the jobs of hardworking Californians to accomplish this goal.
+- California continues to pass the most ambitious laws in the world to expand clean energy and combat climate change.
+- I would never call our country the welfare system for Mexico.
+- We will not lift a single finger or spend a single cent to be a cog in the Trump deportation machine, and we won't be complicit in his effort to make American great again by reengineering the legal immigration system.
+- Drafting local police into Trump's immigration crackdown undermines public safety and is a colossal waste of taxpayer dollars.
+- Clean energy isn't just good for the planet; it's good for consumers' monthly utility bills and for the economy.
+- When I was elected for the first time in '06 I'd never been elected to any body. City councils, school board, community college boards, trustee, water district trustee, class president, ASB president, senior class president - nothing. I was never elected to anything in my life.
+- Police chiefs know a thing or two about public safety.
+- I believe strongly that when you have political capital, you should use it in a manner that helps improve the human condition. You shouldn't just compile power and hold onto power for power's sake.
+- Equity and economic justice are now hardwired into all of our climate policies.
+- President Trump's threat to weaponize federal funding is not only unconstitutional but emblematic of the cruelty he seeks to impose on our most vulnerable communities.
+- No one wants dangerous criminals in our communities.
+- Our State Senate must lead by example, restore trust and transparency, stop sweeping workplace misconduct under the rug, and do everything we can to protect women who work in and around the Capitol.
+- California is the greatest beacon of opportunity the world has ever known. But we didn't get here through years of political seniority - we built it through acts of audacity.
+- The D.C. playbook is obsolete. It's time for the people of California to bring the agenda to Washington, not the other way around.
+- California's university system is one of the premier higher education systems in the world, and we should require that non-resident students pay a premium to attend it. The revenue generated from these fees can be used to increase affordability and access for more Californians.
+- I would never vote to allow federal agents to spy on American citizens without warrants.
+- Cap and trade is an important tool in California's climate policy portfolio. It sends a price signal to industries to reduce their carbon pollution while generating billions of dollars in revenue for investments in clean transportation and direct pollution reduction.
+- You've got to lead from a position of strength.
+- Addressing budget issues is usually a balancing act in which cuts are weighed against revenue increases to find the best solution for the state.
+- My name is Kevin de Leon, and I am the president of the most progressive legislative house in America.
+- I think there's no such thing as free trade. I think there has to be fair trade.
+- When you have a president who mocks our inclusivity, who demonizes our diversity... you can't ask for patience.
+- California will not become a cog in the Trump deportation machine.
+- I don't believe other states should be in the business of luring production out of California. We've made it clear that no one is going to out-compete California.
+- Banning plastic bags so that people use paper bags or imported reusable bags that will end up in local landfills soon thereafter is not the only solution to our plastic bag challenge.
+- Lawmakers must stand up for companies that choose public safety over profit margins.
+- Seniority means nothing if you don't do anything with it.
+- My mother, Carmen, cleaned houses and took care of elderly people.
+- I am not delusional. Listen, I am not naive to the fact that people are not shouting my name all over the state of California.
+- As the youngest child of a single immigrant mother with a third-grade education, I never thought in my wildest dreams that I'd ever be an elected official.
+- If we do high-speed rail, the governor has to be intelligent and invest the dollars at the 'bookends' - San Francisco and Los Angeles.
+- Hollywood is here to stay, and we have to keep the momentum going.
+- It's incumbent on all of us to remember our history and not repeat our past sins.
+- When people see the healthful impact this is having and all the hard hats constructing, their minds may change about high-speed rail.
+- We have proven that you can actually move strong, progressive policies, grow the economy, and improve the human condition.
+- I wouldn't have voted to prosecute 13-year-olds as adults.
+- The days of Democrats biding our time, biting our tongue, and triangulating at the margins are over.
+- I wouldn't have voted for the war in Iraq, which has cost us trillions we could have been spending on a carbon-free economy, affordable college, and single-payer health care.
+- There isn't enough renewable fuel in the world to crack our growing addiction to foreign oil. We need to decrease miles driven and increase engine efficiency.
+- I am not just a defender of the California Dream. I am a product of it.
+- California serves as our nation's cutting edge on many fronts.
+- The Internet is now the catalyst in our society for growing our economy, engaging in the democratic process, and connecting with one another. It is an information equalizer, and everyone from farmworkers to financiers deserves fair access to it.
+- The infrastructure at Union Station is antiquated. High-speed is going to come in eventually. We need to upgrade that system. Every day the Metro comes in, the Amtrak comes in, and they idle their engines for hours, spewing poisonous toxins - all that crap - into the air.
+- I worry about civil-rights activists being targeted as black-identity extremists. I worry about the government saying, 'I don't like this progressive blogger' and subjecting them to scrutiny.
+- We speak truth to power, and we've never been fooled into believing Donald Trump 'can be a good president.'
+- If I've learned one thing as a state leader, it's that California will never fulfill its truest potential if we wait for Washington to change on its own.
+- My mother passed away young - she died from ovarian cancer at just 54 years old. Her sacrifices for my sisters and I evoke a tribute in her honor each and every Mother's Day.
+- I'm not into political gamesmanship.
+- I think that many Californians have been accustomed to, have normalized, that being good sometimes is good enough.
+- Unlike Washington, the California legislature has proved that cooperation is both possible and essential to successful policymaking, while stubborn absolutism will have you trailing head lice in popularity polls.
+- It is erroneous and profoundly irresponsible to suggest that up to three million undocumented immigrants living in America are dangerous criminals.
+- My whole life, I've been told to 'wait my turn' and 'know my place.'
+- Clean air shouldn't be a privilege dictated by where you can afford to live but a right to which we are all entitled.

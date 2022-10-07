@@ -1,0 +1,18 @@
++++
+author = "Aaron Klug"
+title = "Aaron Klug Quotes"
+quotes_len = "12"
+description = "the best 12 Aaron Klug Quotes"
++++
+- Cambridge was the place for someone from the Colonies or the Dominions to go on to, and it was to the Cavendish Laboratory that one went to do physics.
+- The philosophy of the school was quite simple - the bright boys specialised in Latin, the not so bright in science and the rest managed with geography or the like.
+- This work made me more and more interested in biological matter, and I decided that I really wanted to work on the X-ray analysis of biological molecules.
+- This field is not necessarily glamorous, nor does it often produce immediate results, but it seeks to increase our basic understanding of living processes.
+- I like teaching and the contact with young minds keeps one on one's toes.
+- In the course of my stay there, I also showed how one could analyse the experimental kinetic curves for the reaction of haemoglobin with carbon dioxide or oxygen by simulations in the computer, and so fit the rate constants.
+- My father was trained as a saddler, but in fact as a young man worked in his father's business of rearing and selling cattle, so he grew up in the countryside.
+- Shortly after I was born he emigrated to Durban, where members of my mother's family had settled at the turn of the century, and the rest of the family followed soon thereafter.
+- However, I should perhaps add that during the 20 years I have been back in Cambridge, I have been actively involved in the teaching of undergraduates, as well as of course supervising research students.
+- Human curiosity, the urge to know, is a powerful force and is perhaps the best secret weapon of all in the struggle to unravel the workings of the natural world.
+- One cannot plan for the unexpected.
+- The work requires a moderately large investment in technological and theoretical developments and long periods of time to carry them out, without the pressure to achieve quick or short term results.

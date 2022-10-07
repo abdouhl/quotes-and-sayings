@@ -1,0 +1,36 @@
++++
+author = "Kaetlyn Osmond"
+title = "Kaetlyn Osmond Quotes"
+quotes_len = "30"
+description = "the best 30 Kaetlyn Osmond Quotes"
++++
+- When you think of a teenager, you think of hanging out with friends a lot or going to a full-time school. On the weekends, my friends are staying up until, like, one in the morning, and then there's me fighting to stay up until eight.
+- On the ice, I feel like I can become a different person, and the darker dramatics, the Black Swan, is confident: she's free to do whatever she wants, and that attitude helps in my skating. The White Swan is, I feel, more what I'm actually like off the ice: I'm a lot quieter, and if someone tells me to do something, I'll just do it.
+- I love teaching the younger skaters.
+- To pursue anything, you've got to have fun with it and to just never give up on it.
+- I want each experience on the ice to be everything I have.
+- To be able to stand on the podium and see one Canadian flag raised is one thing, but to see two, it feels like you're not alone.
+- I'm more thoughtful and aware of how my body feels. I've learned the difference of what is just sore from a hard workout or what's sore from a possible injury.
+- I work with a team of coaches and trainers to make me feel like I am not alone out on the ice.
+- Living in Edmonton feels so calm, but there is still so much to experience. I know I can find something to do if I want to have fun.
+- I love the classic side of skating, making it look like a full program and not just technical based.
+- I knew that things were going to hurt. I knew that things weren't always going to be perfect. But I could trust that I could make it through it.
+- I need to motivate myself to work hard because only I can skate my program.
+- Ever since I was a little kid, I loved being the centre of attention. I think it's part of the reason why I loved skating. You're literally in a fishbowl. You're in the middle of the ice by yourself, and the world is watching.
+- Ultimately, for me, weight is something I have to deal with every year, but I do it with food because I love food. But it's a struggle; it's something that I think about.
+- I don't have many hobbies outside of skating. But I do read, watch TV, play with my animals, and try to hang out with my friends every now and then.
+- I was such a goofy kid that, when I won things, people were like, 'Oh, when did that happen?'
+- I aim to skate as clean as possible.
+- I started skating when I was 2 years old because of my older sister Natasha was a skater, and I wanted to be just like her!
+- When I saw the movie 'Black Swan,' I liked the darker aspect of it, the more dramatics, and that's what I like to do for my programs.
+- 'Swan Lake' was my favourite piece of music when I was younger, and I never had a chance to skate to it.
+- When I broke my leg, I never thought I'd ever be skating again let alone be standing on a world podium. I had to relearn how to skate, relearn how to even stand on one foot again. I had to relearn all my technique.
+- I never dreamt of the Olympics growing up. It's not something that I watched on TV; it's not something my parents ever talked about.
+- I know sometimes in the off-season I have to motivate myself to get on the ice because I know there's so long until the competitions begin again.
+- I knew my body could take the battle of everyday training and take the battle of falls and bending in ways that bodies really shouldn't bend.
+- Nothing would have been accomplished if I didn't start in Newfoundland.
+- A dream can be what wakes you up in the morning and keeps you going every day, whether things are going great or not. You have that dream; you have that passion inside you that you keep pushing forward.
+- Skating is really hard, especially women's skating where we're judged in little tiny dresses.
+- Marystown, in Newfoundland, it's where began for me. It's where most of my family still lives and where a lot of my supporters are from.
+- The way I balance life and skating is by enjoying the time I spend away from the rink. When I am not on the ice, I am not focusing on skating.
+- Figure skating is such an individual sport, but to have a teammate on the podium with you is unbelievable.

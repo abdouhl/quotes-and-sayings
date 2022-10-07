@@ -1,0 +1,31 @@
++++
+author = "T. B. Joshua"
+title = "T. B. Joshua Quotes"
+quotes_len = "25"
+description = "the best 25 T. B. Joshua Quotes"
++++
+- When you read the Bible, you are reading the Holy Spirit and not history books. When you read history books, you are reading about events, but the Bible is not an event. So, when you are reading the Holy Spirit, you are supposed to be carried along by it.
+- There's nothing wrong in men of God going into politics. It will help them to do what is right.
+- There's nothing spectacular about Prophet T.B Joshua. He is just like every other human being. But if there is any difference, it is the grace of God; the righteousness of God. It is a product of the grace of God. So, I am a product of the grace of God.
+- I am not moved by what people say or do concerning my relationship with God. I submit myself to His direct will, which is good and perfect with no evil in it.
+- When it comes to power, God Himself is the power. God often uses foolish things to confound the wise. That is why people like me will ever be grateful to God. In terms of knowledge, education and name, I am nowhere - a neglected stone.
+- What makes you a good citizen makes you a good Christian... Obey the law of your land by not crossing the borders of your nation with Ebola virus.
+- Remember, the man who is poor is not the man that has no money, but one without a dream. They are suffering that have no dream. They are poor that have no dream.
+- The word 'grace' means after we must have done everything humanly possible, we must leave the issue with God. That is grace.
+- Your papers are marked when you go to school, but you can't mark the character.
+- As for T.B. Joshua, I am a descendant of my family in Arigidi-Akoko in Ondo State, Nigeria - but as for the divine nature, the power of God affects my life to give peace to people, deliverance to people, and healing to people.
+- What you wish to others, God wishes to you.
+- Our lives are in God's hands. We have no control. We can't control Him by using the Bible or cross as a good luck charm without a thorough reformation of heart and life.
+- Remember, when God is executing His plan in our lives, He also designs and arranges events which continue to unfold until His purpose is revealed.
+- After my primary school education, I started gathering little children by visiting parents to ask if they wanted somebody to care for their kids by teaching them the Bible. I have never attended any seminary school or Bible college in my life.
+- I am a medium. In the same way, doctors are mediums to bring treatment.
+- Discovery is for forward lookers. So, no one is born with great knowledge.
+- Righteousness exalts a nation, and sin brings reproach.
+- The gospel needs to be preached all over the world. You cannot light a candle and put it under a roof.
+- When your maturity is derived from circumstantial factors other than faith, your level of maturity would continue to fluctuate rather than being stable. This is why I am enabled to maintain a balance and stable approach to the challenges that come my way every day. I am not moved by what people say or do concerning my relationship with God.
+- Remember, life itself is a mission. While we are on the go, we need to stop between steps to re-focus on the Word and the Will of God. While we are on the go, I mean, while we are on the mission, we need to sometimes stop at intervals to assess our progress and prepare ourselves for the challenges ahead.
+- Except for the grace of God, I would be nobody - and that grace is the opposite of merit - human labour, education or human wisdom.
+- Nothing makes us love a person as much as praying for him.
+- The work of healing is not my work, but by faith, healing is done. The work of deliverance, great and mighty deliverance, is not my work but is my faith in Him. It is not the works of righteousness which I have done, but according to His grace. I am a product of His grace.
+- When we say Church of All Nations, it's a vision given to me, that the church will touch all the world.
+- That a man built the biggest church in the world is not an issue, not something to be excited about. The people of Satan also have money to build a big place and worship him.

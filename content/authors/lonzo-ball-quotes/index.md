@@ -1,0 +1,106 @@
++++
+author = "Lonzo Ball"
+title = "Lonzo Ball Quotes"
+quotes_len = "100"
+description = "the best 100 Lonzo Ball Quotes"
++++
+- When I was little I definitely listened to a lot of DMX and 50 Cent. Those were probably the two main rappers I was listening to when I was young, but my favorite rapper has always been Lil Wayne.
+- Oh, my dad listens to a lot of 2Pac, Ice Cube and WC. That's what he was listening to a lot when we were growing up. He's always been a fan of hip-hop.
+- 56 Nights' one of the best mixtapes ever.
+- I've always been a fan of rap music.
+- I just go out and play.
+- During the pregnancy and stuff, I knew I had a daughter coming but when she finally got here that is when it really hit me. Ever since that day, I look at life a lot differently.
+- I feel like my game is more like LeBron's than Kobe's, so that's why I think I gravitated toward his game more.
+- Once you believe in yourself, you can pretty much do whatever you want in my opinion, so that is the main thing.
+- I chose to go to CAA. I think me becoming my own man is going to make it easier, honestly.
+- Obviously, I want to be an All-Star.
+- I think it was tough being a young guy, especially in L.A. All the people looking at you and we had a big responsibility over there.
+- Don't nobody listen to Nas anymore.
+- When it comes down to the last five minutes, it's not about Xs and Os. It's pretty much who wants it more.
+- There's no off nights. When you think it's an off night, it's not.
+- We're competitors.
+- I got no problem with Nas.
+- With all the pick-and-rolls in the NBA, getting in the lane and shooting floaters or pull-ups will help a lot.
+- My dad's a funny guy.
+- I feel great in pick-and-roll.
+- I've been shooting all my life.
+- Growing up, a lot of my shots came off of me dribbling and shooting it.
+- Every time I go out there, I just want to win.
+- LeBron and Rondo are arguably two of the best leaders ever.
+- It's my life, it's up to me what I want to do with it. And I'm realizing that.
+- Everyone has talent in the league.
+- If you keep doing something over and over, you should get good at it.
+- Actually, I've always been kind of a leader, and it's kind of just stuck with me throughout my whole career.
+- I'm going to have confidence in myself. That's how I try to play.
+- My dad had me start lifting weights at 12, and for me it was fun.
+- A lot of people label me as not a defender for some reason. I don't know why.
+- I like Chino more than L.A., to be honest.
+- My dream is to play in the NBA.
+- That's what happens when you play in L.A. Everybody expects you to do well.
+- In Chino Hills, everybody is cool with everybody, so I had a lot of friends. My house was kind of the hang out house, where everybody would come over.
+- My family's always going to be together.
+- Obviously you have LeBron, the best player in the world, all the attention is on him. A lot of the wins and losses are targeted towards him.
+- Playing defense out here against grown men is physical.
+- I was just taught, the team goes how the point guard goes.
+- I'm from here, so I know how it is playing in L.A. If you're winning, they love you. If not, they'll find someone else to do the job.
+- No, I don't get nervous when I play basketball.
+- I just go out there and play basketball.
+- I played baseball too, and flag football, but basketball was the easiest for me. Then when I was 12, my dad asked me what I wanted to do, and I said 'Be an NBA player.' Since then, he started training me.
+- Real hip-hop is Migos, Future.
+- I can shoot.
+- If you have one guy taking all of the shots, you're obviously not playing very fast, because you have to slow it down and wait for him to get to his spot in the offense. But when you just want the best shot possible, a lot of different people are going to get the ball.
+- You can always work on everything.
+- I just live in the moment.
+- If I'm mad or showing my frustration, the whole team's gonna be like that, techs, and people are going to go down. So I just try to keep the even keel. That's why I don't get too high or too low. I've been playing like that my whole life. It's just natural for me.
+- It is a team game, we all play for each other; obviously we win and lose as a team, but I like to take the blame when we lose.
+- I don't like to do a lot of talking.
+- I know I play with a lot of passion, but from the outside looking in, people say, 'He's passive. Doesn't play hard.' And others say, 'It just comes easy to him. He's smooth.' That's just how I play. Always been the same person.
+- I'm not loud. Not gonna be crazy with the refs.
+- A lot of things are going to happen that you can't necessarily control all the time, but you can control what you do after it happens. So that's what I try to do, keep my head up, keep moving forward, stay positive and just work hard.
+- I think I can score. But personally, I like to pass first, because people love people who pass. And I'm a point guard, so my job is to kind of get people open.
+- It's my life, my career. I'm making all the decisions now.
+- I know that everything my dad made me do made me better.
+- I know who I am. People who know me know who I am. That's all that matters.
+- Magic Johnson is one of the greatest players to ever play... he's the best point guard to ever play, so I can learn a lot of things from him.
+- I don't like losing.
+- Melo has a chance to be a better player than me, for sure. I feel at the same age, he's better than me. In real time, I don't think he's better than me. But I'm the big brother so I'm always going to have that edge over him.
+- I know there are a lot of kids who aren't lucky enough to have a father figure in their lives. That's a really tough obstacle to overcome.
+- If I'm open, I'm shooting.
+- Obviously if your head coach expects more of you, you bring it to the table.
+- I remember going to pre-school, you know, rolling out in the Suburban and my dad bumping all types of rap, so he introduced me to it and from there I just loved it ever since.
+- Man, at the end of the day, it's just a game. And the way I look at it, when I have fun, that's when I play my best basketball.
+- Who's gonna want to wear a loser's shoe? I know I wouldn't.
+- It gets frustrating when you play basketball for your whole life and then it gets taken from you for a little bit.
+- If you see me, you're going to hear some type of music coming out of me.
+- I tell everybody take it one game at a time.
+- I've been good at the game of basketball my whole life, so I'm hoping I can get back to that.
+- I got a close friend who raps.
+- Every team I played for, I pretty much been the dude on it.
+- It helps me get rebounds, I can see over the defense pretty easily, and yeah, I thank God he blessed me with height.
+- You can lose any night.
+- You've never seen anyone shoot it like me. It comes off the left side. I don't know. I don't know. It still spins the right way.
+- L.A.'s a lot of noise and stuff. You always hear cars and stuff.
+- Getting on fast-breaks, you don't do that when you let a team shoot 20 free throws in one quarter.
+- Well, everybody's human, and you're not going to do the right thing perfectly every time. But you mess up and you learn from it and you go on from there.
+- No. 2 pick, you're supposed to do a job - you're supposed to turn the franchise around. And I don't think I did it to the best of my abilities. I didn't live up to that standard.
+- Ever since I was a kid I've been rapping.
+- Ain't nobody bumping Nas no more, no disrespect to him. He had his time.
+- I do all my playing on the court.
+- If you want to be a good shooter, you've got to shoot.
+- If you mention the Lakers, you think about Kobe.
+- When I play the game, I play to win.
+- I like '4:44.' It's a good album. AY-Z's a great, great artist.
+- Team player, man. It's not just me out there. All five guys got to contribute, and whoever comes in has to do the same.
+- It starts the fast-break a lot easier when I get the ball. I don't have to wait for big men to give me it. Just get it and go.
+- I played guard my whole life, and liked having the ball in my hands.
+- People are kind of used to me shooting.
+- Knowing some guys are way bigger than you, way faster than you, you have to find other ways to do what you want to do.
+- I want to be M.V.P. one day. But for me, it's all about championships.
+- NBA, that's the biggest spotlight I've ever been in before. It was crazy at first. I just had to take a step back. Get back to what I know: having fun.
+- I write when I get bored, when I have nothing to do.
+- I don't think you can talk if you're not doing your job.
+- I was kind of forced to rebound at a young age. I was usually at the back in the press of the 2-3 zone, because my brothers were smaller than me. So I usually got most of the rebounds.
+- The way I play, I like to be free.
+- I think you're either born a leader or you're not.
+- Future put out nine projects in a row that's all hits. 'Dirty Sprite 2' is one of the best albums ever.
+- My family's always going to be close.

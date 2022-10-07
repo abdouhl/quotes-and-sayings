@@ -1,0 +1,61 @@
++++
+author = "Robert Browning"
+title = "Robert Browning Quotes"
+quotes_len = "55"
+description = "the best 55 Robert Browning Quotes"
++++
+- Only I discern Infinite passion, and the pain Of finite hearts that yearn.
+- Stung by the splendour of a sudden thought.
+- What of soul was left, I wonder, when the kissing had to stop?
+- You should not take a fellow eight years old and make him swear to never kiss the girls.
+- Why comes temptation but for man to meet And master and make crouch beneath his foot, And so be pedestaled in triumph?
+- The sea heaves up, hangs loaded o'er the land, Breaks there, and buries its tumultuous strength.
+- Autumn wins you best by this its mute appeal to sympathy for its decay.
+- God is the perfect poet.
+- What's a man's age? He must hurry more, that's all; Cram in a day, what his youth took a year to hold.
+- Never the time and the place and the loved one all together!
+- Motherhood: All love begins and ends there.
+- Grow old with me! The best is yet to be.
+- White shall not neutralize the black, nor good compensate bad in man, absolve him so: life's business being just the terrible choice.
+- If you get simple beauty and naught else, you get about the best thing God invents.
+- Finds progress, man's distinctive mark alone, Not God's, and not the beast's; God is, they are, Man partly is, and wholly hopes to be.
+- What Youth deemed crystal, Age finds out was dew.
+- Ignorance is not innocence but sin.
+- Love is energy of life.
+- No, when the fight begins within himself, A man's worth something.
+- Tis not what man Does which exalts him, but what man Would do!
+- So, fall asleep love, loved by me... for I know love, I am loved by thee.
+- That's the wise thrush; he sings each song twice over, lest you should think he never could recapture the first fine careless rapture!
+- Earth changes, but thy soul and God stand sure.
+- Perhaps one has to be very old before one learns to be amused rather than shocked.
+- Every one soon or late comes round by Rome.
+- Ah, but a man's reach should exceed his grasp, Or what's a heaven for?
+- Take away love and our earth is a tomb.
+- Oh, the little more, and how much it is! And the little less, and what worlds away.
+- A face to lose youth for, to occupy age With the dream of, meet death with.
+- God's justice, tardy though it prove perchance, Rests never on the track until it reach Delinquency.
+- One who never turned his back but marched breast forward, never doubted clouds would break, Never dreamed, though right were worsted, wrong would triumph, Held we fall to rise, are baffled to fight better, sleep to wake.
+- It is the glory and good of Art, That Art remains the one way possible Of speaking truth, to mouths like mine at least.
+- What I aspired to be and was not, comforts me.
+- My sun sets to rise again.
+- I count life just a stuff to try the soul's strength on.
+- Who hears music feels his solitude peopled at once.
+- The moment eternal - just that and no more - When ecstasy's utmost we clutch at the core While cheeks burn, arms open, eyes shut, and lips meet!
+- Thou art my single day, God lends to leaven What were all earth else, with a feel of heaven.
+- I give the fight up: let there be an end, a privacy, an obscure nook for me. I want to be forgotten even by God.
+- Oh, to be in England now that April's there.
+- Fail I alone, in words and deeds? Why, all men strive and who succeeds?
+- Like dogs in a wheel, birds in a cage, or squirrels in a chain, ambitious men still climb and climb, with great labor, and incessant anxiety, but never reach the top.
+- Better have failed in the high aim, as I, Than vulgarly in the low aim succeed As, God be thanked! I do not.
+- Measure your mind's height by the shade it casts.
+- On the earth the broken arcs; in the heaven a perfect round.
+- How good is man's life, the mere living! How fit to employ all the heart and the soul and the senses forever in joy!
+- All June I bound the rose in sheaves, Now, rose by rose, I strip the leaves.
+- Faultless to a fault.
+- I trust in nature for the stable laws of beauty and utility. Spring shall plant and autumn garner to the end of time.
+- The aim, if reached or not, makes great the life: Try to be Shakespeare, leave the rest to fate!
+- Love, hope, fear, faith - these make humanity; These are its sign and note and character.
+- But how carve way i' the life that lies before, If bent on groaning ever for the past?
+- A minute's success pays the failure of years.
+- But what if I fail of my purpose here? It is but to keep the nerves at strain, to dry one's eyes and laugh at a fall, and baffled, get up and begin again.
+- Ambition is not what man does... but what man would do.

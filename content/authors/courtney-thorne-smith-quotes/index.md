@@ -1,0 +1,25 @@
++++
+author = "Courtney Thorne-Smith"
+title = "Courtney Thorne-Smith Quotes"
+quotes_len = "19"
+description = "the best 19 Courtney Thorne-Smith Quotes"
++++
+- If it's not working before you get married, marriage isn't going to fix it.
+- I always want to look like myself - that's key for me. I don't want to look like a different person, I don't want my face frozen.
+- I used to be a compulsive exerciser, but I'm over that.
+- Never say never. I always want to look like myself - that's key for me. I don't want to look like a different person, I don't want my face frozen.
+- I love kids; I think they are fun and funny.
+- I thought, I hate the thought of a 12, 13 or 14 year-old girl seeing a picture of me and thinking she'll do what I did.
+- My hope is that if I take good care of my skin and use Botox, I won't have to use anything else.
+- It's incredibly difficult to keep a healthy body image in this business.
+- To be totally honest, if I could be thinner without it causing a lot of pain and anxiety in my life, I would be. But today the reality is my life is more important to me than my weight - and thank God for that.
+- You know, true love really matters, friends really matter, family really matters. Being responsible and disciplined and healthy really matters.
+- I really have always wanted to be a parent, and when I hit 36 and had just ended a relationship, I remember thinking how much I still wanted it. But I thought I'd adopt.
+- One of the strangest things about being an actor is that people you don't know feel that they are allowed to comment on your hair, body, clothes, relationships.
+- I hope I will be a calm mother; I do yoga and I meditate, and those should help.
+- I understand that it would be smart, career-wise, to line up something, but it wouldn't be smart for my personal life or my sanity. Some people thrive when they're working. I thrive when I'm hanging out with my friends and doing yoga.
+- A lot of women are in a crazy exercise cycle; they're so afraid they'll gain weight if they stop, and it's especially hard when they get pregnant. What they need to realize is that if you're not exercising so much, you don't have to eat so much, and your body adjusts. It sounds so simple, but you really do have to listen to your body.
+- There's so many young women today who look so lost. And I feel like, of course they're lost. They have no one around them to give them real, authentic reflection.
+- You need to eat normally and healthfully, and you need to exercise. I'm so passionate about this because I think people spend their lives not happy in their bodies.
+- I got out of autobiography because my story is, I was famous, it was hard for me, I got into therapy. I had trouble with food, I got a nutritionist. There's no story there.
+- Well, I used to be a compulsive exerciser, but I'm over that.

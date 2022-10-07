@@ -1,0 +1,24 @@
++++
+author = "Christopher Hampton"
+title = "Christopher Hampton Quotes"
+quotes_len = "18"
+description = "the best 18 Christopher Hampton Quotes"
++++
+- I'm ashamed to say the first play I saw at the Royal Court was mine.
+- I like L.A., but I think what's changed is that the kinds of films I do, the mid-range dramatic film, has become an endangered species.
+- There is a sort of theory that you should adapt bad books because they always make more successful films.
+- Asking a working writer what he thinks about critics is like asking a lamp-post what it feels about dogs.
+- If I had to give a definition of capitalism I would say: the process whereby American girls turn into American women.
+- It's great to get out of the study and work with real living and breathing people.
+- I find I have to give myself a day when I just shut myself off and do nothing but read.
+- I always divide people into two groups. Those who live by what they know to be a lie, and those who live by what they believe, falsely, to be the truth.
+- A great number of the disappointments and mishaps of the troubled world are the direct result of literature and the allied arts. It is our belief that no human being who devotes his life and energy to the manufacture of fantasies can be anything but fundamentally inadequate.
+- If you take a really good book, then the potential is for a really good film. But you've got to get it right.
+- I have always thought of sophistication as rather a feeble substitute for decadence.
+- You know very well that unless you're a scientist, it's much more important for a theory to be shapely, than for it to be true.
+- I think there's something degrading about having a husband for a rival. It's humiliating if you fail and commonplace if you succeed.
+- There was a moment in the early '80s when I wanted to work on films and wanted to live in L.A.
+- I love films. If I'd known how to get into or do it from the word go, I would have done that.
+- To seduce a woman famous for strict morals, religious fervor and the happiness of her marriage: what could possibly be more prestigious?
+- Often I think the novels I read won't make very good movies - I better not say which I'm looking at for potential films! - but it's nice to have an excuse to just sit and read for a whole day.
+- Since my adaptation of Ian McEwan's 'Atonement,' I get sent a lot of novels that people think will work as movies. So every now and then I make a point of sitting down and reading a couple of them.

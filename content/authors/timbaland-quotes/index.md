@@ -1,0 +1,42 @@
++++
+author = "Timbaland"
+title = "Timbaland Quotes"
+quotes_len = "36"
+description = "the best 36 Timbaland Quotes"
++++
+- It hurts when people put you down.
+- I don't think about other people. If I did, I'd wanna compete. But I don't think like that, because I'm above everybody.
+- I listen to a lot of '80s stuff, like 'Owner of a Lonely Heart,' by the group Yes. And Mr. Mister's 'Broken Wings.'
+- When I first met Aaliyah - it time for the world to hear this, I'm gonna give a little secret - I was in love with her.
+- I'm a musical genius.
+- I'm making music the way I would have done before modern equipment and music recording.
+- I'm trying to do something real different; I'm trying to bring the street to real pop. I'm trying to bring the street to pop. Not watering it down, no nothing.
+- I work out all the time. I love it.
+- I'm a grown man. I ain't got time for all that 'you say, she say.'
+- Everyone wants to work with the big new producer or the hot new singer. The key is to find them before they're hot.
+- I consider myself a composer.
+- I don't have beef with nobody.
+- I listen to a lot of alternative types of music: I listen to a lot of Chinese music, I listen to a lot of Asian music. It might surprise you, but I listen to a lot of Arabic music. And I don't care - music is music.
+- I never had any plans to become a producer when I was a kid. I wanted to be a DJ, like most other kids at the time. Then my mum bought me a Casio keyboard and I started to sample sounds that I liked.
+- You don't question where the music comes from, because it all comes from God.
+- I'm the type of person who tries to save the world.
+- My style is to take something unexpected and make it into a hit. That's what I do.
+- Greatness can never be over because you can lay it down for a minute.
+- My first love is producing.
+- I don't repeat myself and I don't look back because everything is hard work and the only way forward is to continue to be creative.
+- The same people who smile in my face would be the same ones to talk behind my back.
+- I try to be as normal as I can.
+- I do music for the fans. I want to lift fans up.
+- I'm not a rapper.
+- I've always tried different stuff in the studio. I use rakes, spoons, cans... I'm a surround-sound type of guy.
+- It's probably hard to be married to me. It's not easy.
+- I look at Lil Wayne as being from my generation.
+- Good production is like a beautiful marriage. It makes a happy home.
+- I'm definitely a risk-taker with my music.
+- Don't get in my personal life.
+- An artist don't make you bigger than life - being that person that can break artists can make you bigger than life.
+- I don't know nothing about no jungle and bass.
+- I know somebody in every culture.
+- I have ideas whirring around my head all the time.
+- I been through some junk. It ain't all been peaches and cream.
+- I'm weird, I do crazy things, it's not like the average norm.

@@ -1,0 +1,106 @@
++++
+author = "Lauren Boebert"
+title = "Lauren Boebert Quotes"
+quotes_len = "100"
+description = "the best 100 Lauren Boebert Quotes"
++++
+- I love our military. I'm grateful for their service and sacrifice.
+- It only makes sense to have the people managing hundreds of millions of acres of land located near that land and accessible to those communities.
+- In the West, we feel the devastating effects of one misguided, half-baked government program after another.
+- A Congress afraid of its own citizens is unworthy to lead the free world.
+- The left's war against fossil fuels is unceasing. Democrats will do anything to pursue their radical Green New Deal policies, including destroying American energy jobs, decimating rural communities, and taking away reliable energy.
+- My husband is a natural gas drilling foreman, so I know how important energy jobs are, and I am working hard to protect them from President Joe Biden's job-killing policies.
+- If I were a Democrat, I'd centralize power in Washington by nationalizing our elections. It wouldn't be enough to hold all three branches temporarily. I'd need to make it permanent.
+- Republicans should unite behind our promise to put the American people first, drain the swamp, and commit to putting a stop Democrats' plans to revive pork-barrel politics.
+- Biden is supposed to be the commander-in-chief, but he forgot the name of the Pentagon, the Department of Defense, and the Secretary of Defense.
+- Joe Biden took an oath to uphold the U.S. Constitution. If he wants to keep it, he must transmit the job-killing Paris Agreement to the U.S. Senate for ratification.
+- It's government's role to inform us of risks and let us use personal responsibility to evaluate that risk ourselves.
+- Impeachment isn't a tool that should be used to virtue signal.
+- Cancel culture has always been an issue. I mean, if you look at the Book of Genesis, Cain canceled Abel. This has always been an issue, the 'I don't like you, I don't like what you're doing, I don't like the attention that you're getting, so you shouldn't be here. You shouldn't have a voice. You shouldn't have a movement.'
+- I support peaceful protests and the rule of law, and denounce all acts of violence.
+- Our children shouldn't be saddled with trillions of dollars of more debt and forced to pay for Joe Biden and Nancy Pelosi's extreme agenda.
+- I know what it's like to be dependent on the government for food and housing, and what doctor you are going to see, and I know how limiting it can be.
+- When Congresswoman Alexandria Ocasio-Cortez and Senator Bernie Sanders first brought up the Green New Deal, it sounded like a leftist pipe dream.
+- The Biden regime has punched our Border Patrol agents in the face!
+- The Green New Deal would usher the entire country into a literal energy dark age, and California-style blackouts would become routine nationwide.
+- I was brought up in a Democrat household. My mom believed the lies she was told, that she needed government to raise her five children.
+- Voters see I'm a fighter.
+- You know, Twitter, they tried to cancel me. Facebook has tried to cancel me.
+- Parents have absolutely every right to express their opinions at public school board meetings concerning their children's education.
+- We were on welfare, and my mom thought you needed the government to survive. 'Don't try to make it on your own, because it won't be enough. The kids won't be fed:' My mom believed that lie. So I've lived with a poverty mentality. But after I got my first job, at a local McDonald's, and I got my first check, I felt such a sense of pride.
+- Inflation is taxation and taxation is theft that takes more money out of hard-working Americans' pocket books.
+- If I were a Democrat, I'd siphon the power of states to the federal government. I'd ignore the Constitution and prevent states from determining their own voting practices.
+- The federal government has no business monitoring small cash deposits and how Americans pay their bills and has no right to snoop around in private checking accounts without a warrant.
+- Decades of mismanagement have left our nation's forests vulnerable to insects and disease and ripe for catastrophic wildfires.
+- Let's learn from history and take a look at other infamous socialist central-planning experiments like China's Great Leap Forward or the Soviet Union's Five-Year Plan. Like those two disasters, the Green New Deal would cripple our country and sacrifice Americans on the altar of environmental extremism.
+- My District is all too familiar with federal government attempts to seize control of private property and private water rights.
+- I put rural Colorado first, and I introduced the MORE PILT Act to support rural law enforcement, search and rescue operations, wildfire fighting and quality education.
+- My staff hosts mobile office hours to serve constituents throughout the district in addition to our permanent offices in Durango, Pueblo and Grand Junction.
+- I defended our Constitution and I always will.
+- The Second Amendment is not open for debate. Why do Democrats feel that this is the one enumerated Constitutional right that they can trample?
+- All of our men and women in uniform, including our brave sailors in the U.S. Navy, deserve to have the best tools needed to carry out their mission to support and defend the Constitution of the United States.
+- Bureaucrats in D.C. shouldn't interfere with local conservation efforts that are more than capable of managing the species effectively while also protecting livestock.
+- As Members of Congress, we have a duty to elevate the discourse and unify during times of crisis.
+- If I were a Democrat, I'd talk about taking money out of politics, but would tax businesses to provide kickbacks and multiply my own campaign war chest by 600%.
+- America will persevere because freedom always prevails. But let's get real - the far-left and their policies are causing harm to our country.
+- I am proud to take the oath of office to represent and serve the great people of Colorado's Third Congressional District.
+- The Freedom Caucus is the group that is closest to the people and effectively represents the forgotten men and women of America.
+- Ensuring the San Luis Valley's Radar data is fully integrated into National Weather Service systems will improve weather forecasting and warnings across southern Colorado for the benefit of farmers, ranchers, tourists, first responders, water district managers, and the general population.
+- By extorting water through permitting, leasing, and other use schemes, government bureaucrats have trampled on the rights of local communities.
+- Our Armed Forces are built upon unity and teamwork, but intersectional philosophy depends on dividing people into warring victim groups.
+- The creation of useless offices and mandatory trainings to promote 'wokeness' and diversity inclusion among our troops distracts from the national security mission of the armed services.
+- I am grateful to the Capitol Police for their service.
+- The American people are tired of the D.C. way.
+- I am a Christian. I have deep faith... They thought they canceled Jesus, but you can't cancel God.
+- Bipartisan reformers have long recognized that earmarks make way for corruption.
+- Tax dollars are not politicians' personal wallets, and they should stop treating them as such.
+- Allowing illegal immigrants that are gang members and criminals with COVID to enter the U.S. and receive citizenship is a slap in the face to the American people and the rule of law.
+- If the earmark is reinstated, get ready for an avalanche of government waste coming in the form of a Democrat wish list.
+- Both sides of the aisle ought to be concerned that Merrick Garland, the top law enforcement officer in our nation, is weaponizing the FBI's National Security Branch against concerned parents while at the same time his family appears to be making millions peddling critical race theory and teaching our children to hate each other.
+- While dam-busting Democrats are focusing on destroying water storage projects, I'm busy working on real solutions that put rural communities first.
+- I-70 is a crucial economic artery for Colorado and the West, and on an average day, almost 5,000 semi-trucks carrying medicine, food, livestock, fuel, and other critical supplies travel on this federal highway.
+- Housing the Bureau of Land Management Headquarters in Grand Junction has allowed local stakeholders to have a voice in important decisions affecting their livelihoods.
+- The WHO is China-centric and panders to Beijing at every turn. There is no reason U.S. taxpayers should contribute more than $400 million annually to an organization that covered for China and failed to contain the spread of the COVID-19 pandemic.
+- Forests in Colorado and the West that once had 50-100 trees per acre are now dangerously overcrowded with 500-1,000 trees per acre. Our forests are overgrown and poorly managed, making them more susceptible to large wildfires, disease, and bark beetle attacks.
+- My doctor has never mandated I do anything, ever. It's one of the reasons I trust him so much.
+- We can no longer afford to spend and borrow away our children's future.
+- When candidates run on conservative principles, they win. But when we legislate conservative policies, the American people win.
+- While Joe Biden continues to pander to campaign donors and extremist environmentalists, I'll continue to fight for jobs and the people of Colorado's Third District.
+- We should take Democrats at their word when they say never let a crisis go to waste.
+- There have been no resignations, no indictments, no investigations, no congressional oversight, no outcry from the mainstream media, and no apologies - so I'm stepping up to hold Biden and Harris accountable by filing articles of impeachment for giving aid and comfort to America's enemies and colluding with the Taliban.
+- The relationships we have with our doctors are often the most trusted relationships of our lives. Our doctors tell us hard truths that others will not. We often tell our doctors what we will not tell others. We trust our doctors to give us the good, the bad and the ugly about our health so that each of us can make an informed decision.
+- Earmarks are counterproductive tools for entrenched politicians to shut down debate and buy votes.
+- In order to stand up to China, Russia, and terrorists, our military needs to project strength, not cultural wokeness.
+- I am honored to serve on the Natural Resources and Budget Committees.
+- As a mother of four and a small business owner, I know it takes discipline and tough choices to balance a budget.
+- When times get tough, we get tougher. Failure and government assistance are not an option for us.
+- Forest management is a pillar of rural communities.
+- The spirit of the great outdoors and the spirit of America is freedom - let's keep freedom alive by preventing woke bureaucrats from trampling on property rights with more land grabs.
+- Joe Biden willfully abandoned his duty as President of the United States and violated his constitutional oath to 'take care that the laws be faithfully executed' by failing to ensure the national security of the United States and its citizens.
+- I've fought against the National Popular Vote to make sure someone like Hillary Clinton can't steal their way to the presidency.
+- Rather than relying on farmers, ranchers, outdoorsmen, lumberjacks, surveyors, oil workers, miners, or community leaders who have decades of land use experience, government policymakers turn to 25-year-olds with master's degrees in ecology and political science to run the country's public lands policy.
+- Biden and his partisan hacks have no plan to tackle America's spending addiction and get our fiscal house in order.
+- Serving the people of Colorado's Third Congressional District is the greatest honor of my life.
+- When I say to beware of the 'Fauci Ouchi,' it is a way to cut through the clutter and communicate that the heavy hand of government should never threaten you with taking an injection you may be skeptical of or are unwilling to take.
+- What does it say about a country that has to force its women into combat?
+- It's not just lip service when I say I'm going to fight for the people. I've done that as a citizen already.
+- Democrats don't respect Americans' rights because they don't care about the people - they only care about the swamp.
+- We do not need more federal government overreach and control of our land and water, and I will always fight to protect private property, preserve local control, and defend the economy from radical legislation.
+- I am honored to be elected by my peers to serve on the Board of the House Freedom Caucus as a freshman member of Congress. These men and women of faith serve with real conviction and are in Congress for the right reasons.
+- It's time to chart a new path in forest management that's guided by science, protects rural communities, benefits the environment, and actively manages our forests to prevent catastrophic wildfires.
+- Westerners deserve a voice in the land-use decisions that affect their daily lives, and it would be wrong to move the Bureau of Land Management thousands of miles away from the land it manages back to a faceless marble building in D.C.
+- President Joe Biden's administration is led by this particular brand of educated and out-of-touch staffers, freshly released from leftist ideology indoctrination camps - otherwise known as colleges and universities.
+- Decades of eco-terrorism have effectively shut down our national forests from responsible management.
+- If I were a Democrat, I'd be a career politician, so I'd enrich the Swamp while further bankrupting America.
+- It is not the government's right to tell you what to inject into your body.
+- Continued federal overreach won't end the COVID-19 pandemic or put food on the table.
+- I refuse to bow to the cancel mob.
+- I stood up to Beto O'Rourke because no one else was doing it. I stood up for the liberties of Americans, and it became a national rally cry for our Second Amendment.
+- Russia and China have been developing lasers that could destroy U.S. satellites. The threat to our security in space is real.
+- I'll be the first to say our military should always be fully funded.
+- Under President Trump's leadership, illegal immigration was the lowest it had been in 17 years. The Trump administration achieved this success because they understood the actual problems and addressed them.
+- Congress needs to stop kicking the proverbial spending can down the road and make the hard decisions necessary to rein in our debt and balance the federal budget.
+- I won't stand idly by watching Janet Yellen radically transform the IRS into a leftist, Praetorian Guard that spies on Americans' private financial transactions.
+- I sleep really well at night.
+- I have worked to keep the Bureau of Land Management in Grand Junction; protect energy jobs; support farmers and ranchers; mitigate wildfires; build infrastructure; support law enforcement; help constituents having issues with federal agencies and so much more.
+- Westerners deserve a voice in the land-use decisions that affect their lives daily.

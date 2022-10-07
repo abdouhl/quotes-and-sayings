@@ -1,0 +1,17 @@
++++
+author = "Ken Auletta"
+title = "Ken Auletta Quotes"
+quotes_len = "11"
+description = "the best 11 Ken Auletta Quotes"
++++
+- Without vision, even the most focused passion is a battery without a device.
+- Among the enduring truths I keep bumping into when there is the luxury of time to get to know people or institutions, is that their decisions are often made for what are not, strictly speaking, reasons of logic.
+- If the Ivy League was the breeding ground for the elites of the American Century, Stanford is the farm system for Silicon Valley.
+- Poorer people tend to watch more television because they can't afford other diversions.
+- Stanford University is so startlingly paradisial, so fragrant and sunny, it's as if you could eat from the trees and live happily forever.
+- Passion without focus can lead you astray.
+- The digital revolution has disrupted most traditional media: newspapers, magazines, books, record companies, radio.
+- Journalists prize independence - not teamwork.
+- Always point your finger at the chest of the person with whom you are being photographed. You will appear dynamic. And no photo editor can crop you from the picture.
+- An important reason Google is usually listed among the world's most trusted brands is that it conveys a sense that the user comes first.
+- Perhaps the biggest problem in journalism is the cult divide between journalists and corporate owners.

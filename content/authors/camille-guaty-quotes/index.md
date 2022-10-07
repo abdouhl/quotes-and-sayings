@@ -1,0 +1,12 @@
++++
+author = "Camille Guaty"
+title = "Camille Guaty Quotes"
+quotes_len = "6"
+description = "the best 6 Camille Guaty Quotes"
++++
+- My family moved from California to New Jersey in the beginning of my sophomore year of high school. I will never forget the first day in a new school, walking into the cafeteria during lunch and not knowing a single soul. I didn't feel confident enough to share a seat at just anyone's table.
+- I went to a Catholic school, so of course we had to wear uniforms. My only form of expression was in shoes and the style of my hair.
+- I inherited them, so I got it like that. But I hear you can actually get dimples for a certain price if you really want them. I was getting my nails done once, and this lady asked me, 'Are those real? In my country, they pay a lot of money for those.' And I was like, 'Really?' I think she was from Malaysia.
+- When I first moved to Los Angeles, I had a really bad run. I would sleep in my car during the day outside the Disney building in Burbank, and that's where I got my first job, which is really weird. I liked to stay around the studios and kind of get the good vibes going.
+- I remember how much fun it was to pick out my lunchbox. My all-time favorite lunch box was from the movie 'Annie.' Also, I loved picking out school supplies! Trapper Keepers were my favorite.
+- I still get the jitters every time I start a new job! I love it - makes you feel alive.

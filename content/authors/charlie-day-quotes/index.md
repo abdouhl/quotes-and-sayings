@@ -1,0 +1,22 @@
++++
+author = "Charlie Day"
+title = "Charlie Day Quotes"
+quotes_len = "16"
+description = "the best 16 Charlie Day Quotes"
++++
+- Starting out, I bet I didn't get a lot of parts because of my strange voice. I'm not consciously thinking, 'Hey, sound like a squeaky dog toy mixed with a bagful of rusty nails.' It's just what my voice has done.
+- I never saw myself as a comedian. I saw myself as a guy who can act funny.
+- Yeah, I've always considered myself a musical person.
+- The idea of doing stand-up is terrifying to me.
+- Technically, I'm a New Yorker.
+- Growing up in Rhode Island, my friends would have strung me up if I had been a Yankees fan.
+- Actors put ourselves in awkward positions all the time.
+- My parents are more likely to know who Franz Liszt is than Snooki.
+- Both of my parents are actually music teachers.
+- Thinking of Plan B muddies up your chances of succeeding at Plan A.
+- As an actor, sometimes you feel a pressure to change yourself from time to time.
+- Still when I go on talk shows, I worry that I have to live up to a comedic persona.
+- Knowing that I'm not a model and I'm never going to be has relieved me of the pressure of looking good. If you don't establish yourself as McDreamy then you don't have to live up to it.
+- I waited tables in New York, and when you're in that line of work, you often have a horrible boss.
+- Well, you know, I don't think anyone who writes a television series has a master plan from the beginning, and knows all the character traits, and everything that's going to happen.
+- I am a Patsy Cline fan.

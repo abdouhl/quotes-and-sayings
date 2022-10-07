@@ -1,0 +1,40 @@
++++
+author = "Liz Parrish"
+title = "Liz Parrish Quotes"
+quotes_len = "34"
+description = "the best 34 Liz Parrish Quotes"
++++
+- We can not control the aging reversal to a specific year today, that will come in the future. It is hypothesized that you will not reverse in physical appearance to less than a young adult. We see this in mice as well.
+- I was awake for the therapy, it was documented by a film crew. I am proud to have taken part of helping millions of people even if it has bad results.
+- I am patient zero.
+- I would suggest always getting behind a company that shares your goals, whom you have access to the people who run it and who truly care about the world. This way we steer the ship together and many fears can be let go of.
+- I have aging as a disease.
+- You have little to no response to AAV the first time your body sees it. If you used the same vector twice you would want to bump up immunosuppression. I believe there will be many new ways to deliver genes in the future as well.
+- We are a company for the people, please get involved. Be part of the conversation.
+- Currently, we are working to deliver our anti-aging gene therapies to terminally ill people for compassionate care. Although, in the future we think that preventative medicine against aging would begin at a much younger age.
+- Hundreds of people are undergoing gene therapy today. There are no known neurological issues.
+- Yes, we are looking into gene therapies for immune cells to target senescent cells.
+- As lifespan increases fertility rates go down all over the world. Humans will create better technology and space travel will increase. These are all good signs for the future.
+- We are using both visual biomarkers, MRI and a panel of blood and tissue testing including work on telomere length with Spectracell and Life Length and epigenetic testing.
+- BioViva is trying to help improve human health and wellbeing, and alleviate suffering. We are not trying to determine who should live or die. Everyone has a right to life without suffering.
+- The gene therapies on my body are to measure the effects on humans. There is plenty of animal research to support these gene therapies but no one was conducting human tests.
+- Aging is one of the most visual diseases on the planet and includes things that we all know like wrinkles and grey hair, but also brain atrophy, muscle wasting and organ damage.
+- We do not collaborate with SENS at this time but we support their mission.
+- Epigenetics is very important. We are keeping a close eye on iPS cells and other genetic methods of reprogramming the epigenome.
+- Exercise and eat healthy foods in moderation. I am a vegetarian but that is a personal choice.
+- Patient zero feels great and is back to work.
+- Work by Maria Blasco, Calvin Harley, Michael Fossel, Woodring Wright and Shay and Ronald Depinho in particular are of interest but there are literally thousands of articles relating to telomerase, telomeres and the biology behind it.
+- Our science and advisory board think that nuclear lamin dysfunction is a side-effect of DNA damage and mutations, rather than the cause. We are currently trying to mend nuclear dysfunction using Human Telomerase reverse transcriptase.
+- It is important that we work toward a better future. You can make a difference. Don't listen to people who say you are unqualified, you can start a change and see it through.
+- Crisper is great. The future of gene therapy looks bright.
+- We are looking at gene therapies to Reverse Atherosclerosis, Regenerate muscles and tissue, Improve cell signaling, Clear misfolded Proteins, Rejuvenate the immune System, Clear Senescent Cells, and Treat Monogenic Diseases.
+- But do remember that the most important risk factor for cancer is growing older. Most cancers occur in people over the age of 65.
+- The biotech game is quickly changing. The people must demand their use of these treatments.
+- I agree Maria Blasco has achieved amazing things with telomerase induction and we are hopeful this will translate to the human model.
+- We will 'de-age' progressively, as cures are developed.
+- I am happy to be patient zero. It is for the world, for the sick children and sick old people. My life has been good. I understand the risks but I research how people die and I am happy to say that today I do not know how I will die now. Tomorrow or in the long future I was up for a change.
+- I think gene therapy and nanotechnology go hand in hand.
+- Gene therapy technology is much like computing technology. We had to build the super computer which cost $8 million in 1960. Now everyone has technologies that work predictably and at a cost the average person can afford.
+- We have a battery of tests planned at regular intervals including DNA methylation analysis, gene expression profile changes, telomere length (both TAT and QTRAP measured) and various other metrics that will highlight positive changes to aging biomarkers.
+- Our goal is to build laboratories that will have the mission of a cGMP product at a reduced cost.
+- I hope that the image of gene therapy is changing. It seems to be.

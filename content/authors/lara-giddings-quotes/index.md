@@ -1,0 +1,21 @@
++++
+author = "Lara Giddings"
+title = "Lara Giddings Quotes"
+quotes_len = "15"
+description = "the best 15 Lara Giddings Quotes"
++++
+- The sad thing is that apparently if you want to become the next Premier or the leader, suddenly you've got to shut down your human side.
+- I'm an ordinary Tasmanian like everybody else, and I have weight issues; I have issues around finding the time to do the exercise and things, but in my role as Health Minister, and in my role as myself as well, I have to look after my own health.
+- I am just as ordinary as anyone else, and I also have my problems, but I also am responsible for my own health. So I'll be on that exercise bike, I'll be out there walking and try to improve my health and diet as much as I'm expecting of other Tasmanians.
+- Death is not something any one of us want to dwell on, but we must all confront it at some point.
+- Labor has a proud history of tackling discrimination and introducing important social reform.
+- I am hopeful that one day I will meet that right man and will have a very happy life partner.
+- There will always be excuses, arguments, and questions of timing when moving on difficult and controversial issues.
+- Tasmania needs a watchdog, not a lap dog.
+- At times I wonder whether or not your role as a member of Parliament... may in fact inhibit a relationship developing.
+- Being Premier is a 24/7 job, so it doesn't create many spaces in order to be able to build relationships.
+- The role of Premier is not one that should be taken lightly, nor is it a personal trophy.
+- For some reason, men in politics seem to have a bunch of charisma, and women drop around their feet. I haven't noticed that so much for me and men.
+- I'm human. I'm a person. I would love to be in a relationship with a man. I would love to find the right man; I think that's natural - that's what we all want.
+- My first job as premier will be to go back to basics.
+- I don't have a steady relationship. That's something that women in politics deal with. For some reason, men in politics seem to have a larger charisma, and women drop around their feet. I haven't noticed that so much for me.

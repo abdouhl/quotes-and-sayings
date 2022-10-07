@@ -1,0 +1,44 @@
++++
+author = "Loris Karius"
+title = "Loris Karius Quotes"
+quotes_len = "38"
+description = "the best 38 Loris Karius Quotes"
++++
+- My dad always wanted me to get into motocross like him, so I started doing it while I was really young.
+- I want to be in goal and play for Liverpool every week and then win a trophy with the club. That's what everyone wants. I want to do my part and help.
+- When I started, I was a striker for the first few months. Our goalkeeper didn't show up once, and the team was asked who wanted to fill in for him. No-one really wanted to, but I thought it would be an interesting challenge, so I agreed to do it.
+- I have no problem with Jurgen Klopp. In fact we have a great relationship, he transferred me from Mainz.
+- My grandad and mom would drive me to training all the time, and from then - around seven to eight - coaches were telling me I had something special and needed to stick with it.
+- It is impossible to go through a season without a mistake. Some might be major mistakes. Some might be little mistakes.
+- Nobody told me to leave Liverpool. I didn't run away from Liverpool.
+- I'm not a keeper who hasn't shown his ability.
+- Goalkeepers don't get second chances, but also, we can win games and be praised, so that's the way it is.
+- As a goalkeeper, you have games where you're really exhausted afterwards, even though you didn't run as much.
+- The spectacular things come automatically if you're a good goalkeeper, but it's very important that you do all the basics right.
+- I think, in general, there are no games in the Premier League where you think, 'Oh, that's an easy one.'
+- It is always a battle; it doesn't matter in which club or which position. If you don't perform well, even when you start, you might lose your spot in any position.
+- I have to cause a stir in Liverpool and do my job really well. If I achieve that, then - and that's what I hope - I will one day get the call from Bundestrainer Joachim Low.
+- I'm not afraid of anything.
+- My father didn't watch football, and it was my grandad who got me in to it.
+- Not many German keepers can say they've played in a Champions League final.
+- It's just important that you plan your week with food and everything to try and be on your highest level on a matchday.
+- Every manager has his own idea of playing and his own idea of the training, and everyone has a different personality.
+- This is life. This is football. Mistakes happen to any player.
+- I think it's important to make the simple things right: the easy saves, the catches, commanding the box. On top of that, if you make a super save, then that's great. It's the main base as a goalkeeper.
+- Whether it is from the manager or fans, positive words help. You also have to balance it with negative stuff.
+- It definitely helps when you play regularly instead of coming in and out of the team.
+- If you have the number one shirt, and you don't play any games, it doesn't really help you.
+- I go to the barbers every two weeks.
+- I always try to be there when the team needs me.
+- When a striker misses a chance, people say he should have scored, but five minutes later, they don't talk about it anymore.
+- Ibrahimovic is certainly a great player, but during a match, I don't waste any thoughts on who is opposing me, and you never have any fears on the pitch.
+- I choose to be a goalkeeper.
+- I think I would have one favourite jacket, one favourite pair of sneakers - like, from every kind of thing I do have my favourite - but they're often the things I wear the least because I just want to keep them nice, so I don't really tend to wear them as much.
+- Every goalkeeper has a different way of playing. Some will take risks to help the team - coming for high balls, being prepared to be attacked in the box knowing there is not much protection from the referees - but that might mean they make more mistakes. Some try to be safer to avoid those situations, but it does not help the team.
+- It's good to have competition and good for the club to have three strong goalkeepers.
+- Oliver Kahn against Valencia in 2001 - this was the first Champions League game I remember. I was a Bayern fan.
+- I don't think a lot of players reach a Champions League final. If you look at how many goalkeepers in the league reach a Champions League final, I don't know.
+- When I heard Klopp wanted me, I was really excited because it felt like a huge reward after everything I'd been through, and also because I know how hard the manager works for success.
+- We have many good keepers in Germany, and that's why you can never let your form dip.
+- There's two or three lifestyle pages that I like. I like Hypebeast, and obviously, I follow @BritishGQ.
+- I know I am a good goalkeeper, and I've shown that a lot.

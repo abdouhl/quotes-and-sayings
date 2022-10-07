@@ -1,0 +1,38 @@
++++
+author = "Chuck Grassley"
+title = "Chuck Grassley Quotes"
+quotes_len = "32"
+description = "the best 32 Chuck Grassley Quotes"
++++
+- I've always considered making it legal for Americans to import their prescription drugs a free-trade issue. Imports create competition and keep domestic industry more responsive to consumers.
+- We should not have a government program that determines if you're going to pull the plug on grandma.
+- The bottom line is, there have been a lot of nuts elected to the United States Senate.
+- The Fed has the ability to put money out, it's got the ability to take money back in, and if they don't do that, we will have hyperinflation worse than we had in 1980 and 1981.
+- You shouldn't have counseling at the end of life. You ought to have counseling 20 years before you're going to die. You ought to plan these things out. And I don't have any problem with things like living wills. But they ought to be done within the family.
+- When the Democrats were investigating the U.S. attorneys that were accused of responding to political pressure, that I joined Senator Leahy in efforts to get transparency of all of the documents.
+- It wouldn't do me much good to back somebody that won in Iowa if they can't carry on the campaign elsewhere.
+- If I can't negotiate something that gets more than four Republicans, I'm not a very good representative of my party.
+- My goal for reform is not necessarily to pass laws but to make sure the laws are being followed.
+- We need to make sure parents and coaches are aware of the dangers an on the look-out for the warning signs. Performance enhancing drugs are too damaging to young people for parents and coaches to not be involved.
+- There is a lot of waste in government-run programs generally, and a lot of waste and fraud and misuse of money in Medicare and Medicaid that can be saved.
+- Maybe I should just go home and ride my tractor.
+- Selling drug secrets violates a trust that is fundamental to the integrity of both scientific research and our financial markets.
+- President Obama's decision to bypass the constitutional advice and consent of the Senate is not an isolated incident.
+- Someone has to pick up the tab when people get out of repaying their own debts.
+- If I move one way, I lose a couple votes. If I move another way, I lose a couple votes.
+- What makes a child gifted and talented may not always be good grades in school, but a different way of looking at the world and learning.
+- I believe that there is a bipartisan consensus to have individual mandates.
+- Complacency by the watchdogs hurts both taxpayers and beneficiaries.
+- My business is the enforcement of the tax laws and the integrity of the tax code and making sure that trustees of charitable giving are true trustees.
+- I get paid by the year, and I try to earn my money.
+- Finding out exactly what went wrong is key toward preventing future debacles.
+- I can support co-ops if they want to do it as we've known co-ops in America for 150 years - where they serve the purposes of the consuming public, whether it's health care or whether it's co-ops as we know them in the Midwest, providing electricity or to sell supplies to farmer.
+- I can only answer for Chuck Grassley; I can't answer for anybody else.
+- The public relies on the advice of doctors and leading researchers. The public has a right to know about financial relationships between those doctors and the drug companies who make the pharmaceuticals prescribed by doctors.
+- In the case of the Japanese, they usually commit suicide before they make any apology.
+- When you're encouraging - the government is encouraging guns to be sold illegally to people that shouldn't have them, the laws aren't being faithfully executed.
+- I'm the policy-maker; I'm the lawmaker.
+- You ought to serve on the platform you run on.
+- Imports create competition and keep domestic industry more responsive to consumers. In the United States, we import everything consumers want. So why not pharmaceuticals?
+- If Americans could legally access prescription drugs outside the United States, then drug companies would be forced to re-evaluate their pricing strategy.
+- I think that less presidential interference the better.

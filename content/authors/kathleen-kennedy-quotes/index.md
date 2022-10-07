@@ -1,0 +1,74 @@
++++
+author = "Kathleen Kennedy"
+title = "Kathleen Kennedy Quotes"
+quotes_len = "68"
+description = "the best 68 Kathleen Kennedy Quotes"
++++
+- I'm not great at talking about myself.
+- When you're relegated to go from movie to movie, so much of what you're doing is out of your control beyond creating the product.
+- I have a very fun husband. He's managed to hang on to every person he's known since grammar school.
+- It's not just about casting female protagonists. It's gotta be across the board throughout the industry.
+- If all you're doing is playing it safe - trying to make the same movie over and over again - that's when the audiences say, 'Oh, this is just a moneymaking machine.' But if it's genuinely in service to the art form, then the franchise concept is being used in a way that's exciting.
+- People want to make a distinction between what's commercial and what's art.
+- It's funny where life can take you.
+- Not every script that rolls in is ready to shoot. Few are, actually. So you go back and work on the thing.
+- You know, I've always been very open to any project.
+- My life is organized chaos.
+- I'm just a member of the audience with each project I work on, and I hope to never lose that. It's my touchstone. It's the thing I never want to overanalyze.
+- You can recognise when a film-maker really, really cares about what they're doing.
+- I always feel that the best kind of producing - and frankly, it has to do with what I like to do - is you're the big-picture person.
+- The 'Star Wars' universe is full of technological and cutting-edge effects, which Base FX will be a wonderful partner to create with.
+- It's an interesting thing when you're casting a film - especially when you're trying to discover someone - you're waiting for someone to step into the room in an audition process and claim the role.
+- If it's a huge tentpole movie, for instance with a movie like 'Tintin,' a year and a half, almost two years in advance, we were developing a videogame campaign and massive consumer products campaign.
+- The 'Star Wars' saga is about a series of seemingly chance encounters. They impact the destiny of everyone involved.
+- If you don't spend the time you need on developing characters and finding stories, complicated stories, the audience gets tired because they think they're seeing the same thing again and again.
+- I started out as a camera operator. I was doing news, and I was doing sports - baseball games and football games. And I was acutely aware of women not really being in those roles then.
+- Having a female point of view in the room - when you get into a discussion about behavior - who would say what and how they would interact with one another. In certain situations, women are going to have a different opinion on that than men. It made for a really balanced conversation in the room.
+- A lot of directors will do a certain amount of storyboarding and pre-vis, and yet when they get on the set, everything starts to change, and they have new ideas.
+- The producer, in effect, has to work as a translator. You form a very tight relationship with the director and writer from the beginning, and then you are constantly communicating to the various people that begin to come into the process, as you are trying to manage to hold on to a vision that needs to be communicated over a long period of time.
+- I don't analyze things all the time, I just do them.
+- Probably the biggest contribution that Disney has made to the Lucasfilm franchise management was their international component. That was something Lucasfilm hadn't made significant inroads with.
+- In the creative community, there's no excuse for not making a more equitable environment.
+- Sometimes women don't take the initiative that they should.
+- I find that a lot of directors are attracted to the dark side.
+- If we do want to bring a woman in to direct a 'Star Wars'... we don't want to talk somebody into it.
+- I've always said that I don't want to be in front of the camera.
+- I know myself pretty well, and I know what I'm good at, but I also recognize when others may be better and so support and empower that.
+- I would hate to be in a situation where my entire focus was obsessing around the issue of whether we're going to win best picture.
+- Creating authentic emotional experiences, whether it's 'Star Wars' or 'Spotlight,' are driven by characters and stories that are engaging.
+- A successful film begins by choosing a director whose creative vision will define the choices made by everyone involved in the film.
+- Inside 'Star Wars' are values that mean something to people. It's aspirational. It's full of hope.
+- I think 'E.T.' came along at a time when it was probably meant to be.
+- There's no way a director can communicate with every single person on the set and yet they need to motivate and instill an ambition to want to do their best work.
+- When Princess Leia hit the scene in 1977, she was a pretty formidable character.
+- I don't usually do remakes.
+- Many great stories are father issues, mother issues or death.
+- A lot of these big movies are just a collection or a montage of big set pieces.
+- I don't know how to make movies without getting my hands dirty.
+- Lucasfilm looks out for 'Star Wars.' What are the values inherent in 'Star Wars' that we want to protect? It's fragile to a certain extent in that it's a single IP.
+- Audiences still crave storytelling.
+- We are going to hire a woman who's going to direct a 'Star Wars' movie. I have no doubt.
+- Nobody understands what a producer does.
+- It's a real privilege to make movies.
+- We don't have any intention of beginning a trend of re-creating actors who are gone.
+- From a producing standpoint, I think prep is everything.
+- When I joined Lucasfilm, I immediately saw the true passion shared by 'Star Wars' fans around the world.
+- I think it's always wise to be concerned about any of the characters in 'Star Wars,' right?
+- I had a teacher who loved movies. He had a little theatre called The Flick, and he would let a bunch of us volunteer to work there, and he also let us make little movies in class.
+- I suppose I was always attracted to the producing function - trying to put things together and make things happen.
+- We look at Marvel, but we're not trying to emulate that in any way. In fact, we talked often about how distinctive what we're trying to do with 'Star Wars' is from Marvel. They've been extremely successful in exploiting the characters in that universe, and we have a place. We have the galaxy.
+- There's nothing I like more than to have one of our movies run, and then I go to the ladies' room and listen to everybody talk about it. No one has any idea who I am.
+- Daniel Day-Lewis is extraordinary; I think he may be one of the best actors ever that we've worked with.
+- My story sort of sounds ridiculous because the first movie I produced was 'E.T.'
+- I think most fans of movies that have withstood the test of time don't like for them to be tinkered with. I think that's a pretty general consensus. You like to remember what you started with.
+- We have an amazing team at ILM who can create fantastic effects.
+- The most important thing is to have a point of view and have something to say. That is important if you are filmmaker or artist. That means you have to experience the world.
+- It's not fun to lose.
+- When we built Amblin, we even put Murphy beds in there because we thought that was so practical. Why would anybody, if you were working on something, need to go home at night? You'd just stay there, wake up in the morning, and carry on.
+- Success is always a matter of some luck and timing.
+- Everybody always asks us how we choose the movies we have going right now, and it's hard to explain sometimes. There's a randomness to the way things kind of happen and get done. And sometimes you have this perfect storm, and you have to accept that and do the best you can.
+- Sports teaches you to understand the meaning of a team. You need to be able to work with everybody; you don't have to be their best friend. You can experience the fun of competition and driving toward a common goal without pushing to bond in some major way with each individual on a project.
+- I've had filmmakers, I even had Bono come and talk to me about having a sequel to 'E.T.' help with an environmental message - I listened. I can certainly understand. I mean, the great thing about Bono is that everything he does is in service to a greater cause.
+- We knew that for E.T. to feel real, you had to have some connection to his eyes.
+- I loved David Lean, he had a huge influence on me when I was going to film school.
+- The problem with some truth-tellers is that they don't do it in a way that makes people want to listen.

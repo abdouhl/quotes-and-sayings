@@ -1,0 +1,31 @@
++++
+author = "Christopher Marlowe"
+title = "Christopher Marlowe Quotes"
+quotes_len = "25"
+description = "the best 25 Christopher Marlowe Quotes"
++++
+- That perfect bliss and sole felicity, the sweet fruition of an earthly crown.
+- While money doesn't buy love, it puts you in a great bargaining position.
+- There is no sin but ignorance.
+- Jigging veins of rhyming mother wits.
+- Excess of wealth is cause of covetousness.
+- O, thou art fairer than the evening air clad in the beauty of a thousand stars.
+- Our swords shall play the orators for us.
+- Accursed be he that first invented war.
+- Come live with me and be my love, And we will all the pleasures prove, That valleys, groves, hills, and fields, Woods, or steepy mountain yields.
+- I count religion but a childish toy, and hold there is no sin but ignorance.
+- Money can't buy love, but it improves your bargaining position.
+- Was this the face that launched a thousand ships, and burnt the topless towers of Ileum?
+- What are kings, when regiment is gone, but perfect shadows in a sunshine day?
+- Accurst be he that first invented war.
+- Goodness is beauty in the best estate.
+- Is it not passing brave to be a King and ride in triumph through Persepolis?
+- What feeds me destroys me.
+- Live and die in Aristotle's works.
+- Above our life we love a steadfast friend.
+- Confess and be hanged.
+- Who ever loved that loved not at first sight?
+- All places are alike, and every earth is fit for burial.
+- I'm armed with more than complete steel, - The justice of my quarrel.
+- Hell hath no limits, nor is circumscribed In one self place, for where we are is hell, And where hell is there must we ever be.
+- Virtue is the fount whence honour springs.

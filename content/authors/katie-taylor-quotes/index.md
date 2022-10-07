@@ -1,0 +1,104 @@
++++
+author = "Katie Taylor"
+title = "Katie Taylor Quotes"
+quotes_len = "98"
+description = "the best 98 Katie Taylor Quotes"
++++
+- I do a good job of staying positive and just moving on.
+- There's a lot of people on the way up who want to take my place, so it's up to me to continue to improve.
+- I want to leave a great legacy behind me and continue to win major championships.
+- It is frustrating, but all I can do is just keep winning, and hopefully, people will stand up and take notice eventually.
+- I don't even wear miniskirts on a night out, so I definitely won't be wearing miniskirts in the ring.
+- When I have a few weeks off, I catch up with my friends, but after a week or so, I just can't wait to get back in to the boxing club and start training.
+- Don't call me famous, but it's hard to be out with my friends now.
+- I would love to be able to speak my own language and maybe have an interview in Irish, maybe after my fights.
+- There have been a lot of challenges over the years that I have overcome.
+- It's great to be boxing a local boxer. The atmosphere is always fantastic. I love those fights. I really relish those fights.
+- The Bible is my sport psychology manual.
+- I think every fight is a tough fight, but I'm not settling for a bronze medal.
+- I love all sorts of food, chocolate especially. I eat well, but I like the odd Chinese, like anyone!
+- When you're so consistent, people have to stand up and take notice. I don't think people recognise or praise consistency enough.
+- I always feel like the freshest boxer going into competitions.
+- I'd love to have a chance to fight in the World Series Boxing for women, but nothing has been done about that.
+- I'm in a privileged position, but I still feel like the best is yet to come, and people still haven't seen the best of me yet, and that is so exciting for me.
+- My training diet can be quite strict when I'm coming up to competition; it's a weight-making sport, of course. But I eat quite healthily anyway, and it's less strict when out of competition.
+- I wouldn't be where I am without my dad. He's a genius.
+- It's so great to be able to inspire these young women today to get involved in male-dominated subjects.
+- I always go into a fight thinking the decision is going to be fair, and I relish these fights where the atmosphere is so fantastic.
+- The thing with professional boxing is you have to have the right promoter and the right fights. It is a cut-throat business.
+- I just happen to be a woman and involved in sport, but that doesn't necessarily make me a feminist.
+- The pressure was huge going into London, definitely.
+- I've a great group of people, a great family behind me all the way, all the time. You cannot underestimate that.
+- I'd like to thank everyone for all their support and prayers. I'm so humbled by that.
+- Definitely, there's a lot of strength in depth in my division.
+- As long as I still feel a passion for the sport and preparing for these big competitions, I will carry on fighting.
+- It's great for my confidence getting a letter saying 'All I want from life, Katie, is you and health.'
+- God is my psychologist. And my dad is probably the best sport psychologist in the world.
+- You're clearing your mind during a workout. Boxing is a great sport for girls; it's really safe.
+- You have to make sure you have the right people around you to get the right fights, and you're not guaranteed to get the best fights.
+- I'm not going to be boxing forever, but I've put no time-cap on it, really.
+- People need to get out and do some more exercise, especially children who are stuck inside with computers.
+- I'm the one that everyone is trying to beat.
+- I want to go down in the history books as one of the greatest female boxers of all time, and I think I'm on the right path.
+- I wouldn't really call myself a feminist. I obviously want equality and equal opportunities to the men.
+- There is an awful lot of pressure on me.
+- After I came back from London with a gold medal, my focus straight away was to defend it four years on.
+- I have stayed positiv,e and I believe I am still improving in every competition I enter.
+- I have a lot of confidence in myself, and I love that challenge as well. I love going to every competition as the favourite. It's something I relish.
+- I am European Games champion now as well as Olympic champion, European champion, and world champion.
+- Sometimes, the plans in your heart aren't God's plan.
+- It's ridiculous having the pros in an amateur sport, but at the same time, there's a lot of pros who are going to struggle over three rounds.
+- It's always tough to stay at the top for so long.
+- It doesn't matter who other people are saying the favourite is; I'm still going in to win the gold medal.
+- I would have loved to have met Roger Federer.
+- Age is a chronological number. That's all. There is plenty of time for my life afterwards. I'm still a young woman.
+- There are so many career opportunities out there now for young women, and it's great to have the opportunity to encourage them to get involved in these new careers.
+- I don't really change much; there's not much I can do about the judging in front of a home crowd.
+- I know MMA isn't for everyone. It is a combat sport; some people don't like watching it, but it is entertainment for some people.
+- Anything other than a gold medal will be disappointing.
+- I never think about losing. That's why it's so hard to accept a loss.
+- The heaviest I've ever been is 65 kilos. That was during my Leaving Cert when I was just studying and eating chocolate.
+- I'm a huge fan of Conor McGregor, an incredible athlete. What he has done for MMA is phenomenal; he has been a great supporter of me.
+- I became number one just after the World Championships in India. I was very young then, and I remember it was just a great feeling, my first World Championship.
+- The best boxers don't always qualify for the Olympics. You can easily have a bad day, but please God, that won't happen to me.
+- I love playing for Ireland, and I love soccer, but when it comes down to it, I would choose boxing as my number one sport, as I'd miss it too much if I wasn't involved.
+- We do the weigh-in, then go for a walk, then have breakfast, then I listen to worship songs on my iPod because I'm a Christian. I always read the same Bible verses, too. We do the same warm-up a lot of the time as well. But, I have no superstitions before a fight.
+- People say, 'You will be 30 years old; you're too old. You'll get your nose broke,' say dad's a pushy dad. You hear stupid things and put them out of your mind.
+- I can enjoy myself and express myself in the ring.
+- No world championship has been easy for me.
+- I look at what's in front of me. I concentrate on that and then hopefully move on.
+- I know how it feels to lose.
+- I want to tell girls, it's not about make-up and how you look that's important; you are so much more than how you look.
+- I tend to think year-by-year and tournament-by-tournament.
+- I'm honoured and delighted to be named the 'Irish Times'/Irish Sports Council Sportswoman of the Year 2014. This has been an amazing year for me and for Irish women in sport, and I would like to congratulate all the finalists in their respective fields who have excelled at major sporting events.
+- I could have 10 kids or be boxing until I'm 40.
+- Boxing was just another one to keep me going as a child.
+- I've been offered a few professional contracts... in the hundreds and thousands.
+- Mental strength is something you either have or you haven't.
+- I never think too far ahead.
+- I love being the favourite of every competition.
+- It's important to have a healthy balanced diet but not to get too bogged down about it. It's important to enjoy your food, too.
+- I don't feel much pressure at all. I have great family support, and they take a lot of pressure off me. They help to control media and public interest.
+- The Olympics is a dream of mine.
+- Every fight has been hard. Every world title I've won has been hard fought, and every European title I've won has been hard fought as well.
+- I know exactly what that's all about being in a male dominated sport. Sometimes it just takes one person to step out, to be a pioneer, a trailblazer, really.
+- I owe so much to my dad and what he has done for me. And it's hard work doing what he has done, so he's entitled to a break.
+- I'm in the public eye. I'm recognised a small bit more. That's part and parcel of it.
+- Going to the cinema or a meal can be difficult, with people asking for pictures or autographs.
+- I go into every fight trying to win as easy as I can.
+- It's so true: the fight is won or lost in the gym, and those words really stuck with me throughout my career.
+- I've boxed many people in their own backyard plenty of times - in China, I boxed a Chinese girl in the final of the world championships, and I've boxed Russians before in their home nation as well.
+- With amateur boxing, you're just entered into a competition. And to be the best, you've got to beat the best. You're not waiting around to get these fights organised.
+- I think, probably, my best asset would probably be my all round game.
+- There's not a lot of positive role models of women in newspapers and magazines. I think it puts pressure on girls. They think that the image put out, it's the way you have to look.
+- I've had losses in my career before, and I've always come back stronger from those losses.
+- I'm just sorry I couldn't come home with a second Olympic gold medal.
+- I don't get complacent, because I know if you slack off, you're going to be found out. This is international boxing, and every fight is a tough fight.
+- It's the training that's the hardest. It's the preparation. The months and months of preparation that nobody really sees, that's the hardest part.
+- Fighting at the Olympics has been my lifelong dream, and I cannot believe I am there now.
+- I can definitely box on the front foot as well as the back foot. I don't think that's really an issue.
+- Sport is a great way to keep fit. It's a stress reliever.
+- I always come into these competitions hoping to come away with a gold medal. I won't relax until I have the gold medal around my neck.
+- I think it's important to feel those losses because I never want to feel like that again.
+- I never went through an easy fight. Every fight has been hard fought.
+- It's such a shame, really, because we were known for our country of saints and scholars, and we grew up with such a great tradition with St. Patrick, and he is the one who brought Christianity to Ireland, and we celebrate St. Patrick's day every single year, but there's very few practising Catholics or practising Christians.

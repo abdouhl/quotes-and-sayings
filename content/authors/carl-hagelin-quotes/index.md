@@ -1,0 +1,28 @@
++++
+author = "Carl Hagelin"
+title = "Carl Hagelin Quotes"
+quotes_len = "22"
+description = "the best 22 Carl Hagelin Quotes"
++++
+- There are guys out there faster than me.
+- You want to play in every game, and you especially don't want to be in the penalty box for five minutes and give the other team a chance to get a power play, and you don't want to hurt anyone on the other team.
+- I love to play tennis. I play a lot in the summer. I'm not a big golfer; I need something a bit more intense.
+- As a hockey player, playing for an Original Six team at Madison Square Garden, where it's packed every night, there's nothing like it.
+- Hair wax is my go-to. When it comes to shampoo, I use whatever is at the rink.
+- I like to wear tight jeans. Most of my stuff is pretty slim fit.
+- There's always pressure playing in the NHL. You want to play your best game every game. Expectations are always gonna be there; it's just important that you know how to handle expectations.
+- I had more friends on my hockey team than I did on my soccer team. I might have been better at soccer, to be honest. But I think it was more the friendship, and my family was more of a hockey family than a soccer family, so when I had to make a decision, I tried hockey, and it turned out to be a good decision.
+- I never want to hurt anyone on the ice. That's not the type of player I am.
+- Boating on the lake is one of my favorite summer activities.
+- When I'm in the city, I like to go to different events and get introduced to different people. That's what New York is all about. There is great diversity, and there are people from all over the world who have done amazing things. That's my favorite thing to do: meet new people.
+- 'Superbad' and 'Remember the Titans' - two movies I can watch over and over again. I watch 'Superbad' whenever I need to laugh.
+- As a kid, I was so short, it was tough for me to keep up with the taller guys. I always had quick feet, but I just didn't have any power, really, as a kid.
+- I think I always just want to get better at whatever I'm doing... Always strive for excellence.
+- Since we travel a lot as a team, I spend a lot of time on a plane where I like to play 'Football Manager.' I have been a soccer fan since I was 5 years old, so to be able to manage soccer teams is a lot of fun.
+- In Sweden, they broadcast the American shows in English with Swedish subtitles, whereas in many European countries they dub them. Watching those shows in English was big for me.
+- Growing up in Europe, tight clothing is pretty standard. When I got to college, clothes were loose, so I was going toward more loose stuff. As soon as I got back to New York, I started wearing suits 25% of the year. Then, I realized how important it is for the suit to really fit you and be tight.
+- Being surrounded by hockey, I got forced into it as a kid. I started skating when I was 4 and had a rink only 10 minutes from my home. In my town, we had one outdoor rink and one indoor rink, so you could skate all year long. I lived by a lake, too, so we did a lot of skating on the lake.
+- Being in my best shape, my conditioning, it's something I pride myself in.
+- Ranger fans, they're expecting you to win, so you really want to show up every day.
+- I went to hockey camp at Michigan because my dad has some relatives in the Ann Arbor area. We went to visit them as kids, and you start to learn the language from being around people. At the same time, when I got to college, I thought my English was better than it really was. I learned a lot over my four years.
+- For guys who are into fitness, I think it's important to wear slim-fit stuff that is pretty tight so they can show off the bodies they have been working hard to have. Women are going to appreciate that.

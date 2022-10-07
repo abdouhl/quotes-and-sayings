@@ -1,0 +1,32 @@
++++
+author = "Clare-Hope Ashitey"
+title = "Clare-Hope Ashitey Quotes"
+quotes_len = "26"
+description = "the best 26 Clare-Hope Ashitey Quotes"
++++
+- If I only worked in England for the rest of my life, I wouldn't feel like I failed.
+- Sometimes it's great when, you know, you're sitting down to watch a straightforward story, and you know how it's going to go, and you know how it's going to end. That's a fairy tale.
+- I can't imagine how hard it must be to invest in a community... when you don't feel heard and when you don't feel seen.
+- I was very surprised when I first started spending time in America. The culture shock was something I wasn't prepared for. I had a lot of work to do to try to begin to understand this enormous and complex country that I thought would be an easy process.
+- There's so much to consume that it's very easy to read a headline in the news outlets that you subscribe to that you maybe support and go 'This is how I feel.'
+- We can all be self-destructive. I make terrible choices all the time. It's uncomfortable to admit that you did a thing that was selfish and that you knew would hurt someone else.
+- Scripts specify 'minority' when it doesn't seem necessary. Given this is a traditionally liberal and progressive industry, it's surprisingly backwards.
+- From the smallest misdemeanor up to the biggest crime, everyone is brought before a judge. And that means there's a huge backlog in the American legal system. There are prosecutors and public defenders and judges who are trying to keep their head above water in the tide of this bureaucracy and red tape.
+- Between Trump's election and Brexit, there were all sorts of opinions coming out of the woodwork that I thought had died out a long time ago. I was like, 'What's the point?' All we do is bad things. The history of humanity is the history of people exploiting each other.
+- We all are just people, and something happens, and we make a decision as a result when something happens, and it could be a poor choice or a good choice or anywhere in between. But we make that decision in the moment, and we live with the consequences.
+- You look around, and you think, 'Given the chance, if we can get away with it, people are going to be nasty to each other. They're going to pull up the draw bridge; they're going to draw up the ladder and try to live in this little bubble without giving anything to anyone else - without even receiving anything from anyone else.'
+- I think we've all done things that are a detriment to ourselves, and we've all made good choices that have brought good things for us.
+- Sadly, I think that 'Children of Men' has only become an increasingly relevant and realistic portrait of where we are in the world.
+- I'm very instinctive when I choose my roles, and usually, the number one thing has to be the director.
+- I think people have always had ambiguous relationships toward the police because of the position in society they occupy. But that anxiety and that animosity isn't as strong in other places as it is in the U.S., partially because the police are armed here.
+- It's not so important to me where I work. A lot of good writers and directors and actors come out of Hollywood, so obviously it would be great to work there, but there's some great stuff coming out of Britain, so I'm going to see what comes from all angles.
+- I can't think of an experience I've had with police that I felt was based on race, which is one difference between England and the U.S.
+- Try to understand that behind every headline, there are individuals, families, and communities.
+- With so much racial tension and issues between the police and black and minority ethnic groups, there needs to be more in-depth conversations if we're going to fix anything.
+- I went downtown to the courthouse pretty late at night, and arraignment court was on. You have these prosecutors and public defenders and judges and all of these people who are there on a Friday night at half past 12, and how can you expect people to bring their judgment and their best selves to their work at that kind of time?
+- If you are watching a fairy tale, that's why you go to fairy tales: you want these uncomplicated stories and uncomplicated characters. But if it's meant to be real life, you want there to be some reflection of your experience and have something you can hook into.
+- 'Top Boy,' for some people, was very controversial because it seemed to be portraying black people in a certain light that they thought to be stereotypical. However, what I would say is that the writer went and lived in Hackney in East London for a long time and did his research really well.
+- I feel like there is a real lack of empathy - not just in American society, it's definitely happening in Britain as well - and it's heartbreaking that people can see something and not feel it.
+- After I finished university and started going to auditions again, and I also did a bunch of other jobs. I worked in the insurance industry, the digital media industry; I worked in a financial services company for three years.
+- You meet people, and you're like, 'I don't know how I feel about you,' and someone does something surprising that changes your mind. We're interesting creatures; we're nuanced, complicated and layered, and we make all sorts of choices.
+- No one tells actors anything; we're always the last people to find out.

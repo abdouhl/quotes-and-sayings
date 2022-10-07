@@ -1,0 +1,17 @@
++++
+author = "Anita Desai"
+title = "Anita Desai Quotes"
+quotes_len = "11"
+description = "the best 11 Anita Desai Quotes"
++++
+- I try to trace the connection between the characters and that way a story or plot emerges.
+- Ever since I could first write I have been doing so. When I was taught how to write and read at school, I made up my mind that this was what I love to do best and this was the world I was going to occupy.
+- When I was very young, I used to share much of what I wrote with my family, but as I got older and more self-conscious, it became a much more private process.
+- India is a curious place that still preserves the past, religions, and its history. No matter how modern India becomes, it is still very much an old country.
+- People think that because I write about India I must be trying to portray India in a way.
+- My style of writing is to allow the story to unfold on its own. I try not to structure my work too rigidly.
+- Someone who wants to write should make an effort to write a little something every day. Writing in this sense is the same as athletes who practice a sport every day to keep their skills honed.
+- Usually a feeling of disappointment follows the book, because what I hoped to write is not what I actually accomplished. However, it becomes a motivation to write the next book.
+- Many characters in the novel are representative of types that exist in India. He represents the caste system in India with an air of superiority, the caste system in India and the people thinking that western things are better.
+- I aim to tell the truth about any subject, not a romance or fantasy, not avoid the truth.
+- The book begins and ends with the visits to give the impression of a tunnel into their ancestors and family history. I believe in going backwards into the past - I felt I was digging a tunnel back to the past.

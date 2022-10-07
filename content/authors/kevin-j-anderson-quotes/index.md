@@ -1,0 +1,42 @@
++++
+author = "Kevin J. Anderson"
+title = "Kevin J. Anderson Quotes"
+quotes_len = "36"
+description = "the best 36 Kevin J. Anderson Quotes"
++++
+- There is grand romance in The Lord of the Rings. It's an important part of epic literature.
+- If you look at the British royal family and take away the scandals and the goofy stuff that's going on, people love to have this king to look up to - the royals are like celebrities.
+- We wanted to write the first prequels as a story that anyone could pick up.
+- The great secret behind classified projects is that most of them are so utterly boring and uninteresting that James Bond wouldn't even take a second look at them.
+- It was like there was a pile of kindling that was in the back of my imagination just waiting there. Once I lit it, it just flared up and I kept getting ideas and ideas.
+- I'm talking to you and it's basically a direct communication, whereas if I'm writing a letter to you and you read the letter, there are like 12 extra deconstruction and reconstruction steps in the communication.
+- I always had this non-stop drive. I had to keep sending stories out and every once in awhile I'd get something accepted or get the little trickle of positive feedback.
+- I wanted the feel in these books to be like an epic fantasy, with kings, queens, dukes and court politics, but of course like what I was explaining before, about making the science make sense, you have to make the politics make sense, too.
+- In a certain sense, this guy - who is one of the most evil people in the book - he's not really that bad at running the show, because he knows what he's doing, he's smart and he's got the big picture in mind. He's like the Godfather.
+- The people who make policy decisions should damned well know what they are talking about before they make the decisions. There is nobody who is an expert on cloning who would be afraid after seeing Attack of the Clones.
+- I don't think the author should make the reader do that much work to remember who somebody is.
+- One of the things that was kind of shocking for humans... was to come to terms with was the fact that, hey, we may not be the center of the universe.
+- We sat around on a hotel balcony with a bottle of wine and tried to figure out how you would go about blowing up a planet. That's the kind of conversations science fiction writers have when they get together. We don't talk about football or anything like that.
+- I want to make it so that so many things happen... that you didn't expect would happen in this series, that you realize that you have to read every one of them.
+- I got to spend all of my time every day at work reading and editing papers about cutting-edge technical research and getting paid for it. Then I'd go home at night and turn what I learned into science fiction stories.
+- Do you want Columbus to go across the ocean, or do you want to put a message in a bottle and hope that it lands somewhere? I'd rather have actual people be there. Whether they look like Americans or like the inhabitants of some other country, depends on who has the most drive.
+- I think that somebody with the resources and innovation and the idea is going to come out of nowhere and come up with a successful space travel program.
+- Dune is the bestselling science fiction book of all time. It's something you really need to read in your lifetime. If you're going to read The Lord of the Rings, which everyone should, then you have to read Dune, too.
+- I sold my very first novel when I was 24 or 25 years old.
+- I had a minor in Russian history, and this was at the time when the big Cold War was going on.
+- Over the years, I've trained myself to speak using the same language I would use if I were typing: meaning using full sentences in the way that paragraphs and scenes are arranged.
+- Wouldn't you like to have an augmented memory chip that you could plug into your head so you don't have to look everything up and remember everything?
+- I always turn in my books on time, so you can always count on a book coming out when it's supposed to.
+- My dad is a bank president and my mom was an accountant and they didn't think that seeking the life of a freelance writer was very practical, you see. Of course, I was just as determined to do it.
+- If I could go back in time and tell my younger self that eventually that I'd become very successful writing Dune books after Frank Herbert's death, I would have laughed myself silly, I think, at how strange that prospect would be.
+- If you had an alien race that looked like insects, then they would build robots to look like themselves, not to look like people.
+- I mean, I wasn't stupid. I knew we'd make money and sell a lot of Dune books.
+- Every spare second I would write, somehow. On my lunch hour, too.
+- Each book will have a lot of cliffhangers, because I like that.
+- My total year's income from working as hard as I possibly could from writing went from like $30 one year to about $70 the next year. And it made me realize that maybe you couldn't really pay the rent that way.
+- I think now I'm up to something like 85 different titles that I've published.
+- I've had the same, full-time assistant and typist for eight or nine years now. She's read everything I've written, she types everything and does a good job, translates it and makes comments.
+- I did several interesting jobs, working in restaurants, I worked at a lab rat farm, feeding and watering all these rats. Then I got a full-time job as a technical writer for a large scientific research laboratory.
+- Sure, President Bush can say that the U.S. government won't fund stem cell research, but believe me, Japan is applauding. Because they will just do it first and get all the patents.
+- Of course you don't make any noise in space, because there's no air.
+- Telling your story out loud is the way human beings communicate. We don't normally think up words, translate how to spell them and then move our fingers up and down over this randomly arranged set of keys to make the same letters appear on a screen.

@@ -1,0 +1,40 @@
++++
+author = "Tim Lahaye"
+title = "Tim Lahaye Quotes"
+quotes_len = "34"
+description = "the best 34 Tim Lahaye Quotes"
++++
+- But the Jews will also be believers, so you can say that all the saints, both gentiles and Jews, will go into the millennial kingdom and populate the earth.
+- What Jerry has done, in a masterful way, is go through and select portions of the Scripture and put words in Jesus' mouth that are legitimate because they already appear in the Bible.
+- I came to the conclusion that I am not a fiction writer.
+- If you could see the instructions that I gave Jerry to begin with, I'd be embarrassed.
+- The book of Revelation says that we no longer need the sun or the moon, for Christ is the light of the world.
+- New fiction writers are a special breed in my estimation, and I never dreamed that so many people would be interested, but I remember being led by God.
+- It's the lie of evolution that all man are just evolved and that they're all equal, and that all creatures are equal.
+- I'm currently working on a Mind Siege for youth.
+- Jerry and I hoped that it would be a popular bestseller.
+- And then I met Jerry and he's such a creative fiction writer, and I don't know if there's ever been a team put together the way we are - where one person does the theological way out and suggestions, and the other person goes into the cave and does the fiction writing.
+- About 40 years ago I had an experience where I wrote a tract.
+- People recognize something's going to happen, and they'd better get ready.
+- You have to take Bible prophecy literally, just like everything else in the Bible.
+- There are the saints who were raptured at the beginning of the tribulation period - those are the Christians.
+- I think it's Jerry's masterful fiction writing.
+- If Jesus is the Son of God in human flesh, He's one of a kind of the 13 billions of people who have ever lived.
+- The tribulation period is seven years, and when the signing of the covenant occurs, people who know the Bible and take it literally will know that, seven years later, Christ is going to come in His power and glory.
+- But then one day the Lord put us together through our agent and it's been a wonderful match.
+- Yeah, I have been because, generally speaking, to we Biblical literalists, the media is very hostile.
+- When you allegorize, you're gonna get everybody saved somehow.
+- The unsaved people will be cast into utter darkness forever.
+- And part of my vision is to do dynamic videos for kids.
+- I think God has chosen to use this as a tool.
+- One of the comments that we've heard that has really blessed us is people have been driven back to the book of Revelation to prove us wrong only to find that what we said was there.
+- The curse of Adam and Eve that fell upon the earth because of their sin will be lifted when Christ returns.
+- Yes, in fact, it's hard to believe this, but it was almost 18 years ago when I first got the idea.
+- There were times I didn't think we would ever make it, even when we were cranking two out a year.
+- It's going to be used in the last days to get people to come against Christ, and that's the issue: they come against the Lord Jesus Christ. And in this new book, we show Christ coming to settle that big issue.
+- Yes, I think that when the Bible refers to a horse or a horseman, that's exactly what it means.
+- But when you take the Bible literally, for what it says, you have to come back to the fact that there is only one way of salvation; there's only one Savior.
+- I've written many nonfiction books, but that's a special gift.
+- When I gave my life to the Lord, I thought I'd be a preacher.
+- All people, even secular people, are seeing books on the market like The End of History.
+- After I'd preached a message on Sunday night, I'd print it up.

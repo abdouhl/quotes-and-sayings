@@ -1,0 +1,47 @@
++++
+author = "Inbar Lavi"
+title = "Inbar Lavi Quotes"
+quotes_len = "41"
+description = "the best 41 Inbar Lavi Quotes"
++++
+- I find great joy in tradition, and, in fact, I seek it.
+- Anywhere warm would be ideal for me to shoot 'Imposters!' Thailand would be fantastic.
+- I definitely have conned a lot of people in my day. I'm not proud of it; it sounds like I am, kind of, now that I'm saying it.
+- I think, basically, if you talk to anybody, you can gauge an idea of what it's like to feel deceived. You don't have to have run into a con artist to feel like you've been deceived by someone.
+- I don't come from a wealthy family, so for me to have to struggle as long as I have in New York and Los Angeles and finally know that I have an income coming in for the next 10 episodes was a major, major life-altering moment.
+- The happiest that I remember myself was putting on plays and pretending to be other people.
+- I'm still far away from the person I want to be, but whoever this is for now, she's all right.
+- I hung onto Hollywood by the skin of my teeth, and at first I fought over every piece of bread. Later, I got very small parts.
+- I was a dancer.
+- My curls were my worst nightmare growing up.
+- I have a massive head of hair: it's a Jew 'fro. It's living and kicking.
+- 'The Last Witch Hunter' follows an immortal witch hunter played by Vin Diesel, and his job is to stop a plague from spreading and destroying the human race.
+- The Beverly Cinema in L.A. screens old, artsy movies for half the price of regular theaters. It has an old-school vibe to it. It's cheap, and the selection of movies is always interesting and different. Very romantic!
+- As we see in life, change is hard. Even if you genuinely want it and make the effort, sometimes it's hard to get it.
+- Growing up, I felt a little bit invisible.
+- I think finding a character starts in hair and makeup, fitting room. That's where it all kind of falls into place.
+- I think that we all desperately try to fit in to different molds: our parents, our bosses, our partners, social status, friends. We all figure out a look that we think will get us the job or make his parents approve of us or get that girl to want to go on a date, whatever. We all change ourselves to please whoever it is.
+- There's so much serenity that comes from economic safety.
+- I did lie once to get a job as a bartender. I said I had two years' experience making drinks, when really, I'd never made a drink in my life.
+- I keep saying this, and I truly mean this: I think that when you experience true love, it never really goes away.
+- I can understand wanting to escape your life and be someone else.
+- Curly hair is not just a hairstyle: it's kind of a lifestyle. There is something really free and careless about it and loose and kind of naughty. I love it.
+- Regret is a waste of time and energy and doesn't do a thing for me.
+- I take great pride in portraying a strong female character who is independent and can take care of herself. I don't think we get to see that enough in television.
+- I always wanted to be an actress, but I was embarrassed to say so, and somehow I found myself in the dance track. I'm very competitive, and I wanted to be the best in that field, too, although it didn't really speak to me.
+- I was working maybe four different jobs just to make ends meet. I was really broke. I could barely pay rent. I didn't have a car. I was riding my bike from one job to another and then to audition in between.
+- Any time I push through a fear, I'm proud of that.
+- People in Chicago are so cool! They are different; they're friendly and just genuinely happy. Everyone's so polite and sweet. They even look cool.
+- My dad is Polish. My mom is Moroccan, and I grew up around all kinds of different languages, and I love playing with it, and I love picking up new melodies.
+- I was playing a singer-songwriter, so I started writing, and I started going up to different places around Los Angeles and reading poetry of my own, which terrified me, but I had to do it. I picked up a guitar and started learning guitar.
+- I love any project where I get to push myself and learn new things.
+- I'm a bit of a reckless driver.
+- I come from Israel, where most of the population is dark-haired, dark-skinned, dark-eyed.
+- I'm very family-oriented.
+- My worst job would have to be waiting tables at a restaurant in N.Y. My boss was evil.
+- We're all playing a role. You're playing a role at home, you're playing a role at work, you're playing a role to survive.
+- It's never fun when you trust someone and that trust is betrayed.
+- I used to just go up to strangers and tell them really elaborate stories about who I was and where I was from and try to spice my story, which I didn't think was very exciting at all. That gave me a sense of life, a sense of excitement - but I don't do that anymore.
+- My mom's side is very Orthodox, and my dad's side is the opposite, very liberal. I got a taste of both worlds, and I got to make up my own mind. I'm somewhere in the middle, which is a good place to be.
+- A way a woman walks and talks and moves and behaves is completely connected to how she looks.
+- With 'Imposters,' I finally felt I had gotten something I could sink my teeth into. It's a dream come true, and I couldn't ask for a more fulfilling and challenging experience. It was something I didn't expect. A real surprise.

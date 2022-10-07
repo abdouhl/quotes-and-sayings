@@ -1,0 +1,52 @@
++++
+author = "Lesley Nicol"
+title = "Lesley Nicol Quotes"
+quotes_len = "46"
+description = "the best 46 Lesley Nicol Quotes"
++++
+- People I've never spoken to before come up to me and give me a hug.
+- The first meal my husband ever made me was a chicken curry. I have never tasted anything so delicious in my life.
+- I want to have a scene with Maggie Smith.
+- I took a cookery course. On the examination, I had to cook a cheese omelet with peas and an egg custard. With the egg custard, which was supposed to be a dessert, I forget to put the sugar in, so that's more of a quiche, isn't it?
+- I'm very lucky to have a husband who cooks, for a start. It's a good partnership. I met him through a friend, and we just hit it off.
+- People are always asking me for my favorite recipe, and I have to say, 'I don't really have one.'
+- One of the Sunday newspapers asked me to make my favorite dish, and they photographed me holding it in the kitchen. It was roasted salmon with roasted vegetables. That's not cooking; that's putting things in a pan. It looked quite nice, but I'm not saying it was good.
+- I inherited my weight problem from my mum. She was always on diets. If there was a box of chocolates in the house, she'd eat half a chocolate, then put the other half back. She loved me, but she did encourage me to diet in my teens.
+- I don't do freeways.
+- I mean, I've done musicals, but it's not my best thing.
+- I've not cooked Christmas dinner since 1982.
+- I can do basics, but I'm not a proper cook. I can do a roast. I can stick a chicken in the oven with vegetables.
+- I'm not very good with conventional, prim-and-proper people who are well-behaved, grown-up.
+- I never imagined I'd go into acting, but I always loved drama, and when I was 16, I discovered the Library Theatre up the road. So I plucked up courage and asked if I could watch rehearsals. It was like Heaven.
+- As an actor, you never know where the work's going to come, so you have to be flexible about it.
+- 'Sweeney Todd' is my favorite Sondheim musical.
+- My poor cooking is legendary among my friends.
+- I know it sounds funny, but every time I have a disaster in the kitchen, it knocks my confidence level a little bit more, and I feel annoyed with myself that I can't do better.
+- I think I should be a nightclub singer. I love to sing!
+- I get invited to a lot more glamorous parties since I've been in 'Downton Abbey,' which has made me much more fashion conscious.
+- When you look back, I think things are as they are meant to be. Timing is very important.
+- I always admire people who have passion.
+- At the drop of a hat, people will say there are no roles for women after 40. It's there with a bunch of other rules I'm not interested in.
+- My husband is a martial artist, and he thinks it's hilarious that I have a stage-fighting-proficiency certificate. He thinks that's ridiculous. Can't say I've used it much.
+- I was painfully shy as a child.
+- Since I've turned 50, I've had the best roles of my life, and I've got married. Everyone said that wasn't possible because there are no men, but I've done it. I think it's just going to get better.
+- I don't have any rules when it comes to clothes. I'll wear anything if it fits and looks good.
+- When I heard I had gotten 'Downton Abbey,' I remember I was standing on a freezing cold street in Manchester where we were shooting the Manchester part of 'West is West.'
+- I believe anything can happen.
+- The first role I played was Madame Ranevsky in 'The Cherry Orchard.'
+- I wish I could play the piano. I started when I was four and finished when I was five. I got bored. I couldn't tell my left hand from my right back then!
+- I quite like L.A.
+- I did an O-level in domestic science when I was at school, but on the day of the practical exam, it was a cookery nightmare.
+- People have preconceptions about women of a certain age.
+- I have been invited to do something called 'Celebrity MasterChef' in England, which, of course, I can't do. It's complete nonsense. You have to be a decent cook to begin with. I'd be the joke one.
+- For many years, I picked the wrong men, or they picked me. I think if you don't feel attractive or worth something as a woman, you attract men who don't really look after you. That's what happened to me, but I realise that those relationships were like a journey, helping me to learn something about myself.
+- I go dog-walking a lot.
+- Coming eyeball to eyeball with a hummingbird on my terrace is as exciting to me as any celebrity I've met as a result of 'Downton Abbey.'
+- For years, I've felt that there's an inner cook in me just waiting to be unleashed. But I have to confess I'm having an awful lot of trouble finding her in real life.
+- I've been to the White House and had Hilary Clinton push through the crowd to come and meet me. Chelsea Clinton, too.
+- Visiting a show that's already established can be a bit daunting, as they've been a family already, and you're the newbie.
+- I guess that is my favorite thing - to make people laugh and also to maybe engage them emotionally and touch them somehow in telling the story.
+- The first time I ever got up on a stage, I did a comedy poem. I don't know how I got there in the first place because I was very, very shy.
+- I'm an ambassador for Medical Detection dogs.
+- I met Bette Midler, who I absolutely love.
+- I sometimes wonder what it would have been like if I'd got 'Downton Abbey' when I was 22.

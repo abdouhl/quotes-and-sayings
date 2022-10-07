@@ -1,0 +1,22 @@
++++
+author = "Chris Hayes"
+title = "Chris Hayes Quotes"
+quotes_len = "16"
+description = "the best 16 Chris Hayes Quotes"
++++
+- It is genuinely shocking to me that I'm on a television show.
+- I grew up in a household where we talked politics a lot and argued politics a lot.
+- Those who are able to climb up the ladder will find ways to pull it up after them, or selectively lower it down to allow their friends, allies, and kin to scramble up. In other words: 'Who says meritocracy says oligarchy.'
+- My dream when I was 14 was someday I could have a David Levine caricature of me in 'The New York Review of Books.'
+- I think people should be angry at things that are worthy of anger. Injustice is outrageous and deserves outrage.
+- I think you'll see if you look at 'Up', we've focused a lot on labor (and the forces trying to keep labor down) and have featured everything from Wal Mart workers, to on-the-ground organizers, to union presidents to restaurant workers sitting at the table sharing their experience and expertise.
+- Every sentence stands on its own. Whether that's fair or not, that's kind of the way it is.
+- I have always viewed thinking about arguing, about questioning, pushing back with, joking, about sharing and discovering the world and the news as enjoyable, the same way that I view watching basketball.
+- My disposition as a human being is kind of a go-along-to-get-along person. I tend to trust authority.
+- Successful prime-time television of any genre produces some kind of emotional reaction in the viewers. There are a lot of different emotions to tap into. The emotion of the reward of discovery, the feeling of righteous anger, the feelings of pathos and sadness, or sentimentality of being moved by something.
+- I got my start in lefty journalism as a labor reporter at 'In These Times', and it's in my blood.
+- Reading off a Teleprompter is an easy skill to do passably well and a difficult skill to do very well. I still have room for improvement there. I still talk too fast and I'm trying to slow myself down.
+- I grew up in the Bronx.
+- I give so much credit to the 'Up' team who created appointment viewing on the weekends for us and some of the smartest conversations on television.
+- My mother was a teacher, my father was a community organizer. I come from a working class background.
+- You start noticing that people are noticing how you look, and it is a profoundly alienating experience when it first happens, where you go on TV and you say something about some topic of the day, and on the Internet people are like, 'What was up with that shirt?' 'What was up with your hair?' And you think, 'Oh, that's kind of a bummer.'

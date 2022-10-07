@@ -1,0 +1,26 @@
++++
+author = "Keyshawn Johnson"
+title = "Keyshawn Johnson Quotes"
+quotes_len = "20"
+description = "the best 20 Keyshawn Johnson Quotes"
++++
+- I'm not a savior.
+- So many times in my life, people have tried to make me a failure.
+- I'm smart enough to know, 'Don't try and make any headlines.'
+- The championship, in my eyes, in television, is obviously an Emmy.
+- The definition of swagger, in my opinion, is you have to have that arrogance, that confidence that you are the best out there at all times.
+- The wide receiver position is such a complex position.
+- I'm not even thinking about going back to play football at all. My mind's made up. I'm done.
+- If you were ever to interview me after a football game or at a football game or around me during football season is totally different than when you catch me away from football.
+- There are not a lot of athletes that are going to get their own shoe.
+- No man is invincible.
+- How can you not respect somebody like me? If you don't respect me, it's because you got hatin' all over you. If you don't like me, you don't like yourself.
+- I never really called people out. It was more along the lines of teasing a person. It started for me in fifth grade on the basketball court.
+- When I'm on television, I'm talking to millions of people, so the conversation is totally different. My words are different. My diction is different because now I'm really talking American English and not homeboy English.
+- I'm trying to build a brand, so I can sell Keyshawn Johnson products in stores. You know, paint, rugs, carpet, drapery, fabrics, blankets, towels, hardware, plates.
+- I was the first athlete, from a training standpoint, with Adidas to have their own signature shoe.
+- There are already gay players in the NFL and have been for a while.
+- When I came out of college, shoe companies can identify marketable people, and I think I was identified as someone who could potentially move some units and merchandise.
+- I know talent when I see it. I know frauds when I see 'em. I know players that can play and can't play.
+- At the end of the day, all I want to do is protect my kids.
+- Only a handful of professional football athletes have had a signature shoe, unlike in basketball where there have been a number of guys.

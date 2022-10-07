@@ -1,0 +1,53 @@
++++
+author = "Laura Prepon"
+title = "Laura Prepon Quotes"
+quotes_len = "47"
+description = "the best 47 Laura Prepon Quotes"
++++
+- I'm not a sun person.
+- For me, personally, I watch pretty much everything on Netflix, and I watch all the episodes in a row, when I can.
+- The worst diets are ones that restrict your calories too much and try to trick your body. You have no energy, and it's ridiculous.
+- Networks, especially, micro-manage everything to death.
+- There's nothing you could say that would shock me.
+- When you're in prison, and we're left to our own devices, you're stripped of everything, and you really get to see who these people are, the good and the bad.
+- But now that I'm a blonde, guys are so blatant about coming on to me.
+- I eat super clean and am always watching what I eat.
+- Netflix is amazing 'cause they trust the creator to do their job, and they trust us to do our job. They're really smart and just let us do our thing and deliver a great job.
+- I don't know how people recognize me.
+- I don't want to do anything like Can't Hardly Wait, I don't want to do anything like Scream. I saw all those movies, and they were good, but they're just not what I want to do.
+- I love being a redhead. It's a rare thing, so I think there's a bond between redheads.
+- The thing that sucks is that there's so much false data because people are in mystery as to what Scientology is, so they just kind of make up stuff.
+- They have to be able to spark my interest so I want to pursue it, and they have to have an awesome personality, really laid-back. All those things are sexy to me.
+- I always have really fresh, hormone-free, additive-free chicken, healthy veggies, and brown rice in the fridge to grab because I'm always on the go.
+- I never think of myself as any kind of sex symbol, but I get letters from all over, all sorts. It's really cool. I get a lot from inmates, which is kind of scary. But the best was the guy who wanted to send me a plane ticket to fly me to his prom.
+- You can't control where your heart goes.
+- My vintage Levi's are my favorite on the show, 'cause they really fit.
+- My family was very unorthodox. My mother was very eccentric and amazing. She always treated us like adults.
+- On a lot of shows that I've done, we had the same directors, which was cool. But then, it's also great to do shows where the director changes every week, because you get to see all these different personalities and see what you like dealing with better, as an actor.
+- I moved to Milan when I was 15. I was always looking for something; I never really felt like I belonged where I was, so I went to live overseas.
+- The first acting I ever did was an Italian commercial. Once I did that, I said, 'this acting thing is awesome.'
+- I'm obsessed with 'Homeland.' It's not even okay.
+- People in general have a preconceived idea of what prison is, from seeing documentaries or whatever.
+- But, I swear, they're turning Donna into Annie Hall this season. More ties. More suits. But they're also keeping her really motivated, ya know? Like, wanting to be a rock journalist. Wanting to be the first woman president.
+- Free love sounds great.
+- I'm the type of person that will do triple sessions in one day. I'll do Pilates, I'll do spinning, and then I'll go to the gym and do weights - which is insane.
+- I can't stand being around anal people, especially anal people with big egos.
+- I used to wear boxers and a tank top, but now I sleep in the nude. It's kind of weird, because I used to have to wear something to bed, whether it was a tank top or whatever. And now if I have any clothes at all on, it's really hard to get to sleep.
+- I've realized how important it is to have women in your life. You get to a certain age where you're like, 'I need women around.'
+- For some reason, I like to put myself in situations where I don't even know how I ended up there. I never want to be complacent or comfortable in a role.
+- When you're not under a 'series regular' contract, and other jobs come up, you try to juggle everything.
+- I am so like Donna it's funny. And most of my friends are guys too.
+- I'm the tomboy so I got to be a little butch.
+- Some of the stuff that Wilmer wears is bad. And Debra Jo.
+- Acting wasn't even in my world at all. My oldest sister worked at 'Glamour' magazine and said I should model, but I had no interest.
+- Even in real life, I'd rather hang out with guys.
+- I love entertaining and doing Martha Stewart stuff.
+- The fact that anyone would find me sexy is very, very flattering, but ridiculous. I so don't believe it. But I'm flattered. Truth is, I don't lift a finger to look sexy. Ever.
+- In any character I ever play, whether she's good or bad or whatever, my most important thing is heart.
+- You can always turn a bad kisser into a good one.
+- Our poker table is eight guys, and then I'm the ninth; I'm usually the only girl at the table.
+- And my mouth is not a sewer, although some people may think it is.
+- It's funny, I used to say on 'That 70's Show', you could really put us in any decade, and it was about the people and the characters and that we cared about each other.
+- I like to think I'll just be walking down the street one day and stop and meet someone, like, 'Oh my God, you're awesome,' and then we start dating.
+- Now that I know what goes into making a pilot, keeping it on the air, and keeping your fans, I'm at a point now where I do a pilot and just hope for the best. If it doesn't work out, it doesn't work out.
+- Every girl on TV, in real life, sure you want to meet that soul mate and fall in love and have the big thing, but until that happens, you gotta kiss a lot of frogs.

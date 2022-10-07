@@ -1,0 +1,106 @@
++++
+author = "Luke Kuechly"
+title = "Luke Kuechly Quotes"
+quotes_len = "100"
+description = "the best 100 Luke Kuechly Quotes"
++++
+- I try to get most of my stuff in so during the week everything is kind of laid out and I understand why our coaches are calling certain defenses, what the game plan looks like in reference to what the other team is doing.
+- We've fished down in Naples, Florida. We've fished out in Idaho. We've been everywhere fishing, and I think the best part of it is that it brings my family together and it gives us an opportunity to be around each other.
+- Aaron Rodgers is on a different planet.
+- If you can't play with your hands you can't play.
+- All of the linebacker spots are pretty similar, they just have different intricacies.
+- Putting on weight and keeping it on is important, so I'm a big post-workout protein and branch-chain guy.
+- I think things I want to be good at, I really push myself.
+- I think I do a pretty good job preparing myself. That's something I take pride in - being prepared and knowing what each individual guy is responsible for. I can point at guys and let them know what they're doing if they have questions.
+- I watch plays that teams run and try and figure out how I am going to get to the ball.
+- Everything with the draft process, from the combine to visits to pro days, that's great but it's not football.
+- I think a lot of people know I like the outdoors, and I like to hunt and fish, and a lot of that has to do with the fall.
+- I think you look at a lot of sports, it starts with the guys up front. Your defensive line and offensive line in football and your big man in basketball, different stuff like that.
+- Speed creates space, it creates problems, it scares people.
+- I just play football. You understand what you are getting into. They're always trying to improve it, make it better and safer and more efficient. It is what it is.
+- Speed helps a lot of things. It can cover up mistakes. I think with the evolution of the offense, with spreading things out more, the better you can run, the better you can be.
+- I always watched football on Saturdays and never did homework. On Sundays I had to do my homework. I didn't get a chance to watch games.
+- Leading by example is something I've always tried to pride myself on.
+- Knowing the team is in your corner is comforting.
+- It's difficult to put weight on.
+- We practice, we work out, we go to camp, we go to OTAs to win games. So all that work goes in and you want to win games.
+- There are a lot of guys that are really good at running the ball.
+- Winning is more fun than any personal stat achievement.
+- As the game progresses and people throw the ball more often, the tight ends have become more and more difficult to guard.
+- You've got to be smart with what you have; it's not going to be there forever.
+- I think I'm a smart player.
+- I love the game of football, I love everything about it, I love the studying aspect, I love the team aspect... I'm gonna miss the interaction, the guys, you know, every day.
+- I just try to go out there and have fun and just get to the ball. That's kind of my goal: just get to the ball and make something happen.
+- There are a lot of guys that are really good at catching the ball.
+- You look tight on camera, it sees it. The camera can see everything.
+- I think you win one game in the playoffs and then you don't go any further than that, it's obviously good but it's not like something that you're like, 'Yeah!'
+- I really enjoy fishing. It's one of those things you have to get in your element for.
+- You go to the playoffs to win the Super Bowl. You don't go to the playoffs to win one game.
+- The lifestyle I grew up with is still the lifestyle I live now: things in moderation, be smart with what you have.
+- I'm open to whatever is best for the team.
+- You don't play the game and ever think about getting hurt, because that slows you down and increases the likelihood of getting hurt. I don't think about it. You just go out there and play.
+- I like being able to run around. That's my game.
+- I love pizza as one of my favorite foods. Pizza and cheeseburgers.
+- Academics are very important.
+- You never know when you're gonna find yourself around the ball, and if you give effort, you're going to find yourself around the ball more than you won't.
+- I worked in the warehouse, and I would pick up orders. I would go to the computer screen, print off the order from a customer and then it would have where all the stuff was located in the warehouse. I'd go get a big gray cart, and you had to fill up these bins with all the parts. And it wasn't air-conditioned in there.
+- I think when you play a contact sport there's always inherent risk and inherent risk to injury. At what point do you tolerate it, and at what point is it enough?
+- I think until we win a big bowl game or do something like that, I'm just a guy who came and played at BC.
+- A football career is a finite career.
+- I try to take a lot of pride in what I can do in terms of knowing the defense.
+- You can be one guy off the field, but when you get on the field the competitive aspect of who you are takes over.
+- Just be nice to everyone because that's the right way to do it.
+- Cam is incredible. Playing against guys like him and a great center like Ryan Kalil - I noticed him right away - is something that can only make me better.
+- Everybody runs routes a little bit differently.
+- You can't ask somebody to talk about themselves. You've got to ask other people. It's like you can't nickname yourself.
+- You can get a young guy and he comes in and he's athletic, he can hit and he can run, but if they don't know what they're doing, they're a step behind.
+- I'd rather have a game where I have two tackles and win than a whole bunch and we lose.
+- I don't really go out. I don't know, it just doesn't really do anything for me. Being around a loud environment with a bunch of people is just not my thing.
+- Nutrition and fluids play a big part in what you're doing. You can work as hard as you want inside a facility, and your program can be great, but if you don't balance it with a quality nutrient plan, you're going to have some issues.
+- When you're growing up you always like the commercials of the guys on the screen that you like watching.
+- Hopefully I can find a way to stay involved in football somehow.
+- With all these teams spreading it out and throwing the ball, that's more my style of play.
+- I played football for my whole life, and I love the game, I love everything about it and I love the Panthers organization.
+- If you can know a guy off the field, I think it helps you on the field. If all you're doing is talking football, maybe you can't get on the same page.
+- The kids who would go to parties, I wasn't friends with them. I was cool with them at school, but I didn't hang out with them.
+- You can't just run in there and expect to get to the quarterback. There's good backs, good linemen, good protection that's designed so it's not easy to get there. A lot of it's technique.
+- I don't need a nickname. My name is Luke.
+- Knowing what everyone is doing, you can play faster.
+- Well being from Cincinnati I thought it would always be cool to play for the Bengals.
+- Everyone's always asking, 'How do you get there so fast ?' I'll make a play in a game, go back, watch the film and even I don't know how I get there.
+- I do a pretty good job preparing myself. That's something I take pride in.
+- I play the game and I understand what's going to happen; you get banged up. But you signed up for it.
+- I was so fortunate to have the opportunity to play the game for eight years and the people around me were fantastic, everybody in the Carolina Panthers organization treated me well, they taught me a lot.
+- What's heavy for me when I lift, probably isn't actually a lot of weight.
+- I think when you're a kid you don't think about money or dollar signs. You think about when you wake up on Sunday mornings, it's NFL.
+- The more you're yourself, the better you can play in the game.
+- I think everybody understands in football, there's a knowledge of risk.
+- I try to stay clean on the field and off the field.
+- There's only one way to play this game since I was a little kid - play fast, play physical, play strong.
+- When you're loose you play better.
+- I think leading's about doing what's natural to you, because if you do what's natural to you guys will follow it. If you do something that's unnatural they're going to know it's forced.
+- All the training for the combine was basically practicing for the different drills that we would see at the combine. Rather than football specific drills that we would do at BC.
+- I think football is a lifestyle more than anything. It's how you eat, it's how you sleep, it's how you conduct yourself. It's just everything you do you have to keep in mind, is this going to help or have a positive impact on how my practice is going to be, how my workout is going to be, how the game is going to be.
+- With a big, strong athletic guy like Gronk who can go up and get the football, the key is staying in position.You have to play with leverage, know where your help is.
+- It doesn't matter who it is, everyone wants to compete, everyone wants to win and you have to do your best because if you let up for one second something bad will happen to you.
+- I'm not going to make my bed perfectly every time. As much as my mom would want me to make it perfectly every time, if I got to get somewhere, I'm not going to make sure that pillow is just right. My toothbrush doesn't have to be in the same place every time. I'm not OCD about that stuff. When it comes to football, I want to be right on everything.
+- You can be as nice as you want off the field, but when you're on the field, you're going to do everything you can to win.
+- For me, you play the game to win, and it's only as simple as that.
+- I'm one guy on an 11-man defence that needs to do his job.
+- My thing is, if you're going to put stuff in your body, it's going to be beneficial. Clean carbs, complex carbs, good proteins, a balanced diet. It's difficult to do it on a consistent basis, but it's pretty straightforward: fish, chicken, lean red meat, vegetables, fruits, complex carbs. The hardest part is putting on the work.
+- It's the right thing to do to help out and give your time, I think that's something that everybody's got the same amount of time and it's, how do you use that time.
+- I've been competitive my whole life.
+- Those are the guys that are the scariest. The guys that can beat you in the pocket and can also beat you running around.
+- Watching routes and studying routes, you can learn stuff that way or you can learn blocking schemes on blitzes. You never know what you can learn just sitting back from behind and watching.
+- One thing that I like about football is it's a team.
+- I'm going to play football, that's what I do.
+- If you put in the work, and give your body the clean nutrients it needs to recover and get stronger, then the good days will outweigh the bad ones.
+- We've been some cool places fishing. My parents and my family all went up to Alaska. We fished for king salmon, and that was really neat.
+- You've got to play hard. The moment you slow down, then that's when you get hurt.
+- I think David Johnson is getting better, if that's possible. I think he's a really good player. I think he can do a lot of things. He's big. He's explosive. He can catch the ball out of the backfield. You can line him up out wide. I think he's a very dynamic player.
+- I just want to win.
+- There are inherent risks playing football, but I think the guys understand it, and the guys not willing to take the risk, who are retiring, that's fine.
+- A lot of what I do is try to watch tape and understand how guys come out of breaks - what their footwork looks like, or how they look at the top of a pass route. Guys have tendencies. I try to understand what they do, which allows me to be successful.
+- I get frustrated with myself very easily.
+- You play with guys who are big-name guys, and you grow up watching them and it's fun to play with those guys.
+- I don't like talking about myself. I would rather talk about other people.

@@ -1,0 +1,76 @@
++++
+author = "Louis Walsh"
+title = "Louis Walsh Quotes"
+quotes_len = "70"
+description = "the best 70 Louis Walsh Quotes"
++++
+- Westlife never got the credit they deserved.
+- I don't care about making a fool of myself at all.
+- It's very hard to meet somebody that you're comfortable with who really knows you.
+- All you need in a successful boyband is two great singers and three okay singers and you get can away with it.
+- I worry about dying all the time so I worry about my health. I don't want to die because I absolutely love my life.
+- Nadine from Girls Aloud could definitely go solo - she's the one with the talent and will have a successful solo career.
+- I do love great pop music, The Hollies had brilliant pop records.
+- I act like I'm a bit stupid.
+- I buy a lot of art. I buy Andy Warhols.
+- When I was managing Boyzone and Westlife there were screaming girls every night. If there wasn't a high-piched screaming, it was a bad gig. I got used to it.
+- I don't know if I'll quit Ireland. I like living here because I like the people here, but you never know what's going to happen.
+- She's not called Scary Spice for nothing.
+- J.Lo cannot sing, but she's still selling out Vegas.
+- Too many artists appear to forget where they came from.
+- I'm a news junkie. Anderson Cooper, I watch him every night. I watch Piers Morgan a lot as well.
+- It's hard work if you want a proper and a lasting career.
+- What's that man's real name anyway? It's not will.i.am, is it? He thinks he's got all the answers, but if he didn't have Fergie in the band, where would he be? Fergie is the real star. I would love her on 'The X Factor,' and to be a judge on the show.
+- I don't want to hang around in a wheelchair in a nursing home. I don't. I don't want to be like that.
+- I'm a good manager, but a bad celebrity.
+- I can't swim.
+- I'm low-maintenance. And I'm not going vegan.
+- Spice Girls appealed to little girls. It wasn't good music - mums would buy the albums for their kids - it was all about the gimmicks.
+- Everybody has auditioned and failed. You learn from that. It's how you learn your craft.
+- I wanna be a manager, because that's my day job. It's my real job.
+- I don't want to be a celebrity. I never, ever did.
+- You can always spot the professionals. Taylor Swift, she knows what she's doing.
+- My sexuality is irrelevant.
+- Everybody says they were 'born to sing' but you can suss the good from the bad. You can tell who's in it for the music.
+- I'm loving 'X Factor,' I'm having the most fun. I love the idea and I love the celebrities.
+- A lot of people who want to be serious artists probably don't want to go for a talent show, but it is a great launching pad.
+- It takes a very wise man to act the fool.
+- The thing with One Direction is they were massive worldwide. They were going from continent to continent, right across America.
+- Niall Horan was in the right place at the right time, he's the luckiest guy in the world and he knows that.
+- I just love music. I am very good at music.
+- Simon and I are good pals. We're friends except when we walk out on 'The X Factor,' he always has a go at me. And I never expect it. We're good friends behind the scenes, we do Westlife together, we are friends.
+- I like insult comics. Joan Rivers, Dame Edna, people like that.
+- I think Dublin is the best place in the world, all you need is money. I feel safe here, no one is going to shoot me, like in the States.
+- I want to carry on in the music business and in television because it's basically a hobby and a passion that I actually get paid for.
+- I've had three Eurovision winners: two with Johnny Logan and one with Linda Martin and even Jedward did great, because 'Lipstick' was a great song and they had a great show. It was a great visual.
+- I love Hozier.
+- You don't bring your wife to work.
+- All I do in Dublin is relax and live away from the cameras. There are a few coffee shops I love and I spend my days in there drinking cappuccinos.
+- There's nobody knows more about dancing and choreography than Arlene Phillips, ever.
+- I say things I shouldn't and I can't stop myself. It's called no filter.
+- Money doesn't make you happy - I know people in the U.K. with money, they never seem to be happy.
+- The 'X Factor' is the biggest show on TV and the other shows are just copying us with their silly chairs. Simon Cowell is the king of TV and if he's not involved then it's not good.
+- I married Stephen Gately off to so many people because Stephen didn't want anyone to know he was gay at the start. He was dreading all of his life that this was going to ruin his career.
+- I love doing 'X Factor,' I absolutely love it. It has its highs and lows. Sometimes I love it more than other times. It is the best job in the world though.
+- Sharon Osborne, my good friend, sent me to her doctor to have my eyes done in L.A., and it made me look 10 years younger.
+- I hate putting on weight.
+- A Westlife reunion is definitely going to happen - but I have no idea when.
+- I hate 'The Voice.' I think everyone thought 'The Voice U.K.' would be like the U.S. version, and it's not.
+- I'll never go down the Botox route. I swear to God, never, ever. I want to look like me... the only thing I've had done is my hair and the bags under my eyes taken away.
+- I have nothing negative to say about 'X Factor,' it's the best show in the world.
+- You get x amount of years at the top... boybands are like buses - there's always another one coming along.
+- I watched 'In Treatment,' that was good.
+- The Spice Girls are very lucky and very overrated. None of them can sing and their music is not half as good as Girls Aloud's.
+- The biggest misconception people have about me is that I'm a chancer and they think I'm lucky! They don't realise that I have actually earned it, because I have worked with so many bands. That's all I've ever done is work in music.
+- I don't particularly like working with girlbands because it's very hard to find a girlband that all get on.
+- Strictly?' That's for older people, I watch 'X Factor.'
+- I've had more comebacks than Frank Sinatra.
+- If you're Ronan Keating, who was working in a shoe shop when I discovered him, but end of thinking you're George Michael, then you need to be stopped.
+- I don't have many friends, but I have enough. I'm not one of these people who collects celebrity friends.
+- I'm not a good dancer.
+- There's a difference between buying a few places yourself and getting into the property game.
+- I never wanted to be on TV.
+- Music is what I care about. Not material things.
+- Hometown are different to anything I've heard. They have an incredible blend in their vocal styles. They are going to be huge.
+- I grew up in a small village in the west of Ireland.
+- I will never forget walking out on a Saturday night with Simon Cowell and Sharon Osbourne, household names who were opinionated and full of confidence, and I was just this Irish guy.

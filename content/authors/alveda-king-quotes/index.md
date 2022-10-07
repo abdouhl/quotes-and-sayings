@@ -1,0 +1,67 @@
++++
+author = "Alveda King"
+title = "Alveda King Quotes"
+quotes_len = "61"
+description = "the best 61 Alveda King Quotes"
++++
+- A woman knows a skirt-chaser.
+- While I voted for Mr. Trump, my confidence remains in God for life, liberty, and the pursuit of happiness.
+- I'm born into a family of preachers. So I want Mr. Trump to remember that many people who voted for him took a long time praying for him. And if he can take some of that divine guidance, that's going to help him out.
+- We should recognize that women become mothers the moment they are pregnant.
+- Abortion and racism are evil twins, born of the same lie. Where racism now hides its face in public, abortion is accomplishing the goals of which racism only once dreamed. Together, abortionists are destroying humanity at large and the black community in particular.
+- This is the 21st century, and we would all like to think racism is dead in America. Actually, that's not the case: still there are some racial issues that are out across this nation, and so we have a responsibility as compassionate citizens of America, no matter what our ethnic group happens to be, to confront these issues when they arise.
+- A majority, perhaps as many as 75 percent, of abortion clinics are in areas with high minority populations. Abortion apologists will say this is because they want to serve the poor. You don't serve the poor, however, by taking their money to terminate their children.
+- While writing, saying, and doing much, Mr. Trump is apologizing for his past sins. He's walking away from supporting abortion, hurling insults and more. Now, America needs to follow suit and apologize for the scourge of legal abortion that has left millions of empty cradles, wombs barren, women's health damaged, and families broken.
+- As you know, it's so important that we always embrace the sanctity of life. One way to do that is to vote pro-life in every election.
+- The violent rioting that is sometimes now being called protesting - it makes the emotions so high that you almost cannot see the insults and injuries that are the people are suffering.
+- My Uncle, of course, would have been pleased to see someone with brown skin holding the office of president.
+- The role of matriarch and patriarch are distinct, and in the King family, we have been blessed with strong examples of both.
+- When you see the political parties squabble, if a baby is not allowed to be born, all the other issues do not come into play.
+- Many people who voted for Mr. Obama in the last election did so based on skin color.
+- If Uncle Martin were here today, he would surely commend us for giving honor where honor is due.
+- We have made great strides, but somehow we've got to create a climate so that everybody can do well, not just some.
+- I have a dream that America will pray and God will forgive us our sins.
+- It is absolutely ludicrous that abortion supporters would accuse a blood relative of Dr. King of hijacking the King legacy. Uncle Martin and my father, Rev. A. D. King were blood brothers. How can I hijack something that belongs to me? I am an heir to the King Family legacy.
+- Racism is a way to gain economic advantage at the expense of others. Slavery and plantations may be gone, but racism still allows us to regard those who may keep us from financial gain as less than equals.
+- America wants solutions. America wants a leader. No more tabloid politics.
+- Our children need to remember to love each other, how to honor each other, their parents, God, and their neighbors.
+- You know, people really want to hear about the issues.
+- We do need unity, and from my perspective as a minister myself, God has not forgotten America.
+- In our family, the men have always stood at the head, true patriarchs that take the lead, teach, and live their lives as examples... Women have a significant role as helpers to our husbands and co-counsels in the parental equation.
+- If black lives matter, then why is it that black women are more than five times as likely as a white woman to have an abortion? I think the womb that brings forth the black life should matter... Because black lives absolutely matter, what about the babies in that womb? What about that mama?
+- Mr. Cain would structurally change the voting demographic. There would be more black economic conservatives, and the Democrats would lose their stranglehold on the black vote.
+- The John Lewis I know is a peacemaker.
+- We're reclaiming America and restoring honor. I believe we do that with faith, with hope, with charity, and honoring our brothers and our sisters as we honor each other.
+- It is statistically proven that the strongest institution that guarantees procreation and continuity of the generations is marriage between one man and one woman. We don't want genocide. We don't want to destroy the sacred institution of marriage.
+- Protesting is good, but healing is better. We need to see America heal.
+- I pray that all polar opposites learn to agape love, live, and work together as brothers and sisters - or perish as fools.
+- Racism oppresses its victims, but also binds the oppressors, who sear their consciences with more and more lies until they become prisoners of those lies. They cannot face the truth of human equality because it reveals the horror of the injustices they commit.
+- America, we need to pray and lead from our spirits and not our emotions - and definitely not with our weapons.
+- Abortion and racism are both symptoms of a fundamental human error. The error is thinking that when someone stands in the way of our wants, we can justify getting that person out of our lives. Abortion and racism stem from the same poisonous root, selfishness.
+- By taking the lives of our young, and wounding the wombs and lives of their mothers, we are flying in the face of God. We cannot play God. If we continue down this path of destruction, we will be met at the gates by our own doom.
+- Abortion is an attack on the family and the humanity that unites us all.
+- President Obama is traveling around the country, proposing a stimulus bill that has already failed once. Instead of having an honest discussion about whether or not a plan that already failed once will fail again, the establishment would rather distract the American people with gossip.
+- I prayed often for deliverance from the pain caused by my decision to abort my baby. I suffered the threat of cervical and breast cancer and experienced the pain of empty arms after the baby was gone. And truly, for me, and countless abortive mothers, nothing on earth can fully restore what has been lost; only Jesus can.
+- Protest is OK. But protests, according to my King family legacy, should be peaceful.
+- Racism springs from the lie that certain human beings are less than fully human. It's a self-centered falsehood that corrupts our minds into believing we are right to treat others as we would not want to be treated.
+- The Bible has multiple accounts of people who were born with various conditions and in various states of existence, only to meet Jesus and be healed or delivered from whatever was their concern. Truly, there isn't a human ever born into this life without having to contend with one issue or another along life's journey.
+- If the dream of Dr. Martin Luther King, Jr. is to live, our babies must live. Our mothers must choose life. If we refuse to answer the cry of mercy from the unborn, and ignore the suffering of the mothers, then we are signing our own death warrants.
+- People need jobs, people need happy and successful lives; there should be marriage between one man and one woman, there should the value of person from conception until natural death.
+- Apology is often the first step in correcting a wrong. Having moved for a position of saying 'I don't need forgiveness,' Mr. Trump is now taking a second look at past behaviors, things that he's said and done that he regrets. While he is not asking for forgiveness for being human, he is admitting that he's made mistakes and humbly making apologies.
+- Let's be honest about this; the liberal agenda with failed stimulus plans and government entitlement programs is crippling our economy and our quality of life.
+- I simply cannot vote for Senator Obama because he's not pro-life.
+- African-Americans who might have disagreed with candidate Obama's left-of-center politics voted for him in 2008 because electing a candidate with brown skin was too historic an opportunity to miss.
+- Under President Trump, our nation is going to make great strides toward protecting the unborn. Priests for Life is in the vanguard of the fight for life, and having the president with us, rather than against us, will make all the difference.
+- Herman Cain continues to show himself to be a leader.
+- The absence of men in the household has caused people to not know how to respond to authority with respect. There's a major problem with the patriarchs having been chased out of the house.
+- If Senator Obama becomes pro-life then I'll consider giving him my vote.
+- We must continually work to obtain and preserve the right to vote and future votes of babies in the womb, their parents, the sick, the elderly, the poor, all Americans.
+- As a survivor of the 20th-century Race Wars, my back remains unbent, and I move forward for life, liberty and the pursuit of happiness for all who were created equal in God's eyes.
+- My mother wanted to abort me, and that was basically a family secret. My grandfather stopped her and said that he had a dream and saw me perfectly. He was a prophetic dreamer, like Martin.
+- I did have some secret abortions myself, which I repented from when I was born again in 1983. I drank the abortion Kool-Aid temporarily because I thought it was the answer.
+- I'm about unity.
+- We're not separate races. There's only one human race.
+- I've never called President Obama a racist. I love President Obama. I pray for him all the time. God loves President Obama. God loves you. And God loves me.
+- Abortion is not health care. A woman has a right to her body, but that is not her body. What about the baby?
+- My daddy, Rev. A. D. King, my granddaddy, Martin Luther King, Senior - we are a family of faith, hope and love.
+- If we have an honest discussion on whether the war on poverty should be fought with welfare or with economic growth in the private sector, Democrats will lose black votes.

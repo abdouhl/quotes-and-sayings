@@ -1,0 +1,27 @@
++++
+author = "Charlie Weber"
+title = "Charlie Weber Quotes"
+quotes_len = "21"
+description = "the best 21 Charlie Weber Quotes"
++++
+- The universe put me in New York, and I'm so happy it did.
+- I like to stay in shape.
+- I'd like to think I'm a good guy as I've gotten older.
+- I love just being an actor. I love writing, but I'm not a writer. I have no aspirations to direct.
+- I surround myself with some pretty cool people, and we all have a great time together, and so I just like to hang out with the people I love and see what happens. We always have a good time.
+- I think its naive to think you can push yourself as hard as someone else can push you, but I work really hard on my own. I know my body.
+- I ended up getting to do a lot of student films - no budget: somebody just wrangled up a camera and went to shoot stuff - and it was fun. It was great.
+- I was a wide receiver at the University of Missouri but dropped out, having never gotten in a game.
+- I'm not going to say that a very young Charlie Weber is without his indiscretions. But not anymore; I'm way past those days.
+- In high school, the drama program shifted to musicals, and that's not a skill set I possess, so I let sports be my outlet, and I agreed to play football in college. I was invited to play at the University of Missouri, and I played there for a year, but when all of the talented people are plucked and put in one place, it's scary; it's tough.
+- I deeply love the 1987 film 'Three O'Clock High.'
+- I tread lightly with social media. I don't dislike it. I'm just not sure what I'm doing, and I'm a somewhat private person.
+- I can't start my day without espresso.
+- As an actor, you're always changing.
+- Everyone in my family went to college. So I went for a year to appease people, in a way. I didn't really see that being my path, but I did want to be sure, as well, about that. When I was, that's when I left.
+- I love going to work.
+- I love every single As Seen on TV product. I can't help myself.
+- I've always found Dallas to be an eclectic place with great food and great music, and I love the sense of community there.
+- I lift weights and do as much cardio as I can make myself. I'm not a big cardio fan, and I hate doing legs.
+- I use Twitter pretty much exclusively to interact with fans. There's no, 'I'm having breakfast wherever.' I don't think people care where I'm having breakfast.
+- That's my favorite part of Twitter: it's instant fan mail.

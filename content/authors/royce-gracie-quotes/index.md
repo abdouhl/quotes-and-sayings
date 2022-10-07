@@ -1,0 +1,106 @@
++++
+author = "Royce Gracie"
+title = "Royce Gracie Quotes"
+quotes_len = "100"
+description = "the best 100 Royce Gracie Quotes"
++++
+- When you like something, it's not work, it's a pleasure.
+- My father had nine kids, seven boys and two girls, and my uncle had 21 kids, 11 boys and 10 girls. They had the opportunity to teach the art of Gracie Jiu Jitsu and that's how we got involved from a young age. It's in the blood.
+- I like my girls delicate.
+- Demian Maia, I love the way he fights.
+- I'm a MMA fighter, man. I'm a MMA fighter, all the way.
+- I like guys who can use strategy, not just tough guys.
+- Like when I fought Akebono - six foot eight, 490 pounds. Before the fight, everyone's like 'Man, you're crazy. You're out of your mind. How are you going to fight a guy that big, there's no way you can take him down. You cannot punch him out. You're out of your mind.' After the fight, everybody was like 'Oh come on, he's big and fat.' Really?
+- A lot of fighters complain, 'Man he's five pounds heavier than me.' Really? It doesn't matter, man.
+- Yes, I do Jiu Jitsu for a living.
+- I don't drink, I don't smoke.
+- I'm a fighter. We come from the beginning, no gloves, no rules, no time limits.
+- I follow a very strict diet.
+- Wouldn't you love to see Mike Tyson and Evander Holyfield go one more time? It's not like just one of them has aged. They've both aged. They're both icons.
+- You have to work on your stand-up to know what's coming, but jiu-jitsu is enough to win the fight.
+- Do this rubber guard stuff and I'll punch you in the nose.
+- If Teila Tuli won the first UFC, everybody would have been learning sumo.
+- I never stopped training, I never stopped working out.
+- GSP knows how to use a lot of strategy.
+- I made peace with retirement, but when you're a fighter, you're always a fighter.
+- My Jiu Jitsu is with the gi. It's the real style of Jiu Jitsu, it's with the gi and I fight MMA.
+- My grandfather was doing business with a Japanese man. In exchange of good relationship the man taught my uncles the art of jiu jitsu. My father couldn't do it because he was very weak, he couldn't do one press-up, so he just sat back and watched, and memorised. What he did was add leverage into the moves.
+- It's always good to have more promotions, give more fighters work.
+- I have fought all my life, that is easy for me.
+- McGregor is taking Muhammad Ali's model. He can say whatever he wants but he's got to prove it. If he doesn't prove it, his career is going to be short.
+- Gracie Jiu Jitsu is the most complete art of self defense there is out there. You don't have to be strong. You don't have to be fast.
+- You have tons of talents everywhere you go, so you can't be stuck to only one promotion.
+- I live a very healthy lifestyle.
+- That's good when the guy has confidence. It's not bad. I want to fight someone who thinks like that.
+- There is no age as long as the body feels good.
+- I never put a 'last one' tag on my fights because you never know.
+- If Gerard Gordeau would have won the first UFC, everybody would be learning savate.
+- I'm used to teaching classes in the dark.
+- It's always a pleasure to watch a Gracie winning. We were born fighting.
+- I take all the opportunities that come my way and I am thankful that I have them.
+- I have such a big family, sometimes, I was wondering, when is it going to be my turn? There's always a brother who's older, younger, bigger, stronger, faster, I was like, 'hey, give me a chance guys.'
+- The UFC was my home and will always be my home. I helped creating and building that home.
+- I've never had a fight in the street.
+- The armlock is an armlock, a choke is a choke. How you set it up - is different. Everybody have their personal style.
+- I fight because I want to not because I have to.
+- I'm not a fighter to score points of fight with time limit.
+- We fight to prove that our art, Gracie jiu-jitsu, is the best.
+- If I had doubts, I would've never walked into the ring.
+- Gracie jiu-jitsu proved to be the best.
+- Jiu-Jitsu is the bond or styles all between all the other styles. Take Jiu-Jitsu out, a boxer is just a boxer, a kickboxer is just a kickboxer. Take Jiu-Jitsu out of the wrestling - what is he going to do, take the person down and? There's no finishing holds, there's no striking.
+- Everyone wants to fight me. It's a long list.
+- Bellator and Viacom want to give fans exciting fights and enable fighters to continue to grow and most importantly provide for their family, and it's something I want to be a part of.
+- I never picked an opponent.
+- I'm happy and satisfied with my accomplishments. I sleep well at night.
+- GSP is at the top of my list in knowing how to use strategy, how to bring an opponent out of his game, how to beat a guy without taking a beating. And he's good in standup and good at grappling.
+- The main thing is strategy. It's not just come in and duke it out and fight.
+- That's why I like Demian Maia and Fabricio Werdum. Demian will take you down and do his game. Werdum learned the stand-up to know what's coming, but he never stopped using his jiu-jitsu. He will clinch, take you down and submit you.
+- I am a product of my father's work.
+- You have to know your opponent and take him out of his game.
+- Don't care about catch-wrestling. I only care about Jiu-Jitsu.
+- I never drank, never party, Carnival, none of that.
+- I do jiu-jitsu my whole life, so why would I try to stand and bang with Mike Tyson? I'm going to learn boxing in six months because my opponent is good in boxing? That makes no sense.
+- I'm a prize fighter. Put me in any card and I'll sell it out. I can do it, man.
+- If I'm home, just hanging around with the kids.
+- I wouldn't change the past for nothing.
+- Kids wake up in the morning and say, 'I want to be a UFC fighter one day,' just like they do in baseball.
+- In a street fight there is no time-limit, no weight division, you don't choose your opponent.
+- I travel seven months a year, so it's a lot of hotels and airplanes. I teach about three hours a day. I always go for a run. I try to lift some weights if I have the time and the strength. But running and teaching, that's my life.
+- When Scott Coker first mentioned to me that Ken Shamrock wanted to fight I said, 'Thank you.' I played a little hard to get, but for sure I knew we had to do the third fight with Ken; there was no doubt. He still insisted on fighting me. I guess the guy cannot sleep for 22 years.
+- I love to travel and I love to teach, so I combined the two.
+- I get stopped at the airports by just everyday people that are not even fans of the MMA and they say how they have seen me fight. Its very humbling and also rewarding.
+- My father created this whole MMA thing.
+- Mike Tyson is a good boxer, but he is not the best fighter. I am the best fighter.
+- Sometimes you watch a tournament with a point system, and it's not the best fighter that wins. It's the guy who scores more points and then he runs away and hides.
+- I did a seminar once in Pennsylvania when there was big snow, road construction, a big flood and just one person showed up. I said, 'No problem, I'll do it.' If there's one or 100 on the mat, the juice is still there.
+- I like guys who know how to implement a strategy. The ones who make a fight look easy. But there's no easy fight, even if you win in 30 seconds, that only means you were able to execute your strategy correctly and induced your opponent to make a mistake. Those are the champions. That's why they are the champions.
+- My second fight at UFC 1, I fought Ken Shamrock. In the fight I choked him. As soon as he tapped, I let go. He tried to continue, but the ref got kind of stuck like, 'should I let it go or stop the fight.' That's when I looked at the ref and I said, let it go, we're going to continue.
+- You know the 80s music is something that no one wants to admit liking, but once then start playing everyone is into it.
+- In a street fight situation, there's no weight division, there's no time limits.
+- OK, if he's a grappler, good for me, I know what to do. If he's a kickboxer, I gotta get in a clinch and move a certain way. If he's a karate man, he moves a different way, but I'm still going to have to clinch. So, a sumo wrestler, I have to clinch. It's just, how I get there, how I move it.
+- I enjoy traveling, teaching and fighting. It's in my blood.
+- My brother, who created the UFC, had a vision. He knew that people wanted to see who was the best fighter. People have curiosity, what style was the best? Boxing, wrestling, Gracie jiujitsu? It was a quest to find out.
+- If you trained jiu-jitsu his whole life, why would you trade punches on fight night against a striker?
+- There's so much talent in Brazil, so many guys that will probably never get discovered.
+- You tell me what's impossible and I'll prove you wrong.
+- The art of Gracie jiu-jitsu is to learn how to defend yourself in any situation, not to score points, not for tournament style. It's for a street-fight situation.
+- Werdum is good, is a smart fighter. He knows how to set up a beautiful strategy.
+- My father didn't make us fighters, he made us teachers.
+- Tim Kennedy is one of the toughest guys in my opinion.
+- Martial arts in general were not made for a tournament, for points system. Martial arts were made to defend yourself in the street fight situation, not to score points.
+- I travel all over the world and teach people.
+- People always want to see who's the best fighter in the world.
+- Face life's challenges with confidence, dare to pursue your dreams and live to the fullest just as my father did.
+- In any professional level competition, soccer players, you've got to know when to stop.
+- I could live on fruits.
+- Gracie is not a family, it's a factory of fighters.
+- I only sign one fight at a time.
+- Fighting is about a strategy. MMA is not all about brutality.
+- I've trained boxing in the past to learn the distance, trained wrestling to understand how he would take me down, but I won't get there to fight my opponent's game.
+- When you're a fighter, you have to be ready all the time. There's no 'I need a month.' It's always time.
+- The jiu-jitsu my father created was for the smaller guy to beat the bigger guy.
+- The greatest tribute you can to pay to my father is to continue to train and share Gracie Jiu-Jitsu, remembering to never lose sight of the fact that what you do off the matt counts more than what you do on the matt.
+- I believe in pure jiu-jitsu. That's what I've done in the past.
+- I'm a vale-tudo fighter.
+- You have to know when to stop in this sport. It's very hard.
+- You're a warrior or you're not.

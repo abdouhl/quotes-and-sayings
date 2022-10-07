@@ -1,0 +1,32 @@
++++
+author = "K'Naan"
+title = "K'Naan Quotes"
+quotes_len = "26"
+description = "the best 26 K'Naan Quotes"
++++
+- The problem is that rap is so often a caricature of its own image. Nobody comes to the table with the seriousness of the effect that it can have; nobody is prepared for that.
+- I don't feel political most of the time. Sometimes I'm placed in positions because no one else will go there.
+- It's not really that I'm interested in filmmaking. I'm interested in the instrument of it, you know.
+- I know that often times a lot of people who work in music, whether they be labels and so on or even artists, want personal recognition. We want to be recognized for something, for what we did. I'd rather my song be recognized for what it's doing and that's important. It's not so important how many people know me.
+- My question about my art and my music has always been, 'Am I good, or am I good because?' I'm not the artist who wants to have the 'because' attached.
+- It was interesting to find how dominating American vision is all over the world. I think there's something to be said about the world's mindset and its economics and all of that, and I think it affects the way we see ourselves and it affects music.
+- The only way I see the world now is through coming out of and growing up and living in Somalia. In the time of war, everyone was basically trying to live and manage the best they could. But you also had another period which was not a hard time at all - it was just a beautiful time. I lived in both eras.
+- You want to reach people, but you also want to reach them in the most authentic way. You now have a mass market and an audience that's listening, but they're in love with a song that means absolutely nothing to you.
+- The people of Somalia just do not have a voice. They are to me the most forgotten people in the world.
+- From the stage, I can reach a large audience, and you learn from being on stage how much a song reaches, what extent of the crowd a song can reach. I write in a way that can reach most of the audience, but I also wanted to have truly intimate moments as well, many intimate moments, more so than the big moments.
+- The poetry I grew up on is really an intense form of poetry; it's so pure and powerful.
+- Somalis really are very musically sophisticated, and they're about their own thing.
+- I enjoy meditation. I think the artist's position is often to mend the things we feel are broken. Whether that's between two cultures or two thoughts. We're always trying to reach, trying to expand something.
+- I have moments of darkness, of anger, and moments of rage. They do creep up at the most inopportune times. Not to recognize that in my music would give people a sense of sainthood that I don't necessarily have or even want to have.
+- I'm not about trying to get and get and get. I feel good when I get, but I kind of feel better when I give.
+- I wasn't making music consciously when I was younger. I was a musician, but that has its own stigmas. Anywhere on the planet, it's one of the more undervalued positions.
+- Hip-hop in Africa has been very often a duplication of an American experience, but in a context that's totally alien to it.
+- I think it's a mistake to work on success in career. I've worked on my passions obsessively. How can I say what I want to say more precisely than the last time I said it? Success is such an elusive concept. When you work for it, I think you get it in a way you might regret it.
+- To reach your goal authentically is probably, in the end, going to mean much more to you than having reached it in a false way.
+- Art isn't held with the same high regard as it is after success. In any country, in any language, you're a loser if you're making music until you prove otherwise.
+- I am one of those people that's never been really cynical about life, you know.
+- You have to let the world speak to you and then you speak, you know, so I'm in that moment now where I'm finding the world's voice.
+- It was not my dream to be an artist. How could it have been? I thought, artist, much like a leader, was something you either were or weren't. Never something you set out to be.
+- I'm an optimist about other people. I'm not an optimist about myself.
+- I faced quite a few challenging times, and in front of those, I was more positive than some people not facing those conditions. I'm actually of the belief now that it is that struggle that offers you that open-hearted hope.
+- I'm writing from a place of - a center of authenticity, somewhere that only I know how to write from.

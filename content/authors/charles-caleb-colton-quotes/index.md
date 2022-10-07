@@ -1,0 +1,98 @@
++++
+author = "Charles Caleb Colton"
+title = "Charles Caleb Colton Quotes"
+quotes_len = "92"
+description = "the best 92 Charles Caleb Colton Quotes"
++++
+- In religion as in politics it so happens that we have less charity for those who believe half our creed, than for those who deny the whole of it.
+- If you would be known, and not know, vegetate in a village; if you would know, and not be known, live in a city.
+- He that knows himself, knows others; and he that is ignorant of himself, could not write a very profound lecture on other men's heads.
+- Avarice has ruined more souls than extravagance.
+- It is better to meet danger than to wait for it. He that is on a lee shore, and foresees a hurricane, stands out to sea and encounters a storm to avoid a shipwreck.
+- Happiness, that grand mistress of the ceremonies in the dance of life, impels us through all its mazes and meanderings, but leads none of us by the same route.
+- Friendship, of itself a holy tie, is made more sacred by adversity.
+- The present time has one advantage over every other - it is our own.
+- True friendship is like sound health; the value of it is seldom known until it is lost.
+- Moderation is the inseparable companion of wisdom, but with it genius has not even a nodding acquaintance.
+- None are so fond of secrets as those who do not mean to keep them.
+- Life isn't like a book. Life isn't logical or sensible or orderly. Life is a mess most of the time. And theology must be lived in the midst of that mess.
+- Doubt is the vestibule through which all must pass before they can enter into the temple of wisdom.
+- If we steal thoughts from the moderns, it will be cried down as plagiarism; if from the ancients, it will be cried up as erudition.
+- Commerce flourishes by circumstances, precarious, transitory, contingent, almost as the winds and waves that bring it to our shores.
+- If you cannot inspire a woman with love of you, fill her above the brim with love of herself; all that runs over will be yours.
+- Nothing more completely baffles one who is full of trick and duplicity, than straightforward and simple integrity in another.
+- Ladies of Fashion starve their happiness to feed their vanity, and their love to feed their pride.
+- Our incomes should be like our shoes; if too small, they will gall and pinch us; but if too large, they will cause us to stumble and to trip.
+- The greatest friend of truth is Time, her greatest enemy is Prejudice, and her constant companion is Humility.
+- He who studies books alone will know how things ought to be, and he who studies men will know how they are.
+- Many speak the truth when they say that they despise riches, but they mean the riches possessed by others.
+- That writer does the most who gives his reader the most knowledge and takes from him the least time.
+- The firmest of friendships have been formed in mutual adversity, as iron is most strongly united by the fiercest flame.
+- Marriage is a feast where the grace is sometimes better than the dinner.
+- Next to acquiring good friends, the best acquisition is that of good books.
+- Examinations are formidable even to the best prepared, for the greatest fool may ask more than the wisest man can answer.
+- The mistakes of the fool are known to the world, but not to himself. The mistakes of the wise man are known to himself, but not to the world.
+- Books, like friends, should be few and well chosen. Like friends, too, we should return to them again and again for, like true friends, they will never fail us - never cease to instruct - never cloy.
+- When millions applaud you seriously ask yourself what harm you have done; and when they disapprove you, what good.
+- Those who visit foreign nations, but associate only with their own country-men, change their climate, but not their customs. They see new meridians, but the same men; and with heads as empty as their pockets, return home with traveled bodies, but untravelled minds.
+- The two most precious things this side of the grave are our reputation and our life. But it is to be lamented that the most contemptible whisper may deprive us of the one, and the weakest weapon of the other.
+- To write what is worth publishing, to find honest people to publish it, and get sensible people to read it, are the three great difficulties in being an author.
+- Patience is the support of weakness; impatience the ruin of strength.
+- Justice to my readers compels me to admit that I write because I have nothing to do; justice to myself induces me to add that I will cease to write the moment I have nothing to say.
+- Our admiration of fine writing will always be in proportion to its real difficulty and its apparent ease.
+- Tyrants have not yet discovered any chains that can fetter the mind.
+- Men are born with two eyes, but with one tongue, in order that they should see twice as much as they say.
+- There are two way of establishing a reputation, one to be praised by honest people and the other to be accused by rogues. It is best, however, to secure the first one, because it will always be accompanied by the latter.
+- Suicide sometimes proceeds from cowardice, but not always; for cowardice sometimes prevents it; since as many live because they are afraid to die, as die because they are afraid to live.
+- Posthumous charities are the very essence of selfishness when bequeathed by those who, even alive, would part with nothing.
+- There are three modes of bearing the ills of life, by indifference, by philosophy, and by religion.
+- We hate some persons because we do not know them; and will not know them because we hate them.
+- There are three difficulties in authorship: to write anything worth publishing, to find honest men to publish it, and to find sensible men to read it.
+- In life we shall find many men that are great, and some that are good, but very few men that are both great and good.
+- There is this difference between happiness and wisdom: he that thinks himself the happiest man, really is so; but he that thinks himself the wisest, is generally the greatest fool.
+- Wealth after all is a relative thing since he that has little and wants less is richer than he that has much and wants more.
+- To dare to live alone is the rarest courage; since there are many who had rather meet their bitterest enemy in the field, than their own hearts in their closet.
+- Knowledge is two-fold, and consists not only in an affirmation of what is true, but in the negation of that which is false.
+- Physical courage, which despises all danger, will make a man brave in one way; and moral courage, which despises all opinion, will make a man brave in another.
+- Law and equity are two things which God has joined, but which man has put asunder.
+- Those that are the loudest in their threats are the weakest in their actions.
+- Friendship often ends in love; but love in friendship - never.
+- True contentment depends not upon what we have; a tub was large enough for Diogenes, but a world was too little for Alexander.
+- To be obliged to beg our daily happiness from others bespeaks a more lamentable poverty than that of him who begs his daily bread.
+- War kills men, and men deplore the loss; but war also crushes bad principles and tyrants, and so saves societies.
+- Mystery is not profoundness.
+- There are some frauds so well conducted that it would be stupidity not to be deceived by them.
+- There is nothing more imprudent than excessive prudence.
+- The first requisite for success is the ability to apply your physical and mental energies to one problem incessantly without growing weary.
+- Much may be done in those little shreds and patches of time which every day produces, and which most men throw away.
+- The study of mathematics, like the Nile, begins in minuteness but ends in magnificence.
+- The drafts which true genius draws upon posterity, although they may not always be honored so soon as they are due, are sure to be paid with compound interest in the end.
+- To know a man, observe how he wins his object, rather than how he loses it; for when we fail, our pride supports us - when we succeed, it betrays us.
+- When you have nothing to say, say nothing.
+- It is always safe to learn, even from our enemies; seldom safe to venture to instruct, even our friends.
+- Contemporaries appreciate the person rather than their merit, posterity will regard the merit rather than the person.
+- If a horse has four legs, and I'm riding it, I think I can win.
+- I'm aiming by the time I'm fifty to stop being an adolescent.
+- The excess of our youth are checks written against our age and they are payable with interest thirty years later.
+- Many books require no thought from those who read them, and for a very simple reason; they made no such demand upon those who wrote them.
+- He that is good, will infallibly become better, and he that is bad, will as certainly become worse; for vice, virtue and time are three things that never stand still.
+- Silence is foolish if we are wise, but wise if we are foolish.
+- Imitation is the sincerest form of flattery.
+- We often pretend to fear what we really despise, and more often despise what we really fear.
+- Power will intoxicate the best hearts, as wine the strongest heads. No man is wise enough, nor good enough to be trusted with unlimited power.
+- No company is preferable to bad. We are more apt to catch the vices of others than virtues, as disease is far more contagious than health.
+- He that has energy enough to root out a vice should go further, and try to plant a virtue in its place.
+- Constant success shows us but one side of the world; adversity brings out the reverse of the picture.
+- We own almost all our knowledge not to those who have agreed but to those who have differed.
+- Bigotry murders religion to frighten fools with her ghost.
+- The consequences of things are not always proportionate to the apparent magnitude of those events that have produced them. Thus the American Revolution, from which little was expected, produced much; but the French Revolution, from which much was expected, produced little.
+- Men's arguments often prove nothing but their wishes.
+- We ask advice, but we mean approbation.
+- Corruption is like a ball of snow, once it's set a rolling it must increase.
+- The society of dead authors has this advantage over that of the living: they never flatter us to our faces, nor slander us behind our backs, nor intrude upon our privacy, nor quit their shelves until we take them down.
+- Liberty will not descend to a people; a people must raise themselves to liberty; it is a blessing that must be earned before it can be enjoyed.
+- Of present fame think little, and of future less; the praises that we receive after we are buried, like the flowers that are strewed over our grave, may be gratifying to the living, but they are nothing to the dead.
+- Did universal charity prevail, earth would be a heaven, and hell a fable.
+- Times of great calamity and confusion have been productive for the greatest minds. The purest ore is produced from the hottest furnace. The brightest thunder-bolt is elicited from the darkest storm.
+- Death is the liberator of him whom freedom cannot release, the physician of him whom medicine cannot cure, and the comforter of him whom time cannot console.
+- Nothing so completely baffles one who is full of trick and duplicity himself, than straightforward and simple integrity in another.

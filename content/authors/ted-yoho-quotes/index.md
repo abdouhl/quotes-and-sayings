@@ -1,0 +1,68 @@
++++
+author = "Ted Yoho"
+title = "Ted Yoho Quotes"
+quotes_len = "62"
+description = "the best 62 Ted Yoho Quotes"
++++
+- Not raising the debt ceiling is not an automatic trigger for a default.
+- I've removed legs from dogs on the bed of my truck on the farm.
+- When you speak the truth, people realize that.
+- Let's treat this country first and foremost.
+- We had to get on food stamps for a short period of time, so I understand the need for those.
+- If you've got information about an opponent running against you, wouldn't you want that information - to vet it, to see if it's real information, and to use it accordingly?
+- Democracy is like a totalitarian.
+- Whatever we do from government, we need to do what's best for America. If we do that, that's bringing power back to the people.
+- I don't work for Donald Trump. I work with him. I work for the people who sent me up here. He ran on repealing and replacing Obamacare. Those people that put him and me in office expect us to repeal and replace Obamacare.
+- If you look at one of the basic underlying tenets of liberty, it's freedom of speech, freedom of expression, freedom to access of information. If we start sequestering that and blocking it off, you're going to have pockets around the world that are going to become more and more isolated.
+- I have the right to protect myself. I feel like I have very good aim. My wife is better.
+- When foreign assistance has a clear mission, buy-in from the aid-recipient country, and explicit metrics for implementation, the United States will be able to transition aid-recipient nations into strong trading partners. One of the greatest examples of this successful transition is South Korea.
+- It's a violation of federal law for an officer or an employee of the United States government to make or authorize an expenditure or obligation exceeding the amount we've appropriated.
+- The harder you work, the luckier you get.
+- I ran for Congress in 2012 because I had had enough. Enough of career politicians, enough of political gamesmanship, and enough of the lack of leadership in Washington.
+- I liked animals better than people. That's one of the reasons I wanted to be a vet - then I found out that every pet had a person that owned 'em.
+- The U.S. has been in control of the domain names of the Internet since its inception. If we relinquish this control, it goes possibly to the U.N.
+- Not raising the debt ceiling does not trigger a default, because we've got enough money to service our debts. Default is when you can't service your debt.
+- America needs to rethink how we distribute our foreign aid around the world.
+- As a businessman, you need economic certainty. On the tax policies. You need it on your regulatory policies.
+- I will do today what others won't so I can do tomorrow what others can't.
+- We have a constitutional republic, not a democracy.
+- One of the things that made the Internet so explosive and such an economic and intellectual force is because of the free-market enterprise in a country like the U.S. controlling access to it.
+- President Trump is right to welcome China's help in bringing North Korea's illicit nuclear program to heal, but he's also correct that if China doesn't go along, the U.S. can act alone.
+- I'm a guy that's worked out in the weather since I was 16. I can tell there's climate change. The cause? I'm not smart enough for that.
+- The Clinton, Bush, and Obama administrations all fell victim to chronically relying on Beijing's empty promises with the distant hope that China would finally use its influence to reign in Pyongyang's provocative behavior, to no avail.
+- The militia had the same equipment as the military to protect them against the tyrannical government. It's more important today than ever that we uphold our Second Amendment.
+- I am more interested in fair and balanced trade between nations than I am in free trade that encumbers us in a multinational pact that is refereed by the WTO.
+- The United States needs to hold China accountable for its facilitation of North Korea's illicit weapons program instead of rewarding Beijing for complacency.
+- With all the problems we are having, I won't be afraid to tell leadership, 'You need to explain to me why I should follow you anywhere.'
+- I'm not willing to commit American taxpayers' money anymore or American troops on the ground in another Middle Eastern country.
+- I don't look for anybody to pay for health care for me and my family. That's my responsibility.
+- I'm pretty well grounded in Christian principles.
+- I think anytime that somebody that works for the government lies, yes, they should be removed.
+- Our rights come from God, not the government.
+- If I were the president, I would tape everything that is said around me and what I said, because we know how sometimes things get misconstrued.
+- If you step out and do what you feel is right... and you're not attacking a person, and you're attacking a process, and you're attacking the status quo... and if somebody wants to hold a grudge against me, that's on them. It's not on me, and I'm going to do what I think is right.
+- A guy running, you know, fifteen, twenty stallions that are two years of age, never been touched by a human before, and you've got to start castrating them, that's pretty intimidating.
+- I'm not going to raise the debt ceiling.
+- Anybody that's been in an election, you're always looking to get the upper hand.
+- The American dream comes from opportunity. The opportunity comes from our founding principles, our core values that's held together and protected by the Constitution. Those ideas are neither Republican, Democrat, conservative, liberal, white, or black. Those are American ideologies.
+- President Trump can't vote for me. The people that sent me up here sent me up here to repeal and replace, 100 percent, the Affordable Care Act.
+- In the last four years, I heard the same thing over and over again from people: 'We've had enough,' 'Our country is drifting,' 'We've lost our way.'
+- I hope that I can continue to champion Dr. Paul's efforts to audit the Fed, protect state's rights, and getting our nation back on track.
+- I'm incredibly humbled that the leader of the modern liberty movement and strong conservative leader Congressman Ron Paul is backing our campaign.
+- The interest on our debt is going to collapse this country.
+- I see the value of being a force. I don't want to say a force, but numbers. If you're all spread out, you can't change policy for the better, and I feel we've done that.
+- As we enter 2015, we are faced with overwhelming challenges. However, the dawn of 2015 also promises unlimited potential and the opportunity to begin rebuilding America.
+- I can't predict the future. All I know is that if we continue down the path we're on, the Affordable Care Act will implode on itself. People will be without insurance.
+- I came to Congress on the promise of cutting wasteful government spending. There are plenty of examples of the government playing loose with taxpayer money, but none more so than how we spend our foreign aid dollars.
+- Cliff Stearns talks about what he did to Planned Parenthood, making Solyndra a household name - why didn't he do this sooner? Why didn't he see it coming? It's the oversight committee, not the hindsight committee.
+- If that was good enough for George Washington, it's good enough for me.
+- As a veterinarian and lover of animals, I feel the time is now to stop the practice of horse soring for good.
+- Having an animal that you fix, knowing that you saved its life or you saved a pet - Like on a dog, these little kids will come, and their dog is just ready to die, and you do something, and they leave happy. The kids are happy, and the little puppy is licking your hand. Those are kind of neat feelings.
+- If you help a chicken out of an egg, most of the time that bird will die. If you help a moth out of a cocoon, it'll die because they don't go through that struggle and maturation. I can give you a fish for the day and you'll eat a day, but if I teach you to fish, you'll eat for a lifetime. Maybe even start a business.
+- I am all in favor of growing the American economy and engaging in trade with the world, but not at the expense of American workers. The North American Free Trade Agreement is a perfect example of this. Ask the textile workers of North Carolina how NAFTA worked out for them - if you can find any.
+- We don't want to repeat the unintended consequences that surfaced following the NAFTA agreement.
+- People are fed up with the career politicians who created this mess or failed to prevent it and neither was acceptable, and the only way we could change that was by sending a different type of person to Washington.
+- I don't want anybody to dictate to America how to decide our lives.
+- Seems like we were always running away from President Obama or trying to undo what he's done.
+- An EMP explosion would wipe out our grid, wipe out our cellular system.
+- What I think you are going to see is with DACA being gone, it gets rid of the magnet of drawing people over here, thinking they are going to come in and get amnesty.

@@ -1,0 +1,23 @@
++++
+author = "Ramon Rodriguez"
+title = "Ramon Rodriguez Quotes"
+quotes_len = "17"
+description = "the best 17 Ramon Rodriguez Quotes"
++++
+- Growing up in New York City, my car culture is minimal. I rode on the train, the bus. I walked; I rode my bike, and when I was younger, I rode my skateboard.
+- You don't make it anywhere without someone helping you out.
+- I love 'I Love Lucy,' and I have the DVD set of 'I Love Lucy.'
+- I played college basketball in West Virginia for two years, and then I graduated from NYU with a sports management degree because I realized the NBA's not going to happen.
+- To be honest, a lot of ride-alongs are not that great. There might be one or two calls on the radio - not a lot - depending on what time you go.
+- I don't really know much about cars.
+- The camera never lies, man. I've learned that. If you allow it, it will see right through you, which is kind of cool.
+- A friend told me about a Nike competition, where they give you one minute to do tricks with a basketball. I wasn't going to go, but they were giving away free sneakers. I ended up coming in second place.
+- I grew up on Avenue C, and Tompkins Square Park was my park. That was where I played ball every day. I lived in that park.
+- I interned for the Knicks for one year doing community relations, but I absolutely hated it. It was a desk job, and the team was not good at all, and I didn't realize how much that correlated to the office. It was just gray, gloomy days.
+- I spent a lot of time with the LAPD. I spent six weeks training, weapons training, ride-alongs, surveillance, interviewing them, in all different departments and divisions.
+- I like new challenges and new experiences.
+- I wasn't really excited about doing television, to be quite honest.
+- On the streets, hanging out with the fellows, there are things you learn that no book can teach you.
+- My first celebrity crush... I had a huge crush on 'Cheetara' from 'ThunderCats.'
+- Westerns are cool, man. I'm big on Westerns. I just love the grittiness.
+- Basketball paid for four years of my education, and I am so proud of that.

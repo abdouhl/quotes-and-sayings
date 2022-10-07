@@ -1,0 +1,31 @@
++++
+author = "Russell Westbrook"
+title = "Russell Westbrook Quotes"
+quotes_len = "25"
+description = "the best 25 Russell Westbrook Quotes"
++++
+- I'm never satisfied. I'm always trying to get better and learn from my mistakes.
+- I've always had to prove myself to people growing up. I had to show them that I could do this and I could do that and paying no mind to what the critics said.
+- Reading what a good shot is, based on time and score of the game, based on the shot clock, based on my position - there's a lot of things that go into it. It's a lot of things that you think about based on when to shoot it or when not to.
+- I'm not getting dressed to make a scene or, like, 'Oh, look what Westbrook has on today!' If I like something, I'll put it on. I go to the game. That's how it is.
+- In college I didn't dress up every day, for class or stuff like that, but when it came time to do certain things I'd dress up for sure.
+- You gotta win; that's all I care about.
+- I actually have a closet that's all shoes, maybe 700 pairs.
+- Magic Johnson was my favorite player growing up.
+- I think fatherhood would change anybody when you have your first son. It's been amazing.
+- Everybody knows that I like Oklahoma City, and I love being here. I love everybody here.
+- I say, 'Why not' to everything.
+- I'm confident in some of the things that I wear, regardless of what other people are wearing.
+- Basketball is the axis that allows me to do the things that I do. I have so much love for the game, and it gives me to the option to be able to jump into fashion.
+- I have a certain taste, and I might be like, 'I like this,' when other people are like, 'I can't wear that.' And in basketball, I might be able to do things other guys might not.
+- Obviously, in the NBA, there's a lot of different decisions that people make. The whole thing in the NBA is that people sometimes have an opportunity to go where they want.
+- If I get to know somebody, I'll open up, but other than that I like to sit back and observe things.
+- Every day when I get on the floor I give it my all and play because you never know what tomorrow holds.
+- Messy stuff irritates me. I don't like messiness. If you leave something around my house, I'll tell you to move it back, clean it up, throw it in the trash - don't matter, just get rid of it. I need stuff neat, organized. And once I start cleaning stuff, I don't stop until it's done. Otherwise I'm irritated all day.
+- You see how can you help your team, help yourself improve, and that's what I try to figure out throughout the season.
+- Shoes make an outfit. You can throw on a crazy shirt and crazy pants but you add those shoes - done.
+- My advantage is attacking, regardless of who's in front of me. That's my advantage. And I've got to use my advantage to help my team and help myself.
+- My friends and I started that motto early in high school - that attitude, that mentality - from way back then: Want to go to Stanford? Why not? Want to play in the NBA? Why not?
+- There's no reason to hold yourself back and say you can't do something in life unless you go for it and try to do it.
+- When I was younger, I was into fashion, but I wasn't always able to afford and have the platform to express myself and do different things that I'm able to do now.
+- My childhood, I wouldn't say it was bad. It helped me grow up. I stayed out of trouble. My parents taught me what's wrong and right, and knowing that I had a little brother following me, I had to make sure I was doing the right thing so he knows what's right, too. I was in the house nine days out of 10. There wasn't nothing good outside for me.

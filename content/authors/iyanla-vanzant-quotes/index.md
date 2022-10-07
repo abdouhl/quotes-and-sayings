@@ -1,0 +1,83 @@
++++
+author = "Iyanla Vanzant"
+title = "Iyanla Vanzant Quotes"
+quotes_len = "77"
+description = "the best 77 Iyanla Vanzant Quotes"
++++
+- I surround people in unconditional acceptance and love to such a degree that everything that is unloving about them rises to the surface.
+- Sometimes we pray in our heads and we never get a real opportunity to solidify what it is that we're praying for or what we're praying about. So once you write it down, it's like a flow. It comes out and you solidify the thought or the idea or the request.
+- What a blessing that God allows a life to come through your body, and then allows you to place that body in a body bag and take it out. I had to say that there's a magnificent something that God has for me to do, to give me that level of completion. That level of experience. It's unspeakable.
+- I hope that my story, I hope that my life is... an encouragement for people, especially in Brooklyn. I feel humbled and blessed.
+- In order to feel loved, be respected and stay connected, we humans have a tendency to lie. We lie about who we are, what we want, what we need, what we have done or will do. Perhaps 'lie' is too strong a word. Let me say that what we do is withhold the truth.
+- Any time there is 'un-forgiveness' between people who love each other, there is suffering. Any time people face challenges that they really don't understand... there is suffering.
+- When you gossip, it's self-hexing. Because when you do it, it comes back to you. Everything starts with the word. The word is demonstrating a condition of the mind. If it's in your mind and comes out of your mouth, it will be created.
+- The show is 'Fix My Life!' Get it? Life. I do not fix people.
+- I'm the person that I always was, but in terms of how I approach my living, I'm not the same person at all. At all. I've buried a child, I've ended a marriage, and the grandson that I was raising is now grown. My family has totally shifted.
+- I have a daily message, 'Stimumail,' which I use to stimulate the mind and heart. I have the opportunity to touch over 60,000 people I have never met. I also use Twitter and Facebook.
+- Everybody's got a 'thing.' Some 'things' are nice and quiet. Some 'things' have fangs and claws. Some 'things' stink and have slobber everywhere.
+- If you are a card-carrying human being, chances are that you share the same fear as all other humans: the fear of losing love, respect and connection to others. And if you are human, in order to avoid or prevent the pain, trauma and perceived devastation of the loss, you will do anything to avoid your greatest fear from being visited on you.
+- I think most people think that a spiritual path or growing spiritually means that all of a sudden you'll be able to forecast the six lotto numbers and all your bills will be paid.
+- Everyone has something that blocks us from the full experience and expression of our nobility.
+- I came from nothing. I came from the projects and welfare and ended up a millionaire with no frame of reference. I was bound to hit a wall sooner or later.
+- The remedy for life's broken pieces is not classes, workshops or books. Don't try to heal the broken pieces. Just forgive.
+- I gave myself permission to feel and experience all of my emotions. In order to do that, I had to stop being afraid to feel. In order to do that, I taught myself to believe that no matter what I felt or what happened when I felt it, I would be okay.
+- You know when I was 20 and 30, they were insecurities. Now they're just a new normal. I'm 60 years old, so my expectations of who I am and how I look and how I show up in the world had to shift. Not because I couldn't help it, or not because I did anything wrong, but because I had to get into the natural flow of my being as a woman.
+- Some of us pray demands. Some of us pray complaints. Some of us pray knowing, and some of us pray not knowing. But prayer is the attitude that you hold in your heart.
+- I was sitting on the bus, and the sign said if you're ready to better your life, come to Medgar Evers College, and I got off the bus and went to Medgar Evers College.
+- One of the ways that people avoid taking responsibility for their role in their own pain is what I call the BPs - blame and projection.
+- In my deepest, darkest moments, what really got me through was a prayer. Sometimes my prayer was 'Help me.' Sometimes a prayer was 'Thank you.' What I've discovered is that intimate connection and communication with my creator will always get me through because I know my support, my help, is just a prayer away.
+- At birth, we are like cartilage - soft, flexible tissue. By the same natural process by which cartilage becomes hard bone, the soft, tender heart of an innocent child can become hardened by the circumstances into which she is born.
+- When Oprah Winfrey tells you that you need to have your own show, you feel compelled to do it. Especially if she's gonna pay for it!
+- I don't think there's such a thing as a selfish prayer. Prayer puts you in communication so you can talk about whatever you want to talk about.
+- At times I have long conversations with God. Sometimes I ask questions. I admit that there are also times when I let out my frustrations, fears, and anxieties in less than honorable ways. No matter what I pray about or how I pray about it, the result I always get is comfort.
+- I've always wanted people to know who they are from the inside. Then they can create the life they desire and deserve. I've always believed that my job was to facilitate the evolution of the human consciousness.
+- I had no preconceived idea what fame would be like, because I never thought I would be famous. I just wanted to do my work. Hell, I just wanted to pay my rent on time.
+- My father never kissed me, hugged me or told me that he loved me. As my only living parent, he became the filter through which I saw myself, the possibilities for my life, the world and all men. He was a conflicted and dark filter.
+- You have a right to say no. Most of us have very weak and flaccid 'no' muscles. We feel guilty for saying no. We get ostracized and challenged for saying no, so we forget it's our choice. Your 'no' muscle has to be built up to get to a place where you can say, 'I don't care if that's what you want. I don't want that. No.'
+- I have learned the hard way to mind my business, without judging who people are and what they do. I am more troubled by the lack of space being provided for the truth to unfold. Humans cannot seem to wait for or honor the truth. Instead, we make it up based on who we believe people should or should not be.
+- In 2002, my daughter was diagnosed with a rare form of colon cancer. And it was such a shock, a surprise to us.
+- All of us have ways in which we mask and cover our pain.
+- You know, if you're a human and living on the planet, it doesn't matter what you do; you are not immune to the challenges, the trials, the difficulty. And that fact that I happen to be a coach and a minister and a spiritual teacher doesn't mean anything. I'm still human.
+- I had to stop traveling alone because I missed so many planes. When somebody runs up to you in the airport and begins to tell you their life story, you can't say, 'Excuse me, boo,' as they're weeping on your bosom.
+- It is an honor and a privilege to be of service and support; however, I realize people are not putting their confidence in me. Instead, they are actually learning to trust themselves. My job is to affirm and support them in the process and teach them to do what I do when I need strength: I begin within.
+- Comparison is an act of violence against the self.
+- If you're not willing to let your partner see your cellulite or know your biggest fears, then you aren't really ready to share yourself.
+- There is a lot of healing going on. Really! More people are vegetarians, more are in the green movement, more of us are tearing down the old paradigms and embracing same-sex marriage, single motherhood, men raising babies.
+- I took my kids everywhere. I didn't have money for child care, so I took them to college with me and they sat in the hallway.
+- You've got to know what your 'thing' is, and you've got to call it a 'thing,' whether it's meanness, nastiness, un-forgiveness, arrogance, ego, resistance, rebelliousness or defiance. Everybody's got a 'thing,' and once you call your 'thing' a 'thing,' we can give it a place to be or dismiss it.
+- After being on 'Oprah' for a couple of months, I got my first royalty check for $1,478,392.17. I will never forget it. At the height of my career, I made $3.3 million. Unbelievable. From welfare in the projects to $3.3 million.
+- Gossip is when you have a malice of intent or mindless, third-party conversation to someone about someone, something you haven't said to that someone.
+- In my mind, marriage is a spiritual partnership and union in which we willingly give and receive love, create and share intimacy, and open ourselves to be available and accessible to another human being in order to heal, learn and grow.
+- Pain is pain, hurt is hurt, fear is fear, anger is anger, and it has no color.
+- I think as men begin to see things that address them, they will feel that they can relate. They can't relate to 'Basketball Wives,' 'Housewives of Atlanta.' I am not judging or criticizing those shows at all; what I am saying is the perspective is not necessarily the male perspective. 'Iyanla: Fix My Life' is inclusive of everyone.
+- People say I've had a difficult time in life. I think I've had an exciting time in life.
+- You know that you've healed an issue when you can talk about it and you're not weeping, when you can speak to it and identify the lesson. You know that you've healed an issue when, having gone through that, has a benefit that you live today.
+- Whether at work, at home or in public, we have been trained to believe that who we are at the core of our being is often unacceptable. As a result, we work diligently to live up to - and sometimes down to - what others have made us out to be, whether or not it is an accurate reflection of who we are.
+- Be willing to share all of who you are. So many of us want a partner, but we're not willing to show all of us.
+- If you don't like your sister or don't get along with your father, let's find out if you like yourself. Let's not sugarcoat anything about it.
+- I'm focusing on healing lives and teaching people that they can heal - giving them tools to heal.
+- For most of my life, I believed that my father had broken many of my bones. They were emotional and psychological bones; things no one could see, things that caused me to limp through life clutching for and holding on to people and situations that often rendered me immobile.
+- My purpose is to teach and demonstrate what is possible. To demonstrate love of God and good. Remember what my role is as a woman: to be... good. My role as a mother: to teach, support and nurture my offspring. My role as a grandmother: to remind everybody - right where you are, God is.
+- I try not to set myself up as different or as a celebrity or special. I have a husband that can get on my nerves. I have kids that test my patience. I've got a cat I can't keep off the sofa. It's real. On a bad day, I'm reading 'Acts of Faith.'
+- I really don't have any weaknesses. I do have areas of my life that I am working on to grow, heal and evolve. Giving myself permission to rest is an area I am working on. Not rescuing my children and grandchildren is another area.
+- A stable and nurturing childhood is essential for the healthy psycho-emotional and spiritual development of a human being. While we may understand what is supposed to happen to us physically, we must begin to better understand what happens to children mentally, emotionally and spiritually as a result of the families into which they are born.
+- All things are lessons that God would have us learn.
+- I realized it was happening, but most people didn't realize it was happening. I mean, because as a self-employed person, when there is a recession or a cutback in the economy, we feel it first. Because many self-employed people provide services that are nonessential.
+- Order is the first law of heaven, and you have to have order to survive on Earth. Figure out what has to be done each day, each week, each year and develop a system to achieve it.
+- Well the beauty of 'Iyanla: Fix My Life' is that men are in every show. To our surprise, some of the deepest healing demonstrations have been with the men - the sons, the fathers, the husbands - because they agree to participate with the wife or the daughter or whatever it is we are looking at, and it is there.
+- Begin within. If it shows up in your life, it's coming to tell you something about you that you're acting like you don't know. Something about yourself, or your relationship with God.
+- Why can't women get along? Because we're afraid. We're afraid to be vulnerable. We're afraid to be soft. We're afraid to be hurt. But most of all, we're afraid of our power. So we become controlling and aggressive and vicious.
+- I wasn't ready for fame and all that brings to your life. It was an amazing experience, but so overwhelming, because no one can tell you beforehand when it will happen or how it will impact you. So no one can tell you how to handle it, being stopped everywhere you go because people saw you on 'Oprah.' It took me over, and I wasn't ready.
+- What will support any relationship is clear, complete and conscious conversations when upsets or breakdowns occur.
+- The thing I always tell my audiences all the time is that I'm just two steps ahead of you on a good day. And I might be two steps behind you on a bad day.
+- I'm really not that fierce.
+- I grew up in the Holiness Church, where prayer was an event.
+- Oprah Winfrey gives you the stage? Shut your mouth. I said, 'I'm sorry for taking over your show.' She said, 'No, that's why we have you here.'
+- I've always told the truth. I think that's been part of the foundation of my career. I don't put myself above people. I don't put myself different than people. And I, for one, know that none of us is immune.
+- I've seen the good, the bad, and the ugly. Lived it and I'm still here to talk about it and help someone else if I can.
+- I'm moving into that eldership age, you know? I'm at the 'wise woman' age where it's not about learning, but utilizing the information that I have in a way that serves other people. That's a high calling and it's a great responsibility.
+- What I am doing; how I am being as I am doing it; and does it bring honor to my community? What is the lesson in what I am doing? And most importantly, am I having fun?
+- We really don't know how to love each other because we haven't really learned to love ourselves. In many instances, not all, it's not malicious. We've just been conditioned to such bad behavior.
+- It's about your heart and about your consciousness. It's not about length of time you pray. Some of the most powerful prayers I've ever heard come from children, who can barely speak.
+- I knew all of the childhood prayers I uttered on my knees at the side of my bed. Many years of Sunday-school attendance had etched certain Psalms and rote prayers into the fibers of my brain. However, somewhere deep inside of me, I had the secret belief that I did not know how to pray, and that frightened me.
+- Talk about your negative experiences with the father, with your girlfriends. Not with your children. And bite your tongue when it comes to diminishing, denying, dismissing, name-calling.

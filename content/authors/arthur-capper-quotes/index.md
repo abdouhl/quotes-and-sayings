@@ -1,0 +1,20 @@
++++
+author = "Arthur Capper"
+title = "Arthur Capper Quotes"
+quotes_len = "14"
+description = "the best 14 Arthur Capper Quotes"
++++
+- Any plan of administration which contemplates a concentrating of responsibility is open to the dangers which follow the creation of a bureaucracy.
+- Until the people, by amendment, change the constitution, I urge that the counties cooperate with one another, that future road work be more uniform, and done in such a way that it will result in connected and continuous highways.
+- We now consider as fundamental economic functions of the state, many duties that were left a generation ago to chance.
+- I urge the enactment of a civil service law so explicit and so strong that no partisan official will dare evade it, basing all rewards, promotions and salaries solely on merit, on loyalty and industry in the public service.
+- Following the war in Europe a large increase of European immigration to the United States is to be expected, of which the largest part is and always has been made up of men skilled in farming.
+- A boy or girl who has gone through the eight grades should possess a complete, practical education and should have received special training in some specific line of work, fitting him or her to earn a livelihood.
+- The pressure of special interests, the demands of special sections of the state, the needs of friends, all must be subordinated to the good of the people as a whole.
+- If we are to perpetuate the state, we must not only produce citizens, but good citizens - men and women of sound bodies, clear minds and clean souls.
+- Several amendments should be made to the primary and general election laws to improve them, but such changes must in no way interfere with a full and free expression of the people's choice in naming the candidates to be voted on at general elections.
+- We spend more than a million dollars a year on our colleges and university, and it is money well spent; but we must have education that fits not the few but the many for the business of life.
+- County government can be simplified greatly by reorganizing and consolidating some of the offices, making others appointive, and reducing salaries in keeping with the salaries paid by private business for the performance of similar duties.
+- It is our duty to see that our future citizens are well born; that they are properly nourished, and are reared in that environment most likely to develop in them their full capacity and powers.
+- For the 95 per cent whose only means of schooling is the district or the city school, we must provide what we are not now providing, an education that will better fit them for the struggle of life.
+- The farmers in Kansas are sorely in need of a credit system meeting their special requirements, that they may more readily obtain money on short or long time for their farming operations, or that they may become owners of farms.

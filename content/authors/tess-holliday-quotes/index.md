@@ -1,0 +1,106 @@
++++
+author = "Tess Holliday"
+title = "Tess Holliday Quotes"
+quotes_len = "100"
+description = "the best 100 Tess Holliday Quotes"
++++
+- Learning to love yourself is not going to happen overnight - the first step is trying to be kinder and more patient with yourself, and I understand that it takes time.
+- I wanted to become a model out of delusion. It was always something that I wanted to do, I just never thought that I would have the opportunity.
+- My only challenges for winter are jackets because I have big arms.
+- I have to wear Eloquii to red carpet events where my friends are wearing custom Versace.
+- It's hard enough to break into my industry when you're my height and my size but adding the tattoos on top of it, there's not many clients that will hire you if you have Miss Piggy tattooed on your arm.
+- The States are more accommodating to fat people - there are more plus-sized clothing labels, and people talk openly about it.
+- I don't have any styling rules - for me, it's all about wearing what makes you feel good.
+- Designers are either not interested in making larger sizes or they don't feel that it's important.
+- I mean, if people still want to hire my 34-year-old fat butt for campaigns and let me be myself then I'm all for it.
+- I've never taken no for an answer.
+- We need to support our LGBT youth.
+- I feel sexy when I can be in charge of how I present my body and how I am in this world.
+- All I want is to feel good and really own my body, and that's what I tried to create.
+- I didn't realize how important it was to exfoliate and moisturize the days leading up to getting a spray tan.
+- I was bullied from fifth grade on. They started making fun of me because my mom was in a wheelchair, then they started making fun of me because I was poor and then it evolved to my size.
+- Being able to love who I was, while also understanding that I deserved to be treated with kindness, helped me create a more positive and happy environment for myself.
+- Ultimately, I don't really want to see the media portraying curvier and fatter bodies being the norm, I want to see a variety of bodies of all shapes, sizes, colors, and orientations, all of the time just like we do in reality.
+- I don't share a lot of my kids on social media for a reason.
+- I do admit that black men love me. I always forget that, and then I come to a black neighborhood and I remember.
+- I'm at the heaviest I've ever been in my life now and it took me being the heaviest to finally love myself.
+- I'm not like recruiting people and starting a cult and telling people to be fat.
+- I've been asked a lot lately if I had a hard time getting pregnant. I've been asked how I conceived. In the same way everyone else does!
+- What shaped my perception about my body and myself was finding better clothes - that's what changed my world.
+- I think it frustrates me that so many people have bought into the idea of what we should look like instead of actually giving a crap about everyone around you.
+- In the beginning I used to say, 'I'm healthy, my cholesterol's fine, I don't have high blood pressure, I don't have diabetes.' By telling people that you see a doctor, and telling people that you're healthy, it's perpetuating the abuse against bigger bodies and the mindset that we owe it to people to be healthy.
+- Many companies and publications don't understand what it means to be body positive or what it means to be plus-size. They're just trying to capitalize on the term because it's a hot topic.
+- I'm OK with being called plus size, I'm OK with being called fat. If someone is shouting that I'm fat in the street in a derogatory way, then obviously I'm not OK with that, but I'm comfortable using the adjective fat to describe myself, because I am fat.
+- I think people think how I got work came easy. People assume that I was an overnight sensation, because they're just now hearing about me, or that everything happened very quickly.
+- The plus-size fashion world is definitely built by women of color - 100 percent.
+- When I describe myself as fat to people, whether it's a driver, anywhere around the world, or a friend, and I'm like, 'Oh, it's just because I'm fat,' people are like, 'Don't say that about yourself.'
+- When you become an adult and you have a choice of who to have in your life, if someone's hurting you and making you feel bad, then they shouldn't be in your life, even if it's a family member.
+- I just say throw on your bathing suit or the shortest shorts you own regardless of your size and rock it.
+- Sometimes I feel like a million dollars and sometimes I feel terrible. But I've always been open about the fact that it's OK to be human and embrace those feelings.
+- My health is no one's business.
+- I think it's really important for all young girls to see themselves represented in fashion so they don't feel alone in the world.
+- Being fat doesn't necessarily make me feel stronger. What makes me feel strong is knowing that I can live my life and be who I want to be.
+- Love is, to me, a lot of different things. It's the love you have for yourself and if you have a family and friends. Your love for pizza. I feel like love can be really anything that you want it to be.
+- The real issue that I have is the erasure people are trying to do with my very valid feelings in regard to how plus-size and fat people are treated in fashion. The way that people just kind of overlook us and pretend that, you know, we don't have style, that we aren't trendy or fashionable. It's dehumanizing.
+- Millions of followers doesn't equal millions of dollars.
+- I would really love to work with major photographers who haven't featured plus-size models before.
+- I feel like it's important to talk about my health, which is fine, and my size because there are young girls who see someone like me and can validate their own existence.
+- I think in the past, I was motivated by seeing what I could do with my own career as far as success. I was definitely motivated by my followers and family, which hasn't changed.
+- My mom is one of my best friends.
+- I'm a normal person, but people see me as this person who's not really real, almost like I don't have feelings. They think they can treat me any way they want to.
+- I've seen a lot of Black content creators calling for white folks to stop using the voices of Black folks to make TikToks because it's like digital blackface. That's valid.
+- I am technically healthy but my body is no more valid than someone's who isn't.
+- No one tells you that when you get older sometimes you never escape the bullying. I had no idea people could be as mean as they are when you're an adult.
+- Don't get me started on PETA.
+- Just because we're plus size, doesn't mean we have to prove that we're healthy, just as someone who is smaller than us or average size doesn't have to prove they are healthy.
+- The societal obsession with appearance is definitely something that weighs on your mind as a model.
+- People laugh in my face sometimes if they don't know who I am. When they find out that I model they're like, 'well what do you model?'
+- I've noticed that a lot of people who criticize me are from the U.K. - both in the press and on social media. Since I've been here, I've gotten a lot of stares on the street, but in the States, people always come up to me and say, 'I love your hair' or 'I love your dress, you're so cute.' Here, people just look at me like I'm a crazy person.
+- Why is it controversial to talk about the fact that fat people deserve to take up space and deserve to be sexy?
+- Why is it controversial that I chose to talk about my abortion? And the fact that I got an abortion when I was in a marriage and could have financially supported a child, why did I feel so much shame for that?
+- Loving yourself is a journey, not a destination.
+- None of us have it all together; it just seems that way on Instagram.
+- I was really self conscious as a kid, I felt terrible - like a prisoner in my own body.
+- I'd like to be the person who changes things, or at least open doors for others.
+- I can live my life, I can be at Disneyland and eat fried chicken, and that's my choice.
+- Miss Piggy's a big girl, and glamorous, and people think it's silly when I say she's a role model to me, but she was.
+- It's refreshing and weird when your kids get older and they're able to tell you how they feel and what they want.
+- Health is everyone's personal decision. It's their choice and I think that should be respected.
+- I represent women that you don't see a lot in media and in print.
+- If I have the opportunity, a massage or facial is a great way to take a little 'me time.'
+- Casting plus size girls needs to be genuine.
+- I was raised to believe that sex was shameful, that you should only have sex when you're married. I'm so glad that I didn't listen to that advice.
+- One thing I think constantly is if brands like Gucci can make plus-size menswear, then why can't we see it for women?
+- I prefer waist-length or cropped motorcycle jackets because I'm petite.
+- My past is just that, my past. I try to not think about it and only keep moving forward.
+- The majority of my following is not plus size, it's very diverse.
+- I don't have to prove that I'm healthy to anybody.
+- I was angry and sad that people kept commenting on my pictures saying, 'You're too fat to wear that!' or 'Cover up! No one wants to see that!'
+- I don't understand why it's not okay to be plus-size. I don't know why people hate that phrase. Many models have built their careers as plus-size women and then suddenly don't want to be called that anymore. But you're still cashing checks from plus-size designers.
+- Obviously there aren't many opportunities for someone who looks like me to walk in fashion shows. It's incredibly frustrating.
+- I think that some of the biggest surprises I've had early on, actually to this day, are all the misconceptions about my body and my health. There are so many people who think that being a plus-size model, that there's something wrong with it, or that I must be unhealthy or that I'm promoting an unhealthy lifestyle.
+- Why would I want to walk the runway for a brand to be their token plus-size girl when they're not even making my size?
+- If you want to eat pizza, have the pizza. If you want to run 5 miles up a hill, cool, go run. Do whatever you want to do, but don't let the size of your body and other people's opinions about you stop you from living the life you deserve.
+- Obviously I probably have internalized fatphobia about myself and what the world has ingrained in us.
+- Plus-size is a term that's never been used in hate; no one has ever used it in a negative way. The industry has always used it to help us identify where to shop.
+- It's really hard to find boots for plus-size women because most of us have larger calves - not all of us, but most of us - so it's hard to find boots.
+- I'll wear a crop top if I'm not loving my stomach because it kind of forces me to pay attention to it and to love it, really.
+- For so long advertising hasn't been inclusive when it comes to plus sizes which is crazy to me.
+- I have no friends from high school. That was probably the reason I ended up dropping out, and I dealt with that by eating.
+- I've been thinking a lot about my relationship to my own queerness, and I think the word pansexual speaks to me more than bi does.
+- You can start with daily affirmations of love to yourself, like, 'I am worthy,' 'I am beautiful,' and 'I am loved.'
+- I love layers. And I definitely love boots and hats, I have a ridiculous amount.
+- I firmly believe that a big part of the obsession with women's thinness comes from the same place as male power fantasies.
+- I take antidepressants, which I was embarrassed about for a long time, but it keeps me going.
+- My style is very eclectic, definitely more '60s and '70s inspired.
+- I've been fortunate enough to pick the brands that I collaborate with based on if they feel authentic to me and if it's on-brand with what I am doing.
+- I have created a life for myself that I only thought was literally a dream.
+- I would love to be in the pages of Vogue.
+- Self-love is for everyone and we all need it!
+- I love taking baths with Lush bath bombs, or just sitting in a dark room and watching Netflix to turn my brain off.
+- Imagine just wanting to share photos of my kid and instead being told I'm unfit to be his mom because of my size.
+- Designers still won't dress me, and if they do, they will send a dress that doesn't fit me because it's the only sample that they have in their office that we can get to in time, and then it's hard because I don't want to support certain brands that I don't feel like are diverse in their messaging.
+- I've been called fat my whole life. I am fat, so it's kind of silly to get mad about it.
+- I think that people think that since I literally wrote the book on how to love yourself that I love myself all the time, but I don't.
+- At the end of the day, we all have issues with our bodies.
+- I can never celebrate a success in my career without it being picked apart because of my size or 'my health.'

@@ -1,0 +1,36 @@
++++
+author = "Kate O'Mara"
+title = "Kate O'Mara Quotes"
+quotes_len = "30"
+description = "the best 30 Kate O'Mara Quotes"
++++
+- Probably the only type of cosmetic surgery I'd consider is having my bust reduced. It's alright for my current role in 'The Marquise' because it's a costume drama, which means boned corsets and a bit of cleavage, but it's a drag otherwise.
+- I enjoy producing because the show becomes your baby.
+- I have very long, wild hair, a suntan and wear knee high boots and ignore all the rules about what you should or shouldn't wear at whatever age.
+- I never have cakes or biscuits. I don't have a sweet tooth at all, and I can't stand chocolates - I find them so sickly. However, I will buy cakes if I'm expecting company.
+- Shakespeare is where I live. I adore him.
+- Why should anyone be interested in my life? It's the prurience I find so extraordinary. Why, why, oh why should my private life be of any interest to the public? The only people who should be interested are my friends.
+- What really interests me is how a woman who has had a bad experience with a man comes through it and gets a new life. I feel you have to be positive. You have to say, 'Look, okay, he's ditched you, but there's life after.'
+- When eating out while on tour, a great place to get vegetarian food is Thai restaurants, as they have lots of options. I absolutely adore salad and vegetables - I will eat salad until it's coming out of my ears. Although I think it's great in any form, my particular favourite has to be beetroot salad.
+- I love the Wendy Syred boutique in Taunton. She has fantastic off-the-wall stuff, such as Vivienne Westwood. And I always have huge success in Omah Shoes, which is also in Taunton. I've got such small feet - three and a half - but I always find my size there.
+- I'm still a size 10, but it's the toning that's getting me down, and I think it can only get more difficult as I get older. Either one gets very thin and scrawny, or one puts on poundage; I'm definitely not going to pile on the pounds, so I can expect to end up scrawny.
+- I have white hair now, but a lot of it, and I'm still very glamorous, and so I won't disappoint, I hope! I'll still be wearing the tight leather trousers and high-heel boots, regardless of what age!
+- Ignorance of the facts of life gave me my beloved son, Dickon, but at what cost to both him and me, I cannot hazard a guess.
+- I was asked to do 'I'm A Celebrity Get Me Out Of Here,' and I said: 'No thank you.'
+- The trouble with some cooking is that the real flavours get cancelled out by the wine, cream, and butter sauces.
+- I used to play a lot of foreign women in my youth because I was prettier then. I would go for interviews, and directors would look at these sultry, exotic looks, hear this clipped accent and think the two don't go together. So they would give me a foreign accent.
+- I knew 'Bad Girls' attracts a younger audience, and it's vital to get oneself known to that audience because, unless they watch me in re-runs on 'U.K. Gold,' they won't know me from a hole in the ground.
+- Whenever I get on stage, I feel safe and in control. Life can be so uncertain, but on stage, I always know how a drama or crisis is going to end. Acting is a great comfort blanket and has gotten me through countless personal crises. I am a firm believer that the show must go on.
+- I would like to be where Diana Rigg or Judi Dench is, but I expect it is as good as it is going to get.
+- I have tried Botox, and I don't like it because it stops you being able to move your facial muscles which, as an actress, are essential. But I do have collagen injections.
+- The ghastly thing about being a producer is that, once the curtain goes up, there is nothing you can do. At least when you are in it, you have some measure of control. If something goes wrong, you can maybe put it right. When you are in the audience, there is nothing you can do.
+- Because my career has been based so much on my looks, when I finally pass my 'sell-by' date, I think I'll probably pack it in. Unless I make the changeover into playing witches or something, I don't see what career I can have.
+- I try to write about a woman finding her self-respect, valuing herself, and liking herself again. But what one desperately wants now is to write a proper novel.
+- I've always been unhappy with my teeth. I've lost most of them from my bottom jaw, and those in the upper jaw have been screwed in or capped. As a result, I've got great hollows under my cheeks, and my bone structure seems accentuated.
+- I never drink cow's milk; I always opt for the soya alternative, and when I eat most dairy products, it tends to be in extremely small doses. However, being a vegetarian means I have to get protein from somewhere, so I do eat eggs and cheese about once a week.
+- I'm vegetarian and stick to a strict health regime of brown rice, tofu, salads and soya milk. When I'm at home in Somerset, I buy almost everything in the local farmshops including Barleymow's in Chard. I always get organic - I like happy hens.
+- I'm actually quite a nice person. It's to do with the way I look, an uncompromising sort of face, brusque delivery and voice, and I think the combination of all that. When I'm doing pantomime, children will scream the place down before I open my mouth. There's obviously something that really gets them.
+- I am fortunate in having this bone structure because I have a tremendously prominent temple. I like to think that's it's because I'm so intelligent. People say: 'You haven't got a line on your forehead.' I do. It's just the bones are holding them all out, and the cheekbones are holding my face up.
+- I've been vegetarian for virtually all of my adult life, and I do adopt a very strict health regime.
+- If you put a much older woman in 'Doctor Who,' they can identify with it. I think it's quite an interesting concept, and if you remember things like 'Grimm's Fairytales,' the older woman is often the villainess, often the terrifying figure - why I do not know, but often she is. I think it's an idea to be exploited.
+- On the whole, I have quite a low opinion of men.

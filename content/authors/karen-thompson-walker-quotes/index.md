@@ -1,0 +1,34 @@
++++
+author = "Karen Thompson Walker"
+title = "Karen Thompson Walker Quotes"
+quotes_len = "28"
+description = "the best 28 Karen Thompson Walker Quotes"
++++
+- I can write all the way through the morning, when my mind is clear, and there are no distractions.
+- I was a book editor for nine years. I'm familiar with the opposite experience, bracing myself for the likelihood that no one would want to publish my book.
+- It took me years to learn that sentences in fiction must do much more than stand around and look pretty.
+- Feeling earthquakes was part of growing up, and also preparing for them: doing earthquake drills, or having earthquake supplies. The looming feeling was part of my life. My experience of earthquakes has always been more the fear of them, or the possibility.
+- I tend to mostly take the day off from working on Sundays, but I do spend some time reading. Mostly what I'm picking up is what's in stores. I really do love to read fiction from the last year or two.
+- To some degree we all live with uncertainty. We have no control over the future. Yet we carry on, we persevere, because, I guess, it's the way we're made.
+- A good story, just like a good sentence, does more than one job at once. That's what literature is: a story that does more than tell a story, a story that manages to reflect in some way the multilayered texture of life itself.
+- Just like all great stories, our fears focus our attention on a question that is as important in life as it is in literature: What will happen next?
+- In general, I think I'm quick to worry about disasters of all kinds.
+- End-of-the-world stories tend to ring true. I've always been drawn to them, but as I wrote my own, I found surprising pleasure in creating a world that is so radically changed, yet where there's so much meaning and value in every small and ordinary thing we have, and take for granted: hot showers, enough food, friends, routines.
+- I wake up fairly early every day, by 8, for sure. Sunday is a lighter writing day than the weekdays, but I still wake up and write for about an hour, beginning right around 8. I definitely have coffee first, and then I start writing. I do think it's kind of hard to get the right level of concentration without coffee.
+- Shortly after the 2004 Indonesian earthquake, I read that the earthquake had affected the rotation of the earth, shortening the length of our 24-hour day. Even though the change was extremely slight - only a few microseconds - I found the idea incredibly haunting.
+- I left my job in the fall, and now I can set my life up around writing instead of squeezing writing into my day; it's amazing to have that time, and I feel very lucky.
+- As an editor, I read Charlotte Rogan's amazing debut novel, 'The Lifeboat,' when it was still in manuscript. I read it in one night, and I really wanted my company to publish it, but we lost it to another house. It's such a wonderful combination of beautiful writing and suspenseful storytelling.
+- Our fears are an amazing gift of the imagination... a way of glimpsing what might be the future when there's still time to influence how that future will play out.
+- Sometimes I think I might not have written 'The Age of Miracles' if I hadn't grown up in California, if I hadn't been exposed to its very particular blend of beauty and disaster, of danger and denial.
+- I first started writing fiction in college because I was attracted to beautiful sentences. I loved to read them. I wanted to write them.
+- I fell in love with Virginia Woolf in college. I especially admire how well she writes about daily life, how she captures so much meaning and consequence in the smallest details of a day.
+- Sentences or solutions occur to me in the shower, or while running on the treadmill, or riding on the subway.
+- If I read a scary story in the newspaper, I find I'm haunted by it.
+- I'm an only child, and I think one of the sweet things about that is that my parents are really interested in every aspect of my life.
+- These days, I like to think of sentences as workers. Only one of their jobs is to look and sound good. Sentences are the carriers of plot. They're the conjurers of images, the conveyors of tone and meaning and voice. The best sentences surprise us.
+- There's a pleasure in being reminded of the value of ordinary life.
+- Fear is... a kind of unintentional storytelling that we are all born knowing how to do.
+- I like to edit my sentences as I write them. I rearrange a sentence many times before moving on to the next one. For me, that editing process feels like a form of play, like a puzzle that needs solving, and it's one of the most satisfying parts of writing.
+- I feel like writing a book there's always a version in your head that's an amazing version, but then you write the version that you can write.
+- The books I love most are the ones that combine some sort of gripping story with really beautiful or stylish writing. Some of my favorites are 'The Road' by Cormac McCarthy, 'The Virgin Suicides' by Jeffrey Eugenides, 'The Interpreter of Maladies' by Jhumpa Lahiri, and 'Blindness' by Jose Saramago.
+- I love conventional apocalypse movies. In movies, I like to be with the president, or the scientist trying to solve the problem, but that's not the kind of fiction that I like to read.

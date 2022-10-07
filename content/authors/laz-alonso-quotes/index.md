@@ -1,0 +1,30 @@
++++
+author = "Laz Alonso"
+title = "Laz Alonso Quotes"
+quotes_len = "24"
+description = "the best 24 Laz Alonso Quotes"
++++
+- There is a little bit of me infused in every character I play.
+- Being able to travel and see the world really makes me appreciate the blessings in my life. There are so many people that will never get a chance to see some of the things that I've seen during my travels. I'll never take that for granted.
+- I've been very blessed to work in some films that I'm very proud of.
+- I'm a big fan of 'Star Wars.' Some of the most iconic characters of 'Star Wars,' we didn't see their faces but to this day you can say Jabba the Hutt or Darth Vader and people know what you mean around the world.
+- I want to play roles that I'm proud of, that I feel a certain integrity about, and I want to continue to be truthful in the work that I do.
+- I believe in my heart that 'Avatar' is going to be the revolutionary sci-fi movie for this generation, in this era.
+- I love that period, between the '20s and the '60s. I love doing period pieces, and those eras are my favorite period in time, music wise, and the elegance and the way of being.
+- 'Fast & Furious' is a well-oiled machine. Those guys really know what they're doing. The guys that work behind the scenes are just as important as the ones in front of the cameras. They are car enthusiasts. They live and breathe this world.
+- Eventually one day I want to direct, but as of right now my next cap that I'm looking for is the producer cap.
+- As Africans Americans we often think about the tragic stories associated with our lineage, but there are a lot of triumphs. Traveling helps you learn about other aspects of our history, like the story of Christ the Redeemer. It's empowering and inspiring.
+- I think the biggest lesson that I take from 'Avatar' on any set that I go to is just work ethic. Working with Jim Cameron, you're used to working very, very long days and you're very meticulous about details. He's very, very picky about little details, little character-isms and things.
+- My buddies all still make fun of me about the whole 'Leprechaun' thing, and I'm proud of that movie. I'm just as proud of that work as I am of anything else that I've done. I feel like where I was in my career at the time, I committed to the character.
+- When you are really in love, you become vulnerable, and insecurities come out of nowhere.
+- I like speed, so I like taking the jet skis out and hitting the water, or hitting the lake. In the winter, unfortunately, I used to ski a lot but I haven't been able to ski in the past few years because thank God I've been working, so that's a good reason not to.
+- I'm flattered that women think that I'm sexy.
+- I love HGTV. I love working on my house and have really been bit by the 'luxury remodeling' bug. 'Million Dollar Rooms,' 'Million Dollar Listing'... any show that can give me design inspiration, I soak it in and try my hand at it. Home Depot is my second home!
+- My entire life, I've always known that I wanted to be a performer, but I didn't know exactly how, where or when. I never learned or studied the craft, formally. I grew up doing martial arts and playing piano. But, something inside of me always said that I was going to do this, as far back as I can remember.
+- I'm a martial artist. I've boxed all my life. I work out. I studied Hwarangdo, which is a Korean style.
+- You may have seen me in movies like 'Fast & Furious' and 'Avatar.' But I wouldn't have been able to do any of that without hard work and determination. You can accomplish anything if you just stay out of trouble and do the right things.
+- It's funny because when I got 'Jarhead' and 'Avatar' and all those movies, 'Leprechaun' still to this day airs on BET. I was thinking, 'Will they just let it go? I finally have a body of work that can speak much better to what I can do than just Leprechaun.'
+- 'Miracle at St. Anna.' I was challenged by Spike Lee. When he offered me the film, he looked me square in the eye and said, 'You start this film off and you end this film. I don't want a dry eye in the theatre. Can you pull that off?' He was dead serious.
+- Growing up in D.C. there are so many different types of educational and professional levels. They call D.C. 'Chocolate City' but just because we're all chocolate doesn't mean we're all the same. In D.C., everyone co-exists harmoniously but the lines are still drawn. And people don't really step over those lines.
+- You know, I think a lot of times what happens when we as actors know we're playing a bad guy is we get into bad guy mode. You know what, man? In real life, bad people do good things too and good people do bad things. So you don't necessarily have to be the stereotypical bad guy to still do bad things.
+- There was a day where I was sitting at my desk, working 90-hour work weeks, in a suit, looking at a computer, with all these pitch books on my desk, and I just thought, 'This can't be my life.'

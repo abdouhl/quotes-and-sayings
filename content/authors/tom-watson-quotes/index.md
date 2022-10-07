@@ -1,0 +1,39 @@
++++
+author = "Tom Watson"
+title = "Tom Watson Quotes"
+quotes_len = "33"
+description = "the best 33 Tom Watson Quotes"
++++
+- I'm very happy with my life. I am what I am. I don't worry about anything that I can't control. That's a really good lesson in life.
+- I have a special feeling for Blue Hills CC, where I won perhaps the most important tournament of my life when I was 14 - the Kansas City Match Play Championship. It gave me a dream of becoming a professional golfer.
+- I've said many times, 'You learn to win through not liking to lose.' And that's what I mean by learning how to win.
+- The beautiful thing about the game of golf is you can play good golf and compete well into your later years, and you can't do this in basketball or football or baseball. But in golf, it's a longer live sport.
+- Golf is a game of ego, but it is also a game of integrity: the most important thing is you do what is right when no one is looking.
+- Sometimes thinking too much can destroy your momentum.
+- Golf will grow so long as it's fun.
+- A lot of guys who have never choked have never been in the position to do so.
+- No other game combines the wonder of nature with the discipline of sport in such carefully planned ways. A great golf course both frees and challenges a golfer's mind.
+- I'd rather fight 100 structure fires than a wildfire. With a structure fire you know where your flames are, but in the woods it can move anywhere; it can come right up behind you.
+- The person I fear most in the last two rounds is myself.
+- I guess I have never been much of a complainer. You just take what is given you, and don't complain about what you can't affect.
+- I always could putt. Part of my makeup, I always could putt.
+- My favorite meal has always been fried chicken.
+- If a course needs to be in great condition to be played effectively, then the design strategy is flawed.
+- When you come off that last hole and you've just finished a good round of golf, life is good. When you come off that last hole and you messed it up through four or five holes and just played a lousy round of golf, it's just not a very good day. It just isn't.
+- My father wasn't a hard guy. He was a well-liked guy. He had a lot of compassion about things in life. There were rules, but there was also flexibility within those rules. He didn't push me when it came to golf: he just taught me the right way to play the game.
+- Confidence in golf means being able to concentrate on the problem at hand with no outside interference.
+- It's time for old players like me, old fogies like me, to give it up and let the young players have a chance.
+- The golf swing is a violent swing. You twist, and your spine is under continual stress when you're making a golf swing. Your neck, your spine, your hands, your knees, everything.
+- Golfers who play a lot of courses often encounter short ledges or retaining walls, and I always had fun hopping down from them. I could jump off something six feet high and land like a cat, no problem. Well, today I can't jump off anything higher than two feet without it just killing me.
+- My career was one of just taking it step by step. I didn't know how I was gonna fare on the professional circuit when I qualified. I didn't know whether I was gonna make a dime. I didn't know anything but this one thing: I had some dreams, and I was gonna work harder than anybody out here to ply my trade.
+- I'm not accepting of whiners.
+- I hope that I've been able to treat people with the respect they've shown me. That's basically the tenet you try to live by. I haven't been successful at it all my life, but that's what I strive for.
+- We tournament golfers are much overrated. We get paid to much.
+- I love the way the game of golf is lived and played in Scotland. I always have.
+- I didn't learn how to swing a golf club until late in my career. And even though I won all those tournaments, I still struggled with consistency, and I relied on my strengths, which were hitting the ball long and high, and I could chip and putt with the best of 'em.
+- That's one of the things you get when you're playing golf. You get bad backs, bad necks.
+- I played team sport as a kid and loved it. I played basketball and football throughout high school into college in the intramurals and I loved it. There was nothing like a team.
+- Any time you play in a USGA Championship, if you don't drive the ball on the fairway, you're dead. You're done.
+- You don't have to go to church to be spiritual, but there are certain times in your life that you know there is a presence of something very spiritual.
+- Some guys have trouble sleeping the night before an important round. I never have. Invariably, I sleep longer and better, and have more dreams, when I'm in contention and feeling pressure.
+- From the time I won the Kansas City Match Play championship at age 14, I never wanted to be anything but a golfer.

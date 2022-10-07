@@ -1,0 +1,89 @@
++++
+author = "Laura Linney"
+title = "Laura Linney Quotes"
+quotes_len = "83"
+description = "the best 83 Laura Linney Quotes"
++++
+- Some people's personalities are so compelling that they command attention.
+- I grew up in Manhattan on the Upper East Side.
+- My parents were divorced and I would spend weekends with my father.
+- It's always nice when you do something and it's well received as opposed to the other way which God knows happens to everybody. When the good times come around, you take a deep breath, appreciate it, but not take it too seriously.
+- The entertainment industry is terrified of silence.
+- It's very hard to put forth a film that's about love and the joy of love and for it not to be patronising and not make people nauseous or make them roll their eyes.
+- If there's one thing that I've done on purpose it's to take whatever job, so long as it's interesting and challenging, whether it's theatre, radio, TV or film.
+- All the things that most kids hated, I loved. I loved that things were asked of me and that, much to my surprise, I was able to do them. I loved the 10 o'clock bedtime. I loved the responsibility.
+- You can watch someone on-stage cry and cry - but in the audience you feel nothing. It's easy to become indulgent. For me, what's important is the story first.
+- A lot of what is publicized now is really pretty trivial stuff - you know, what I eat for breakfast, where I have my pedicures, questions that I just cannot for the life of me understand why someone would want to know that.
+- People can't really place me. They're not really sure who I am.
+- I think the way we talk about cancer has really evolved. I remember the way my grandmother used to talk about it, like a death sentence, no-one would even mention the word.
+- I crave a cone of silence every once in while.
+- I don't want to spend my life in my 40s feeling bad about being in my 40s, and then all of a sudden I'm 50, and I will have missed a whole decade!
+- Working with special needs children is hard.
+- I get cold - really cold - when I travel.
+- With big, emotional roles it's very easy, especially if you've grown up in the American school of acting, to exploit your own pain. You have to be careful about that, because 9 times out of 10, your pain is not appropriate to the character.
+- Doing the right thing has power.
+- Fame didn't happen to me in my 20s, it has been a gradual thing which probably makes it easier to deal with.
+- Tanning is tricky, because a lot of people just look orange.
+- I grew up in Manhattan and, since my father was a playwright, all I ever wanted to be was a stage actress.
+- I have a bag with a toothbrush and toothpaste and all the things I might need during the day. I call the bag my trailer. Sometimes you don't have a trailer, so that's my trailer.
+- I don't think I'm exactly gregarious, you know. I'm not usually known as the loud person in the room.
+- At school I was always trying to con my teachers into letting me act out book reports instead of writing them.
+- My family is from the South, and I can remember all those ladies I grew up with, like my great-aunts, who had handkerchiefs. There's something sweet about them.
+- I hope that anyone I worked with wouldn't exploit our relationship.
+- Comedy is a way to make sense of chaos. It's a way of dealing with things that are overwhelming, that threaten you; it's a way to survive and get closer to the truth.
+- I don't consider myself a celebrity and I don't consider myself a star.
+- I love working closely with people.
+- What I love about a play is that it's such an investment because only time can create a lot of what happens onstage.
+- I'm not someone who likes to have my picture taken, let alone see it plastered all over the place.
+- If you have two parents who have to work, who want to work, you need to have someone to guide your child.
+- I have an instinct to want to be part of a group of people. I feel safe there. That's why I was in school for so long.
+- I believe that no matter what you do in life, if you learn the basics through theater, it will help you in everything else - problem solving, communication, discipline, all of that stuff.
+- I had a good imagination and I still have one; a child-like imagination that hasn't gone away.
+- I've always thought that I'm sexy in my own right, but not in a way that people thought was bankable.
+- I find the whole disdain for ageing crazy.
+- I certainly didn't have a nanny.
+- The thing about death is that it's honest.
+- My experience is that's rare - that you have a script that is... what they call 'film-ready.'
+- A magnetic personality doesn't necessarily indicate a good heart.
+- The good thing is that I'm always honest.
+- Traits like humility, courage, and empathy are easily overlooked - but it's immensely important to find them in your closest relationships.
+- I'm sure my father had more to do with my career than I would like to give him credit for. I would love to think it was all me!
+- I just want to say, 'Go work! It doesn't matter what it is. Work begets work. Just go!'
+- The only really conscious decision I made was to cast my net wide and if the work was good, to do it.
+- You have to relish the challenge of television.
+- Fear, anxiety and neurosis: that's just in the suitcase when you're an actor.
+- I'm lucky because I don't like being in the sun a whole lot, just because the repercussions for me - I feel it, I go very red.
+- I always laugh to myself when I listen to some really big A-list star saying that they are just a normal person.
+- When your life is being threatened there's an instinctive urge to fight. You fight for the time you have, for your relationships.
+- People's view of cancer will change when they have their own relationship with cancer, which everyone will, at some point.
+- I am very aware that playwrights, particularly good ones, have a intention for everything they write. Language and punctuation is used specifically, and most of the time actors can find wonderful clues about character in the rhythm and cadence of the language used.
+- The goal seems to me at times just to be business first.
+- For me to have the opportunity to stay with one character for, God willing, a long period of time, is really exciting.
+- It is always good to explore the stuff you don't agree with, to try and understand a different lifestyle or foreign worldview. I like to be challenged in that way, and always end up learning something I didn't know.
+- History's a resource.
+- Courtroom dramas can be boring.
+- I am very lucky, because for the most part people are very nice to me, and I am still able to go about my life and ride the subway and all that.
+- I mean, the idea of losing a parent is really inconceivable. I think there's just an undertone of dread about the subject, so people don't talk about it and don't prepare for it.
+- Cancer is so much bigger than a TV show.
+- I'm very hard on my bags because I tend to carry a lot of stuff with me.
+- What I find so interesting about people is the choices they make, and how that effects their behavior, their sense of self and their relationships.
+- I had learning disabilities, and I couldn't express myself in the written word.
+- I think everyone's experience with a terminal disease is so deeply personal and unique to the person, the context in which they're living and the relationships that they have.
+- I'm noise-sensitive. It's always better for me if things are quiet, so I can concentrate.
+- I've seen the greatest actors in the world, transcendent talents, who can't find a home.
+- I can scarcely stand to have a manicure. I have to have them because you don't want to look like a disgusting human being - it's self-care and it has to happen, but I get very restless.
+- I just have to concentrate on doing what I do.
+- I don't think you should exploit your own pain.
+- You know when someone's over-flattering you in a way. You smile but you can't believe it.
+- I'm profoundly lucky. I really like it. I really like my work. I've liked it since I was 5 years old.
+- I love to work in all sorts of different situations.
+- Just because you're not famous, doesn't mean you're not good.
+- I'm absolutely doing what I enjoy.
+- I could have gone to the gym for three hours a day and bought into all that, but I just wasn't interested.
+- I tend to make low-budget movies but, yeah, I make more money than I ever thought I would make.
+- What I hope in my ideal world is that with each project, I'll either get to work with a really great script that would force me to grow, or work with a really great actor who will make me better.
+- I enjoy learning about different periods and people, and then taking what's universal about the human condition and seeing where it matches up. No matter where you are, certain things unite everybody.
+- My castings sort of go in phases. There'll be several icy professional parts - a lawyer or a cop. And then there'll be the intelligent-but-wounded group and then the period things. It goes in sequence.
+- I love 70's music.
+- What people can survive and what they don't survive is shocking to me. Someone can go to Iraq and be blown to bits and survive. Someone can trip and fall on the street and they die - that's that.
+- People can't really place me. They're not really sure who I am. Sometimes they think I'm Helen Hunt. Sometimes they think I'm Laura Dern.

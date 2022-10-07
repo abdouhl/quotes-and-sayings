@@ -1,0 +1,40 @@
++++
+author = "Carl Paladino"
+title = "Carl Paladino Quotes"
+quotes_len = "34"
+description = "the best 34 Carl Paladino Quotes"
++++
+- If you're a citizen of the State of New York, your kid has as much a right as another kid to an education, and the best education. The money should be distributed equally to all.
+- I'm a very spontaneous person. If someone aggravates me, I'm going to go after them. I wake up every morning, and I say, 'What bad guys should I go after today?'
+- I see a New York that is once again the empire state.
+- I just think my children and your children would be much better off and much more successful getting married and raising a family, and I don't want them brainwashed into thinking that homosexuality is an equally valid and successful option - it isn't.
+- We're going to restructure the state government into a government that's responsive to the needs of New York state taxpayers.
+- People are really upside down. They want a government they can trust. They want one that's not going to raise their taxes by $15 billion and not lay off one state employee.
+- I'm not a homophobic.
+- The death of my kid made me a stronger person. There's no end to what I'm willing to do.
+- I'm not part of the friends-and-family club; I'm not part of the pay-to-play club; I'm not looking to get re-elected. I'm not looking to go to another office and fill my campaign coffers. I don't need any friends in Albany except the people of the state.
+- No, I'm not politically correct. I never wanted to be, and I never will be.
+- I have a great sensitivity to kids. I have a great sensitivity to the people that fall between the cracks.
+- I'll get in the face of anyone I think is wrong.
+- Don't misquote me as wanting to hurt homosexual people in any way. That would be a dastardly lie.
+- I bring values, resiliency, a thick skin, and I'm not afraid to be confrontational. I don't remember anyone before bringing that to the table.
+- I'm 64 years old and, yeah, I went through a transition in my life last year, with the death of my son, that woke me up to a lot of things. You know, I'm perfectly happy in my own little groove. Marching along, building my company, and you know, a happy person.
+- I think my message goes out to the entire spectrum of political parties. I'm supported by the Tea Party, the Conservative Party and the Republican Party. I come from a Democratic world. My world is moderate Democrats, Reagan-type Democrats if you want, the blues or whatever you call them, the Blue Dogs. That's been my world, historically.
+- I think the media has been in denial just like the party regulars have been in denial. They just don't understand that the government that we have today is not what the people want as a government.
+- I come from a democratic world. My world is moderate Democrats, Reagan-type Democrats if you want, the blues or whatever you call them, the Blue Dogs. That's been my world, historically.
+- People listen to me, and they hear about a government they want, a government... that will cut spending, cut taxes, that will focus on private-sector job creation.
+- All Democrats are not entitlement people. These are the people who are going to suffer the cost of Obama health care. These are the people who are suffering because there're no jobs.
+- I see a New York where there is no barrier to the God-given potential of every New Yorker. I see a New York where everyone who wants a good job can find one. I see a New York where the people can believe in a grounded government again.
+- My feelings on homosexuality are unequivocal. I have absolutely no problem with it whatsoever. My only reservation is marriage.
+- We are angry about paying the highest income taxes and property taxes in the nation and getting less and less for it. We are angry about our incompetent, dysfunctional government that pays no attention to the desires of the people. We are angry about the cesspool of corruption and conflicts of interests and self-dealing that is Albany.
+- I don't want to be polite. I don't think campaigning is polite. That's a disingenuous effort.
+- I believe in the American Dream because I have lived the American Dream.
+- I'm not - I'm not a person looking for money. I have no political ambitions whatsoever. I don't seek power. I don't seek any kind of praise. I have no ego to fulfill.
+- Three thousand people died at ground zero. Their families are entitled to a little bit of respect, to respect the memory of those poor people that died there. And how about the families of all those soldiers that died in the two ensuing wars? Aren't they entitled to a little bit of respect - the kids, the wives, the parents?
+- I'm beyond the normal person. I'm not your everyday Joe.
+- I don't have an endgame. My game is to take on any bad guys I see out there. And do the best I can until they put me under the carpet.
+- I see a New York where people who are down on their luck can get back on the road to responsibility, a job and dignity.
+- When the phonies are expelled from their leadership roles and the Republican Party backs a moderate gubernatorial candidate acceptable to the rank and file with proper financing and the intestinal fortitude to fight the good fight, the rank and file will rejoin the fold.
+- People want a grounded government. They want a government that's going to be responsible to them.
+- I want everyone in the Republican party who opposed me to know this: you are welcome to join this people's crusade. Come aboard. You are both welcome and needed. If we unite, we'll win - and we'll rebuild New York.
+- In the governments, as we've witnessed in the past, they had to hide. Because there's a lot of concentration on the friends-and-family club... We're not about that. That's not the government of the future of the State of New York. What's gonna pull this state out of the doldrums that it's in right now is an honest and open government.

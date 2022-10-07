@@ -1,0 +1,17 @@
++++
+author = "Carmen Agra Deedy"
+title = "Carmen Agra Deedy Quotes"
+quotes_len = "11"
+description = "the best 11 Carmen Agra Deedy Quotes"
++++
+- There are constant cycles in history. There is loss, but it is always followed by regeneration. The tales of our elders who remember such cycles are very important to us now.
+- The hardest part is making the time to write. Not finding the time to write, mind you. Making.
+- Listening to others does not mean you should sound like them; find your own voice by telling stories as authentically as possible.
+- You're more likely to finish a book you enjoy, than one that feels like literary drudgery.
+- Listen to great storytellers; slowly, you will learn about voice, timing, tension, structure, climax - all the things you need to tell stories that will capture the imagination of your audience.
+- I cannot always write at the same time, in the same place. I work, travel and have a vigorous family life. If I'm stranded in an airport lobby - I write. If I have to wait in a doctor's office - I write. If I have a morning or evening to myself - I write.
+- Whatever we perceive as good in the world has always endured, and it always will.
+- If you tell stories you love, you will never tell them with indifference - take it to the bank.
+- I find that it takes a lot of years of living, and many more of reckoning, to come up with one worthwhile paragraph. And when a deadline looms, prayer doesn't hurt, either.
+- Read, read, read. Read good books. You will strengthen your understanding of story. Your vocabulary will be the richer for it.
+- I began telling stories as a volunteer in my daughters' school. But I grew up hearing stories from Cuban and Southern storytellers, and I learned a great deal by just being quiet and listening.

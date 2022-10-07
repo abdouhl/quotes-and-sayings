@@ -1,0 +1,69 @@
++++
+author = "Kara Swisher"
+title = "Kara Swisher Quotes"
+quotes_len = "63"
+description = "the best 63 Kara Swisher Quotes"
++++
+- Wherever you go at SXSW, there you are standing in line. Or watching other people stand in line.
+- In Greek mythology, Cassandra was given the gift of prophecy, except - due to her rejection of Apollo's affections - nobody would ever believe her warnings.
+- As more ad spending shifts online, the ability to have expertise and to innovate quickly will become critical.
+- With giant sites like Facebook and MySpace becoming as generic as Yahoo and AOL of old, more and more sites will be looking for an edge by drilling down deeply to serve a highly targeted audience.
+- While a lot of what is on Facebook is a better amalgam of what AOL, Yahoo, Amazon, and other Web pioneers introduced long ago, with a nice dash of connection and really identified community, this kind of thing is not a new idea.
+- For the record, my mother is an astonishing and loving grandmother.
+- I think things can surprise you. I mean, I loved Instagram from the minute it started, but I think it surprised a lot of people how quickly it got huge.
+- I don't think you can look at my history and say they love me to death in Silicon Valley.
+- I don't mean to sound like a touchy-feely California type here, but I knew that I could finally get over the death of my father only by having kids of my own.
+- One of my favorite vacation memories was the Thai foot massage and Internet access salons in Bangkok, followed up by my testing cellphone coverage while wading in Provincetown Harbor on Cape Cod.
+- The fact of the matter is that the true hits of AOL have always been its easy-to-use services, such as AIM, email, and Buddy Lists.
+- We really spend a lot of time on building relationships. And so when everyone is like, 'How do you break so many stories?' it's because I build relationships. I do it the old-fashioned way, and I build sourcing relationships, and then I take advantage of those relationships over time.
+- 'On demand' is more than just a series of clicks on your still-too-complicated remote control. In fact, it is now the best way to describe what the cable industry - from programmers to content makers to distributors - imagine their world is. Services and content available to very demanding consumers, wherever, whenever, however.
+- While it is often true that the enemy of my enemy is my friend, it seems like Yahoo's almost obsessive focus on Google is taking away from its other businesses.
+- As I always like to keep in mind about everything: Don't fight the trend.
+- I love all my scoop children. But consistency and persistence is really my aim.
+- Is a family just the strict definition of a small and discrete unit, or is it about the larger organic group that inevitably grows up around the smaller one?
+- Most reporters are so transactional rather than strategic.
+- The tech industry - and, more specifically, Silicon Valley - continues to stumble forward in earnest about how few women are represented in its top ranks of management and on its boards.
+- It's easy to forget the ever-plodding eBay with all the noise made by the more lithe and lively Web 2.0 companies.
+- Everything is a narrative in life. I learned that early on as a reporter at the 'Washington Post.'
+- Casting my fate to the heavens, quite literally, I decided to go wireless. Completely wireless. All wireless, all the time, everywhere.
+- While some debate its helpfulness at generating monetizable traffic, when Digg points to a story, huge audience spikes quickly follow.
+- I, for one, am pretty exhausted since I started blogging almost a year ago. But I am blaming that on my two sons, aged 3 and 6, whose perpetual-motion-machine energy is hard to keep up with at my advanced age.
+- Readers appreciate the truth. Why say, 'Some think a situation is a mess?' Based on my reporting, if a situation is a mess, then I say that. The truth is always what reporters tell each other when they get back to the newsroom.
+- I think the way to be an influential journalist is to be accurate and to be fair and to get things right and to really characterize things in an honest way, versus being really snarky or cheerleading.
+- BoomTown has long been a big fan of Martha Stewart.
+- Luckily for both the tech industry and Hollywood, there is only one thing that counts - use of the Internet is still growing exponentially, as consumers shift to digital everything from analog.
+- It's not all silliness, as interactive SXSW is filled with aggressive learning, discussing, and a whole lot of futurizing.
+- I don't write about Google except to insult the company.
+- Here's the thing: I fell impossibly in love with the Internet from the minute I saw it in action in the early 1990s. From that moment on, I have studied it, analyzed it, reported on it, and, mostly, have not been without it as a part of my daily life since.
+- I am an unrepentant tweetaholic. I use the communications service all day long to discover news, interesting tidbits and, of course, to flack the work of our tech and media news site, Re/code.
+- My father died when I was only five years old, and that was the moment when I learned a cruel lesson that tomorrow, in fact, might not be another day.
+- As I have said many times - I like Facebook. I think it is well built and run. It's cool. I think it is, in its next-step way, even visionary.
+- Unlike the messier MySpace, Facebook has a cleaner and easier-to-customize interface and is much more, as Zuckerberg once described it to me, 'utilitarian.' I would call it useful and more relevant than other competitors, and a white-label version would likely be a hit.
+- It's the nature of journalism to need to be close to your subjects. And either you're able to be tough on them, which a lot of us are, or you get in bed with them, and some people do.
+- I bought tiny infant onesies while still in college and compiled a killer toy collection throughout my 20s and 30s.
+- My telephone manners were, well, offensive to some. As I lugged my cell around, yammering away, I noticed cold stares from passersby who viewed me as a kind of techno-terrorist, or at least incredibly rude.
+- As anyone who has covered the company for any length of time knows, Yahoo's record on major decision-making has been akin to a hippie commune - a lot of wrangling internally in a culture where everyone seems to have a voice and a reticence to push the button to launch.
+- Mark Zuckerberg needs no introduction these days, what with all the magazine covers and morning news shows. My mother knows who he is now, and my mother can hardly turn on a computer.
+- It is hard to look away from the swirl of media that the untimely and tragic death of Heath Ledger has engendered, and the Internet has jacked the frenzy into overdrive.
+- It seemed like most of the memories faded before they had time to form. And after a while, my life with my father seemed like a familiar story or a distant dream.
+- People are worried about what's going to happen to journalism - and they should be. Every day, the blogosphere is getting better and print media is getting worse; you have to be an idiot not to see that.
+- I don't have bad taste; I have no taste. I wear a lot of the things I wore in high school, but not the cowl-neck sweaters. I was never tall, and I am the same size, so I still wear a lot of those clothes.
+- I have found, writing a blog, that being non-opaque is necessary. You pretty much have to say what you know in much more firm terms or risk that the legions who always know more than you do will tell the story better.
+- I always find something interesting on Twitter that leads me somewhere else.
+- As I have seen with a lot of companies I have covered, acquisition interest can be a heady experience, and not always in a good way.
+- I know: I am a freakish geek. Or is that a geekish freak?
+- Canceling my landline phone account, cutting off service to my home for good, and rendering the telephones that had long sat on tables in every room as useless as my closeted bread machine, I took the final step in a lifelong attempt to free myself from the wires that tethered me.
+- While having a profound impact on the development of values is surely an important job of a good parent, force-feeding opinions to them is not.
+- No matter how young you are, you're too old for SXSW.
+- Having a baby had always seemed the easiest and most natural thing to do, and I had never felt - even in my most furtive days of coming out - that being gay would mean I could not become a mother.
+- Equipped with two cell phones - one for work and another for home - I like to think of myself as a kind of 21st-century digital pioneer, ready to network, fax, page, e-mail and - oh, yes - talk at will.
+- I am a big proponent of being in touch with everyone even when I do not have a story to ask about.
+- Really smart people don't want to say stupid things, and they really don't want to be a part of a PR-engineered interview. People really do want to be smart, and they want smart questions. So, if you ask smart questions, there's no way you can't do well.
+- While I am not saying Facebook cannot be a wonderland for marketers, I am still waiting to see the proof of it, and so should every reporter.
+- Sure, I am funny and have a good sense of humor. Mostly, though, I just tell the truth. The internal dialogue people have in their heads - I just write it.
+- Now I am not against widgets, those small third-party applications that people can put on their Web pages on social networks like Facebook and MySpace, in general.
+- I used to do a lot of casual photography - back in the olden times when one used film - but it had fallen by the wayside over the years.
+- I'm focused on getting to a place where we can prove that journalism can make good money on the web.
+- Dr. Louis Bush Swisher died from the complications of a brain aneurysm that burst without warning one sunny Sunday morning less than 40 years ago.
+- Despite my so-so-experience with the iPhone, I do love its touchscreen technology, a feature I miss with my standard-issue BlackBerry.
+- A Microsoft-Yahoo merger is a deal only an investment banker could love.

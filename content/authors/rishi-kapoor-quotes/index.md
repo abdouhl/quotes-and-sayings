@@ -1,0 +1,106 @@
++++
+author = "Rishi Kapoor"
+title = "Rishi Kapoor Quotes"
+quotes_len = "100"
+description = "the best 100 Rishi Kapoor Quotes"
++++
+- I am no champion, no great name, just a small actor who loves working for cinema.
+- There is no nepotism in the Hindi film industry.
+- I don't know why all these actors think going to a gym or riding horses or learning how to fight are the steps to becoming an actor.
+- I know for a fact that many people repent and want to do away with their tattoos. It is all marketing and hype and nothing else. Also, tattoos stand out on fair and not wheatish complexion. God has given you a body. Why spoil it?
+- I don't want to play father roles. And I use father roles figuratively for roles that are just hanging around... don't want to be a piece of furniture in films.
+- If you want to show cinema, make entertainment films. Sometimes they are very good, sometimes very bad, but the intention is always to make entertaining films.
+- I firmly believe in destiny, so let's see what my luck has in store for me.
+- All my life, I struggled to get roles.
+- By the grace of God, my son's career is doing very well.
+- I am a believer of all religions. I will happily visit a temple, mosque, church. I do not differentiate between religions.
+- I am not stagnating in one kind of an image.
+- I can barely sit in one place for five minutes.
+- I never argued with my father, and it so happened that, unfortunately, the same kind of relationship passed on with me and Ranbir.
+- I have played all generations in reel and real life - grandson, son, father, and grandfather - and each relationship has taught me something.
+- In acting, the basic tool is observation. Whenever you see something, you store it in your head, and when you come across a character that reminds you of that instance, you incorporate it.
+- There is no way one can remake 'Mughal-e-Azam.' What my grandfather did, we cannot even think of emulating. The film is a legend, and we should leave it at that.
+- I'm not interested in playing the villain as a loud caricature, one-dimensional character. I am trying to humanise evil. If you see my character in 'Aurangzeb,' I am not trying to act evil.
+- I have tried to look different and play different roles through my life because I am passionate about my work.
+- Give me meaty roles, and I'll sink my teeth into them!
+- Trust me; I have not exactly been the best husband material.
+- I get very excited when I have to work in a film and when I am narrated.
+- I always try to be different and play varied kind of characters.
+- Every one has right to express his views on any subject, and I am a common man, a tax payer, and part of the society.
+- I have no enmity with anyone.
+- I am an actor, and actors should be willing to play all kind of roles.
+- I can never say that I don't want to work anymore. That would be an absolute lie because I enjoy, I take delight in, working in films because I feel it's an honour, you know, to entertain people, to regale audiences.
+- Passion for work is very important.
+- Being religious and spiritual makes me feel good.
+- I am extremely malleable as an actor, but I also know how to get away with doing things the way I want, even if the director disagrees.
+- Generally, when I am working, I tend to learn from my seniors and juniors.
+- There's no formula that can make a marriage work. Sometimes two people just click.
+- The R K banner has had this tradition to make good films, and good films always take a lot of time to complete because of the hassles involved.
+- I would love to do a Punjabi film.
+- An actor's journey is never fulfilled. We always look for greener pastures, better roles, better creativity. We all want to do good work.
+- People are fed up of formula films, and we are getting new space to experiment.
+- I do not care about the length of my role. But it should make a difference to the story.
+- There are ups and downs in every relationship. But that does not mean that couples should separate or get down to inhuman behaviour.
+- My son was named after my father, whose name was Ranbir Raj Kapoor.
+- All my performances have been unrehearsed.
+- I have never really hit a gym.
+- The first song I ever did on screen was 'Main Shaayar To Nahi.'
+- If our Hindu culture forbids beef meat, does the same culture give you the right to abuse me and my family just because I have an opinion that you don't agree with?
+- I really want that there should be love and respect between me and Ranbir, but at the same time, I want that there should be some kind of distance - that I can see you, but I can't feel you.
+- Both my kids are above 30 now... grown up enough to take their own decisions.
+- Though sometimes you hit, sometimes you don't get the kind of roles you should get, but sometimes you get the role.
+- The reality is that some Kapoors did reach the marquee; others did not.
+- Any cinema has to be entertaining. Boring cinema won't work. If you want to make one, then screen it for free on TV.
+- In the first 20 years of my acting life, I did not do any acting. All I did was to wear a jersey, dance, lip-sync to songs, and run after girls over mountains and in the snow.
+- I always wanted to be an actor.
+- I will not do a run of the mill kind of a film or role. I will not say yes to that.
+- My image was that of a romantic, soft hero.
+- The creative mind is restless.
+- Even my early memories of Chandni Chowk are all about food.
+- My entire family has been part of the film industry for many years.
+- In our country, there must be two time zones to save working hours. Why we don't have it, I have been talking about this issue for a long time.
+- I am observing that to become an actor, people say, they want to join gym. Why join a gym? Why don't you join an institute where they teach you how to act?
+- There would be no 'Sholay' without Dharmendra, no 'Amar Akbar Anthony' without Vinod Khanna and Rishi Kapoor, no 'Deewar' without Shashi Kapoor, and no 'Dostana' without Shatrughan Sinha.
+- As is the case with politicians, actors are chosen by people.
+- What I admire about Ranbir is his choice of films. Sometimes he will be bad; sometimes he will be good.
+- I came into films when there was action. When I retired, it was romantic period.
+- I am a natural actor. I try to keep it spontaneous as far as possible. That is my mantra.
+- When I did 'Kapoor & Sons,' I had a prosthetic look. It would take me six-and-a-half hours daily for 20, 25 days.
+- I like to call myself as son of famous father and father of famous son.
+- I like to be respected as an actor.
+- No, there is no 'need' for me to do a social cinema.
+- He is absolutely on his own, and we never interfere in any of his decisions. When Ranbir joined the industry, he told his mother that he wanted to portray characters which a boy of his age would do in real life.
+- I am not advocating beef eating. But I am advocating freedom to have an opinion and a voice.
+- I love to experiment, to push myself, and I want people to accept me in roles that I have never attempted before.
+- I neither throw my weight around nor do I bully anyone on the set.
+- For the first 25 years of my career, I did nothing but sing and dance.
+- I only know how to act. I don't know anything else.
+- No actor has 100 percent track record.
+- I block the trolls.
+- It is an advantage to be born in Kapoor family and to be known by that name, but it also a burden because there are lots of expectations from you.
+- Some films will work, some won't.
+- I am high-strung and high-energy. My blood pressure is always high, and I am always excited to go to work.
+- My first love is acting, not directing.
+- I don't think it is wrong when you - when an actor goes and sells his film. I mean, it's salesmanship; you got to tell the world what you have. You got to tell them, 'These are my wares; please see how do you like them. If you like to buy them, please buy them.' There's nothing wrong in that.
+- I have campaigned only once in the elections, for Vinod Khanna in Gurdaspur, but that was not as a party member but because he is a colleague.
+- I am not a spokesperson for any political person or party.
+- Ranbir doesn't like to portray characters which are larger than life. I am very proud that he took such challenges.
+- The fire within you as an actor should always keep burning. That should be the mantra for any good actor.
+- It's always such a delight working with Juhi.
+- Beef is not allowed in my house.
+- I have worked with Asin earlier in 'Housefull 2.' We had a good time working together.
+- It was a stroke of luck when I worked in 'Agneepath.' It was a great role, something different for me.
+- If you want rubbish, you will get rubbish.
+- My head was in the clouds after 'Bobby,' but my struggle had only begun because at the age of 21, I had become a hero. But then I had realized that I have to keep my feet on ground.
+- Personally, I think that the story is all-important; everything else comes later. But if there's any other way to ensure the betterment of the film, I always implement it.
+- Pransaab was a great character actor. What he has achieved as an actor, I cannot think of achieving even a part of it.
+- Amitabh Bachchan is the greatest actor that we have in the country.
+- It's my life - acting.
+- I respect religious rules. I am a true God-fearing Hindu.
+- I do fun things on Twitter. I enjoy it.
+- I have always been an arrogant man.
+- Since I am as evil as can be, I do need religion to offset my evilness!
+- I am waiting for roles like the one in 'Yeh Hai Jalwa.'
+- I am not because of my father, and my son Ranbir Kapoor is not because of me.
+- I am spontaneous and not a method actor.
+- I don't know what fun newspapers and magazines derive from interfering in people's private lives.

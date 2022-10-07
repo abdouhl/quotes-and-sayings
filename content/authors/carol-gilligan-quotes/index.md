@@ -1,0 +1,17 @@
++++
+author = "Carol Gilligan"
+title = "Carol Gilligan Quotes"
+quotes_len = "11"
+description = "the best 11 Carol Gilligan Quotes"
++++
+- I find the question of whether gender differences are biologically determined or socially constructed to be deeply disturbing.
+- I've found that if I say what I'm really thinking and feeling, people are more likely to say what they really think and feel. The conversation becomes a real conversation.
+- The hardest times for me were not when people challenged what I said, but when I felt my voice was not heard.
+- Women have traditionally deferred to the judgment of men although often while intimating a sensibility of their own which is at variance with that judgment.
+- Many women have told me they remember where they were when they read the book, and how they felt suddenly that what they really thought or felt about things made sense.
+- Certain issues have been associated with contemporary feminism and in a certain sense circumscribed for that reason.
+- In the different voice of women lies the truth of an ethic of care, the tie between relationship and responsibility, and the origins of aggression in the failure of connection.
+- It all goes back, of course, to Adam and Eve - a story which shows among other things, that if you make a woman out of a man, you are bound to get into trouble.
+- At a time when efforts are being made to eradicate discrimination between the sexes in the search for social equality and justice, the differences between the sexes are being rediscovered.
+- The women's movement is taking a different form right now, and it is because it has been so effective and so successful that there's a huge counter movement to try to stop it, to try to divide women from one another, to try to almost foment divisiveness.
+- Everything about women is in perpetual crisis.

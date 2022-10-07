@@ -1,0 +1,106 @@
++++
+author = "Richa Chadha"
+title = "Richa Chadha Quotes"
+quotes_len = "100"
+description = "the best 100 Richa Chadha Quotes"
++++
+- I would love to take up interesting roles if they come my way.
+- I hate it when people look at marriage, especially when it comes to girls as 'settling down.' First of all 'settle' sounds like a compromise and 'down' makes it worse. It reminds me of teachers who ask their students to 'settle down' once they enter the classroom.
+- It is important to remember to stay honest and keep your friends close.
+- Owing to our Indian beliefs, not many believe in organ donation. But I think it's an amazing thing to pledge the donation of organs and is not something people should look down upon.
+- When you learn Indian classical music, sometimes it takes decades to perfect a raga.
+- I think we have to question our own culture.
+- My mom is an extremely well educated who worked throughout her life and she raised us.
+- The narrative in 2020 must speak about gender equality which will only come from empowering the women who've been given the short end of the stick for far too long.
+- I don't fight my emotions.
+- Oye Lucky!' released in November 2008 and in mid 2010, I was signed for 'Gangs of Wasseypur.' For me, the gap wasn't so much - just a year-and-a-half.
+- It has never been my ambition to become the glam doll in a film.
+- I may not be able to prevent a million girls or boys from being trafficked, but I can at least help out 10-15 people I know.
+- No member in my entire family has anything to do with films.
+- I have always believed that more stories of women in leadership roles need to be told and I am glad I could be a part of one such story.
+- I am actually not a big believer in buying properties.
+- I want to do interesting work, I don't want to get boxed. A box is fruitful for a little while and then you get replaced.
+- In my head, men and women are equally capable of evil. So are all communities.
+- When I came to the industry, one PR person told me, 'Send a text message to this actor. Go on a date with him.' And I said, 'But he is married!' Then this person said, 'Why didn't you send a message to this cricketer? It would have been good for your career, for your PR and public image.'
+- I want to be versatile.
+- If you are turning 40, just be graceful, don't get into teenager outfits, put two hair bands and go 'aww.' Don't do that! Don't be stupid. I don't want to live that life. It is so fake, so manufactured. I am not interested.
+- Trust me, with the kind of roles I have played, it's a miracle that I still have a career. I am a miracle.
+- Bollywood is a microcosm of society, it's no different from the world.
+- If I wear a designer outfit in a film like 'Masaan' then it would look wrong.
+- The notion people have about me is that I am always angry and irritated. Also, I report late to work and I am not serious about my job. But if all these things were true about me, people wouldn't be working with me.
+- On several occasions, I've felt like my career has wound up. I was sad and upset; my roles were snipped, and I wasn't treated fairly.
+- I have a strong sense of justice.
+- I am trying to pick roles that are interesting to me and are different so that I can continue to do good work.
+- For all the good that Alok Nath had done, being perceived as a father figure, the fact that he was hitting on a girl, who was playing his daughter, made me almost want to throw up.
+- I'm really grateful for 'Gangs... ' but it wouldn't be wrong to say that it was a mixed blessing.
+- Once in a while, I remember that I am famous.
+- The environment of hate needs to be tackled with peace. We are the country that won its freedom through peace, after all.
+- Luckily, my parents are liberal.
+- India is one of those few countries in the world where violence against women starts in the womb, before the girl is even born.
+- It has never been easy doing the work I do, but there's a long way to go.
+- I dress casually, but never badly.
+- I can respect different opinions, because everybody has a story.
+- I want to be as real as possible. I aim to be that.
+- I look at every role like a role and whatever it needs, I do it. I am known for that.
+- There was time when I felt bored as an actor.
+- People think I am not funny. I am very intense.
+- I definitely am open to South Indian films. There is a lot of good work coming from these states and I would like to be a part in some of them.
+- I am not a star kid, my parents are from Delhi, my dad manages a business, my mother is a professor, I have no filmi background, so if I don't have skills, I don't stand a chance in this industry full of star kids and people with influence.
+- Feminism basically says both men and women are equal. It doesn't say women are better or men are stupid.
+- Most of my experience in theater while I lived in Delhi was outside of college.
+- Getting into the personality of the character I am playing in 'Love Sonia' was a challenge.
+- Actors become disposable. I feel female actors have to back each other.
+- I got some advertisement work and I also did 12 to 15 workshops to enhance my acting skills because there is no alternative to talent; if you don't have talent, then you don't stand a chance.
+- My interest in writing is not new.
+- As women growing up in India, I don't think there is anybody who has never been made uncomfortable physically or just by the looks.
+- There is an amazing feminist writer called Lindy West; she wrote a very nice piece for The New York Times. She wrote about Woody Allen, saying if we can't go after your work or your career, we will go after your legacy. You will never be remembered the same way. I think a lot of women will have to take solace in that.
+- My grandmother passed away before I could get to know her. She had an interest in films and writing. She wrote two novels under a pen name and encouraged women around her to pursue their dreams. So my family decided to start a school in her memory.
+- In 2016, I worked on a film called 'Love Sonia,' which was based on human trafficking. While researching on it, I came to understand how privileged I am.
+- My parents are my biggest supporters and fans.
+- I always knew I wanted to be an actress, but I did not confide in my parents.
+- I love making miniatures, painting, writing, music and dance. These are the things I'm naturally good at. I'd like to think of myself as a renaissance woman.
+- I trained a bit in music because of my brother, who is a musician.
+- I can't keep changing myself according to how someone sees me.
+- I would love to hone my skills and learn Indian classical music. It's a vast sea of melodies and ragas, and I enjoy it immensely.
+- Going to school and learning feminism is one thing and living feminism is another.
+- I judge the importance of my character by seeing how much the movie will be affected if you take my role out. If it does affect the film, then my character is important and if it isn't then I wouldn't do the film.
+- The only place I want to be recognised is the red carpet or an actor, where I am in my professional capacity. Otherwise I just want to be left alone.
+- If I feel sad, I let myself be that. Why should I keep hiding it, lying about it and saying, 'I'll be positive.'
+- Madam Chief Minister' is one of the most exciting scripts I have read and it possessed me.
+- I am an artiste in a free world, I am supposed to raise questions.
+- I am always nervous before the release of any film.
+- I think I only made mistakes in the beginning of my career. But after that I have been conscious of the films I want to be in.
+- When I did 'Gangs,' I didn't have a manager, a PR or stylist.
+- If one looks at my choices, all of them have been unconventional. There's not a single song-and-dance or romantic film.
+- I speak up about things close to my heart. But I think I am a little too emotional. Events in the world affect me.
+- I am sexy and I like playing glamorous roles.
+- I choose my films by heart and instinct.
+- There is no similarity between the character that I played in 'Fukrey' and 'Tamanchey.' The only thing that is similar is that both the girls are confident.
+- Because Bollywood reflects society, we are all living in a society. We are not a special entity. So whatever prejudices society has for us, we carry into the films.
+- As a kid, I sang in the school choir.
+- I feel upset when someone writes something which isn't true about me. I cry, sulk, fight with everybody and the next day I'm fine!
+- You can't be a good actor if you are not a good person.
+- When I was younger I would be taken for a ride alot, I would believe anybody at face value, I was quite a lallu actually everybody would fool me, exploit me for my work and talent and I would cry about it later.
+- Comparing Bollywood and Hollywood is like comparing America's market, roads and economy to ours.
+- Acting is probably the only profession where you are relying only on empathy.
+- Girls should be made aware of the dark reality of human trafficking, right from a young age. High schools and colleges should provide this education, too.
+- My work enables me to meet various artistes in the West, be it Rachel Weisz or Marion Cotillard. But the only time I was star struck was when I met SRK. I love his work.
+- I think the fact that I have a solid head on my shoulders and a brain inside that head gives me an edge over my competitors. It helps when I am giving interviews, charting out strategy for my career and choosing scripts.
+- I definitely am keen on doing films in the West.
+- I am a certified hippie and I love nature.
+- I did stand-up for fun as I wanted to do something that was scary.
+- I learnt a lot from the directors with whom I have worked like Sudhir Mishra in 'Daas Dev,' Prawaal Raman in 'Main Aur Charles.'
+- I have never been short of work.
+- I learnt a lot while filming 'Masaan,' it made me acutely aware of my weaknesses.
+- My dream is to act in a Bengali film.
+- I just love to dance and 'Cabaret' seemed like an opportunity where I could explore that. I wanted to take a chance and see if people will accept me in this kind of role, if what is expected of other women is expected of me. Or maybe it's for shock value.
+- Both my parents are from academics.
+- There is always enough room for good actors.
+- The script determines the costumes. At least that is how I like to work.
+- Good work has a snowball effect, it keeps leading to more good work.
+- I think your first relationship that you need to master is with yourself, your body, your mind, with your heart when you understand what triggers you have, what makes you upset what causes you to sort of take chances.
+- I want to do good films. It is not that I have any problem doing commercial roles, with all the glitter. I am doing 'Cabaret.' It is very glamourous.
+- To be pursuing any profession isn't easy because it is still primarily a man's world. It affects how you get paid and your hours of work, among other things.
+- Everybody is entitled to an opinion and we should be able to express it. This is what democracy is all about. If an issue is troubling your heart, you should be able to say it.
+- The kind of films that I do... they don't really have the budget for the actress to wear designer clothes. I think that is because it's mostly very relatable, real-life roles.
+- I feel sorry for those loveless people who have a problem with someone else's marital choices.

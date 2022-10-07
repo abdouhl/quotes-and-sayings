@@ -1,0 +1,14 @@
++++
+author = "Kyle Abraham"
+title = "Kyle Abraham Quotes"
+quotes_len = "8"
+description = "the best 8 Kyle Abraham Quotes"
++++
+- A lot of the time, when I'm choreographing, I'm not thinking about what movement look best next to the next movement - I'm actually thinking about what song and what sound sounds right next to the next thing. So kind of choreographing as if I'm always making a mix tape, so to speak.
+- The first dance performance I saw was Joffrey Ballet doing 'Billboards' to Prince.
+- I guess it's hard work... whatever the decision is, how to show it to people that aren't necessarily dancers, how to get people to think about more than themselves.
+- I love Pittsburgh because it's a humble city. It's really grounded in its rich history and culture.
+- Middle and high school is a time of people telling you who you are before you know who you are. I was in advanced classes at Frick and Schenley, and people would say I was trying to be white because of the way I spoke. Or they'd say I was gay.
+- I didn't have good grades until I started dancing, because I didn't try - I didn't see the point. Once I realized why I wanted to go to college, I started to study and do well. I knew I had to have a certain GPA to get in.
+- Ralph Lemon is my idol. But music is my biggest passion. Frank Ocean's 'Pyramids' is on repeat. That kind of stuff with Frank Ocean makes me cry.
+- I started dancing in my room... I wanted to find out more about my movements. I wanted to elaborate on whatever it was that I was doing there.

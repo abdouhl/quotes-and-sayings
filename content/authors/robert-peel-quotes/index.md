@@ -1,0 +1,14 @@
++++
+author = "Robert Peel"
+title = "Robert Peel Quotes"
+quotes_len = "8"
+description = "the best 8 Robert Peel Quotes"
++++
+- But after this natural burst of indignation, no man of sense, courage, or prudence will waste his time or his strength in retrospective reproaches or repinings.
+- The Reform Bill has destroyed the ancient conduits and strainers, and brings Public Opinion to act upon the government with the rapid, turbulent, and uncertain violence of a flood!
+- No minister ever stood, or could stand, against public opinion.
+- Agitation is the marshalling of the conscience of a nation to mold its laws.
+- Public opinion is a compound of folly, weakness, prejudice, wrong feeling, right feeling, obstinacy, and newspaper paragraphs.
+- There seem to me to be very few facts, at least ascertainable facts, in politics.
+- The police are the public and the public are the police; the police being only members of the public who are paid to give full time attention to duties which are incumbent on every citizen in the interests of community welfare and existence.
+- On the Wednesday evening - that is, the day I saw her Majesty on this particular point - I had the opportunity of conferring with all those whom I proposed to submit to her Majesty as Ministers.

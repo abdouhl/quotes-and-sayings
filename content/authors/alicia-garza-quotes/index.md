@@ -1,0 +1,90 @@
++++
+author = "Alicia Garza"
+title = "Alicia Garza Quotes"
+quotes_len = "84"
+description = "the best 84 Alicia Garza Quotes"
++++
+- I am not ready to give up this country without a fight.
+- If I don't watch the news in a day, I think the potential for humanity is incredible. But anytime I look at the news, I'm like, 'We're in really big trouble.'
+- There is hope for humanity, but in order for us to get there, we really have to interrogate not just what it takes to change laws, but what it takes to change culture that supports laws that uplift humanity and also supports laws that serve to denigrate it.
+- We are clear that all lives matter, but we live in a world where that's not actually happening in practice. So if we want to get to the place where all lives matter, then we have to make sure that black lives matter, too.
+- My definition of feminism is a social, political, economic system by which all genders are valued, respected, and can live dignified lives.
+- What it takes to get people from liking and sharing and retweeting to organising is a hard and long process. Technology has really changed the game in terms of how people participate and what they decide to participate in.
+- When we sit and think about what the world needs to looks like in order for black lives to actually matter, there is a debate: What is going to make our communities safe? How do we deal with harm? How do we solve problems that come up in our communities?
+- We need the best and the brightest thinkers, strategists, coders, surveillance experts, tech geeks, and disruptors to utilize all of the tools we have available to us to build the world that we want to see. A world where black lives matter. A world where all lives matter.
+- When we address the disparities facing black people, we get a lot closer to a true democracy where all lives matter.
+- I think race and racism is probably the most studied social, economic, and political phenomenon in this country, but it's also the least understood.
+- Certainly, we have to make sure our police forces do not have weapons of mass destruction with which they can terrorize our communities.
+- When people say, 'Well, I don't talk to my family because they're all conservatives,' or 'I don't talk to my family because they're racist,' I'm, like, 'No, no, no; that's exactly who you need to be talking to.'
+- 'Socialism' became this weird household word partially because right-wingers call Obama a socialist, which he is the farthest from.
+- The demands of the Civil Rights era weren't limited to voting rights - they strove for an end to segregation in all aspects of life, including housing, employment, and public accommodations.
+- The open source nature of the Internet is both a blessing and a curse, because just as much as we can watch what's happening around the world, we can also be watched.
+- The Clintons use black people for votes but then don't do anything for black communities after they're elected. They use us for photo ops.
+- Black Trans Lives Matter, to me, is really different. I think it speaks most directly to the marginalization and disenfranchisement of trans people within the black community.
+- I think that there are real concerns that we have around whose life is important and why. So if the official story is, for example, somebody was running from the police, does their life matter?
+- I think that building political power has to come from the outside and from within. Meaning, we have to build political alternatives to the existing system, and we have to try to impact what is happening in the existing system.
+- Both Alton Sterling and Philando Castile had guns on them, which is part of their Second Amendment right. It is a part of a culture that is largely protected by special-interest groups like the N.R.A., but the right to bear arms, it seems, only exists for white people.
+- What we've seen is an attempt by mainstream politics and politicians to co-opt movements that galvanize people in order for them to move closer to their own goals and objectives. We don't think that playing a corrupt game is going to bring change and make black lives matter.
+- Saying 'black lives matter' both literally and figuratively restores people's dignity.
+- I have a lot of respect for President Obama, and while I deeply disagree with some of his actions or lack of action on issues I care about, I still recognize the significance of the first black presidency and the challenges that come with that.
+- People think that we're engaged with identity politics. The truth is that we're doing what the labor movement has always done - organizing people who are at the bottom.
+- Every successful social movement in this country's history has used disruption as a strategy to fight for social change. Whether it was the Boston Tea Party to the sit-ins at lunch counters throughout the South, no change has been won without disruptive action.
+- Ultimately, policing in and of itself is problematic.
+- Coming out of the 2016 election, there was a few things that became really clear. One, that black people deserve to have vehicles that represent the breadth of our interests. Two, that we really need to do a better job of being able to communicate what conditions and experiences our communities are facing.
+- This country was created from stolen land and stolen labor. And from a moral perspective, but also from a practical one, everybody knows that when you steal, you're always looking over your shoulder because you know that somebody may steal it back.
+- The biggest misconception about Black Lives Matter is that BLM is just one entity; Black Lives Matter is an organization and a network. We are a part of the movement, but we are not the movement.
+- How do we stop violence, looting, and riots? The way that we stop that is by making sure that people have the things that they need to thrive.
+- My mom has this thing where she doesn't sugarcoat stuff.
+- The reason that I started the Black Futures Lab is because I have some clarity about what I think needs to happen in relationship to electoral organizing. It's not a destination. It is a set of tools that we use to engage people that we care about, en masse, around issues that are important to us.
+- We want to see a world where black lives matter in order for us to get to a world where all of our humanity is respected.
+- There has to be a readjustment of resources that is being diverted to police and policing as opposed to community health services, and there certainly has to be control over the police by the communities that they are supposed to protect and serve.
+- I have to be honest: I feel like I live in a constant state of rage, and I think a lot of black people do.
+- The reality is that race in the United States operates on a spectrum from black to white. Doesn't mean that people who are in between don't experience racism, but it means that the closer you are to white on that spectrum, the better off you are. And the closer to black that you are on that spectrum, the worse off your are.
+- The best advice I ever got as an organizer was that if you can organize your family, you're a good organizer.
+- Find an organization that you want to support and get involved. You can give money or give time.
+- What is it going to take to dismantle the systems that keep me from being able to live well and that keep me and so many other people from being able to access the things that we need and deserve?
+- Black Lives Matter started from a post that I put on Facebook after the acquittal of George Zimmerman. I woke up in the middle of the night sobbing, just trying to process what had happened and wanting to find community around being in a lot of grief and having a lot of rage.
+- It took me a long time to figure out that I didn't have to do everything, that it was actually a lot more helpful if I did a couple things really, really well than a whole bunch of things really badly, or nothing at all, because the whole thing was overwhelming.
+- I think that we are all deeply, deeply committed to the liberation of black people. And so, when you put people together who have and share that commitment, the sky is the limit.
+- One of the beautiful things about a movement is that there are many strategies and many tactics contained within it. Not every participant in a movement is required to do exactly the same things.
+- Black Lives Matter was created as a response to state violence and anti-black racism and a call to action for those who want to fight it and build a world where black lives do, in fact, matter.
+- I'll be honest with you: I think that it's really difficult, this framing around 'good cops' and 'bad cops.' Policing, as a system, is incredibly corrupt, period.
+- Growing up in a school that was majority white, my understanding of the world was that I was different but that differences shouldn't be talked about because it's uncomfortable.
+- We can make black lives matter in the labor movement by building the kinds of movements that black women need to shape a new economy and a new democracy that don't force them to choose between making a living and being a part of a healthy democracy.
+- There have to be consequences for police who take the law into their own hands. There has to be a shift in the use-of-force policies that are used in departments across the country.
+- We've said from the very beginning Black Lives Matter is a network and also, as a broad set of individuals, is an organization moving to transform the way our society values black lives. It's not an 'Internet movement.'
+- We all lose when bullying and personal attacks become a substitute for genuine conversation and principled disagreement.
+- Just like we don't live in a two-dimensional world, we don't live two-dimensional lives.
+- Whether or not you call it Black Lives Matter, whether or not you put a hashtag in front of it, whether or not you call it the Movement for Black Lives, all of that is irrelevant. Because there was resistance before Black Lives Matter, and there will be resistance after Black Lives Matter.
+- There is no separation between the black community and the LGBT community. As a black, queer woman myself, I often have to assert, right, that it's not one or the other but that I am all of these things.
+- Quite frankly, black folks have always been at the core of what it's meant to make this nation human.
+- If you're to look at people's social networks, not a lot of white people have a social network that has lots of black people - it doesn't happen. It makes sense to me that online would be as segregated as offline because it's just mimicking patterns that exist in real life.
+- We need to make sure that we have an honest, honest conversation and that we engage honest practices around how racism operates in this country. It's not just about people being mean to each other.
+- All in all, Donald Trump appeals to people who want to be seen the way that Donald Trump sees them.
+- As you keep pulling back the layers of how deeply rooted anti-blackness and white supremacy are in this country, it is exhausting, and it is traumatizing.
+- Black Lives Matter is not just concerned with what happens in policing. The disregard, the disrespect, and the lack of dignity for black life transcends through the fabric of our society.
+- I don't even know what a hashtag is. You don't turn a hashtag into a movement - people turn things into a movement.
+- I need to create an environment where I can be my best self, and that means being unapologetic about saying no to things that don't serve me or move me closer to my purpose and the things that I care about the most.
+- The night that George Zimmerman was acquitted, I think, for black people all over the world, there was a collective feeling of incredible grief and incredible rage. And that verdict not only let George Zimmerman go home to his family, but it sent a message to black people everywhere that our lives did not matter.
+- The history of black women in the economy is rooted in the legacy of slavery. Enslaved black women were forced to provide care work, unpaid, for white families.
+- For us, #BlackLivesMatter is really a re-humanization project. It's a way for us to love each other again, to love ourselves, and to project that love into the world so that we can transform it.
+- It's hard to be a leader when you have to make hard choices and when you have to do what's right, even though people are not going to like you for it.
+- I'll be honest with you, I really struggle with the conversation around gun control.
+- Black Lives Matter, as a network, will not, does not, has not, ain't going to endorse any candidates. Now if there are activists within the movement that want to do that independently, they should feel free, and if that's what makes sense for their local conditions, that's fantastic.
+- I grew up in Marin County, which is a wealthy suburb of San Francisco.
+- I've learned much more about politics than I thought I ever would.
+- For me, it's clear Beyonce sees herself as a part of the movement for black lives and believes that black lives matter - and ultimately, that's what matters.
+- We need to make sure we're creating spaces to create new leaders and new types of leadership.
+- The police are not taking accountability for the violence that they enact in our communities, and yet there isn't as much outrage about that as there is about some broken windows and lost property.
+- Although police terrorism plays a specific role on behalf of the state, it is not the totality of what state violence looks like or feels like in our communities.
+- The Black Lives Matter movement has to, by its very nature, be intersectional because of the complexities of who black people are in this country and throughout the world.
+- It's not lost on me that every single person who told their story about Harvey Weinstein talked about how they were silenced, how they were encouraged not to speak up, how they were embarrassed or ashamed to speak up.
+- Sometimes you have to put a wrench in the gears to get people to listen.
+- If you're quiet, knowing that there's a culture of racism inside most police departments, and you're not saying anything, you are on the wrong side of history.
+- Protest is best used when it's part of a strategy that involves escalating tactics that build pressure on targets.
+- Police violence is the tip of the iceberg when it relates to the conditions overall of black people across the globe.
+- We understand that, in our communities, black trans folk, gender-nonconforming folk, black queer folk, black women, black disabled folk - we have been leading movements for a long time, but we have been erased from the official narrative.
+- I'm in favor of people getting in where they fit in. Wherever you feel you can make the greatest contribution, you should.
+- I think that there is an element where leadership is lonely, but I also believe that it doesn't have to be like that.
+- We spend more time talking about what's happening on Twitter than we do talking about what kind of organising people are doing in the cities we live in.
+- It's actually OK to be unique and have your own contributions, to celebrate what it means to be black, how we've survived and thrived through the worst conditions possible.

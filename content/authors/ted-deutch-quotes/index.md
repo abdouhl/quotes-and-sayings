@@ -1,0 +1,104 @@
++++
+author = "Ted Deutch"
+title = "Ted Deutch Quotes"
+quotes_len = "98"
+description = "the best 98 Ted Deutch Quotes"
++++
+- After a decade in public life working to stop Iran from ever acquiring nuclear weapons, I cannot support a deal giving Iran billions of dollars in sanctions relief - in return for letting it maintain an advanced nuclear program and the infrastructure of a threshold nuclear state.
+- It is well past time for President Abbas to stand up and condemn all acts of violence, rather than encouraging violence by glorifying terrorists and teaching children to view Israelis as animals.
+- From the preemptive strike that destroyed Egypt's air force during the Six-Day War, to the daring raid on Entebbe, to using all available means to slow the Iranian nuclear program, Israelis have combined strength with ingenuity to keep the country's enemies at bay.
+- Individuals can stand up against genocide in Darfur and Iran's quest for nuclear weapons.
+- There's no question that looking down to search the Web, send a text message, or log onto Facebook puts you in danger and puts people around you on the road in danger.
+- People can certainly take pride in the fact that there is a Jewish candidate for president who has received delegates and who has run a terrific campaign and still work hard to ensure we elect Hillary Clinton.
+- Everybody has to agree that the best thing we can do to start reducing the deficit in this country is to put people back to work.
+- Social Security is fundamentally strong.
+- We count on the FEC to be the public's watchdog.
+- While I was serving in the Florida Senate, American soldiers were being killed in Iraq, a war we should have never started, and often by Iranian proxies and their improvised explosive devices.
+- We must not allow the Iranian regime to use the nation's vast energy resource as a financial pipeline for its nuclear ambitions.
+- Let's make Marco Rubio explain why he thinks oil companies should write our energy policy.
+- Those who want to cut Social Security are prepared to take hostages, manufacture crises, and use scare tactics to undermine the retirement security of Americans.
+- We need to get the corporate money out of the political system and return democracy to the people.
+- Citizens United opened a door that's frustrated anyone who's looking.
+- No one disputes Iran's destabilizing influence in the Middle East or role in killing Americans.
+- Social Security is the only thing most Americans can count on to keep them out of poverty during retirement.
+- I look forward to representing the voters of District 30 and moving the state in a new direction.
+- The issues that we face as a country and in South Florida aren't broken down by city line or county line.
+- The American people do not want their taxpayer dollars funding any activity that runs counter to the security of our nation or our ally Israel.
+- There is total unanimity that the most serious threat facing the United States and Israel is a nuclear-armed Iran.
+- What's lost in this whole debate, unfortunately, is that Social Security is not a giveaway where we take money to give to other people. It's a contract with the government... that's worked for 75 years. It's the most successful government program that we've ever had.
+- We need to recognize the opportunity that green jobs present to Florida and to the economy.
+- We need to focus on building up our own nation and creating jobs here at home.
+- I have an open door to meet with my constituents and that I work hard to respond to their needs, and I'm proud of the constituent service that we provide.
+- Individuals want to know that none of their own money is being invested in companies that put their profits ahead of international security.
+- Congress has no business telling courts within a state that they are prohibited from considering issues involving a lease for energy development, production, and exploration that has the potential to cause irreparable environmental and economic damage to the Gulf Coast area of that state.
+- We can help a whole lot of people if we could figure out a way to expand Medicaid and get people the care that they need.
+- If we are going to use places of worship as polling places, we should not discriminate.
+- I came here with a lot of things that I would like to get done for my community and my constituents. Shooting hoops at the White House was not at the top of the list but would certainly be a thrill.
+- When enacted, health care reform provides generous tax credits to help people afford their health insurance premiums.
+- We know that for children, hunger is especially devastating.
+- It was sanctions that drove Iran to the negotiating table in the first place.
+- Because Republicans have no ideas, they want to turn elections into the battle of dollars.
+- This is not a political issue. I know Florida's leadership has talked about a real commitment to helping our veterans. Now it's time for them to show it.
+- Germany can make a major difference in the lives of so many Holocaust survivors who are struggling in their later years.
+- So many of us have friends or family who have battled cancer, and we know how important it is to find a cure.
+- Why does America always need to be the world's policeman?
+- Having an understanding of what's possible also makes me redouble my efforts to fight those who stand in the way of doing the things that my constituents and the country would want to get done.
+- In South Florida, where there are so many beneficiaries, when Social Security isn't adjusted to reflect their increased costs, that affects their daily lives and their contributions to our local economy.
+- I'm proud to support Secretary Clinton.
+- I am proud to have played a small part in ensuring that no veteran's heroic service will be cast aside due to prejudice.
+- The Democracy is for People Amendment will stop corporations and their front groups from using their profits and dark money donations to influence our elections while reaffirming the right of the American people to elections that are fair and representatives that are accountable.
+- I have been talking to a lot of people who don't normally vote Democratic - independents and Republicans. They have been voting for Democrats because they think it's important to change the direction America is going.
+- I would be concerned if any speech to Congress related any information that's new to the president of the United States.
+- My connections to Broward are long, and they are deep, and I'm proud of them.
+- I was elected on April 13 and sworn in two days later, so I had no orientation. I had to figure things out as I went along.
+- I wasn't a vegan when I came to Congress. It was a decision I made soon after I got here, and it's had such a positive impact on my life that I decided to try to help others as well.
+- Pressure for the most part comes from this overarching concern that if I head into the election season without sufficient resources, then any outside group, any individual, any super PAC may choose to come in to my district and overwhelm it and take over the airwaves and control the debate.
+- Eating disorders have the highest mortality rate of any mental illness, and yet so many Americans are left to fight this battle without the coverage, support, and resources they need.
+- Right now, there is no way that the federal government can prevent someone who's on the terror watch list from buying a gun - none.
+- We ought to be able to forgo the constant need to raise money and just focus on working together to solve the problems this country faces.
+- Many of my constituents are in their 80s, 90s, even 100, and our focus is ensuring that their needs can be provided for.
+- Ultimately, the goal of sanctions is to ratchet up the economic pressure on the Iranians to such a level that the regime determines it is simply too great to bear, and they are forced to weigh the decision to carry on their nuclear development and their illicit quest for nuclear weapons against the ever-growing pressure from their own people.
+- I believe we're stronger when we speak loudly and unapologetically for human rights; when we stand with our allies against common threats like terrorism, radicalization, and poverty; and when we unite to prevent the world's most dangerous regimes from acquiring the world's deadliest weapons.
+- Unfortunately, we have seen terrorist groups use social media to spread hateful propaganda, to recruit members, and to incite violence with alarming effectiveness.
+- Opening Iran up to foreign investment, increasing its oil exports, and unfreezing over $100 billion in assets means more money for Hamas for building terror tunnels in Gaza, more weapons for Hezbollah in Lebanon, more slaughter in Syria, and more violence worldwide.
+- I became a co-chair of the Congressional Study Group from Germany several years ago with the expressed purpose of helping increase aid to Holocaust survivors.
+- Working across the aisle, I helped pass laws exposing business dealings in Iran, cracking down on Iranian human rights abusers, and applying crippling sanctions to Iran's oil and gas industries.
+- People want the United States Congress focused on creating jobs in this country.
+- Corporations that are formed for the purpose of earning profits do not have the constitutionally protected rights that natural citizens have. They should not spend their corporate dollars, Treasury dollars, to influence outcome of elections.
+- This isn't about grabbing people's guns; this isn't about changing the Second Amendment. This simply says that someone who is on the terrorist watch list - a dangerous terrorist - should not be able to purchase a gun.
+- In Washington, I am a leader on the issues that matter to my community, and I think that's what my constituents want, and also I think that's what voters want. Someone who understands them, who wants to represent them, and who works tirelessly every day on behalf of their interests and their values.
+- In order to survive in a dangerous neighborhood, Israel has always needed to be more than tough. The country has always needed to be smart.
+- Standing up to Ahmadinejad is not a partisan issue and should never be one.
+- Let's make Jeb Bush explain his plan to give millionaires another massive tax cut.
+- Social Security is too vital to be lumped into backroom budget talks where the views of ordinary Americans risk going unheard.
+- Social media companies must work closely with the U.S. government to ensure their platforms are not being used by terrorist organizations to do harm to our country.
+- I'm really excited about the prospect of deepening what is already a really strong relationship that I have with the people of Broward.
+- Kids from financially distressed households are twice as likely to have to repeat a grade and more than two-and-a-half more times to struggle with poor health later in life.
+- Denying our courts the ability to hear oil-related cases of great consequence to our environment and our economy is completely the wrong direction to protect the rights of Floridians.
+- We have just been working hard to have people to come out to vote and to make sure people understand how important the election is.
+- No matter how many times you say Social Security is broke, the reality is that Social Security's independent revenue stream and its Trust Fund's investments maintain the program's solvency until 2037, when it may begin to fall short.
+- This OCCUPIED amendment, this constitutional amendment, would overturn Citizens United. It would make clear that corporations aren't people, that they - the framers of the Constitution never intended to give constitutional rights to corporations, the ones that we enjoy and cherish.
+- The United States does not provide economic support funds to the Palestinian Authority to build new homes for terrorists or fund President Abbas' anti-Israel campaign trips through Europe.
+- There's been an unfortunate history of efforts to make sure Florida's votes don't count. Given that history, it's clear why people here would be especially concerned about efforts undertaken by Super PACs and the corporations that fund them to dictate the outcome of elections.
+- As I understand, the role of the federal judiciary, the role of our court system, is to provide justice.
+- Any constitutional amendment that simply gives Congress the option of regulating campaign finance fails to immediately achieve what the American people want, and that is a complete reversal of Citizens United and other Supreme Court decisions that have allowed corporations and the wealthy few to drown out the voices of everyday voters.
+- My passion for strengthening the community and making peoples' lives better is stronger now than when I first got into politics.
+- We need to move past blame and make sure we are delivering care to our veterans.
+- For many older Americans who identify as lesbian, gay, bisexual, or transgender, a lifetime of discrimination has undermined their right to a retirement with dignity.
+- It is no surprise that companies do not often respond to moral pressure alone. We need to hit them hard in their pocketbook and on their balance sheet. We need to show them that their stock prices will be affected if their actions encourage Iran's nuclear weapons ambitions.
+- Energy legislation in Congress and the focus on energy legislation is first and foremost about creating good jobs. In Florida, where solar and biofuel and wind and so many other areas are important and so many in the private sector continues to pursue these, we need policies that will encourage that.
+- Social Security is legally prohibited from contributing to the deficit. It cannot use debt to pay out benefits.
+- It's not class warfare to suggest that we shouldn't look to seniors and the less fortunate to bear the brunt of deficit reduction. I believe America needs to understand there needs to be a sense of fairness.
+- I am excited to run in the community where my wife and I work, where my daughters graduated and my son attends high school, where my family goes to synagogue, and where I have spent so much time working for and with the people of South Florida.
+- We have a responsibility to ensure the Palestinian Authority is abiding by U.S. law with total transparency.
+- For those whose lives have been turned upside down by Chinese drywall, we're trying to give them a chance to seek justice.
+- I've spent my entire adult life involved in the community trying to help people live decent lives, working for a strong and secure state of Israel, and making sure that the most vulnerable in our society receive the care that they need.
+- Let's make Donald Trump explain his hair.
+- We need to work tirelessly to help create new jobs and good jobs here in Florida.
+- It's hard to see how the Copyright Office can rise to the many challenges of the 21st-century work that you do without dramatically more independence and dramatically more flexibility.
+- I participate in the SNAP Challenge to raise awareness about the millions of people in our communities who struggle with hunger on a daily basis despite living in the most prosperous nation ever known.
+- The Florida Jewish community is incredibly important in the primary and will be that important in the general election as well.
+- Saving enough to retire has become impossible for most Americans.
+- Beyond a power play by the oil industry, there is no conceivable explanation for barring courts within any state from considering cases related to oil leases and energy production off its own coastlines.
+- Given my district, it would not have been right to put together a 99-song playlist and not include Barbra Streisand. She has appeal across several demographics of the district.
+- I introduced the Food Security Improvement Act in Congress to remedy the fact that most SNAP beneficiaries find themselves skipping meals or running out of benefits every month.

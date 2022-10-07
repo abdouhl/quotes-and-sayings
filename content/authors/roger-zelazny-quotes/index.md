@@ -1,0 +1,35 @@
++++
+author = "Roger Zelazny"
+title = "Roger Zelazny Quotes"
+quotes_len = "29"
+description = "the best 29 Roger Zelazny Quotes"
++++
+- While I had often said that I wanted to die in bed, what I really meant was that in my old age I wanted to be stepped on by an elephant while making love.
+- So long as no one knows everything about you, you have resources you can call upon for which no one is really prepared.
+- The places where I have the nameless character in 'My Name Is Legion' meet his boss are real places I've been to. That works well for tax purposes, writing into my stories the places I've actually visited.
+- I read poetry every day. I look at it as an exercise, a kind of T'ai Chi for writers. It teaches economy of form.
+- It's hard not to be a part of your time.
+- I enjoy slaughtering beasts, and I think of my relatives constantly.
+- I was writing 'He Who Shapes' when I was working for the Social Security Administration in Baltimore.
+- I am fascinated, I suppose, by a flawed man with a streak of greatness.
+- I got the idea for my novel 'Lord of Light' when I cut myself shaving just before I was to go on a panel at a convention. I had to go out there with this big gash in my face. I remember that I thought, 'I wish I could change bodies.'
+- Space opera was the sort of story on which I grew up. When I was younger, I read heavily in pulp magazines. They were readily available in the stores.
+- Columbia University in 1959 had a kind of reputation that interested me.
+- I enjoy travel very much. I've taken the kids to Europe when there were just the two boys.
+- I read Herman Hesse's 'Siddhartha' while I was writing 'Lord of Light' along with many other things. It seemed a good time to read it so I could see what he had to say about Buddha. In my first chapter, I was thinking in terms of the big battle scene in the 'Mahabarata.' It helped me in visualizing the battle in my novel.
+- When I got to college, I didn't take writing classes, just the standard freshman composition class.
+- I have often thought of doing a story with someone either as a human being or as a robot who, by a series of stages, changes into the other end of the spectrum. By the story's end, he'd be either totally robotic or totally human, the opposite of what he once was. And possibly... bring him back again.
+- The first time I met Harlan Ellison, we were both unpublished young punks in Cleveland, Ohio.
+- I care more, and I think readers do also, for characters in a state of transformation.
+- I find fantasy easier to write. If I'm going to write science fiction, I spend a lot more time thinking up justifications. I can write fantasy without thinking as much. I like to balance things out: a certain amount of fantasy and a certain amount of science fiction.
+- Ultimately, you've got to have something to say, so a writer should continue learning things throughout life. But I don't think education makes one a writer.
+- I do admire great essayists. I'm a particular fan of good nature writing. People like Robert Finch. I read great quantities of writing by naturalists. I've been studying the genre for years.
+- In a sense, fantasy is a freer play of the imagination. You can achieve exactly the situation you want with less groundwork, less of a need to fill in all of the background. For science fiction, I would use a lot of sources to set up, for instance, what a being from another planet would be like.
+- At Case Western Reserve University in Cleveland, I started taking psychology courses. I was interested in the nature of the human mind, the structure itself, pathologies with which it is afflicted. I really intended to be a writer all along, but I needed to take a subject that I could make a living at, either teaching it or doing it.
+- I have a fondness for technology. It's great to spend hours puttering around with mechanical things gotten from junkyards and visualizing what their use might be. Especially if you come across a gadget or tool and you don't know what it is and you try to figure it out. I'm fascinated by processes, whatever they might be.
+- When you are about to die, a wombat is better than no company at all.
+- In the Soviet Union, you always have the feeling someone is watching you.
+- I always wanted to write, ever since I was a kid. I started writing at the age of 11. All I wanted to do was finish my education and have my nights free for writing.
+- I try to sit down at the typewriter four times a day, even if it's only five minutes, and write three sentences.
+- Robots are very tricky to design and expensive, whereas humans are cheaply manufactured. Humans can handle things with greater manual dexterity than most robots I've known.
+- In any novel I write, I have in my mind several things which happened in the protagonist's past which I never mention in the book.

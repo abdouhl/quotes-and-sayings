@@ -1,0 +1,106 @@
++++
+author = "Tobias Harris"
+title = "Tobias Harris Quotes"
+quotes_len = "100"
+description = "the best 100 Tobias Harris Quotes"
++++
+- You can be yourself, you can speak up for what you believe in, and if some people don't like it, it is what it is. Not everyone's going to agree with you.
+- I know the work that I put in the offseason correlates to the season.
+- I would say one of my favorite books is 'Blood Brothers,' a documentary about Malcolm X.
+- To give back during a holiday where it's all about giving and being thankful - I've always been blessed to have a meal on my plate during Thanksgiving - and to spread that feeling to someone else's family, it's special. This is something that is truly important to me.
+- From the moment I arrived in Philadelphia, the city has embraced me.
+- I've been an underdog my whole career.
+- Each and every day I truly wake up, I'm thankful to have a life and be alive. I'm thankful to do what I do.
+- I think confidence is a key thing in this league and I want everyone that's on the floor with me to be just as confident as I am.
+- The beauty about the playoffs is how you make an adjustment, how you come back game-to-game, and to be locked in and focused to win.
+- Basketball is more than our family business; it's our family passion.
+- There are things that I work on day after day to be efficient down the stretch.
+- I'm always happy to be back on the court playing, doing what I love to do.
+- I like looking at Carmelo Anthony and what he does on the floor. I also like Luol Deng; I think my game is similar to his.
+- Moving from one team to another is part of the game now. It's rare for one guy to be on one team his whole career.
+- I listen to some Justin Beiber. I'm not going to lie about that.
+- I'm the type who is always going to continue to work, continue to stay prayed up like I always am. At the end of the day, that's how you bounce back and how you keep going.
+- Defensively, I'm comfortable playing the four.
+- I approach every game the same way. The night before the game and during the game, I approach it the same way.
+- I'm a student of the game, so I know where my touches are coming from.
+- You can't please everybody; everybody knows that, but at the same time all you can do is control what you can control and that's going out there as a player every single night and giving my all.
+- Every opportunity I get, I just try to take advantage of it, embrace it and take everything in.
+- That's important when you're on this NBA journey, in different cities, playing, competing - to really enjoy the whole thing.
+- Obviously I've been traded around, but at the same time I know my game, I know what I bring to the table and I know what I'm looking for as a player.
+- God-willing, I'll continue to stay healthy.
+- Mentors can gain so much wisdom from really focusing on what their mentees are saying. Once a person knows you're truly listening, both parties will establish trust over time that will allow the mentee to open up and express themselves openly without fear of judgement.
+- When I do a lot of the community outreach with the youth, I can easily see the blessings that I've had in my life, even as a young kid growing up.
+- I just try to bring every situation I'm in to God.
+- I do not like giving my money away.
+- As athletes, as people, the way we're looked at in the community, and through kids, we're looked at as role models. The more we can use that to help build better relationships, to help people get along better, we have to acknowledge that and we have to go and do our part with that.
+- I always try to make sure that the workspace that I'm in - the NBA, there's highs and lows - but I always make sure that I never let the highs and lows truly determine my true happiness as a person.
+- My thing is to put all my faith in God and embrace every moment I have.
+- In any professional sports, in general, the community and the team go hand and hand.
+- As a mentor, you have to be willing to put yourself in your mentee's shoes to understand their struggles that they deal with. It's not supposed to turn into a pity party by any means, but empathy speaks volumes to a mentee in need of help rather than forced sympathy.
+- I know how coming in as a rookie, on a rookie scale, you don't really know what you can buy, what you want to buy.
+- A lot of young guys, I'm just trying to show them the way, make sure they have successful careers and I'm having fun doing it.
+- I had very good vets that took me under their wing, so I just want to be sure I give the same thing back.
+- I always root for the underdogs. That's my whole thing.
+- What we do with the Magic, it's not just for a picture or an Instagram post; it's about helping kids' lives and having them tell their parents that an NBA player told him something that will stick with them. It's all about the impact that we can make with these kids' lives.
+- That's the cool thing about suits when you get in there and you customize it - you really get to find out how much flavor you've got.
+- You can't allow money to affect your happiness because that is never going to bring you joy.
+- I just go out there and play basketball. I'll let everything else handle itself.
+- That's a good feeling when you can really just focus on basketball, focus on your role, on how you can help the team.
+- Whatever the circumstances, my main task is always going to be just to win the game.
+- You only live once, so why not try to take full advantage of everything?
+- God has a plan for me and I know that it's all going to work out.
+- Most of the time what I am reading is leadership books, books on the mind and a lot of deep stuff about spiritual stuff and Christian stuff. So most of my free time is spent reading. I try to read 1-to-2 books a month.
+- I pride myself in helping people in the community however I can.
+- I pride myself by being a player that plays in the flow of the game, and tries to get the offense created through other teammates.
+- I know as a player, if I can get a good look at the basket and get the ball up, it's going to be a high-percentage shot.
+- I'm able to take myself out of the celebrity bubble and the profile that I'm at, and look at what black people are going through around the country.
+- All I want to do is win.
+- I want to win and I want to win more than anybody.
+- For me, I look at it like if I'm playing basketball at the NBA or if I'm a principal at a school, which is something I would love to do when my career is over, I'm going to find ways to always bring Christ out in my life.
+- Some people say that I need to take a break and relax a little bit, but basketball is all that I know. This is what I've grown up doing and when I call my mother and my father, they talk to me about the game. It's just embedded in me and it's pretty much all I care about.
+- I love the life that I live, I love being who I am, and waking up every day and trying to better myself each and every moment I get. I'm happy for that. I'm blessed.
+- Being a 19-year-old in the NBA is a dream come true.
+- Honestly, I just needed some guidance my rookie year. I needed to know what to wear, and where to find stuff. It took me like three years to find jeans that fit me!
+- I just play the game the best that I can and all that I can control is today and where I am.
+- Trust takes a lifetime to build, but only a moment to destroy. When looking to build a genuine connection with a mentor, you can simply partake in shared hobbies or activities the mentee or mentor is into, exchange stories, or partake in trust-building workshops together.
+- We been in the streets protesting for years about police brutality.
+- I've put my time in the weight room and I can definitely feel it.
+- Every time I go out on the floor, it doesn't matter what is going on in my life or on the floor - it's about winning basketball games.
+- It's been amazing to me every day just putting on that Team U.S.A. gear. That's the team that I used to watch as a kid on NBA TV and now I'm a part of it! It doesn't get much cooler than that.
+- In Milwaukee, I was a young player and I didn't get the time that everybody expected, but that comes with the territory.
+- I want to win just as much as anybody else does.
+- It's night by night, just figuring out watching film on different passes I can make, and the ball will find you and it comes back to you, but it opens up the floor for other guys too.
+- Coach Skiles, I loved playing for him.
+- Britton Kelley is the best strength coach I've had in my life - he's probably the best in the country. He has really transformed my body and really made me a lot stronger. A lot of guys he has trained are in the NBA.
+- The best players in the league: LeBron, Carmelo, KD, Westbrook, people will say that they suck. People are always going to say something, so you really can't buy into all of that. And that's why I try to sometimes deviate from social media because - not that it gets to me, but sometimes it's all just wasted energy.
+- I try to just find motivation in different areas.
+- For police officers who commit this violence, there has been no accountability. Cops are supposed to be held to a standard of conduct, but they always get the benefit of the doubt, inherently. They act like we ain't supposed to question nothing.
+- Hopefully, I can keep growing as a player and have my number retired at Tennessee and in the NBA one day.
+- I believe you have to learn how to win. And that just doesn't come from going out on the basketball court and playing. That comes from hours and hours of preparation, preparation before that game, preparation for the other team you are playing, mental preparation.
+- My sisters play ball. My older brother, he's in my ear. My younger brother, he's in my ear. Critiquing me on my game. That's who I mostly pay attention to.
+- There's nothing about my NBA journey that I would change - the teams, the cities, the teammates, the fans have all helped me grow into the player and person that I've become. Every time I moved, I saw the bright side. Always, I saw opportunity.
+- I read a lot before a game.
+- Being vulnerable can be scary at times, but it's the times when you feel the most lost, confused, and stressed where you need to press into your mentor the most. If you're not willing to be 100 percent honest with your mentor, you're doing yourself the disservice of not receiving the help that you need to better yourself in life.
+- You can never stop learning as a basketball player and it's my goal to keep growing every day.
+- Some guys joke, 'Oh, you have a bedtime.' But I've got to be able to function the next day at the top level.
+- My thing ever since I came in the NBA is making sure it's not about how much money I make, but instead it being about the love of the game.
+- When I came into the league, I was very politically correct, because I didn't want to step on anyone's toes. Now, I've gotten to the point where I know you don't have to be like that.
+- I need to continue to grow as a player and as a person and continue to work as hard as I can. That's what I'm going to do; I'm not going to stop working and just continue to work hard.
+- From being my coach as a kid, and starting his own AAU team for myself and my brothers to play... my father was a father figure for a lot of people I grew up with. We've done amazing things together. It's the type of father-son bond that nothing will separate us.
+- I met Michael Jordan as a kid. I train with George Gervin also, so that's a big thrill as well. I've learned a lot from him.
+- There are a lot of hard-working parents out there for whom it is hard to support their families during Thanksgiving.
+- I've been in situations with different team. I could fit any style.
+- Obviously winning's important for me, star players are important.
+- My father is a hell of an agent and hell of a businessman.
+- Being able to provide kindness to people putting their lives at risk in hospitals and supporting Philadelphia families in dire need of help is an important responsibility for me.
+- A lot of people don't know, when I was a young kid, I couldn't stand when the teacher would call on me to read something, especially out loud.
+- When I came to the Orlando Magic and saw work that they did in the community, I wanted to ripple off that and make a difference too.
+- All of my coaches, from high school to AAU and college, helped me learn and get better.
+- For me as a basketball player, it's about continuing to get better and continuing to grow.
+- We really want our kids, and our youth, to understand that one, knowledge is power, and two, you don't have to be shy about being educated, and being ahead of the learning curve.
+- I'm not really a big walk-around-the-city type of guy. I'm a hotel type of guy.
+- I listen to all types of music. I listen to a lot of hip hop, but I also listen to pop and house music. I really, really like smooth jazz.
+- I'm about dialogue, and I'm always willing to talk.
+- Any time you get guys who are super professional, we call them pros' pros.
+- You understand in this league that if you don't win, everybody's stock tumbles.
+- I think that's the difference in my game compared to some other guys. I just believe in playing in the flow of the game, playing the right way with ball movement.

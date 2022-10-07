@@ -1,0 +1,18 @@
++++
+author = "Alex Morrison"
+title = "Alex Morrison Quotes"
+quotes_len = "12"
+description = "the best 12 Alex Morrison Quotes"
++++
+- I think they do have to get it right in Sierra Leone. There has to be something in there now to establish confidence, to stabilize the situation, and then to move to some sort of political negotiations.
+- You must first clearly see a thing in your mind before you can do it.
+- I think there has to be greater heed paid by the Security Council members to military advice.
+- All of us who are convinced that our military needs all the support the government and public will provide are pleased that he will have his chance to do just that.
+- The Halifax area has long played a major role in Canada's military operations, being the port of departure for convoys, naval task forces and army units over the past 100 years or so.
+- We can no longer stand for the Security Council passing resolutions and then in effect heaving alongside and taking a vacation. We cannot leave it to the secretary general to go cap in hand.
+- I also believe that member states of the United Nations should live up their obligations to pay their dues.
+- We know darned well that in Bosnia, certain governments and the secretary had said tens of thousands are needed in Srebrenica and those people were never provided.
+- As Brian Urquhart has said quite correctly, I don't think that individual countries in the international community can stand aside and let all of these slaughters continue without doing anything.
+- I do believe that the United Nations needs to have more exacting, more enhanced professional standards for the military peacekeepers that are deployed.
+- However, I think, first of all, that what's happening in Sierra Leone is going to have the great influence on those governments who will be asked to provide forces to the Congo. Second, of course, the Security Council has no professional military advice organized in any way.
+- I would hate to see operations in the Congo held hostage to Sierra Leone but I really think that's the way it's got to be. At one point we've got to decide to get it right and we've got to be professional.

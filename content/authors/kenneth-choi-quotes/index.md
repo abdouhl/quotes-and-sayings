@@ -1,0 +1,21 @@
++++
+author = "Kenneth Choi"
+title = "Kenneth Choi Quotes"
+quotes_len = "15"
+description = "the best 15 Kenneth Choi Quotes"
++++
+- Portland is the perfect weekend getaway. I studied acting in Portland and lived there for five years. It's a small city with so much to do. There's beautiful scenery, a great bar scene, and so many fabulous restaurants.
+- I am proud to say that I plastic-wrapped Bruno Ricci's toilet in his trailer.
+- I'd like to visit my friend and his family who live in Australia. That trip is long overdue.
+- When I moved to Los Angeles, I figured I'm really going to make an attempt to become a real actor. And when I did that, I thought it was time for me to face my parents and tell them what I did.
+- Chicago is my hometown and will always have a special place in my heart.
+- The entire time I was in Portland, which was the five years, I had absolutely no contact with any of my family.
+- When you're working on a huge, elaborate set that took months to create, and you're surrounded by hundreds of extras, you better remember your lines and know what you're doing in a scene!
+- I told my extremely conservative, uber-traditional Korean father, 'Hey, Dad, I know what I want to do for the rest of my life. I want to be an actor.'
+- I collected X-Men, Spider-Man, and Daredevil comics. I definitely had a few Captain America comics lying around in those protective plastic baggies.
+- I think I can sing, but that does not mean I can actually sing. I fear that I'm like one of those 'American Idol' contestants who truly believe they are good and are actually dreadful.
+- When I work, I like to just kind of stay quiet, stay to myself. I like to walk around a lot and figure out what's gonna happen in the scene and try to get my head straight.
+- Comic fans are some of the toughest fans to please, and I'm one of them.
+- Belize has a tropical climate and is quite affordable and is developing a reputation as an inexpensive Hawaii. If you want to hide away someplace that is extremely low-key, Placencia is perfect. San Pedro is more touristy and modernized.
+- When I filmed my episodes, the show hadn't aired yet, so there was no 'Glee' pandemonium. It was still untested.
+- My dad does watch my work now. My parents watch everything I'm on. I think the first time they saw something was 'Captain America,' and he called me, and he was so elated.

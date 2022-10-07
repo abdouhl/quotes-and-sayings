@@ -1,0 +1,38 @@
++++
+author = "Chyler Leigh"
+title = "Chyler Leigh Quotes"
+quotes_len = "32"
+description = "the best 32 Chyler Leigh Quotes"
++++
+- I'm typically pretty terrified to sing in front of people.
+- I'm always down to do a sitcom. I did 'That '80s Show' back in the day and that was a really great experience.
+- I have dark blonde hair - and it needs help. I went darker, when I was 18, in one of those 'I'm 18, and I can do what I want' moments. It's been that way ever since.
+- When it comes to skin care, I like to keep things simple. I'm not the type of person who runs out to have facials.
+- I work, and I'm a full-time mom, and it's hard for me to sit down and relax because it's like, 'Crap, there's something I'm forgetting.'
+- At the risk of sounding too cliche, I found a really fantastic church. That is what keeps me grounded.
+- I wasn't very athletic as a kid.
+- Starting clean is a theme for me - starting fresh and understanding what's important about life.
+- I can change my appearance by doing simple things. People ask, 'What's your ethnicity? Are you part Asian? I can't figure you out.' That gives me range with the roles I play.
+- I don't like to do much with my hair - which is good, because I don't know how! I just always make sure I have a great haircut.
+- On a personal level, change is a hard thing for me.
+- It is just living life intentionally - that is what I want instead of just existing.
+- Yes, I do strive to be someone young women can look up to.
+- My husband is extremely dreamy.
+- I'm always worried that lipstick is on my teeth or caked in the corners of my mouth.
+- I watch 'Supergirl,' and I love it. It's amazing.
+- I have a really big heart for young women - having been one - when there aren't a lot of good examples for young women.
+- It is important to find worth in yourself.
+- I used to cry on the way to auditions.
+- It literally brings me to tears when Sara Ramirez sings. She's unbelievable.
+- We have a big heart for Africa and also for just raising awareness about the water crisis.
+- Red's my favorite color.
+- After leaving 'Grey's,' I left 'Grey's' - like, let it go.
+- In our business, you never really know who you're going to get and who you're going to work with. Sometimes it's great, sometimes it's awful, and you gotta do what you gotta do.
+- I usually sing when I'm by myself.
+- I am so in love with my family, and I am so in love with my husband.
+- I've been likened to a chameleon through my entire career.
+- I have exercise-induced asthma.
+- I'm on the show, 'Supergirl,' and one of my coworkers is David Harewood. He's an amazing man.
+- I sing at home all the time with my kids and my husband, and I will write music together. It's kind of a very intimate thing for me.
+- I don't really have much time for TV.
+- My experience on 'Grey's Anatomy' is something that I will treasure for the rest of my life.

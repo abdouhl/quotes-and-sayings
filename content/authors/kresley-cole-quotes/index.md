@@ -1,0 +1,18 @@
++++
+author = "Kresley Cole"
+title = "Kresley Cole Quotes"
+quotes_len = "12"
+description = "the best 12 Kresley Cole Quotes"
++++
+- One of my favorite things to do is formulate powers for a character, then come up with their corresponding weaknesses and liabilities. And I delight in world-building: melding the supernatural with the natural, then tweaking and polishing until it feels organic.
+- I write what I like to read, and I enjoy love triangles in YA and adult fiction - not to mention in other media like TV, opera, theatre, and even in video games! I relish when dark and compelling characters compete for our protagonist's heart. The doubts, the uncertainty - the jealousy! - can be breathtaking.
+- The one test I have for every completed book is if I feel head over heels in love with the hero. If he hasn't stolen my heart from the previous hero, I know the book isn't right.
+- I've been a huge fan of all things paranormal my whole life. For me, it was always a question of when, not if, I was going to write a paranormal series. I dipped my toe in the genre by incorporating a mystical curse into the 'MacCarrick Brothers Trilogy.'
+- Before the final battle in 'Poison Princess,' Evie remembered how to use her Empress powers, practiced with them to the point of exhaustion, then had a trial by fire. In a way, she earned those powers, as she hadn't before, so that was certainly a confidence builder.
+- I enjoy a good cliffhanger. As a reader, I relish that nervous feeling you get when you're engrossed in a story, but in the back of your mind you're aware that there aren't that many pages left. How will it end? Everything can't be wrapped up! This can't end! Then it does, and your heart seems to stop.
+- My toughest criticism usually comes from myself. As my editor can attest to, I'm never done tweaking a book until the production department has to rip it from my hands!
+- In 'Dark Skye,' I rewrote every one of the Pandemonia scenes over and over before I was happy with them - hundreds of pages are now sitting in a folder called 'Cuttings,' never to be read. Ouch!
+- As the installments in the 'Immortals After Dark' series span simultaneous timelines, making sure the details remained accurate was a hair-raising/losing exercise.
+- I always favor the hero and heroine from whichever book I've completed most recently. Yes, I'm faithless and fickle!
+- If I could sum up 'Shadow's Claim' in six words: cage fights with hot alpha males. Seriously, though, while the fights are the backdrop for Trehan and Bettina's love story, the main emphasis is on how Trehan - a pitiless master assassin - wages the ultimate battle to win her heart.
+- My husband, a.k.a. Swede, and I both come from athletic backgrounds, so once we identified the goal - get book published - we attacked it. At any given time, I would have my writing out in 25 various forms - either contests, mentoring critiques, agent/publisher queries, etc.

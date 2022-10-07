@@ -1,0 +1,22 @@
++++
+author = "Amy Childs"
+title = "Amy Childs Quotes"
+quotes_len = "16"
+description = "the best 16 Amy Childs Quotes"
++++
+- I've always have loved reality programmes. 'Big Brother,' 'I'm A Celebrity,' they're my guilty pleasure.
+- I'm a huge fan of 'Geordie Shore.' I watch it, and it's just my guilty pleasure. I sit there and can't believe what they are like. However, I have met all the girls, and they are lovely.
+- Abbey Clancy is incredible. I saw a picture of her in a white suit recently, and she looked amazing. Victoria Beckham always looks classy, and I like Coleen Rooney's style too.
+- When I go on holiday, I wear wedges. They accentuate your leg, honey, and you have to look good on the beach.
+- I need to tone up, as I eat a lot of fast food. I love Maccy D's, Subway and Domino's.
+- I just wanted to be myself and that's why I chose to do 'Big Brother,' because I wanted everyone to see the real Amy Childs.
+- I was always behind in class. There was people in my class who was amazing at art, amazing at maths, amazing at English, but I wasn't clever with anything, even though I tried my hardest.
+- I don't like to look too 'done' - I prefer to look more natural.
+- When it comes to designer, you can't beat Victoria Beckham. I love her stuff.
+- I train hard Monday to Friday. I'll do weights and cardio in the gym most mornings and do a spinning class, too.
+- I've worked so hard for years, and it's just incredible to see my clothes in Dorothy Perkins. I got quite emotional at the launch.
+- I love 'Made In Chelsea,' and I think it's a great show.
+- I always wanted to have my own boutiques. I'm so passionate about clothing and always have been so business-minded.
+- It was a lot of hard work, but everyone loved my Amy Childs' Collection, so I decided to have a boutique as well as my salon. I love designing my own dresses, and everyone is loving the collection. I can't believe how well the boutique and the clothing online is going.
+- I've got a personal trainer, and I train three times a week.
+- When I have had a long day at work, I want something to watch that is funny, lighthearted and easy to get into, and reality is that. I'm not really into serious programmes or documentaries.

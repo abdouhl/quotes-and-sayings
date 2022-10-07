@@ -1,0 +1,31 @@
++++
+author = "Leon Trotsky"
+title = "Leon Trotsky Quotes"
+quotes_len = "25"
+description = "the best 25 Leon Trotsky Quotes"
++++
+- Learning carries within itself certain dangers because out of necessity one has to learn from one's enemies.
+- Life is not an easy matter... You cannot live through it without falling into frustration and cynicism unless you have before you a great idea which raises you above personal misery, above weakness, above all kinds of perfidy and baseness.
+- Technique is noticed most markedly in the case of those who have not mastered it.
+- Ideas that enter the mind under fire remain there securely and for ever.
+- Fascism is nothing but capitalist reaction.
+- England is nothing but the last ward of the European madhouse, and quite possibly it will prove to be the ward for particularly violent cases.
+- Where force is necessary, there it must be applied boldly, decisively and completely. But one must know the limitations of force; one must know when to blend force with a maneuver, a blow with an agreement.
+- If we had more time for discussion we should probably have made a great many more mistakes.
+- The dynamic of revolutionary events is directly determined by swift, intense, and passionate changes in the psychology of classes which have already formed themselves before the revolution.
+- From being a patriotic myth, the Russian people have become an awful reality.
+- The depth and strength of a human character are defined by its moral reserves. People reveal themselves completely only when they are thrown out of the customary conditions of their life, for only then do they have to fall back on their reserves.
+- Not believing in force is the same as not believing in gravity.
+- The historic ascent of humanity, taken as a whole, may be summarized as a succession of victories of consciousness over blind forces - in nature, in society, in man himself.
+- Events can neither be regarded as a series of adventures nor strung on the thread of a preconceived moral. They must obey their own laws.
+- Everyone has the right to be stupid on occasion, but Comrade Macdonald abuses the privilege.
+- The masses go into a revolution not with a prepared plan of social reconstruction, but with a sharp feeling that they cannot endure the old regime. Only the guiding layers of a class have a political program, and even this still requires the test of events and the approval of the masses.
+- Old age is the most unexpected of all things that happen to a man.
+- You may not be interested in strategy, but strategy is interested in you.
+- There is a limit to the application of democratic methods. You can inquire of all the passengers as to what type of car they like to ride in, but it is impossible to question them as to whether to apply the brakes when the train is at full speed and accident threatens.
+- Insurrection is an art, and like all arts has its own laws.
+- Let a man find himself, in distinction from others, on top of two wheels with a chain - at least in a poor country like Russia - and his vanity begins to swell out like his tires. In America it takes an automobile to produce this effect.
+- The end may justify the means as long as there is something that justifies the end.
+- Revolutions are always verbose.
+- In a serious struggle there is no worse cruelty than to be magnanimous at an inopportune time.
+- There are no absolute rules of conduct, either in peace or war. Everything depends on circumstances.

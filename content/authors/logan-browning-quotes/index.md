@@ -1,0 +1,33 @@
++++
+author = "Logan Browning"
+title = "Logan Browning Quotes"
+quotes_len = "27"
+description = "the best 27 Logan Browning Quotes"
++++
+- I'm always wondering what else I could be doing. It never feels enough to just use my platform. I'm happy to give a voice to people who may not be heard half as much, but I'm always wondering what else I could be doing, since my position almost requires me to do more. And I want to do more.
+- If I choose to keep my opinions and my activism to myself, then I'm not effecting any change in my time here on Earth.
+- I do my research, and if I'm supporting something, then it's because it aligns with me morally and ethically.
+- Every morning, when I'm really, really tired... when I'm dead tired is when I feel most alive.
+- I've become very cognizant of how people are perceiving me, which is a little bit to my detriment.
+- I have really acne-prone skin, and unfortunately, my job requires a lot of makeup, so when I'm not working, I do my best to let my skin breathe.
+- I don't even know how to explain the feeling that I get from being a curly girl. There's a whole new personality.
+- I'm not gonna respond to people calling me a race baiter. It doesn't serve me. Also, I'm not a race baiter.
+- We live in a society that wants to label you with a color, sexuality, religion, or ethnicity. It divides us, but it also allows us to find pride in our identity.
+- I don't want people to know how I am feeling because it makes you more vulnerable.
+- The truth of the matter is, there were shows that depicted black characters that were on in the '90s, and they gave everybody a glimpse into the black experience. And then they disappeared.
+- I don't want to look up and think, 'Wow, I had a moment to really be a part of changing the world, and I didn't live up to it.'
+- I don't think men realize that when a woman walks out every single day, there's an unconscious way we cater to making some man comfortable. That's our experience.
+- People look to 'Dear White People' as an encyclopedia of our culture. But it's also art, and there are characters with different perspectives.
+- Everyone that I'm friends with does not have the same party standing. For the most part, my friends are Democrats, but not everyone is, so a lot of times, we just have candid conversations. Sometimes that's the best way that we can educate each other and come to our own decisions about bills and candidates and policies.
+- There are a million brands of micellar water, but the Bioderma was recommended to me by a makeup artist, and it really cleans your face when you're not able to wash it on the spot.
+- I don't mind failing, because I see it as an opportunity to try again and eventually succeed. Having this attitude and sharing it with young girls encourages them.
+- I think black women feel an obligatory pressure to be stronger than everybody else, not necessarily to suppress the pain.
+- I am only here on this earth for a short period of time, like the rest of the country and citizens, and I want the time that I spend here on earth to matter.
+- I'm black, and I'm human. I'm a woman, and I'm human. I believe in God, and I am human.
+- With too much wash and wear, sweaters get fuzzy or start to pill. Having a fabric shaver is a game changer. It makes my sweaters look brand-new.
+- I have sensitive, acne-prone, stress-me-out skin.
+- I've been working for this industry since I was 15, and every makeup artist I've known who's worth my time uses Jao Refresher on their hands and their brushes. It's like an all-encompassing sanitizer that smells way better than alcoholy Purell.
+- It's time for men to be held accountable when they make women feel uncomfortable or do things out of line.
+- I learned that in order to have a strong and credible voice, I needed to do more research into the history of black people in America while simultaneously digesting new and pertinent news.
+- Being part of social movements like Black Lives Matter or organizations like NAACP, or any group representing a cause, gives you more resources, knowledge, and power. They can help you use your voice.
+- Making mistakes is how we learn.

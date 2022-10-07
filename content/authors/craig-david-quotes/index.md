@@ -1,0 +1,106 @@
++++
+author = "Craig David"
+title = "Craig David Quotes"
+quotes_len = "100"
+description = "the best 100 Craig David Quotes"
++++
+- I grew up on dancehall music, and it holds a strong place in my heart.
+- I just keep it real, and I have written songs from my heart and performed them how they should be performed.
+- I grew up in Southampton. My mum was a shop assistant; my dad was a carpenter. They broke up when I was eight.
+- When I grew up, I was living on a council estate overlooking a car park for a good 16 years of my life.
+- Everything around me is surreal. I get picked up in cars and go to celebrity bashes, and I get sponsorship on clothes, and it's great, and I really enjoy it. But you should remember where it all started: the music. That's the key.
+- If I couldn't sing tomorrow, I'd still write songs cos I'm passionate about that.
+- I don't know if, in a previous life, I was, like, the embodiment of a guitar, because any time someone plays a guitar with the licks, I just resonate to it.
+- When I started writing material, I realised you could take a ballad like Usher's 'Nice and Slow,' sing the same melody over a garage track, and everyone would be up and dancing.
+- I'm a big fan of Usher, and I'd love for us to record together.
+- When you start to ascertain a physique, you run that thing where you don't want to lose it. It catches you; it's like a hook.
+- You have to have those times when your hunger and drive is in a different place because you're under pressure to have success.
+- It's lovely to feel part of a community.
+- I leave it very open because, at the end of the day, it's one of those things where I shouldn't have to reinforce and state, 'No, I'm a heterosexual' - because that's all nonsense.
+- I bought a dodgy gold ring off a guy in Southampton. He told me to check it was real gold by heating it up with a lighter and pressing it against my skin, because real gold doesn't burn. I still have the scar on my left hand.
+- You know a date's gone really well when she's happy with nothing fancier than a Big Mac and fries!
+- We can all accept criticism of creative work, but to be publicly ridiculed for it is incredibly difficult to deal with.
+- I think I'd be a very good dad, and I think I'd have a lot of wisdom to share.
+- My thing is, for artists who are having success, being given an award shouldn't be the thing that defines you in the first place.
+- My songs are a time stamp for a lot of people's lives.
+- People use the 'love' word too early. When you've got that trust thing locked down, when you've lived together, and you know each other's good and bad qualities inside out, at that moment, you know if you truly love someone.
+- I do about two hours working out in the morning with my trainer. It's like brushing my teeth.
+- I am not competing to be an athlete. I make music.
+- I've experienced everything any aspiring artist could ever want.
+- I'm a music man.
+- That's the beauty with music in the digital age: you're always one follow away from experiencing something new.
+- I could never have dreamed of picking up an Ivor Novello for anything... but for Songwriter Of The Year, it's just amazing.
+- I'm not angry about 'Bo' Selecta!' I was flattered at first and even appeared on his show, but he just went on to become more vicious, knocking down everything I did.
+- I'm all about the melody.
+- Before my first album 'Born To Do It,' I used to DJ.
+- Don't take social media seriously. Don't buy into the hype.
+- Life is all about how things rough up against you and how you see them and the vantage point you have from them.
+- Failure and success are part of the same seed. If you don't embrace your failure, you never really know what success is.
+- 'Born to Do It' took a kid out of a council estate and put my mum into a home of her own. It changed my whole family's situation, and all from doing something that I loved.
+- I've realised that as long as the youth has the ability to use social media, and their voice is there, people can actually cut through the nonsense and see what's really going on.
+- I love all my albums... I use the metaphor they're like my children: some do better than others, but you love them all equally.
+- There's nothing that I own that really makes me as happy as knowing that the people around me are all good.
+- Something's wrong with all countries and all voting systems.
+- What I've learned is that if you stay focused and believe and actually walk the walk, anything is possible.
+- Jessica Alba's very beautiful; so is Sienna Miller.
+- When you first come out of the box, you want to play the 300-capacity place, then it's 1,600-capacity, then it's an arena - so, do you want to be in a stadium now? The ego keeps telling you that it's not enough.
+- It is cool to be gay, but I am not.
+- When I was 16, I didn't really know what intuition was as a word, even. It's one of those things you experience, but you don't really know what it is.
+- I always find that, when it comes to writing songs, if the melody and the chords are working, we're 90 per cent there.
+- Writing for others is great cos you can tailor it for them.
+- I am only as good as my last song. Hits are a pension, but I don't want to rest on those songs. I want to have a future.
+- I like buying people little things, not flooding them with money, trying to win them.
+- I'm grateful for what I have and the people around me.
+- I wanna have a positive impact and bring in artists on the come-up. It gets me hyped!
+- I wrote a song called 'Four Times A Lady' for Destiny's Child, and it was perfect. But then I had to spin it back and change all the lyrics to a guy's point of view cos I thought the track was too good to give away, heh heh. It's Craig David now.
+- More than meeting people and going out with girls, I'm focused on my music.
+- I've done a couple of tunes with Kaytranada. 'Got It Good' has had such a great response.
+- We tend to always want to obtain something new and something more, and we never really enjoy what we have.
+- Thankfully, my manager didn't talk me into 'Big Brother' or 'I'm A Celebrity... Get Me Out Of Here!'
+- I always felt like I had stability, doing things with my dad and living with my mum.
+- When I got to the second album, there was an expectation, because we'd sold nearly seven million albums on the first record, that this would do eight or nine.
+- I never let anyone know I was insecure about it - it was my own little thing - but I did have a problem being overweight. I always felt people were looking at me in a certain way as opposed to who I really was.
+- By fusing R&B with a U.K. garage sound, you can create energy. 'Fill Me In' showed me that.
+- Psychologically, when you've been overweight, you want to achieve the polar opposite.
+- Me and guitar music is so entwined.
+- You find your personality real quick in school.
+- We need to stop thinking the grass is greener on the other side and be happy with the love we have.
+- I'd love to reach the pinnacle where you just can't wait to get the new album by Craig David.
+- When I write a song, I get the melody right first, and then hopefully I can back it up with a lyric that has to respect the melody.
+- For any healthy relationship to work, you have to be able have that time to spend with your friends.
+- I recognise life is like a magnet. Positive and negative are on the opposite sides of the magnet. You can try to cut the negative part off, but it's still there. When you accept both of them, it's like, 'You know what? Don't get too identified with success or too identified with failure - just be cool with them.'
+- It's like a god-given gift that I've actually been able to go out and sing my songs.
+- It does feel that TS5 gave me such a new lease of life.
+- I was devastated by Gene Wilder's death.
+- I see some artists who disown songs they love when they don't chart well. Would you do that to your children? Trust me, children ain't gonna do all the right things, so are you gonna disown them or embrace them and say, 'No, you're still my child. You didn't go out and do the right thing, but I'll still love you in the same way?'
+- What I like about Kasabian is that it's melody driven.
+- What I dislike about going to the club is if you're not behind that red rope, you feel you're missing something special going on.
+- Certain key words, like, 'break it down,' 'this is how we do it' - they'll always end up on my tracks.
+- Be yourself. If you're not yourself, who are you? But take advice; listen to people. If you're not listening, you're lost. You're a sheep among wolves.
+- The council estate I grew up on wasn't too bad.
+- Let me create great music, go in the studio, and possibly become a memory and a time stamp in people's lives - and just give the best performances, because I know that's all that really matters.
+- I have admiration for beautiful women.
+- It amazes me how quickly you can earn money.
+- My mum made the best roasts.
+- With every person you meet, there is a new and exciting experience to be had.
+- As much as money is important for security, for me, it is worth nothing without music.
+- Take anything seriously in life, and you set yourself up for peril - trust me.
+- I love songs, so when you're song-based, it doesn't matter which way the production leans.
+- Kasabian are wicked. They've got the hit songs, but it's the presence in the performance and the attitude with it that I love.
+- I aspired to playing at Glastonbury, not just the Camden Palais.
+- When I go on stage, there's no way I can do the kind of show I do and not be fit for it. I can't. I want to give everything.
+- My grandmother and my mother raised me, but my dad made a conscious effort to be in my life - every weekend he would take me out.
+- I feel, in the sense that if you're heterosexual, if you're bisexual, if you're gay, if you're a lesbian, if you're transgender, whatever the vibe is, that's what you represent. I've always found it quite strange that we always like to try and define people and say this is how it is, and this is how it should be.
+- I let the music do the talking, and people are still getting feelings from my songs.
+- 'Fill Me In' went to number one at the same time Destiny's Child released 'Say My Name.' Having a number one over Destiny's Child at their peak was just madness to me.
+- For me, I have the highest amount of respect for DJs. There's a real skill set and ability to hold a crowd's attention for four to five hours, especially with an R&B/hip-hop and open-format music.
+- If I live my life through nostalgia and what I did in the past and expect to be the new kid people have just discovered again, then unfortunately, I'm creating my own demise.
+- That whole 'Bo' Selecta!' thing was damaging. I played along with it; I said it was cool, I can take a joke, roll with it, so I went on the show. But it was killing me.
+- I have enough rings to cover both hands, but that is crass. There is a fine line between looking nice and looking over. Sometimes, I look at myself and say, 'Craig, that is over.' You have to be careful.
+- If I can be an advocate for people to get healthy, that's good, and it's not about just needing to go to the gym.
+- I relish performing.
+- In the course of my career, which has been an incredible rollercoaster ride, I look at the journey and think it's been immense.
+- Getting my mum a house was a really great feeling.
+- If you're in a good relationship, you should be able to say to your girlfriend, 'That girl walking down the street is great.'
+- I played 'Rewind' so many times in the club to see which parts were working, see how the crowd reacted to it.
+- I'm an only child, so I got spoilt a lot. Which was a good thing.

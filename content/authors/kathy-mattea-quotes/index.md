@@ -1,0 +1,34 @@
++++
+author = "Kathy Mattea"
+title = "Kathy Mattea Quotes"
+quotes_len = "28"
+description = "the best 28 Kathy Mattea Quotes"
++++
+- You find yourself in this place where you really get to find out what you're made of, and what I found was that when I was at my time of greatest need, there were people who appeared in my life, and helped me through it.
+- Can you blame them? We have to filter so much information these days. But it does make it difficult for an artist. I'm 46 years old now. I've had a lot of life experience and my voice has changed. People who expect the same old me are bound to be disappointed.
+- If you say that you're all about a certain something, and look back and see that the choices that you've made don't reflect that, then there's something for you to look at.
+- So I had to just kind of go back to the hotel, take a shower, sit quiet, dig down deep, warm up, and allow myself to move into some kind of zone. And then I remembered that a lot of my favorite musical moments are not about perfection.
+- I jump into the process, and the record begins to gel at some point. Then I begin to get a picture of where I'm going. But it's not always something I know on the front-end.
+- I don't live in as much fear as I used to. I'm not afraid of the music business. Life is too damn short. I know what's important, and the tasks are very clear.
+- We rob ourselves of so much by focusing on the wrong stuff. And the ability to get into the moment and deal with what is, that's the real opportunity.
+- Whenever someone leaves, the next person that gets pulled in is somebody with similar values.
+- Anyway, our family went into complete crisis mode. I have two older brothers, and we rallied as a family.
+- That's the great paradox of living on this earth, that in the midst of great pain you can have great joy as well. If we didn't have those things we'd just be numb.
+- I can't even say I've begun yet, but I'm trying on the idea that there is a book in my future.
+- You have to write badly to write at all. If it's crappy, I will rewrite it later. But it will be mine. You can hear the resonance of an artist who goes into herself.
+- I would step into a place of being lined up with a sense of purpose and my inner compass, and everything was going in the same direction. Then I'd get lazy and get off the track. And then things would start to fall apart, and I'd back up and get it together again.
+- I guess the biggest thing is that I committed to a spiritual center before I do anything else. And I put some daily things in my life into practice and I maintain that, to make sure that I don't drop the ball.
+- So all of these things are going on that make you wake up and realize you are a mortal person. You can choose to cruise through your life, but if you do, you're going to open your eyes at some point, and it's gone.
+- You have to listen to what resonates within your own gut. You find your direction there. Your voice comes out.
+- Your voice is vibrant for only a certain part of your life. There are some records I've always wanted to make, and I don't know if I want to waste this time beating on the door of the charts.
+- A gourmet meal without a glass of wine just seems tragic to me somehow.
+- So I really did stop and change what I saw I was about, and really try to put that principle into play as the center of everything - my friendships, my marriage, my career, my family, my way of being in the world. And that changed everything for me.
+- I've come to understand my role. On some level, I provide the context for them to shine. I also know my role is the steward of the songs, and the center point, the artist that the stuff all revolves around. But I really try to honor that.
+- You know, your speaking voice comes back, but your singing voice you use in a different way.
+- Or if I have my head in the results, I can't work with what I have, because I'm trying to force something to happen. And with singing, any time you force it, you tighten up. If you tighten up, you're screwed, nothing will work.
+- Chocolate's okay, but I prefer a really intense fruit taste. You know when a peach is absolutely perfect... it's sublime. I'd like to capture that and then use it in a dessert.
+- And in fact, I think the more we start to worship perfection the more soul leaks out of art.
+- I really think that's what music and art is about. It's another way to connect to the divine. It's a real pure way of touching that deeper reality beneath our life.
+- There's nothing more fun than sitting in a circle playing with people who are really into it.
+- When you keep the caliber of musicians very high in the band, people are going to come and go. Some of them will be people who have to try various things, it's natural.
+- What is hard to remember when you're in the middle of it is that when you get through to the other side, you always walk away with a gift. If you can stand in there and not walk away from it, you get transformed by it.

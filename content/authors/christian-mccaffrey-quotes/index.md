@@ -1,0 +1,106 @@
++++
+author = "Christian Mccaffrey"
+title = "Christian Mccaffrey Quotes"
+quotes_len = "100"
+description = "the best 100 Christian Mccaffrey Quotes"
++++
+- I don't care if I get no carries and just play special teams. I'm there to try to win football games and help that team win.
+- Maybe at some level, even at an early age, without ever being aware of it, I was reacting to something. To people judging me based on how I looked instead of what I could do.
+- You've got to be able to adapt to your environment.
+- It's a constant progression, and as long as you're constantly striving to be better, you're headed in the right direction.
+- Great players always play with a chip on their shoulder no matter if they have a reason to or not.
+- I probably have the most versatile playlist in the world, from country to rap to classic rock to classical.
+- Back in the day, a lot of running backs used to be 230 pounds, ground and pound the ball right up the middle. One thing I pride myself is being able to do what those guys do, as well.
+- You can't try to make something crazy happen when nothing is there. You've just got to keep pushing.
+- Something I really pride myself on is not just being a running back that can catch the ball but if I move out to the slot, I become a receiver.
+- You've got to let the game come to you. You can't press.
+- I stopped worrying about how other people define me a little bit ago. I used to care a lot. Now I just don't care that much. Really, what I'm worried about is, am I being the best me I can be?
+- You have a lot of individual goals, I think everybody does.
+- Earned success is the key to a positive, happy life.
+- The best players try to not slow down when they put the pads on.
+- You can never satisfy other people, I learned. End of the day, it's extremely important that you know yourself better than anybody else, and if you can do that, it doesn't matter what anybody thinks about you, good or bad.
+- All the great players you ask always expect greatness.
+- For me, any time I'm on the football field, that's my comfort zone.
+- I love Mac Miller. I'm a big Drake fan. I love Bob Dylan, Johnny Cash, Bob Marley.
+- We all see color. We do. And anyone who says he doesn't see color is confused or isn't telling the truth. Except... and I know how this sounds, but I can't remember any point in my life where I saw other people and thought of their color.
+- I prepare so I can be in the whole game.
+- There is not some secret formula, it comes down to completing passes, being efficient on first and second down and making plays when the ball is in your hands.
+- You get fan mail and you see the reaction when you write someone back. It's kind of shocking. You can make someone's day and be a positive influence on the world when you're in a position like that.
+- I'm just kind of a hard-nosed, don't say a lot and go to work kind of guy.
+- One of the main reasons I went to Stanford was to run in a pro-style offense and show I can run between the tackles 25 to 30 times consistently.
+- People do the eye test and underestimate me, so I do play with a chip on my shoulder.
+- You can always get bigger, faster, stronger. I don't have any choice. I have to.
+- I've always tried to be a complete athlete and not limit myself to one position or one sport. It really helped mold my whole football game.
+- Yeah, I worked with a chef when I first got into the league. We did all my blood work and found out exactly what I'm sensitive to, what I'm deficient in, what my body needs. I had to cut out a lot of things - chicken, tuna, wheat, and soy.
+- My training is very specific to my sport, so it's a lot of fast, explosive movements. It's very pertinent to exactly what I do on the football field, which is fast burst in short spaces.
+- I used to have a potbelly pig named Terrance. He died of obesity.
+- A lot of times, I got confused for a kicker. And I've been compared to every white player in the NFL.
+- At the end of the day, nobody has higher expectations for me than myself. I don't really try to prove anyone wrong anymore as much as I try to prove myself right.
+- Pretty surreal experience to see the impact football has had globally.
+- I can be a receiver.
+- The league is shifting. It's becoming a smaller league, way more speed-dominant. So you're seeing more backs like me who can run between the tackles, pass-protect, catch and become matchup nightmares. You also have more receivers who are getting jet sweeps, doing different things with the ball in their hands.
+- Yeah, I've got quick thumbs.
+- My childhood neighbor played piano, and he told me we'd get all the girls if I learned how to play-and I was probably in eighth grade, going into high school, so I said, 'Sign me up.'
+- Two hours before I start training, I like to eat a good breakfast.
+- You can put in all the plays in the world, but if a guy is not executing it's not going to work.
+- I just show up every day.
+- There are certain things that people love to do, and they can't really explain it. That's me and football. The game gives me hope. It lets me be myself.
+- A win's a win.
+- I train every single day.
+- If I have the worst season in the world, the best season in the world, whatever. If I'm playing football, I'm happy, and no one can take that away from me.
+- I think if you can be as versatile as you can be, you'll be the best player you can be.
+- Most schools, the football players are kind of the kings in school.
+- Never get comfortable.
+- It takes all 11 on the field doing their job correctly to make it all happen.
+- I've always prided myself on being a football player.
+- I play with a chip on my shoulder always, I feel like people don't always give me credit for my skills and talents and that's just the way it is. I also don't care too much, I don't feel like I'm crazy disrespected. I have a chip on my shoulder at all times.
+- I felt like I could play with anybody, but some people felt differently.
+- The faster I can get, the better as well.
+- When you read about white athletes these days and white skill possession receivers specifically, one word you'll always find is tough. You'll rarely see explosive, athletic, stuff like that.
+- I put in a lot of work in film study.
+- I keep myself sane with stuff that's fun and not physical.
+- Wherever they put me I'll do anything a team needs me to do.
+- Football is a very instinctual game, and it's very fast-paced.
+- I'm just so blessed to be a Carolina Panther. I can't wait to grind every single day for that organization, team, fans and for everybody there. I'm blessed to be a Carolina Panther.
+- I am beyond blessed and humbled to be named the Paul Hornung Award winner.
+- You can always get better.
+- Losing sucks.
+- It's a team game. Not every game is going to be an all-star game.
+- I'm wherever coach puts me.
+- I got lucky that they throw me the ball a lot and it's my job to make those catches.
+- I play for my teammates.
+- Winning is the most important thing. You want to focus on the game and the team.
+- If they need me to have 25 carries and eight catches a game, whatever they need me to do, I'm ready to go. Or if they need me to have eight carries and six catches but play the whole game and pass protect and help shifts on the D-ends, I'm ready to go.
+- When they take you with the eighth pick, I don't want to say pressure, but you've got a lot of people counting on you.
+- You should want to compete.
+- Sometimes a 1-yard gain on third-and-1 is a big play. People take that for granted.
+- I would definitely like the ball as much as possible... That's why I train.
+- I go to class every day with the future Facebook and Twitter and Google employees, the future innovators and entrepreneurs who might have the next big thing. Knowing that and seeing their success and work ethic makes you want to be successful. It impresses me every day. It humbles me, too.
+- Sometimes you'll have 30, 40 touches in the game, and you'll feel better than if you had 22. It depends on where you get hit and how you get hit.
+- For the guys who feel like they are glued to one position or one sport, don't do it man, do whatever you want to do.
+- The football field, I'd definitely say that's my safe place.
+- Everyone wants to be close to your team. You don't want to have guys that don't feel comfortable in the locker room.
+- I wake up around 8 A.M., which isn't too bad at all. I usually try to get to bed at 10 or 10:30. For a while I tried to see how my recovery was with just eight hours of sleep. And sometimes, that can be fine. But I like getting nine or more hours. I feel like I can wake up on my own if I've gotten nine hours.
+- I mean, at the end of the day, I just want to win.
+- It sucks when you lose.
+- The secret behind success isn't as much of a secret as people think. It's pretty simple. It's working as hard as you can to accomplish what you want.
+- One of my big passions in the offseason, or just when I get time off in general, is playing music, and I've been fortunate to be around people who are a lot more talented than I am.
+- Going into a game, I know that I'm going to run a lot. I know I'm going to have a lot of volume, and I know that I'm going to get hit a lot, which is great. Sometimes we try to deliver some blows, too, try to break as many tackles as possible. We know it's going to hurt the next day. That's why we love the game.
+- The goal every offseason is just to get as fast as you can, stay healthy.
+- I'm someone who believes in having motivation at all times, win or lose, individual awards.
+- If I'm not playing football, I'm preparing to play football. That's kind of how I kind of view my life.
+- You see how powerful some of the things you say and you do can be on people, especially young people.
+- Obviously, teams start wearing down. But that's kind of when you thrive, when the other team starts to get tired.
+- Every great team has multiple backs. Very few times do you have just one back.
+- I'm always trying to be the most complete back I can be.
+- I think you can get better at everything. That's in football. That's in life.
+- We're here to win football games, so whatever that means, whatever that takes, that's what we're going to do.
+- The less I think about meals and everything else, the more I can focus on my sport, and the better I play.
+- I'd be happy to play for anybody.
+- I used to get so upset when my parents took away my phone and then I realized it's because they wanted the best for me and my brothers. I have a whole new appreciation for how they raised us.
+- Some of my best childhood memories are of watching Terrell Davis with my dad. I used to hang out when I was, like, 4 and 5 years old and play Power Rangers in the locker room with him and Shannon Sharpe and Rod Smith. And I loved Terrell. He was awesome.
+- I think when you're running through a hole and you're hit in certain, different ways, you have to be able to move and change and make people miss.
+- I really try to pride myself on route running, catching and being able to be a mismatch anywhere on the field.
+- The big plays will come.
+- My position is a running back. So, the first part of my position is running. That means I need to run and be fast.
+- To me, speed kills.

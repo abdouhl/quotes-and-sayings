@@ -1,0 +1,20 @@
++++
+author = "Teddy Sears"
+title = "Teddy Sears Quotes"
+quotes_len = "14"
+description = "the best 14 Teddy Sears Quotes"
++++
+- I'm a really big surfer, and I have also been playing a ton of volleyball on the beach on the weekends.
+- For the most part, I don't have a Facebook page; I don't Twitter.
+- There's acting, and then there's auditioning; mastering auditioning is sort of the first thing an actor really needs to nail down when he or she wants to get a part.
+- My siblings and I, we were raised on TV and films. Not a day went by that we weren't watching one of three movies - 'Caddyshack,' 'Animal House,' 'Beverly Hills Cop' - on rotation. Our comedy, our personalities were set watching 'Sesame Street': these really sort of wacky, Jim Henson-y characters.
+- Dumb luck brought on the move from business to acting. I had moved to New York when I was 23, in the year 2000. On a lark, I went to audition for a soap opera.
+- I did almost two years on 'One Life to Live,' so I was thinking, 'Oh yeah, I'm an actor now.'
+- Dumb luck brought on the move from business to acting. I had moved to New York when I was 23, in the year 2000. On a lark, I went to audition for a soap opera. I thought, 'Hey, this will be a really fun story to tell my grandkids one day, that I auditioned for a soap!'
+- It's a strange thing we do as actors. I'm walking out the door, and I'll say, 'O.K., honey, I'm off to take my clothes off.'
+- My childhood ambition was to be an Olympic swimmer like my aunt, but that died a quick death when I discovered other sports. I swam very competitively till I was 15, then I swam for fun until I was 18. But athletics remain a very big part of my life.
+- I've spent a lot of time self-reflecting. Especially as an actor, you have to know yourself really well in order to do things effectively. And when I dress, I dress for me. I don't dress to make other people think that I'm this way or that way.
+- All I wanted to do was be a working actor.
+- I swam very competitively till I was 15, then I swam for fun until I was 18. But athletics remain a very big part of my life. I try to keep that as much in balance with work as I can.
+- I prize being just a normal dude that wakes up, goes to work, comes home to his wife - like, quite boring.
+- I walked out of 'Harry and the Hendersons.' Harry bugged me; I don't know. Yeah, it's weird because I think Sasquatches are great, but not then. Maybe not that weekend - I don't know. I don't know what it was.

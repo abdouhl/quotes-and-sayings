@@ -1,0 +1,82 @@
++++
+author = "Katherine Waterston"
+title = "Katherine Waterston Quotes"
+quotes_len = "76"
+description = "the best 76 Katherine Waterston Quotes"
++++
+- I feel a kind of permission and freedom in my work that I might not allow myself in my real life.
+- Seeing someone happy on set is just a very small slice of the reality of an actor's life.
+- I find life so shocking in general. Everything about it surprises me.
+- Sometimes you find yourself digging around for something useful, and you don't necessarily know what it is until you find it. Sometimes it's a word from a book that you read every day.
+- My first memory of the Harry Potter series was my little brother just falling into those books and not resurfacing until he was done. That J.K. Rowling got an entire generation reading is extraordinary - I'm amazed, thrilled, and proud to now be portraying one of that phenomenal writer's characters.
+- Acting is a community where you come in and out of each other's lives. I'm slightly envious of the Golden Age of Hollywood. It must have been frustrating to be owned by the studio, but it was also like being in a company, working with the same people, and that appeals to me.
+- Sometimes we'll walk into a set, and I'll think, 'Oh, this film doesn't look like this.' You know, 'cause I read the script, and I saw it in my head in some other way. Which is a lot like what happens when they're writing a movie that's based on a book - I'm like, 'Ah! He doesn't have a beard.' You have these visions in your head about it.
+- The things I love about this business the most, is that it is a challenge trying to prove to everyone - including yourself - that you can do something different than what people think you're capable of.
+- I think that when you are struggling as an actor, you imagine that if things were to pan out, everything in your life would change, But really, it's not so different. You're still pursuing good work. You still panic that you're doing it all wrong.
+- All acting is nudity. It's all vulnerable - and a little bit scary.
+- I don't like to talk about things unless I have to. I don't like to talk a scene to death or overanalyze it, especially if I feel like I have some way in on my own.
+- Being interviewed is an odd experience for me because I was an actor a long time before anyone ever asked me a question about myself. When I started being interviewed, I definitely felt I was being asked to defend or explain myself.
+- I really love fashion, but I feel like the older I get, the more I am drawn to the basic things in my daily life because everything else is so goofy and crazy.
+- What appeals about the '70s is the celebration of the female form, the lack of constriction.
+- There's something particular about the way Los Angeles feels in the summertime. It slows down and is hazy and dreamy, and you can put on certain music and go for a drive and be totally sober but feel stoned.
+- I thought acting was what grownups did. It was such a part of my childhood. I was already in love with performing before I knew there were other options. By then, it was too late.
+- Usually on films, you get used to kind of being told, 'This is what you're going to wear, this is what you're going to hold, and remember, you're lucky to be here, and shut up.'
+- When I got to NYU, I immediately inquired about doing a double major in acting and photography.
+- Self-promotion is not my strong suit, for sure. I don't look down on it; I just don't understand how to do it.
+- It's very easy to think that the way things are is the way things will stay, and life just isn't like that.
+- Every now and then, you get lucky enough to work with some people you feel like you would take a bullet for.
+- I think it's quite common for actors to almost rely on their characters to exercise parts of themselves in their regular life they don't tend to explore so much.
+- I'm constantly struggling in interviews to engage and finish sentences, because I am being asked personal questions from somebody I don't know.
+- I think there's an assumption when you have a parent in the business that you're given some kind of a cheat sheet at an early age. Some kind of upper hand or some kind of advanced understanding of how the whole thing functions - maybe how to operate within it. I never felt I received that cheat sheet and grew up pretty removed from the business.
+- I think it's a luxury when you love the thing you're promoting, and then you don't have to try to think of something, try and find some angle.
+- If you have a famous parent, you know that being famous doesn't make you superior to anyone else. It just means people smile at you more. Everyone was fawning all over my father, but of course, the way you look at your parents when you're a teen is often with a... more critical eye.
+- The best way to honor real people when you play them is to try to tell the story of their dynamics and the struggles that they're dealing with rather than lose sight of the connections and personal relationships, and do a really good job at an accent.
+- I didn't find it difficult to live in the 'Inherent Vice' world or play those scenes, because they just seemed so real.
+- Some days, the first coffee just laughs at you. It says, 'Oh, you think I'm going to wake you up? Sucker.'
+- Shower scenes are great. Janet Leigh never took a shower again in her life after 'Psycho'.
+- I have been a scrappy actor for 10-plus years, and when you're playing supporting roles, your relationship with the costume designer is very different.
+- There are people who have really high expectations for what we're doing. I have to not think about that so that I can be free and play around every day and not feel like I have to get it right. You want to be loose.
+- When you are the kid of an actor, it's always a very inviting world. Everyone is nice to you, the hair and make-up people braid your hair and play with you, and the costume department makes outfits for your teddy bears.
+- Can't remember a time when I didn't want to be an actor... though it felt like something I couldn't do until I grew up. I mean, I knew kids could be actors - I recall seeing them on my dad's shoots and getting jealous.
+- People think the advantage of a parent in the business is that they'll open doors for you. But the true advantage for me is having someone who knows exactly what you're going through.
+- I didn't feel a specific pressure to prove myself because I had an actor in the family. I didn't feel that pressure to fill some big shoes or anything.
+- I feel like people assume if a character is very different than you, that means it's difficult to get into their head or into their skin.
+- I'm overly sentimental and don't throw things away.
+- What's comforting about coming from a family of actors is I don't have to explain the struggle. I can just sigh to my sister, 'I had a bad one,' and she'll know exactly the profound audition humiliation I am describing.
+- I feel that nudity is sort of what we do as actors.
+- I generally don't like to talk too much about the character unless I feel stuck or in some trouble.
+- When 'The Master' came around, they said they wanted to try and find a part for me, and I got a text from the casting director saying that.
+- I've always enjoyed disappearing into a crowd in New York. As an actor, I love to spy, and it's hard to be a good spy if everyone is looking at you. Also, I'm pretty shy. I don't really like a lot of attention.
+- You kind of wake up in the morning, and you don't see anybody but these actors until you go home at night and pass out and do it again. So it's structured a lot like the process when you're making a film. You just kind of get in that tunnel vision. I like that. I like when the rest of the world kind of quiets.
+- Sometimes you meet people, and you somehow feel like you've known them your whole life.
+- I feel like most actors just dig and dig and work and work in whatever way they do to try to do as much as they can to portray a character in the limited time they have to play it, whether it's six months or one month or one week of work, you know.
+- I think everything happens organically. You mine for clues. It's all immersive, and stuff you can use comes out of that immersion. I don't really like to wear wigs in movies because I like to look like the character all the time.
+- About 10 minutes before I found out that I had landed 'Fantastic Beasts', I got a residual check in the mail for zero dollars. On the check it said 'Advice Slip.' And I was like, 'Well, what's the advice? Go into another line of work?
+- I've always wanted to play the villain. But the young girl is never the villain.
+- Obviously, as an actor, you have to embrace your imagination all the time, but when you're doing one of these films, you have to embrace your most childlike imagination - a sense of wonder and uninhibited playfulness.
+- For 'Beasts,' I really wanted my character to be this sort of mushy, muscleless Muppet.
+- I wonder sometimes if I've got in the habit of only being courageous when someone else has written the words I have to say.
+- I don't think Paul Thomas Anderson has a standard approach to anything.
+- I love connecting with a character out of the blue, not knowing why.
+- It's just a dream of the struggling actor to just have a proper shot - not just in a film that people will see, but with a character that's rich and complicated and that you can show you're capable of taking on.
+- I was devastated when they stopped making sailors' pants with bell bottoms. There's something sort of spirited about the way they affected a man's gait. They project something good-natured.
+- The only way my mother's beauty really affected me was that I always assumed that someday I would look like her. Then, late in my teens, I looked at a photo of her when she was younger than I was then, and I realised, no, it's never going to happen.
+- Actors are sensitive freaks, but it amazes me that it is something that I haven't improved on over the years.
+- I look back at my adolescence, and I'm shocked at the things I did that were my idea of adult behavior.
+- When I go to see a movie, I never think about all the people it took to make it.
+- I don't have shame with my body. I don't find a breast more vulnerable than an elbow.
+- I guess whatever the director's energy is is kind of contagious on set, because, um, you know, it's a hierarchy, and we're all kind of looking to the director for guidance.
+- The minute you get cast, you worry they've made the most terrible mistake. There's a really awkward stage between being hired and doing the job when it doesn't feel real.
+- Costume design is so important and really helpful, and I really love that aspect of character development, just figuring it out.
+- I love that feeling. I guess I love escaping my life, really. I love going into another world and feeling for this amount of time that this is it, this is the world I'm going to live in. You feel it more during the rehearsal process.
+- There's kind of no rhyme or reason to what is appealing to any given actor. It just is, or it isn't. It's kind of like dating. You either connect to someone or you don't. You can't really say why.
+- That period between finishing the film and opening night is agonising. That's part of why actors go from job to job - so they don't have to live with the anxiety in the interim.
+- One of my earliest memories was when I was three, going to this full-length mirror in my parents' bathroom and saying into the mirror, 'You are going to be an actress.'
+- When you're playing Marilyn Monroe, you have a responsibility to look and sound like her that you don't when you're playing people who weren't ever in the public eye.
+- I was barely in 'Taking Woodstock.'
+- I basically never believed that I was a commercial actor. Just because of the outcome of many auditions over time. No one hired me.
+- I think I really would have quit if I hadn't gotten 'Inherent Vice'. Or maybe I would have just shriveled up and died.
+- I think connecting to a character is like connecting to any human being - either you like them or you don't. You might not be able to list the reasons why you love your best friend or what attracted you to them; it's just something that you feel - a connection, an understanding, or a curiosity that makes you want to get to know them.
+- We live in such hypersexualised yet totally prudish times. People have this expectation about everyone else's relationship to their own bodies.'Surely you must have shame about your body? Surely what's scariest for you as actor would be to stand in a room naked?' Believe me, I've been in so many more terrifying situations as a performer than that.
+- 'Inherent Vice' was a novel that already existed, and in 'Steve Jobs,' I was playing a real person; in those situations, you do feel an added pressure to please.
+- When you come from a family of actors, people in show business, they really know to celebrate good news and to celebrate it hard because it's not every day that you get it.

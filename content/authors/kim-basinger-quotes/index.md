@@ -1,0 +1,37 @@
++++
+author = "Kim Basinger"
+title = "Kim Basinger Quotes"
+quotes_len = "31"
+description = "the best 31 Kim Basinger Quotes"
++++
+- I'm extremely competitive with myself. But I'm not actively competitive with other women in the business. Which may have been a mistake. I've never had someone in my life, agent or otherwise, fighting for me.
+- I remember that Jack Lemmon, who is one of my favorite actors of all time, says that the day he stops being nervous is the day he should leave the business.
+- I grew up on soul music. I was a dancing little creep.
+- It always takes the truth a little bit longer to cross the finish line.
+- I feel there are two people inside me - me and my intuition. If I go against her, she'll screw me every time, and if I follow her, we get along quite nicely.
+- I like to see a driven kid: somebody who wants to come from the ground up. I love to see somebody who wants to be the best they can be.
+- I was doing publicity for 'The Getaway'; people were coming in from all over the world to do six-minute interviews.
+- Nobody interviewed Kitty Potter about what she wore. I would have loved to hear what she would have said about some of this stuff.
+- I work in a strange business, and 'trust' is a word that's not even in the vocabulary.
+- I think any girl who comes to Hollywood with sex symbol or bombshell hanging over her has a rough road.
+- I just absolutely, totally hated school. It was like a prison to me. I just could not stand that structured, absolute disciplined way of having to deal with life.
+- The smartest thing you can do in this business is get connected with a great agent to help you. Get connected with people who will form a family around you, or a moat.
+- My priorities had been changing before I had Addie but after she was born they changed completely. I don't count - my daughter sort of owns me.
+- You have to be a little unreal to be in this business.
+- I love to be nervous before a scene.
+- In this business, you can be at the top of the world and at the bottom of the barrel, and you're grape juice. I've been at both ends. It can make you become what you really are.
+- You lose your anonymity just like a helium balloon with a string. Therefore people are going to have their own opinion and they're going to write in whatever clever manner they desire.
+- I've just always believed you can get anything you want in this life - anything you want.
+- I'm a very determined person.
+- I never really saw my dad as entertained as when he was just completely blown away by somebody on the television screen or at the movies. I think that's the real reason that I went into acting.
+- I'm a very determined businesswoman... I've got lots of things to do, and I don't have time to be classified as difficult, and I don't have time.
+- I just thank God that I didn't grow up with so much money or privilege because you had to create ways to make it happen.
+- With every project I've ever done, I've always treated it like I'm still in school. Each time you try to go a little further, get a little deeper, feel a little more, sculpt it a little better.
+- If anyone has a dream out there, just know that I'm living proof that they do come true.
+- There's no doubt that becoming a mother was the greatest thing I'll ever do.
+- I don't live by a lot of society's rules; I can't pattern myself after the herd.
+- I've been to fights, and I've seen them on television, but no, I would not call myself a fan of the sport, that particular sport, no.
+- Clarity keeps you from boredom.
+- My hand still shakes when I sign autographs. I still go and sit in the movies like everyone else and look up there and go 'God! Movie stars! Wow!' And I'm in this business. I walk out there just fascinated, and I always want to stay like that. I'm just a little kid going to these movies, and I don't ever want to change.
+- I'm not a real social person - I'm shy - and a lot of the business is just social.
+- Whatever show is on, I dress in that designer's clothes. Some of them were totally unwearable.

@@ -1,0 +1,60 @@
++++
+author = "Larry Hagman"
+title = "Larry Hagman Quotes"
+quotes_len = "54"
+description = "the best 54 Larry Hagman Quotes"
++++
+- Well yes so far, I was recently in Germany and they had me do six book signings a day and that was too much so I had them cut it down to about three. It becomes taxing at times but its a lot of fun and you meet a lot of nice people.
+- I went to a military school between the ages of six and 12 and later into the air force. You learn discipline and strength of character.
+- There used to be three networks, and now there are 40 million networks. There's a lot more competition out there, too. We would bring in 27 million people. Now, they're lucky if they have 17. I looked at the ratings, for the first time in 25 years, just to see, and there were 130 shows on. There used to be maybe 30.
+- You know Hollywood is a weird and wonderful place, I didn't know I Dream of Jeanie had been cancelled after 5 years until I went back to go on the lot to pick up some clothes and things I had in my dressing room.
+- My definition of a redundancy is an air-bag in a politician's car.
+- I have this wonderful personal chef who sources and stocks all my organic produce and I basically live on five smoothies a day. I'm totally vegan. I blend this green concoction with kale, cucumber, broccoli, string beans, avocado. My protein comes from protein powder. There is absolutely no milk, butter, cheese.
+- I'm happy to be here. I'm happy to be anywhere. I'm not kidding.
+- At that time I was making the largest salary known on television and I didn't want to see it die because those were the years paying off when I wasn't making anything.
+- No no there wasn't any planned 14th season, we all saw the writing on the wall. The ratings had been going down and so fourth, that curve goes on every show and in everybody's life.
+- But there is no withdrawal, but with tobacco there is terrible withdrawal, it is almost impossible for a lot of people. I did, I went cold turkey, they never had any patches in those days but grass was not difficult, alcohol not difficult, but tobacco - oh my god.
+- We did 356 'Dallas' episodes between 1978 and 1991. The most memorable moment for me happened in 1980 when I got shot at the end of the third series. The rest is a blur.
+- I think JR would make a better President than the one we have now.
+- I think that everybody in the world, whatever colour or creed, has a jerk like JR in his or her family somewhere. Whether it is a father, uncle, cousin or brother, everybody can identify with JR and that certainly had something to do with the success of 'Dallas.'
+- Major success feels a bit like a coronation. Like I'd become a king. I was one of the most famous people in the world, loved and hated in equal measure. I couldn't see anything bad with it. It made me a happy person.
+- I think they could of recast the children, I heard of people wanting to do something like that. That would be a nice little show to do but you know that show was of the 80's, I don't think the audience mind set is in that direction any longer.
+- I admit the last couple of years shows were not up to par.
+- I've travelled a huge amount, but almost all of it has been through work. I spent five years stationed in London in the special services of the American Air Force, producing and directing shows for the troops, which I absolutely loved.
+- I have been married for 58 years to the same woman. Our secret? Separate bathrooms.
+- I did successfully kick tobacco at the age of 34. I smoked for like 20 years, from 14 to 34.
+- It's my firm intention to whop cancer into submission and I truly believe I've given myself the best start possible by radically overhauling my diet and by staying true to my motto, which is: Don't worry, be happy, feel good. The first thing I did when I was diagnosed was to turn vegan.
+- Actors can't retire. What would they do?
+- I was shot when I think it was number one. That was the catalyst for the interest in the show. Certainly it went on for a long time after that but that's what really kicked it off. Of course a lot of people watched it just because of the novelty of the situation.
+- Marijuana you can give up, Iv given it up for fifteen years now and it never occurs to me to smoke it anymore.
+- Later on when it became a routine it was not as exciting I'll admit that. The first three years were wonderful, the rest were just money making and having fun.
+- Well, I decided to stop. And I did. I stopped smoking, and I stopped speed at the same time.
+- If you do your research on hot springs all over the world, they're usually places of peace. People, even in warring nations and so forth, they'll go and live in peace together around the hot springs, which were always considered medicinal. I firmly believe in water therapy.
+- After ten or twelve years you can only play something so long and then you start to parody it.
+- Comedy is not funny. Comedy is hard work and timing and lots and lots of rehearsals.
+- Don't you find that the more you know, the more you don't know and can't ever learn because there's too much stuff out there?
+- Well, I motorcycle, I hunt, fish, I do all that. I keep busy. I'm never bored. I've never been bored.
+- Barbara Eden is the most beautiful girl in the world.
+- I never travel without my Stetson, but the more I wear it the more I realise that no one wears hats any more. When I was a kid everybody wore hats, especially in Texas, but I get off the plane in Dallas now and I'm the only guy with a hat. It's amazing.
+- I'm sure it is, I'm not for any kind of war, we've been engaged in several wars since the second world war and we lost in Korea, we lost in Vietnam, they are political wars, they have nothing to do with any real threat, nor does this one.
+- If I really had to pinpoint my happiest days out of the United States, I'd choose those Fifties military days in Britain, particularly my time in South Ruislip. I had a ball.
+- I didn't write the book to sell the book, but to tell my experiences.
+- I guess it was but I think peoples morality has changed. It's gotten more liberal and more diverse and even in a sense much more fundamental, you take the fundamental religious right in this country, its got to go back about 50 years.
+- I'd like to play Matt Damon's daddy. He's a wonderful actor, I really admire him, and I'd like to play his dad one day.
+- I don't watch a lot of television. Sports and news, that's it.
+- Once you get rid of integrity the rest is a piece of cake.
+- It always annoys me when stars grumble about fans coming up to them in the street. I love it. These young stars today with all their airs and graces, they need to remember it is an honour and a privilege to make money from acting. How hard is it?
+- As J.R. I could get away with anything - bribery, blackmail and adultery. But I got caught by cancer. I do want everyone to know that it is a very common and treatable form of cancer. I will be receiving treatment while working on the new 'Dallas' series.
+- Good acting is all in the writing. If it isn't on the page, then it really won't make any difference. You cannot act on force of personality alone.
+- I liked Dallas better because it was more deceptive, you could do more with it.
+- Well I think they broke the mould when they made me and being humble is one of my great assets.
+- I barely watch TV apart from the news. Most of it is rubbish. There's all this reality nonsense and dross. I think there's a market for a well-produced, well-written melodrama like 'Dallas.' It's pure entertainment.
+- I'm not well versed on the verbiage of the internet.
+- There are very little things in this life I cannot afford and patience is one of them.
+- I was sad to see anybody leave, we had a very nice family on that show. I was very sad to see momma go, Victoria and especially Linda. My god that was my wife on the show, in fact my wife calls her wife.
+- My television and movie career has also taken me all over the world. I've had great times in the Far East, Russia, South America and Sweden - where I met my wife of 55 years, Maj.
+- 'Dallas' hit a chord back in the late Seventies and Eighties because it was the age of greed: here you have this unapologetic character who is mean and nasty and ruthless and does it all with an evil grin. I think people related to JR back then because we all have someone we know exactly like him. Everyone in the world knows a JR.
+- When we started the show, 'Dallas' was known as the city where JFK was assassinated. By the end it was known as JR's home town.
+- I exercise every morning. I do light weights - 5lb and 10lb arm exercises - and then lie and lift my arms and legs. It's all about keeping core strength. I do a lot of stretching too.
+- I have thousands and thousands of hats. Some are the most outrageous hats in the world. They are my disguise. I hide beneath them.
+- I was born with success. Lucky for me I am able to handle it. Also, I damn well deserve it!

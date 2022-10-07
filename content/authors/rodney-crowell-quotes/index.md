@@ -1,0 +1,106 @@
++++
+author = "Rodney Crowell"
+title = "Rodney Crowell Quotes"
+quotes_len = "100"
+description = "the best 100 Rodney Crowell Quotes"
++++
+- The old handbook on writing is 'Write what you know.' I come from an autobiographical starting place almost all of the time, but it would be a mistake to presume that I'm not using fiction to extend the narrative.
+- Have I felt misunderstood by Music Row at times? Of course.
+- To me, Hank Williams is the first rock-and-roll star.
+- When you're younger, love is this magic thing where the heavens open up. You live 40 years past that, you realize sometimes the heavens close down.
+- Because of my methodology and my sensibilities to write songs, I'm not very comfortable with the notion to rush in any creative endeavor.
+- I'm a pretty successful songwriter and known in some circles, but I didn't think the story of my career was of any real entertainment value.
+- Underfunded, underwhelmed, and out of their league from the git-go, my parents took to home ownership like horse thieves to a hanging judge.
+- Invariably, collaboration leads to new forms of self-expression and to the things that move you.
+- Singing duets is instinctive, intuitive.
+- My mother met my father at a Roy Acuff concert.
+- I can't make a perfect record. When I try to, I bleed all the feeling out of it.
+- I can stitch a song together in about an hour anytime you want, but it won't have the depth.
+- I don't think I can create anything of lasting value unless it comes from the heart.
+- I admired Mary's work very much. From the time someone gave me 'The Liars' Club,' I immediately went into a world where I grew up. And I remember, when I finished the book, I actually thought, 'You know what, I need to write songs with her.'
+- I knew Townes Van Zandt a little bit.
+- It's a gift that we get to do the work that we do to call ourselves artists.
+- When I was 22 years old, and I first got to Nashville, women or girls were objects. It was a conquest. My emptiness inside and the external manifestation of my ego was to somehow conquer women.
+- In the 74 years and nearly four months marking her time on what she called this crooked old Earth, my mother rarely drew a healthy breath. Still, to say that life wasn't fair for this awkwardly glib, yet deeply religious woman, would fail to take into account her towering instinct for survival.
+- I cannot say I'm a poet. That's for someone when they take in consideration where they can bestow 'poet' on. I can't do it. But I would be disingenuous if I didn't say that my intention is poetry.
+- I read Nabakov for style, Mary Karr for heart and resonance of where I come from. She's from the same part of the world that I'm from. Cormac McCarthy and Hemingway, to read the masters.
+- The '90s weren't my finest years artistically. I wrote some good songs in there, but in terms of my vision of getting the paint on the canvas, that was not my best time. I didn't like the fact that I had fallen into mediocrity.
+- When I was doing something on someone else's dime, I was inclined to try to anticipate what they wanted. I knew that wasn't what an artist was supposed to do. In funding my own music, I found my voice.
+- Favorite country singer of all time... Hank Williams... Well, then there's Willie Nelson. Can I have three? I can't do one. Then if I have three, I'll need five. Hank Williams for sure. Willie Nelson. Johnny Cash and Waylon Jennings.
+- It varies from song to song, but melody was always easy for me.
+- Pretty much any artist that I know of that has found that mentor status, if they're generous and okay to bestow a bit of mentor-type information, it's do what you feel, not what you think.
+- I wouldn't go as far to say that anything that I've done is timeless.
+- My family was very poor. Strangely, though, my father was an enigma in that he was always working. He was not a ne'er-do-well. He wasn't lazy. He just couldn't hold on to money. It just, it was an enigma for him. He just, his pockets were always empty.
+- I don't think that 'The Weight of the World' is all about politics. It's like, how the environment and how the natural topography of this planet would ever fall into a political division, debate, just leaves me confused.
+- I grew up poor in East Houston. I used to be ashamed of it, but I'm not anymore. It's kind of a badge of courage now.
+- Violence was very much a part of my mother's upbringing - a little less so with my father's, but my father was an angry man when he was young. He was angry and frustrated and had no idea how to channel anger.
+- My parents were sharecrop farm kids with no education - seventh, eighth grade.
+- I've said very openly that the first aspect of my artistry to arrive was writing. It took me a good number of years to find my voice.
+- As a young man, I craved fame. I was trying to fix holes in my soul that were there from childhood.
+- Sustaining a narrative in sentences and paragraphs is very different from songwriting. But the dedication to the craft and just the endurance that it takes, you know, to stick with it and believe you can pull it out and make it real and finish it, I learned that a long time ago writing songs.
+- I've finally figured out how to make a Rodney Crowell record, and that's let it be, leave the mistakes.
+- Poets, I think, are born. You can't teach it. It's genetic - the circumstances of how you were raised... and there's probably some Irish in your blood lines.
+- I'm very grateful that I was given the ability to create.
+- I feel like I'm a realized artist, but hey, the good news is I can get better, and I'm going to continue to aim for that.
+- Townes Van Zandt ranks alongside Kris Kristofferson and Bob Dylan. He inspired so many songwriters to shoot for something that's timeless.
+- Of course, you can't teach songwriting. You can only encourage people to do it and help them to sort out for themselves what they want to achieve, and get a list of exercises together that improves the craft and gives them more access to the craft of writing good songs.
+- Since 'Houston Kid,' I've got a pretty good track record. Before that, I wrote some hit songs, but I didn't come into my own until I was about fifty. Before that, I had bursts of talent.
+- I've always said that Guy Clark is a regional songwriter without being regional. He's global. His craft is like, well, Larry McMurtry would be an example. I kind of see Guy Clark and Larry McMurtry in the same wave.
+- Strangely enough, I've become a Metallica fan.
+- I will say this: I've always sort of had maybe an inflated sense of my ability to sequence songs in a narrative flow.
+- Life can be either of two things: What it makes of you or what you make of it.
+- The chances of getting Townes to like it were very remote. When I wrote 'Til I Gain Control Again,' Townes Van Zandt sort of nodded. And I thought, 'Yes!'
+- I've had a nice career. I'm no David Bowie or Bruce Springsteen out there. I'm not an icon. I'm just a working artist.
+- I'm enough of a southeast Texas boy - there's enough white trash in my blood that when somebody gives me money to make a record, I feel like I have to please them instead of myself.
+- I'm a vulnerable guy.
+- So much of inspiration comes from collaboration with other musicians.
+- I never allowed writer's block to be a reality. I framed it up for myself early on. I said, 'OK, if I'm not writing, the well is just filling up. I'm going to be patient with this.'
+- Certainly, writing a book was challenging. It took me a long time to learn how to do it. It took me seven years to get a sense of how to wean myself off the process and trickery of songwriting. You realize that giant metaphors work in songs because you have so few words. Standing alone on a page, they threaten to be overblown in a hurry.
+- As a songwriter, metaphor is instinctual.
+- My father had a perfectly good drummer who he had an argument with. So one day, on a Tuesday, my father came in with a cheap pawn shop set of drums and said, 'Put your foot here, and you kick there, and you play this, and this is the high hat.' And Friday night, I was playing in a honky-tonk.
+- The beautiful despair is never fruitless. It keeps you going. Like when I first heard Bob Dylan do 'Things Have Changed,' or any time I see any work of art really beautifully done, like Michelangelo's 'The David' or that movie 'Lost in Translation' - it inspires me to try and find my own version of that.
+- As a poet, Will Rogers just had this natural conversational style.
+- For the most part, this record is autobiographical. At some point, the story of 'The Houston Kid' takes my experiences from 6 to 15 years old, and it sort of cross-pollinates with other kids in my neighborhood. It fuses their experiences with what was going on in my life.
+- I made this record in the late '80s called 'Diamonds and Dirt,' and it was a big hit. It had five No. 1's, and it was my commercial peak, really.
+- I have declared my loyalty to Americana.
+- To be earning a living as an artist at any time, any place is kinda the ultimate gift that you can receive from the universe, and I'm very much aware of that. I get to do exactly what I want to do.
+- That young man that I was in 1988 - I was insecure. Besides making good music, I wanted to be cool; I wanted to be accepted and stuff.
+- I have a history, and I am proud of my legacy as a songwriter, all of the songs that I've brought forth into our culture. I'm proud of that.
+- My people came from western Tennessee and western Kentucky.
+- Over the years, I've come to realize that writing 'I Ain't Living Long Like This' was an exercise in combined musical influence, mostly that of Hank Williams, Chuck Berry, Elvis Presley, Jerry Lee Lewis, the Beatles, and Bob Dylan - artists no one has ever heard of.
+- I concern myself with timelessness all the time. If you're not swinging for museum quality, your mind is not in the right place. It doesn't mean you get there, but at least it's the intent.
+- With 'Fate's Right Hand,' I think I reached a level of completeness in forming and articulating ideas at around the same time I reached a place where I could match it with my singing voice. It was a kind of coming together.
+- People ask me, 'What is the mystique of the Texas songwriter?' Well, we ran barefoot from March until November. I think there's something about being a barefoot kid that gets you closer to the place - you take root.
+- There are certain choices you make as a songwriter, based on vowel sounds and melody and chord changes.
+- I think, back in the '80s when I was having hits all the time, I took it for granted.
+- Collaboration is a vital part of my creative life. I've had success with Guy Clark and Waylon Jennings and Johnny Cash.
+- Conversation is a really good way to get things done.
+- Sometimes, the better writing comes when the song speaks through me and tells me what the song wants to say.
+- As I started to study old blues recordings and really pay attention to my favorites, it really started to come to me that all of my favorite pieces of music weren't produced, they were performed. The producer is nearly invisible: no thumbprint other than the composition and the performers.
+- My mother was an oral storyteller. She would tell stories over and over again.
+- My mother's a very spiritual woman, and I think Pentecostal religion, Bible religion, was very important to her because it gave her a context for a very spiritual approach to life.
+- When I go back to seek inspiration - whether it be from Chuck Berry, Howlin' Wolf, the Beatles, Hank Williams, Ray Charles or Bob Dylan - it's from the performance. Those artists are in the studio playing their instrument and singing. There's no going back and redoing the vocals.
+- The way I made 'Diamonds and Dirt,' which had all those hits in a row, was that I was just making a record. It was just the one that rolled up in my natural process, and it happened to be commercial.
+- 'The Outsider' is a culmination of a lot of things I've been working diligently toward as a recording artist. Hopefully it will render my past pigeonholing obsolete while positioning me more solidly as a socially conscious American singer/songwriter. Wouldn't that be entertaining?
+- As a creative individual, I really go out of my way to avoid the corporate scene in terms of songwriting. If the first question is how much money is it going to make, I'm going to be in trouble anyway.
+- For me, my career has never been about what I've done. But it's been about becoming, achieving, and pushing myself further.
+- I'm under-appreciated, of course.
+- My preference for female company is based for the most part on the fact that women are more self-aware than men, in my experience.
+- As an artist, one of the ingredients to doing good work is self-awareness, and that's something I cultivate.
+- In my 15 minutes of fame around 'Diamonds and Dirt,' it was not a healthy time for me because of my insecurity.
+- My father took me to see Hank Williams on December 14th, 1952. I was two years and four months of age. And I remember a little cool eddy of hair hitting my cheek, and I remember the smell of his hair oil, and I remember the mingling tonality of the small talk before the show started. Those are my memories.
+- I don't know if I owned a toothbrush until I was 19, maybe. I didn't come from stock that placed any importance on the toothbrush. But a couple of girls I met changed that. And I would do anything to get a girl to pay attention to me long enough that I could feel good about myself.
+- Memory is revisionist, you know. 'The Houston Kid' was based on true things that happened. But I know - from writing a memoir that I've been working on for awhile - that reconstructing memory is revisionism.
+- The more I'm dedicated to this work, the more I'm able to satisfy my deep need to create. And that's a pretty good thing. If you take half-decent care of yourself, that can propel you on into productive later years.
+- Whether they are actual poets or their music exemplifies a poetic sensibility, generally speaking, the Americana artist shuns commercial compromise in favor of a singular vision. Which resonates with me.
+- Collaboration allows me to challenge myself to find a new passion for music.
+- I think, in the middle of the '90s, I made a couple of records where I tried to figure out what I thought the radio wanted from me. They weren't my best records by any stretch of the imagination. It didn't take me too long to figure out, 'Whoa, back up, dude. Just go back to following your heart, and it will all be OK.'
+- You start creating art through the people that are looking at you, trying to route it through their sensibilities or their eyes, and then it's not you anymore.
+- Adolescence in our culture for a young woman, for a girl, is a hard road.
+- When I write a song with somebody else in mind, it's putting the cart before the horse. The way I write best is when I allow the song to tell me what it wants to be.
+- I've often said to young songwriters when they want to write with me, 'Let's take a stab at ten songs, and we might get one really good one.'
+- I wrote a song a good long while ago, 'I Ain't Livin' Long Like This,' that has been around and been recorded by a lot of people, but it was basically childhood memory.
+- At the end of the day, Johnny Cash was a poet.
+- I was an only child.
+- I don't make music for the radio. And when I was being played on the radio a lot, I didn't.
+- My mother was apt to fall out on the floor and start speaking in tongues. Actually, it was a great performance... It was great theater. As a 5-year-old, I understood that, although it scared me and there was a little part of me going, 'I don't know about this. This seems over-the-top to me,' at the same time, I did understand that this was passion.

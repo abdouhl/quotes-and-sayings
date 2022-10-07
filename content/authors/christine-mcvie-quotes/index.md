@@ -1,0 +1,88 @@
++++
+author = "Christine Mcvie"
+title = "Christine Mcvie Quotes"
+quotes_len = "82"
+description = "the best 82 Christine Mcvie Quotes"
++++
+- When you're in the same band as somebody, you're seeing them almost more than 24 hours a day. You start to see an awful lot of the bad side 'cause touring is no easy thing.
+- My writing ability all stems from the blues.
+- I didn't open a restaurant, but I did go to a few cooking schools. It was too much like hard work!
+- We all enjoyed the success of Rumours obviously.
+- I don't know what it is really... I think I'm just good with hooks.
+- It's such a diva thing, but I need one room for my suitcases and one for me.
+- Schlepping around from city to city is nothing I want to do.
+- WhatsApp I adore. I use it all the time with my friends.
+- Before shows, we rub elbows and growl. It started once when someone had a cold, and we didn't want to hug each other. So we started rubbing elbows. And we don't kiss. We just go, 'Grrrr!'
+- Eventually, I had to figure out what the hell I was going to do with my life. I needed to find my way back to Fleetwood Mac.
+- I was by no means a nun.
+- I actually enjoyed making 'Tango In The Night.'
+- I dearly remember the old days... Fleetwood Mac had this one-of-a-kind charm. They were gregarious, charming and cheeky onstage. Very cheeky. They'd have a good time.
+- My ears are really good. I'm a good listener.
+- As long as I can make a phone call and do a WhatsApp, I'm fine.
+- I tend to like the traditional sound: three-part harmonies, guitar, and piano. I mean, a well-played guitar is a joy forever... or something.
+- For Stevie, the words are of prime importance; the song moves around the words, rather than the words moving around the song.
+- With Fleetwood Mac, it's an amazing chemistry that we have on stage.
+- I wouldn't like to grow old alone.
+- 'Mirage' was an attempt to get back into the flow that 'Rumours' had. But we missed a vital ingredient. That was the passion.
+- I have always needed other musicians to bounce off.
+- I try to say I love you in a million different ways. That's what I aspire to do. That's what I do best.
+- My songwriting, when I'm writing, is nothing like it is in its finished form - but you have to start somewhere.
+- I do like my wine.
+- I'm rather old-fashioned about this video business. It's all relatively new. We really don't do videos, Fleetwood Mac. We've only done two.
+- I wouldn't think a blues album would be that commercially successful, but I don't really care. I'd do it for the love of blues, not for the money. I've got plenty of money.
+- I was in Tower Records in San Francisco a few weeks ago, buying some cassettes, and a couple of people recognized me and ran up with albums, and I just wanted to cover my face and have a seizure or something. I want people to just go away.
+- My contribution is the romance and the warmth. The love songs.
+- Recording 'Tusk' was quite absurd. The studio contract rider for refreshments was like a telephone directory.
+- I write about unrequited love in a very optimistic way.
+- The 2018 tour is supposed to be a farewell tour. But you take farewell tours one at a time.
+- I wanted to restore an ancient house in Kent, and that's what I did. It was a heap - this Tudor building with the beams painted lime green, so hideous. And I had this idea that I'd love the small village life, with the Range Rover and the dogs and baking cookies for the Y.W.C.A. But then it got so boring.
+- There's a whole bunch of unfinished stuff. Then I've got books of lyrics. I find it frustrating to finish a song and not be able to record it... so I don't write a million songs.
+- I felt very at home in California, but the place is prone to earthquakes, and the one in 1994 scared the life out of me. For months afterwards, I felt that every time I sat down, I should have put on a seatbelt.
+- I'd been virtually doing nothing in the country in 16 years of being a retired lady. Being busy walking my dogs - actually not doing anything very constructive. I made one little solo album in my garage.
+- The rock n' roll lifestyle did have its perks, but it wasn't all limos and parties in the early days.
+- I'm quite a domestic person by nature, and the nomad thing had got a bit stale on me, really.
+- I had the feeling every time I was on a plane everyone was going to die. It was a horrible phobia. A stupid one.
+- You get into your wellie boots and your Range Rover and, walking around with six inches of mud on your shoes, you get to forget about that more polished lifestyle.
+- I like being with the band, the whole idea of playing music with them.
+- Some of the best songs I've written, I've written in 10 minutes.
+- I wasn't raised with money, so I had to get used to having it. I think I've adjusted to it pretty well.
+- I suffered from some delusion that I wanted to be an English country girl, a Sloane Ranger donning the old Hunter boots and Barbour jacket to slosh around in mud with the Range Rover.
+- We've always connected musically in Fleetwood Mac because we're the only people who play more than one note. I'm not the best pianist, but I know how to interlace around what Lindsey's playing.
+- I don't have the ability to be a diva. I can't flaunt. I don't have that kind of stage presence. I think of myself as just a band member.
+- I'm looking more like my dogs every day - it must be the shaggy fringe and the ears.
+- I'm pretty low-key. I travel fairly light, especially on the tour.
+- I want to go out and do things... not just stick around having room service for two days.
+- I did make a solo album in my house when I was there. And because I was just afraid of flying, I wouldn't promote it, and I wouldn't tour. Actually, it wasn't a very good album anyway - it got buried underneath the pits of Hell, I suppose.
+- Stevie Winwood played like I'd never heard anybody play before. It just gave me goose bumps.
+- The old Fleetwood Mac was much better; they did some beautiful and, to my mind, very authentic blues. Chicken Shack did pretty well in Europe, but after I left, it was over.
+- If the right guy pops the question, I'll say yes.
+- I couldn't go anywhere unless there was a security guard with me. That spoiled my life. It was like being in captivity. Those days are gone, and I don't ever want to see that happen to me again. Now I can wander around the streets of Los Angeles on my own. I like it that way.
+- I haven't turned into some rich monster. I've kept my perspective. But I am a bit spoiled. It's hard not to be a little spoiled by having a lot of money.
+- There were a lot of bad feelings when Lindsey first left the band. But there's been a lot of healing going on, growing up, maturing. The bond is a great deal stronger than what we first thought.
+- I don't think talent or the gift ever goes away.
+- I find it hard to get excited by just a sound. I have to have a song there, then I'll find what used I can make of that sound within the song.
+- I still like to play the blues more than anything else.
+- 'Hold Me' was a nightmare! It was the middle of the desert in Palm Springs, in the height of summer. I don't know what possessed us to do that. But we sometimes do crazy things.
+- I tend to go for these half-little-boy characters.
+- If you can't plagiarise yourself, who can you plagiarise?
+- I haven't lost my blues roots.
+- I wanted to have a home where I could go home and unlock my door and go in and be settled. I was tired of being a gypsy.
+- You can only mend the vase so many times before you have to chuck it away.
+- I think there's a reason to go off and do something and experiment - splinter off and do something different. It keeps the nucleus of Fleetwood Mac fresh.
+- I have a lot to be grateful to L.A. for, but I overstayed my welcome by 28 years. I was only meant to be there for six months.
+- I always did have a kind of candle shining for Peter Green. I mean, he was my god.
+- Anyone I don't know, in my emails or texts, I just delete. If it's someone legitimate, they'll send it again.
+- To some extent, I've always felt that the music should be the thing that creates the emotion in you, rather than a video.
+- I sang and played keyboard, so I was virtually a statue at the back of the stage. I'm not complaining about that; I enjoyed that role.
+- Learn your instrument. Be honest. Don't do anything phony. There is so much crap floating around. There is plenty of room for a bit of honest writing.
+- Music left my life for a while, to be honest. It wasn't that I didn't like it, but you know, I'm not really a solo player.
+- I don't sing about politics or anything like that. I sing about love. That's what I know about.
+- I bought a house in England in 1990, shortly after my father died, hoping to come home to England and spend time with my family.
+- My songs are self-explanatory... somebody pointed out to me that... my songs pretty much speak for themselves.
+- Everything is for the good in the end.
+- You have to start laughing at yourself at some point.
+- I enjoy my money, and I'm not ashamed to admit it. I'd certainly rather be rich than poor.
+- Fleetwood Mac always take a long time to make a record - you know what.
+- It really comes down to Mick. He's the one who was constantly trying to get these five people in one room together. This is his love, his baby. It's his band, and there's nothing more he loves to do than get up on stage and play with us.
+- I left the band because I developed a terrible fear of flying.
+- There are so many songs that have become massive hits merely because the video is great, while the song is pretty rubbish. From that point of view, I think I've always preferred to listen to a song rather than look at it.

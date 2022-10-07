@@ -1,0 +1,20 @@
++++
+author = "Christian Camargo"
+title = "Christian Camargo Quotes"
+quotes_len = "14"
+description = "the best 14 Christian Camargo Quotes"
++++
+- For reasons I don't fully understand, tragic love has a certain appeal.
+- If you're going to do Shakespeare, do Shakespeare. There's a reason why he's been performed for hundreds of years. His words affect people on a very deep level. He's the true humanist. That all comes through his text, his words.
+- When you are cast for a role, it's because of everything that makes you who you are in that moment in time. No one else has that. That's a unique, powerful thing to hold.
+- I've played Hamlet and Coriolanus, Orlando in 'As You like It' and Ariel in 'Tempest,' among others.
+- I see theater as a simple formula. Audience plus players plus story makes the play.
+- My parents had a difficult divorce.
+- Actors are the most generous people when it comes to sharing their technique. But if you grew up in a household of carpenters, and you're making a table, everyone would have a different way of doing it.
+- Shakespeare gives you these clues - these little pieces of gold dust, I call them. They tell you so much about the story, the character, the drive, the intentions. It's like a gift.
+- Any part I do is a marriage of the words - what the playwright or producer or show runner's vision is - to how I would play it. It took me a while to get rid of 'Oh, they want it this way, so I'm going to do it how they want it.'
+- My parents had a difficult divorce. My dad had to take a backseat for a few years, and my grandfather came in. He was also my inspiration for becoming an actor. I really respected him.
+- Juilliard is wonderful in that they don't pick just one way of working. They give you a palette. There is method acting. There is a lot of attention to Shakespeare and verse.
+- There's something about my Mexican-American heritage... I'm proud of it.
+- Sometimes, there's a preconceived notion of how a scene or how a work should be delivered. And I see young performers sometimes try and deliver that, and it's not really true to their voice or who they are.
+- No matter where we are or how advanced we think we are, there are elemental issues of our civilization that stories help us work through.

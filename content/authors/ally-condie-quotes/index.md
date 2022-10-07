@@ -1,0 +1,15 @@
++++
+author = "Ally Condie"
+title = "Ally Condie Quotes"
+quotes_len = "9"
+description = "the best 9 Ally Condie Quotes"
++++
+- In my own life, I'm pretty good at choosing between good and bad. It's the choices between good and good I find the most difficult to make.
+- I had really great parents who always gave me lots of opportunity for choice, but I didn't always realize how rare that was for a girl for them to say, 'You can be a mom or have a career or do both or do something we haven't thought of yet.'
+- I was born and raised in southern Utah.
+- Teens find out a lot from other teens.
+- Being a teen is past for me. Worrying about the world and my place in it is not.
+- One of the things I've always liked about my husband is he's very good at lots of stuff. He was an English teacher when I met him. He wrote poetry and played the guitar. As time went on, he decided to go into economics, so he's very analytical and mathematical in addition to his artsy side.
+- There's nothing like reading about a world that feels dead to throw your own beautiful, colorful life into sharp relief.
+- When we read dystopia, we root for these people to break free because we are these people; hoping and fighting against things that are bigger than ourselves.
+- The beauty of dystopia is that it lets us vicariously experience future worlds - but we still have the power to change our own.

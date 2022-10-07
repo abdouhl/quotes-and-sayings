@@ -1,0 +1,67 @@
++++
+author = "Rei Kawakubo"
+title = "Rei Kawakubo Quotes"
+quotes_len = "61"
+description = "the best 61 Rei Kawakubo Quotes"
++++
+- I want to show people that tailoring has value, which I don't see anymore in men's fashion.
+- The first thing you need in order to make a business viable is to preserve a cash flow. I made sure I didn't have any financial backing or support.
+- I work in three shades of black.
+- For me, creation can only come out of a certain kind of unhappiness. They say in Japan, this thing like the hungry spirit - the hungry mind - is what gets you going forward.
+- What's interesting about collaborations is the possibility for one plus one to equal three.
+- What you wear can largely govern your feelings and your emotions, and how you look influences the way people regard you. So fashion plays an important role on both the practical level and the aesthetic level.
+- Creation takes things forward. Without anything new there is no progress. Creation equals new.
+- If I do something I think is new, it will be misunderstood, but if people like it, I will be disappointed because I haven't pushed them enough. The more people hate it, maybe the newer it is. Because the fundamental human problem is that people are afraid of change.
+- It's interesting for me to sell Comme des Garcons in places it's never been sold before to people who might not have heard of Comme des Garcons.
+- According to research,when given a choice, babies choose gold. It's my favourite colour after black and red.
+- This idea of collaborating with designers - that's something I can identify with.
+- Collaborations have no meaning if 1 + 1 does not equal much more than 2.
+- I only came to Paris with the intention of showing what I thought was strong and beautiful. It just so happened that my notion was different from everybody else's.
+- Not everyone necessarily needs new things all the time and creative designs. It's good to have luxury restaurants and fast-food restaurants. You need both.
+- As I live my normal life, I hope to find something that click starts a thought, and then something totally unrelated would arise, and then maybe a third unconnected element would come from nowhere.
+- In response to the making of DSMNY, a change in the Chelsea store became necessary. My flagship stores always have to lead the way.
+- The most successful achievers in sports are people that are really driven and have that spirit of hunger.
+- I am always thinking that some interesting possibility, some accidental synergy, could occur in a collaboration, and people seem to like it.
+- I would have liked to invent the plain white shirt, with a skirt and pants to go with it.
+- The more people that are afraid when they see new creation, the happier I am.
+- I can understand how some women want to marry a rich man. They may be happy for the rest of their lives, but they will never be free.
+- I don't like the word 'feminist.' I don't like the word 'ambitious.' I do like the word 'anti-establishment.'
+- The main pillar of my activity is making clothes, but this can never be the perfect and only vehicle of expression.
+- All kinds of ways of expression are spreading out all over the place, information is overflowing, and it's harder and harder to be excited about anything.
+- I want to make a shop that's unlike any that already exists.
+- I built my work from within instead of satisfying a demand for sexualised and ostentatious clothing.
+- I was not thinking about the age of Internet when I was making the fall-winter 2012 collection.
+- Often in each collection, there are three or so seeds of things that come together accidentally to form what appears to everyone else as a final product, but for me, it is never ending.
+- The place I am always looking for - because in order to keep the business, I need to make a little compromise between my values and customers' values - is the place where I make something that could almost - but not quite - be understood by everyone.
+- I've always said that, growing up in postwar Japan, I never felt any connection to my work through those experiences. The work I do really comes from inside myself. For me, being born in Japan was an accident.
+- I want to create a market where people from all walks of life can encounter each other in an atmosphere of beautiful chaos, the coming together of kindred souls.
+- For me, the best way to know me is to look at my clothing.
+- The Dover Street Markets bring brands of all disciplines together to sell their products in an open atmosphere that, most importantly, incites creativity. They are, along with the 'Comme des Garcons' stores, usually located in areas off the beaten track.
+- I always had good reactions from people with a good eye and a vision... and very terrible reactions from those who are afraid of people who are different to others - at the beginning and even now. I have never worried about it too much.
+- I don't look very much at magazines or go to vintage stores.
+- Many parts of the media have created the situation where uninteresting fashion can thrive.
+- I don't like to use expensive materials. I take care to make costs reasonable. It's very similar to the way I make clothes.
+- The monsters I thought about are those that don't fit in - those who think differently from the majority, the people of exception, outsiders. I wish that society would place more importance and value on these kinds of monsters.
+- When you put on clothes that are fighting against something, you can feel your courage grow. Clothing can set you free.
+- Although I do not believe in fame, what it brings me is the fact that I can ask someone to work with me, and they do not say no.
+- If you have total freedom to design, you won't get anything interesting. So I give myself restraints in order to kind of push myself through, to create something new. It's the torture that I give myself, the pain and the struggle that I go through.
+- I don't like to explain the clothes, how I made them, the theme, et cetera. It's because the clothes are just as you see them and feel them. That's what I want... just see and feel them.
+- I am not aware I am an icon.
+- My design process never starts or finishes. I am always hoping to find something through the mere act of living my daily life. I do not work from a desk and do not have an exact starting point for any collection.
+- I think the media has some responsibility to bear for people becoming more conservative.
+- I'm not an artist: I'm a businesswoman. Well, maybe an artist/businesswoman.
+- My approach is simple. It is nothing other than what I am thinking at the time I make each piece of clothing, whether I think it is strong and beautiful. The result is something that other people decide.
+- I'm always looking to make something that didn't exist before, fumbling about in the dark, not just while making a collection. The search for something new is a constant in my everyday life. But constantly searching for something new is like looking for a well in a desert.
+- I don't think of myself as anyone special, and I would not know how to define myself.
+- The corporateness of the fashion industry tends to take away or distort the freedom of creation.
+- My intention is not to make clothes. My head would be too restricted if I only thought about making clothes.
+- I do not feel happy when a collection is understood too well.
+- I am just working every day, day to day, with what I believe. It's a very ordinary way of dealing with your life - just dealing with your work.
+- Clothes are only completed when somebody actually wears them. If they were art, they could be more abstract. As long as something is new and has never been seen before, I don't mind if people call it art. Wear them if you dare.
+- I give myself limits - not only financial limits, but I also limit my method of expression, and from within those limits, I try to come up with something new and interesting.
+- Growing up in postwar Japan has made me the person I am, but it is not why I do the work I do. It is a very personal thing - everything comes from inside.
+- What someone wears is an expression of oneself. When you're just comfortable with what you're wearing, you don't have new thoughts. I want people to feel something and think about who they are.
+- Even though it is difficult, it is easier for me to make my own things, by myself.
+- Fashion alone is so far from being the whole story. It seems that with fashion, as with art, things are getting easier in one sense, but at the same time, it is getting harder to be stimulated about things or excite people.
+- I'm not very happy to be classified as another Japanese designer. There is no one characteristic that all Japanese designers have.
+- In order to be stimulated or moved in the future, we probably have to go into space and look at our world from there.

@@ -1,0 +1,158 @@
++++
+author = "Thomas Carlyle"
+title = "Thomas Carlyle Quotes"
+quotes_len = "152"
+description = "the best 152 Thomas Carlyle Quotes"
++++
+- The first duty of man is to conquer fear; he must get rid of it, he cannot act till then.
+- Egotism is the source and summary of all faults and miseries.
+- Old age is not a matter for sorrow. It is matter for thanks if we have left our work done behind us.
+- He who could foresee affairs three days in advance would be rich for thousands of years.
+- It is a vain hope to make people happy by politics.
+- Reform is not pleasant, but grievous; no person can reform themselves without suffering and hard work, how much less a nation.
+- Worship is transcendent wonder.
+- I grow daily to honour facts more and more, and theory less and less. A fact, it seems to me, is a great thing; a sentence printed, if not by God, then at least by the Devil.
+- Go as far as you can see; when you get there you'll be able to see farther.
+- The courage we desire and prize is not the courage to die decently, but to live manfully.
+- Isolation is the sum total of wretchedness to a man.
+- Man is, properly speaking, based upon hope, he has no other possession but hope; this world of his is emphatically the place of hope.
+- For, if a good speaker, never so eloquent, does not see into the fact, and is not speaking the truth of that - is there a more horrid kind of object in creation?
+- He who has health, has hope; and he who has hope, has everything.
+- The work an unknown good man has done is like a vein of water flowing hidden underground, secretly making the ground green.
+- The end of man is action, and not thought, though it be of the noblest.
+- Wonder is the basis of worship.
+- Nothing that was worthy in the past departs; no truth or goodness realized by man ever dies, or can die.
+- No iron chain, or outward force of any kind, can ever compel the soul of a person to believe or to disbelieve.
+- This world, after all our science and sciences, is still a miracle wonderful, inscrutable, magical and more, to whosoever will think of it.
+- The man of life upright has a guiltless heart, free from all dishonest deeds or thought of vanity.
+- Not what I have, but what I do is my kingdom.
+- A man without a goal is like a ship without a rudder.
+- The greatest of faults, I should say, is to be conscious of none.
+- No amount of ability is of the slightest avail without honor.
+- The outer passes away; the innermost is the same yesterday, today, and forever.
+- For all right judgment of any man or things it is useful, nay, essential, to see his good qualities before pronouncing on his bad.
+- No ghost was every seen by two pair of eyes.
+- If you are ever in doubt as to whether to kiss a pretty girl, always give her the benefit of the doubt.
+- The block of granite which was an obstacle in the pathway of the weak, became a stepping-stone in the pathway of the strong.
+- True humor springs not more from the head than from the heart. It is not contempt; its essence is love. It issues not in laughter, but in still smiles, which lie far deeper.
+- Do the duty which lies nearest to you, the second duty will then become clearer.
+- Science must have originated in the feeling that something was wrong.
+- The old cathedrals are good, but the great blue dome that hangs over everything is better.
+- Culture is the process by which a person becomes all that they were created capable of being.
+- Doubt, of whatever kind, can be ended by action alone.
+- Show me the person you honor, for I know better by that the kind of person you are. For you show me what your idea of humanity is.
+- Foolish men imagine that because judgment for an evil thing is delayed, there is no justice; but only accident here below. Judgment for an evil thing is many times delayed some day or two, some century or two, but it is sure as life, it is sure as death.
+- All great peoples are conservative.
+- The merit of originality is not novelty; it is sincerity.
+- Conviction never so excellent, is worthless until it coverts itself into conduct.
+- Love is the only game that is not called on account of darkness.
+- I do not believe in the collective wisdom of individual ignorance.
+- A man willing to work, and unable to find work, is perhaps the saddest sight that fortune's inequality exhibits under this sun.
+- To us also, through every star, through every blade of grass, is not God made visible if we will open our minds and our eyes.
+- The fearful unbelief is unbelief in yourself.
+- A man cannot make a pair of shoes rightly unless he do it in a devout manner.
+- Make yourself an honest man, and then you may be sure there is one less rascal in the world.
+- In every phenomenon the beginning remains always the most notable moment.
+- If you look deep enough you will see music; the heart of nature being everywhere music.
+- Let each become all that he was created capable of being.
+- The three great elements of modern civilization, Gun powder, Printing, and the Protestant religion.
+- Silence is more eloquent than words.
+- The difference between Socrates and Jesus? The great conscious and the immeasurably great unconscious.
+- Woe to him that claims obedience when it is not due; woe to him that refuses it when it is.
+- I've got a great ambition to die of exhaustion rather than boredom.
+- Silence is the element in which great things fashion themselves together; that at length they may emerge, full-formed and majestic, into the delight of life, which they are thenceforth to rule.
+- Man's unhappiness, as I construe, comes of his greatness; it is because there is an Infinite in him, which with all his cunning he cannot quite bury under the Finite.
+- The world is a republic of mediocrities, and always was.
+- Imperfection clings to a person, and if they wait till they are brushed off entirely, they would spin for ever on their axis, advancing nowhere.
+- Man is a tool-using animal. Without tools he is nothing, with tools he is all.
+- If you do not wish a man to do a thing, you had better get him to talk about it; for the more men talk, the more likely they are to do nothing else.
+- Speech is human, silence is divine, yet also brutish and dead: therefore we must learn both arts.
+- Music is well said to be the speech of angels.
+- Everywhere in life, the true question is not what we gain, but what we do.
+- Laughter is one of the very privileges of reason, being confined to the human species.
+- In the long-run every Government is the exact symbol of its People, with their wisdom and unwisdom; we have to say, Like People like Government.
+- One must verify or expel his doubts, and convert them into the certainty of Yes or NO.
+- Our main business is not to see what lies dimly at a distance, but to do what lies clearly at hand.
+- No pressure, no diamonds.
+- Thought is the parent of the deed.
+- Weak eyes are fondest of glittering objects.
+- No man who has once heartily and wholly laughed can be altogether irreclaimably bad.
+- No sadder proof can be given by a man of his own littleness than disbelief in great men.
+- No man lives without jostling and being jostled; in all ways he has to elbow himself through the world, giving and receiving offence.
+- Men do less than they ought, unless they do all that they can.
+- Men seldom, or rather never for a length of time and deliberately, rebel against anything that does not deserve rebelling against.
+- Endurance is patience concentrated.
+- The only happiness a brave person ever troubles themselves in asking about, is happiness enough to get their work done.
+- It is the heart always that sees, before the head can see.
+- No great man lives in vain. The history of the world is but the biography of great men.
+- When the oak is felled the whole forest echoes with it fall, but a hundred acorns are sown in silence by an unnoticed breeze.
+- To reform a world, to reform a nation, no wise man will undertake; and all but foolish men know, that the only solid, though a far slower reformation, is what each begins and perfects on himself.
+- There are good and bad times, but our mood changes more often than our fortune.
+- If an eloquent speaker speak not the truth, is there a more horrid kind of object in creation?
+- Narrative is linear, but action has breadth and depth as well as height and is solid.
+- Every new opinion, at its starting, is precisely in a minority of one.
+- Nothing builds self-esteem and self-confidence like accomplishment.
+- The eye sees what it brings the power to see.
+- Blessed is he who has found his work; let him ask no other blessedness.
+- Every day that is born into the world comes like a burst of music and rings the whole day through, and you make of it a dance, a dirge, or a life march, as you will.
+- A man lives by believing something: not by debating and arguing about many things.
+- A man's felicity consists not in the outward and visible blessing of fortune, but in the inward and unseen perfections and riches of the mind.
+- The real use of gunpowder is to make all men tall.
+- The true university of these days is a collection of books.
+- If what you have done is unjust, you have not succeeded.
+- It is a strange trade that of advocacy. Your intellect, your highest heavenly gift is hung up in the shop window like a loaded pistol for sale.
+- Secrecy is the element of all goodness; even virtue, even beauty is mysterious.
+- Conviction is worthless unless it is converted into conduct.
+- Adversity is the diamond dust Heaven polishes its jewels with.
+- None of us will ever accomplish anything excellent or commanding except when he listens to this whisper which is heard by him alone.
+- Not brute force but only persuasion and faith are the kings of this world.
+- Permanence, perseverance and persistence in spite of all obstacles, discouragements, and impossibilities: It is this, that in all things distinguishes the strong soul from the weak.
+- Clever men are good, but they are not the best.
+- Happy the people whose annals are vacant.
+- Teach a parrot the terms 'supply and demand' and you've got an economist.
+- Imagination is a poor matter when it has to part company with understanding.
+- A person who is gifted sees the essential point and leaves the rest as surplus.
+- Talk that does not end in any kind of action is better suppressed altogether.
+- When new turns of behavior cease to appear in the life of the individual, its behavior ceases to be intelligent.
+- What we become depends on what we read after all of the professors have finished with us. The greatest university of all is a collection of books.
+- No person is important enough to make me angry.
+- Oh, give us the man who sings at his work.
+- No violent extreme endures.
+- Every noble work is at first impossible.
+- Silence is as deep as eternity, speech a shallow as time.
+- What you see, but can't see over is as good as infinite.
+- Silence is the element in which great things fashion themselves together.
+- Be not a slave of words.
+- Thought once awakened does not again slumber; unfolds itself into a System of Thought; grows, in man after man, generation after generation, - till its full stature is reached, and such System of Thought can grow no farther, but must give place to another.
+- Love is not altogether a delirium, yet it has many points in common therewith.
+- Writing is a dreadful labor, yet not so dreadful as Idleness.
+- Wondrous is the strength of cheerfulness, and its power of endurance - the cheerful man will do more in the same time, will do it; better, will preserve it longer, than the sad or sullen.
+- Nothing is more terrible than activity without insight.
+- Youth is to all the glad season of life; but often only by what it hopes, not by what it attains, or what it escapes.
+- Nothing stops the man who desires to achieve. Every obstacle is simply a course to develop his achievement muscle. It's a strengthening of his powers of accomplishment.
+- The spiritual is the parent of the practical.
+- War is a quarrel between two thieves too cowardly to fight their own battle.
+- A loving heart is the beginning of all knowledge.
+- Originality is a thing we constantly clamour for, and constantly quarrel with.
+- I don't like to talk much with people who always agree with me. It is amusing to coquette with an echo for a little while, but one soon tires of it.
+- History, a distillation of rumour.
+- Necessity dispenseth with decorum.
+- I don't pretend to understand the Universe - it's a great deal bigger than I am.
+- History shows that the majority of people that have done anything great have passed their youth in seclusion.
+- There is a great discovery still to be made in literature, that of paying literary men by the quantity they do not write.
+- Of all acts of man repentance is the most divine. The greatest of all faults is to be conscious of none.
+- Everywhere the human soul stands between a hemisphere of light and another of darkness; on the confines of the two everlasting empires, necessity and free will.
+- Show me the man you honor, and I will know what kind of man you are.
+- In books lies the soul of the whole past time.
+- Good breeding differs, if at all, from high breeding only as it gracefully remembers the rights of others, rather than gracefully insists on its own rights.
+- Sarcasm I now see to be, in general, the language of the devil; for which reason I have long since as good as renounced it.
+- Humor has justly been regarded as the finest perfection of poetic genius.
+- If there be no enemy there's no fight. If no fight, no victory and if no victory there is no crown.
+- All that mankind has done, thought or been: it is lying as in magic preservation in the pages of books.
+- The cut of a garment speaks of intellect and talent and the color of temperament and heart.
+- Genius is an infinite capacity for taking pains.
+- It were a real increase of human happiness, could all young men from the age of nineteen be covered under barrels, or rendered otherwise invisible; and there left to follow their lawful studies and callings, till they emerged, sadder and wiser, at the age of twenty-five.
+- A laugh, to be joyous, must flow from a joyous heart, for without kindness, there can be no true joy.
+- A well-written life is almost as rare as a well-spent one.
+- Long stormy spring-time, wet contentious April, winter chilling the lap of very May; but at length the season of summer does come.
+- Work alone is noble.
